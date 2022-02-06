@@ -13754,3 +13754,15 @@ ptsd个p，那边流行看到一段剧情就说是樱井，看到一个新从者
 
 type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情编写<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86836#       发表于 2022-2-6 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54569019&amp;ptid=1085254" target="_blank">zore 发表于 2022-2-6 17:19</a>
+
+米泽圆不是等一个奥尔加玛丽大总统吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点忘了大总统  不过感觉难 先等个手机版提妈落地 
+
