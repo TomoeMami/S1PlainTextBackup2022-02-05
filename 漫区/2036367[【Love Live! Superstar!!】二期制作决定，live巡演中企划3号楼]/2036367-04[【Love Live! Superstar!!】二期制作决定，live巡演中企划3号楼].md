@@ -6994,3 +6994,14 @@ Nako什么时候能报个平安啊，这都一个星期没动静了<img src="htt
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 5073#       发表于 2022-2-6 16:51
+
+虽然说没发现AED效应，不过正常治疗住院也要一两周吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

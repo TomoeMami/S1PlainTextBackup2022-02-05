@@ -13640,3 +13640,44 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 中间还得放个雪菜 可惜没有   看现在米泽圆好像都不存在了。。应该没机会登月了 ...</blockquote>
 或者给巴姐个红丝会长礼装？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuarwbwe  
+##### 86825#       发表于 2022-2-6 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁这ptsd有点严重啊。巴姐这立绘居然能看成是苍月画的。
+
+*****
+
+####  exiaexa  
+##### 86826#       发表于 2022-2-6 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568280&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-6 15:56</a>
+因为你没有钞能力  奥奥+x  也是一种刷法 借个奥一人一炮</blockquote>
+双奥伯龙＝20+20（被动）+20（第二个奥伯龙）+50＝110，这就启动两个了
+
+第三个人有20（被动）+40（双奥伯龙），自己有个40就能开炮
+
+*****
+
+####  alucardcz  
+##### 86827#       发表于 2022-2-6 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568754&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-6 16:51</a>
+
+双奥伯龙＝20+20（被动）+20（第二个奥伯龙）+50＝110，这就启动两个了
+
+第三个人有20（被动）+40（双奥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉你引用错人了（
+
+*****
+
+####  angelooo  
+##### 86828#       发表于 2022-2-6 16:59
+
+<blockquote>kuarwbwe 发表于 2022-2-6 16:41
+隔壁这ptsd有点严重啊。巴姐这立绘居然能看成是苍月画的。</blockquote>
+ptsd个p，那边流行看到一段剧情就说是樱井，看到一个新从者就说是苍月，这种不是眼睛瞎了就是玩梗故意恶心人
+
