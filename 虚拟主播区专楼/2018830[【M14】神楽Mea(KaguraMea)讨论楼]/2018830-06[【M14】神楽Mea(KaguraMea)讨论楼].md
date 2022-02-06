@@ -8094,3 +8094,12 @@ emmmmmmm
 
 这吊人刚刚结束一场排位 辅助露露赢了 你还惦记这你那sb辅助啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8433#       发表于 2022-2-6 15:43
+
+今天就算晋级白金失败，也不能逃啊。擦干眼泪上班才是成年人。
+

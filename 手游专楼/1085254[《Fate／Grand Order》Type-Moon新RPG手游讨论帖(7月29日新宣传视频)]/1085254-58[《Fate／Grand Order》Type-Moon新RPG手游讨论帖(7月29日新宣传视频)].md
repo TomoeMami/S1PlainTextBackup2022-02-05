@@ -13426,3 +13426,48 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不发个300石庆祝下
 
+
+
+*****
+
+####  白金口袋  
+##### 86799#       发表于 2022-2-6 15:42
+
+那几个打手升120我能理解，奥伯龙一个辅助那么多人升120的意义究竟在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86800#       发表于 2022-2-6 15:54
+
+终于换安生来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86801#       发表于 2022-2-6 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568267&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-2-6 15:54</a>
+
+终于换安生来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到在说yls新冠了  真的假的
+
+*****
+
+####  alucardcz  
+##### 86802#       发表于 2022-2-6 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568189&amp;ptid=1085254" target="_blank">白金口袋 发表于 2022-2-6 15:42</a>
+
+那几个打手升120我能理解，奥伯龙一个辅助那么多人升120的意义究竟在哪里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你没有钞能力  奥奥+x  也是一种刷法 借个奥一人一炮
+
+*****
+
+####  rooarr  
+##### 86803#       发表于 2022-2-6 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568274&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-6 15:55</a>
+看到在说yls新冠了  真的假的</blockquote>
+应该是真的，这个不重要，只要发石头yls来不来都不重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
