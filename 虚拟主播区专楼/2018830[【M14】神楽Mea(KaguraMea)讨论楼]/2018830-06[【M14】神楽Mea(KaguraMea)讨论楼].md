@@ -8146,3 +8146,70 @@ emmmmmmm
 
 #神乐咩啊官宣要和拆腻子结婚
 
+
+
+*****
+
+####  2014720  
+##### 8439#       发表于 2022-2-6 22:41
+
+这收米比我想的多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  追风小星星  
+##### 8440#       发表于 2022-2-6 22:44
+
+直球到改词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8441#       发表于 2022-2-6 22:44
+
+年纪大了，喵不动了。
+
+*****
+
+####  freeze_雪风  
+##### 8442#       发表于 2022-2-6 22:45
+
+怎么还有人打钱啊，管人痴真下头
+
+*****
+
+####  十九号大侠  
+##### 8443#       发表于 2022-2-6 22:45
+
+咩咩什么时候功利起来
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 8444#       发表于 2022-2-6 22:52
+
+再想功利也得先把白金上了再说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 8445#       发表于 2022-2-6 22:54
+
+上白金求大爹的时候还是很功利的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂蓮華  
+##### 8446#       发表于 2022-2-6 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">给小姑娘发个压岁钱也没啥，可惜现在管不了自己的钱包了
+
+*****
+
+####  古战场亡魂  
+##### 8447#       发表于 2022-2-6 22:55
+
+好了，代表500刀的歌有了，代表1000块人民币的歌也有了。
+
