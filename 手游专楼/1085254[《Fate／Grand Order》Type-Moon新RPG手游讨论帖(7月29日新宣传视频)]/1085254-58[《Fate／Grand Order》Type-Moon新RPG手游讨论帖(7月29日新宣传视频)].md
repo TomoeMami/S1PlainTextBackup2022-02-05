@@ -13584,3 +13584,59 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 
 会不会是给一个Buff，然后对面放宝具前放出宝具？就好像之前的哈贝喵的反转，不过如果这样的话那就真的是周回无缘了。
 
+
+
+*****
+
+####  yangun22  
+##### 86819#       发表于 2022-2-6 16:23
+
+大概是和小安一样的待机宝具吧，前面一段是用的时候样子，后面射出去那段是敌人攻击或者宝具触发了反击打出去的时候
+
+*****
+
+####  qixinno2  
+##### 86820#       发表于 2022-2-6 16:24
+
+ 本帖最后由 qixinno2 于 2022-2-6 16:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">情人节从者强度就别想了吧 除了BX靠着三次强化成为第一弓阶绿单体 剩下的还有什么 除非给个特殊机制 反击触发后强制跳过敌方回合 没准能在某些特殊关卡有点用
+
+
+
+*****
+
+####  alucardcz  
+##### 86821#       发表于 2022-2-6 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568424&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-6 16:12</a>
+
+毫无意外
+
+如果抽到就放在All阶，然后剑阶放高文</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中间还得放个雪菜 可惜没有   看现在米泽圆好像都不存在了。。应该没机会登月了
+
+*****
+
+####  angelooo  
+##### 86822#       发表于 2022-2-6 16:32
+
+情人节目前相对弱的只有卡莲、阿清、女帝吧，花嫁算拐，紫式部魔性杀手，BX核弹
+
+*****
+
+####  飞霞精灵  
+##### 86823#       发表于 2022-2-6 16:33
+
+巴姐来了，心愿已了。。。。
+
+*****
+
+####  khxooo  
+##### 86824#       发表于 2022-2-6 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568589&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-6 16:29</a>
+
+中间还得放个雪菜 可惜没有   看现在米泽圆好像都不存在了。。应该没机会登月了 ...</blockquote>
+或者给巴姐个红丝会长礼装？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
