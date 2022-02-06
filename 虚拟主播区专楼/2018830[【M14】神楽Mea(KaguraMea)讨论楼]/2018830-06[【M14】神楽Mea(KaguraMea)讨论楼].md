@@ -8405,3 +8405,41 @@ syl其实也挺好，别人大A特A，他大撸特撸
 
 总算用光辉了，原来露露被对面抢了。你明明能玩其他英雄的。
 
+
+
+*****
+
+####  Klience  
+##### 8473#       发表于 2022-2-7 00:42
+
+输了 辅助光辉2/11 所以 不是英雄问题 而是人的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8474#       发表于 2022-2-7 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54573872&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-7 00:42</a>
+
+输了 辅助光辉2/11 所以 不是英雄问题 而是人的问题</blockquote>
+讲道理，对面上单武器，我方上单狗头，我觉得已经没法打了。
+
+而且我方还是菜刀队。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+35分钟结束比赛输了很合理好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8475#       发表于 2022-2-7 00:57
+
+不是我帮mea洗……就是摊上个开局两分钟被野怪打死的打野，己方打野卵事不做，敌方打野游崩全场，全线炸裂，10分钟直接1-7，能挺到35分钟已经不容易了。
+
+<img src="https://img.saraba1st.com/forum/202202/07/005413dpolo01thao0o4ao.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220207005214.png</strong> (41.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 00:54 上传
+
