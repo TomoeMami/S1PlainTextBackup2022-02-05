@@ -13724,3 +13724,33 @@ ptsd个p，那边流行看到一段剧情就说是樱井，看到一个新从者
 而且单体</blockquote>
 设定上要在别人宝具发动前先打中对方，肯定是单体啊
 
+
+
+*****
+
+####  真红眼教授  
+##### 86833#       发表于 2022-2-6 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568679&amp;ptid=1085254" target="_blank">kuarwbwe 发表于 2022-2-6 16:41</a>
+
+隔壁这ptsd有点严重啊。巴姐这立绘居然能看成是苍月画的。</blockquote>
+前几天还把金钻头的幕间说是樱井写的，要不是三田自己发推认领锅，樱井就要背锅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86834#       发表于 2022-2-6 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568804&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-6 16:55</a>
+
+感觉你引用错人了（</blockquote>
+草，都是手机的错
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 86835#       发表于 2022-2-6 17:51
+
+type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情编写<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
