@@ -8758,3 +8758,19 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  精疯MAN  
+##### 661#       发表于 2022-2-6 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54564495&amp;ptid=2043629" target="_blank">amanohanei 发表于 2022-2-6 05:17</a>
+
+终于抽出时间把剧场版看了</blockquote>
+总集篇
+
+链接：[https://pan.baidu.com/s/1YFjtFFFM1dnlRmFUYv1kSA](https://pan.baidu.com/s/1YFjtFFFM1dnlRmFUYv1kSA) 
+
+提取码：9kql
+

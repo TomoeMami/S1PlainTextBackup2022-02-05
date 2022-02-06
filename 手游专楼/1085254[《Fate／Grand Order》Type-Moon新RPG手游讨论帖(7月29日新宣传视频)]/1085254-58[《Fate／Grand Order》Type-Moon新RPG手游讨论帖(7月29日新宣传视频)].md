@@ -13710,3 +13710,17 @@ ptsd个p，那边流行看到一段剧情就说是樱井，看到一个新从者
 
 米泽圆不是等一个奥尔加玛丽大总统吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 86832#       发表于 2022-2-6 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568911&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-2-6 17:07</a>
+
+海神之枪不就是要被打中后才能触发嘛
+
+而且单体</blockquote>
+设定上要在别人宝具发动前先打中对方，肯定是单体啊
+

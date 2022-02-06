@@ -7016,3 +7016,17 @@ Nako什么时候能报个平安啊，这都一个星期没动静了<img src="htt
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  黑雪姫  
+##### 5075#       发表于 2022-2-6 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568760&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-2-6 16:51</a>
+
+虽然说没发现AED效应，不过正常治疗住院也要一两周吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Nex ...</blockquote>
+想多了，nako在公布发热的第二天就退烧了，这种程度日本是不给住院的，就是居家疗养。
+
