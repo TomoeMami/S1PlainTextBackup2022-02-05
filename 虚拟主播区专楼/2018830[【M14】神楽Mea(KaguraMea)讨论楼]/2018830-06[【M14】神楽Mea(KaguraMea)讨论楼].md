@@ -8443,3 +8443,21 @@ syl其实也挺好，别人大A特A，他大撸特撸
 
 2022-2-7 00:54 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8476#       发表于 2022-2-7 01:12
+
+我估计mea也是被气到了，打了一把就不玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8477#       发表于 2022-2-7 01:16
+
+黄金能被也怪打死？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
