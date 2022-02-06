@@ -8288,3 +8288,26 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 但是直接用s1id还少打了个f 应该是rp吧
 
+
+
+*****
+
+####  Niyah  
+##### 5371#       发表于 2022-2-6 21:41
+
+虽然有点不礼貌，但是听到这赤伶没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 5372#       发表于 2022-2-6 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">还好没投稿去丢人
+
+*****
+
+####  Quark  
+##### 5373#       发表于 2022-2-6 21:53
+
+怎么好多都是全唱了 看了眼动态也没说是合唱歌回 感觉怪怪的
+

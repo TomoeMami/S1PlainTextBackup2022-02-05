@@ -13876,3 +13876,19 @@ FK5nyq8VIAEgAWe.jpg
 宝具动画中间剪了一段，肯定有独特的触发效果 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">但是一拳超人也没有啊.....还是别抱太大希望
 
+
+
+*****
+
+####  真红眼教授  
+##### 86845#       发表于 2022-2-6 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54571644&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-2-6 21:30</a>
+
+按照效果是对方回合行动时发动吧
+
+攻击加行动不能</blockquote>
+我猜是强制终止敌方回合，理论上实现也不难
+
+当然要是摆烂只是个普通单体宝具那就算了
+
