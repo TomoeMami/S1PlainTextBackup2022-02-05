@@ -8774,3 +8774,34 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 提取码：9kql
 
+
+
+*****
+
+####  nh_zzz  
+##### 662#       发表于 2022-2-6 19:42
+
+舞台公演決定！！！！！！！！！！！
+
+2023年 聖翔音楽学園の舞台公演が決定
+
+詳細については公式Twitter, 公式サイト等で順次発表いたします
+
+99期生メンバーがどんな活躍をするのか、お楽しみに
+
+<img src="https://img.saraba1st.com/forum/202202/06/194158dyelzeehleck3lv7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-6 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202202/06/194206cz52fhc624zn5222.jpg" referrerpolicy="no-referrer">
+
+<strong>1P_BTE@18(O50`YPSJ00`VX.jpg</strong> (65.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-6 19:42 上传
+

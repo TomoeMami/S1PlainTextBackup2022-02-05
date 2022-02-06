@@ -13780,3 +13780,21 @@ type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情�
 
 不过大妈的东西确实是最好认的。毕竟搞文本复制粘贴，还有把一段故事分成几小段，再把每段结构写的几乎完全一样的写手，全型月大概只此一家。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 86838#       发表于 2022-2-6 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这巴姐宝具动画也做的太简陋了吧.....一个特写再一拳打出去就没了？
+
+完全想象不出这是最新的限定5星角色宝具动画....说是开服5星的动画还差不多
+
+*****
+
+####  qixinno2  
+##### 86839#       发表于 2022-2-6 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等实装新机制后看你们真香了
+

@@ -8240,3 +8240,12 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝直播间bgm一直很雅，导致我起床失败已经半小时了
 
+
+
+*****
+
+####  faithlifer  
+##### 5365#       发表于 2022-2-6 19:37
+
+昨晚歌回气氛真的好
+
