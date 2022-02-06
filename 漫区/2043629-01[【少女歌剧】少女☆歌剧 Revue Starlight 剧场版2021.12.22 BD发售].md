@@ -8814,3 +8814,13 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">居然还有圣翔舞台
 
+
+
+*****
+
+####  rainknine  
+##### 664#       发表于 2022-2-6 20:12
+
+企划活着就好
+希望有生之年看一次唱star parade的现场
+

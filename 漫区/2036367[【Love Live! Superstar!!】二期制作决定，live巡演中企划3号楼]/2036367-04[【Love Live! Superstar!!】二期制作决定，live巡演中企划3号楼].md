@@ -7043,3 +7043,25 @@ Nako什么时候能报个平安啊，这都一个星期没动静了<img src="htt
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  csolfans  
+##### 5077#       发表于 2022-2-6 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54569138&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-2-6 17:33</a>
+
+想多了，nako在公布发热的第二天就退烧了，这种程度日本是不给住院的，就是居家疗养。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">希望nako没事吧，怕了
+
+*****
+
+####  welcom  
+##### 5078#       发表于 2022-2-6 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54570550&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-2-6 20:03</a>
+
+希望nako没事吧，怕了</blockquote>
+往好了想就是事务所也有点虚，好歹让她多休息几天了
+

@@ -13807,3 +13807,19 @@ type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具啥的无所谓，能不能让我把摩根妖崔礼装摆到游戏界面
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86841#       发表于 2022-2-6 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54570184&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-2-6 19:24</a>
+
+这巴姐宝具动画也做的太简陋了吧.....一个特写再一拳打出去就没了？
+
+完全想象不出这是最新的限定5 ...</blockquote>
+因为效果不是既时发动啊
+
+还得被打才行<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
