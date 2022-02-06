@@ -13798,3 +13798,12 @@ type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等实装新机制后看你们真香了
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 86840#       发表于 2022-2-6 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具啥的无所谓，能不能让我把摩根妖崔礼装摆到游戏界面
+
