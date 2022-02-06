@@ -13766,3 +13766,17 @@ type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情�
 米泽圆不是等一个奥尔加玛丽大总统吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点忘了大总统  不过感觉难 先等个手机版提妈落地 
 
+
+
+*****
+
+####  kuarwbwe  
+##### 86837#       发表于 2022-2-6 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54569269&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2022-2-6 17:48</a>
+
+前几天还把金钻头的幕间说是樱井写的，要不是三田自己发推认领锅，樱井就要背锅了 ...</blockquote>
+反正猜作者这事也没少翻车。什么152有许德拉，那一定是许德拉爱好者东出（实际是水濑）；有黄段子一定是水濑；153打戏多肯定是东出，实际是樱井。说白了还是看得少。
+
+不过大妈的东西确实是最好认的。毕竟搞文本复制粘贴，还有把一段故事分成几小段，再把每段结构写的几乎完全一样的写手，全型月大概只此一家。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
