@@ -1387,3 +1387,12 @@ Ametori off collab coming soon(TM)<img src="https://static.saraba1st.com/image/s
 
 鲨鱼开场：我今天不舒服，我是新冠患者的密接
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 1629#       发表于 2022-2-6 15:32
+
+指红色鲨鱼嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

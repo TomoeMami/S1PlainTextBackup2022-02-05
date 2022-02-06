@@ -8085,3 +8085,12 @@ emmmmmmm
 
 几个mv 最多2场拼盘节目，不能期待更多
 
+
+
+*****
+
+####  Klience  
+##### 8432#       发表于 2022-2-6 15:34
+
+这吊人刚刚结束一场排位 辅助露露赢了 你还惦记这你那sb辅助啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
