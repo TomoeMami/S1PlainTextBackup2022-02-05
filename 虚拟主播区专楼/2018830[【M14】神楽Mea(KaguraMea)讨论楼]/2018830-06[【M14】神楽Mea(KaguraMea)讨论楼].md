@@ -8065,3 +8065,23 @@ emmmmmmm
 
 还不是其他人太fw，上次我一时间竟分不清是在谁的直播间直播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 8430#       发表于 2022-2-6 14:45
+
+没化学反应也少节目效果，两个mc在还好点，只有你麻是孤掌难鸣。
+
+等第四个人出现真的能救得动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往坏了想熬过今年也就完事了
+
+
+
+*****
+
+####  T_Hb  
+##### 8431#       发表于 2022-2-6 14:46
+
+几个mv 最多2场拼盘节目，不能期待更多
+

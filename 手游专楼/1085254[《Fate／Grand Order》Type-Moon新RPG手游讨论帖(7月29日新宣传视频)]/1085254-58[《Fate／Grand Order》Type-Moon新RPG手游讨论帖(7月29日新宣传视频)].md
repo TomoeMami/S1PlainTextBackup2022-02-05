@@ -13394,3 +13394,35 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那傻逼井对我来说跟不存在没区别
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86795#       发表于 2022-2-6 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿叶新冠了
+
+
+
+*****
+
+####  khxooo  
+##### 86796#       发表于 2022-2-6 15:03
+
+难怪没有来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86797#       发表于 2022-2-6 15:05
+
+确诊了可还行，现场的人好像都戴了两个口罩
+
+*****
+
+####  qixinno2  
+##### 86798#       发表于 2022-2-6 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不发个300石庆祝下
+
