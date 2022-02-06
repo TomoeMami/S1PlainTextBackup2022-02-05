@@ -13471,3 +13471,116 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 看到在说yls新冠了  真的假的</blockquote>
 应该是真的，这个不重要，只要发石头yls来不来都不重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 86804#       发表于 2022-2-6 16:08
+
+时隔5年，开服特有的最左边优先又要出现了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86805#       发表于 2022-2-6 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这妖崔第1眼还以为是龙娘
+
+*****
+
+####  霧谷藤乃  
+##### 86806#       发表于 2022-2-6 16:10
+
+礼装不错，可以考虑抽一下……
+
+*****
+
+####  alucardcz  
+##### 86807#       发表于 2022-2-6 16:10
+
+还真是巴姐。。
+
+*****
+
+####  eden_hazard  
+##### 86808#       发表于 2022-2-6 16:11
+
+男人婆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 86809#       发表于 2022-2-6 16:11
+
+宝具有点lowlow的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 86810#       发表于 2022-2-6 16:11
+
+型月已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 86811#       发表于 2022-2-6 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是不是生天目第1个fgo角色？
+
+*****
+
+####  khxooo  
+##### 86812#       发表于 2022-2-6 16:12
+
+ 本帖最后由 khxooo 于 2022-2-6 16:13 编辑 
+
+毫无意外<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+如果抽到就放在All阶，然后剑阶放高文<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86813#       发表于 2022-2-6 16:12
+
+这个是开服的时候做的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 86814#       发表于 2022-2-6 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁拳啊
+
+*****
+
+####  angelooo  
+##### 86815#       发表于 2022-2-6 16:14
+
+这巴姐为什么和我印象里的气质不太一样......
+
+*****
+
+####  yangun22  
+##### 86816#       发表于 2022-2-6 16:16
+
+怎么感觉宝具中间像被剪掉了一段似的，巴姐这宝具机制不知道怎么做出来
+
+*****
+
+####  qixinno2  
+##### 86817#       发表于 2022-2-6 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有两石 这次活动连礼装都没的抽了
+
+*****
+
+####  khxooo  
+##### 86818#       发表于 2022-2-6 16:18
+
+会不会是给一个Buff，然后对面放宝具前放出宝具？就好像之前的哈贝喵的反转，不过如果这样的话那就真的是周回无缘了。
+
