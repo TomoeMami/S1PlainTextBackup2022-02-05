@@ -13839,3 +13839,40 @@ type-moon在论坛真正的皇，樱井光。掌管了这两年fgo80%的剧情�
 
 宝具动画中间剪了一段，肯定有独特的触发效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86843#       发表于 2022-2-6 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54571264&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2022-2-6 21:04</a>
+
+妖兰一破当时也是这么说的
+
+宝具动画中间剪了一段，肯定有独特的触发效果 ...</blockquote>
+按照效果是对方回合行动时发动吧
+
+攻击加行动不能
+
+FK5nyq8VIAEgAWe.jpg
+(428.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-6 21:30 上传
+
+<img src="https://img.saraba1st.com/forum/202202/06/213008n0pmbhvblphdzdhd.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 86844#       发表于 2022-2-6 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54571264&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2022-2-6 21:04</a>
+
+妖兰一破当时也是这么说的
+
+宝具动画中间剪了一段，肯定有独特的触发效果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">但是一拳超人也没有啊.....还是别抱太大希望
+
