@@ -8824,3 +8824,12 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 企划活着就好
 希望有生之年看一次唱star parade的现场
 
+
+
+*****
+
+####  angela5d30  
+##### 665#       发表于 2022-2-6 20:38
+
+虽然不现实，那我能不能期待下月中那外校手游舞台剧演完后宣布 ''飞鸽院为主轴，咸鱼馆跟边境线为辅'' 的剧场版动画/后续舞台剧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
