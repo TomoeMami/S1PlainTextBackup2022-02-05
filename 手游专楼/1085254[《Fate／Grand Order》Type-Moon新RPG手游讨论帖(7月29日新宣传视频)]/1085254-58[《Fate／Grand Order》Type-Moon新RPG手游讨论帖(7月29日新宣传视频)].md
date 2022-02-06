@@ -13912,3 +13912,12 @@ FK5nyq8VIAEgAWe.jpg
 
 应该就是做成先手动发动，然后对面放大招触发，打死了就完事，没打死对面就继续大招
 
+
+
+*****
+
+####  白金口袋  
+##### 86848#       发表于 2022-2-7 00:30
+
+你们在对一个摆烂的游戏设计期待什么？就普通单体宝具糊弄过去完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
