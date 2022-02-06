@@ -13681,3 +13681,32 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 隔壁这ptsd有点严重啊。巴姐这立绘居然能看成是苍月画的。</blockquote>
 ptsd个p，那边流行看到一段剧情就说是樱井，看到一个新从者就说是苍月，这种不是眼睛瞎了就是玩梗故意恶心人
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86829#       发表于 2022-2-6 17:07
+
+ 本帖最后由 gpx234mqx 于 2022-2-6 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568465&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-2-6 16:16</a>
+
+怎么感觉宝具中间像被剪掉了一段似的，巴姐这宝具机制不知道怎么做出来</blockquote>
+海神之枪不就是要被打中后才能触发嘛
+
+而且单体<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86830#       发表于 2022-2-6 17:12
+
+卫宫认识的人差不多都是忠烈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 86831#       发表于 2022-2-6 17:19
+
+米泽圆不是等一个奥尔加玛丽大总统吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7005,3 +7005,14 @@ Nako什么时候能报个平安啊，这都一个星期没动静了<img src="htt
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Enakina  
+##### 5074#       发表于 2022-2-6 17:06
+
+这么多艺人全都是居家疗养，我还没见公告上写住院治疗的人呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
