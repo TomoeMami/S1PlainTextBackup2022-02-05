@@ -8231,3 +8231,115 @@ emmmmmmm
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  2111X  
+##### 8450#       发表于 2022-2-6 23:25
+
+实力精分
+
+*****
+
+####  2014720  
+##### 8451#       发表于 2022-2-6 23:25
+
+牛逼 白金disco<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8452#       发表于 2022-2-6 23:25
+
+就一破歌有啥不能唱，唱完还不是得继续上分
+
+*****
+
+####  onlv星骸  
+##### 8453#       发表于 2022-2-6 23:26
+
+唱白金disco的小姐姐上白金加油啊💪
+
+*****
+
+####  T_Hb  
+##### 8454#       发表于 2022-2-6 23:26
+
+好活
+
+*****
+
+####  2014720  
+##### 8455#       发表于 2022-2-6 23:26
+
+果然还是上不了白金<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8456#       发表于 2022-2-6 23:26
+
+白金ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8457#       发表于 2022-2-6 23:27
+
+好活
+
+*****
+
+####  2014720  
+##### 8458#       发表于 2022-2-6 23:27
+
+我还以为绷得住呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 8459#       发表于 2022-2-6 23:28
+
+突发恶疾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游山赫乃丈丶  
+##### 8460#       发表于 2022-2-6 23:29
+
+白金.JPG
+
+
+
+*****
+
+####  古战场亡魂  
+##### 8461#       发表于 2022-2-6 23:30
+
+如果她播完了歌回直接直播lol继续冲分，将是绝杀。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8462#       发表于 2022-2-6 23:30
+
+要下播哭哭咯<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8463#       发表于 2022-2-6 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大好的夜晚不打101干嘛呢
+
+*****
+
+####  十九号大侠  
+##### 8464#       发表于 2022-2-6 23:33
+
+就打，今晚必上打分
+syl其实也挺好，别人大A特A，他大撸特撸
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
