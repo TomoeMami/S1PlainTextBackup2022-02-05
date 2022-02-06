@@ -8461,3 +8461,53 @@ syl其实也挺好，别人大A特A，他大撸特撸
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8478#       发表于 2022-2-7 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54574122&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-2-7 01:16</a>
+
+黄金能被也怪打死？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+那个男枪白银1，谢谢
+
+*****
+
+####  T_Hb  
+##### 8479#       发表于 2022-2-7 01:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 8480#       发表于 2022-2-7 01:31
+
+主播的白银之路似乎比想象中艰难...
+
+*****
+
+####  古战场亡魂  
+##### 8481#       发表于 2022-2-7 01:33
+
+世界名画，开局3分钟被石甲虫击杀的男枪……主播还是暂时别冲分了，都能排到这种畜牲了还上个锤子分……
+
+<img src="https://img.saraba1st.com/forum/202202/07/013159oxfzabiftiadfetu.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220207013133424.jpg</strong> (24.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 01:31 上传
+
+*****
+
+####  T_Hb  
+##### 8482#       发表于 2022-2-7 01:36
+
+绷
+
