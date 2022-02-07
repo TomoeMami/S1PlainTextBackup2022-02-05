@@ -1271,3 +1271,78 @@ D.S.的設計上參考路了撒旦，所以跟撒旦分離後的路西法被選�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">地球在天使恶魔口中已经直接称作伊甸园了，结果地球上还有很多其他神话中的存在，比如巨人啥的，精灵还招出过一个仁王还是个佛像啊，之类的东西，一招就把恶魔暗黑体打爆了。这么一看上帝，天使和恶魔是不是也不是无敌的啊，地球上其他神系那些强大的星幽体还有的混？
 
+
+
+*****
+
+####  czxiang_0  
+##### 93#       发表于 2022-2-7 17:12
+
+ 本帖最后由 czxiang_0 于 2022-2-7 17:16 编辑 
+
+感谢楼上的**
+
+算是圆了一个童年的梦了 ，当年就看到破坏神启动，后面画风突变就没了
+
+*****
+
+####  Niu  
+##### 94#       发表于 2022-2-7 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580305&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-7 00:47</a>
+
+天使这边搞错了一件事，就是路西法并没有堕天，还是大天使形态
+
+不过拉斐尔和蝇王应该知道的[f:04 ...</blockquote>
+天使側有這些問題是因為現在這些天使們都是新秀。連四大天使都是新人上任。
+
+天界裡真陣正了解實情的真高層只有路西法&amp;撒旦勒兩位大天使長以及梅塔特隆&amp;聖德芬兩位祖天使。
+
+但現在兩位大天使長都跌出天界，祖天使們又不說話，結果就是天使們搞不清楚裝況。撒旦勒當初造反時也就尤里勒一個人憑自力發覺撒旦勒跟路西法的關係。(還是因為尤里勒跟撒旦勒私下很熟)
+
+拉菲爾現在能夠這麼清楚事情真相也是因為他手上有梅塔特隆的預言。
+
+*****
+
+####  gpx234mqx  
+##### 95#       发表于 2022-2-7 17:15
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 17:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580514&amp;ptid=2050560" target="_blank">未向heart 发表于 2022-2-7 17:03</a>
+
+地球在天使恶魔口中已经直接称作伊甸园了，结果地球上还有很多其他神话中的存在，比如巨人啥的，精 ...</blockquote>
+有的，唯一神天使军团和各神话的神，古龙族和古巨人族都在高次元不同区域啊
+
+但是400年前大灾害天使军团顺路把很多异教神给灭了，剩下的神（北欧神族）有的躲去了高次元边界慢慢消失，也有天使军团没去招惹的古龙族和古巨人族和日本神和佛教那些啥的
+
+米迦勒的莱瓦汀，乌里勒的冈格尼尔，加百列的喵喵锤就是400年前打爆北欧神抢来的神造武器<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niu  
+##### 96#       发表于 2022-2-7 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580514&amp;ptid=2050560" target="_blank">未向heart 发表于 2022-2-7 01:03</a>
+
+地球在天使恶魔口中已经直接称作伊甸园了，结果地球上还有很多其他神话中的存在，比如巨人啥的，精 ...</blockquote>
+那些是虛神，被希伯來唯一神打敗的多神教諸神。
+
+有些虛神戰敗後沒落消失，但也有些虛神多年來臥薪嘗胆想東山再起。
+
+*****
+
+####  gpx234mqx  
+##### 97#       发表于 2022-2-7 17:23
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580684&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 17:17</a>
+
+那些是虛神，被希伯來唯一神打敗的多神教諸神。
+
+有些虛神戰敗後沒落消失，但也有些虛神多年來臥薪嘗胆想 ...</blockquote>
+虚神更主要是信徒都死光，没人类信仰充能，慢慢失去力量消失
+
+但也有加入地狱一方化身恶魔的异教神
+
+而妖精国全国信仰神佛的就没事<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

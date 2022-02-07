@@ -13981,3 +13981,25 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 情人节活动不给几个情人节角色来波强化么</blockquote>
 不都是开活动再开强化本的吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 86855#       发表于 2022-2-7 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54579271&amp;ptid=1085254" target="_blank">snakeling 发表于 2022-2-7 15:28</a>
+但卡莲骚啊，还要是影之第四女主。</blockquote>
+那个红皮灵衣看得我想杀人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86856#       发表于 2022-2-7 17:05
+
+ 本帖最后由 qixinno2 于 2022-2-7 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580325&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-7 16:49</a>
+
+不都是开活动再开强化本的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是想看看群众期望是强化谁和强化幅度
+
