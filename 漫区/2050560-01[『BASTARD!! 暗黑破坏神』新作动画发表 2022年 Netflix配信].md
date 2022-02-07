@@ -1346,3 +1346,42 @@ D.S.的設計上參考路了撒旦，所以跟撒旦分離後的路西法被選�
 
 而妖精国全国信仰神佛的就没事<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 98#       发表于 2022-2-7 19:01
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 19:05 编辑 
+
+新画的阿斯拉萨克斯的脸比早期瘦多了
+
+和旧版比起来，下巴上明确画了嘴
+
+<img src="https://img.saraba1st.com/forum/202202/07/185818bxbxe8y3oelyy0d8.jpg" referrerpolicy="no-referrer">
+
+<strong>EvNjkAOVEAIjy6e.jpg</strong> (538.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 18:58 上传
+
+Eid78uLUMAAKAzg.jpg
+(143.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/190445s9m1zt9ge3ctizl2.jpg" referrerpolicy="no-referrer">
+
+AKedOLRcF6wOtWegqz0JYtJxVwHVP1wyvvNdwrzEKZzt4ws900-c-k-c0x00ffffff-no-rj.jpg
+(96.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/190447q505gozufz469zrh.jpg" referrerpolicy="no-referrer">
+
