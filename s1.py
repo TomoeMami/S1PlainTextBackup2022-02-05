@@ -228,7 +228,7 @@ async def main():
 
     tasks = []
     threaddicts = {}
-    semaphore = asyncio.Semaphore(10)
+    semaphore = asyncio.Semaphore(12)
     for tid in thdata.keys():
         if(thdata[tid]['active']):
             threaddicts[tid] = {}
