@@ -1213,3 +1213,40 @@ D.S.的設計藍本上就參考了撒旦。(為了殺神)
 
 D.S.的設計上參考路了撒旦，所以跟撒旦分離後的路西法被選則D.S.為新的半身並且引導D.S.從善。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 89#       发表于 2022-2-7 16:33
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 16:38 编辑 
+
+说一下梅塔-利卡那王国王都
+
+王城和城下町是分开的传统欧洲城堡，不是现在那种厕纸小说里那种超大城下町包围王城那种白痴设计<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+而且王城四面环水只有一座石桥通过，很正统的城堡，前面有城塞都市挡住，防御面刚刚的
+
+<img src="https://img.saraba1st.com/forum/202202/07/163052w6xt5ss529x515xx.jpg" referrerpolicy="no-referrer">
+
+<strong>EwRrvAZVEAUXdDm.jpg</strong> (773.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 16:30 上传
+
+*****
+
+####  gpx234mqx  
+##### 90#       发表于 2022-2-7 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54579643&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 15:57</a>
+
+路西法跟撒旦勒共用一個星幽體。簡單的說互相為半身。
+
+然後撒旦勒墮天，路西法殘遭波及。</blockquote>
+天使这边搞错了一件事，就是路西法并没有堕天，还是大天使形态<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+不过拉斐尔和蝇王应该知道的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
