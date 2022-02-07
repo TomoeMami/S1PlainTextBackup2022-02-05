@@ -1106,3 +1106,19 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Niu  
+##### 82#       发表于 2022-2-7 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54577921&amp;ptid=2050560" target="_blank">泥鳅化石 发表于 2022-2-6 21:22</a>
+
+?不会吧？D.S不是改造人吗？如果能有后代那不是会像没有避孕魔法的兰斯那样后代满坑满谷？
+
+—— 来自 HU ...</blockquote>
+不是改造人。是仿造神造人一樣，用科學創造出來的純粹生命。
+
+所以身上自然沒有神對人類施下的兩道封印，能夠發揮出人類全部的靈性潛能。這就是D.S.的真面目，十賢者所創造的系統D: 靈子力高速無限增值爐。
+
