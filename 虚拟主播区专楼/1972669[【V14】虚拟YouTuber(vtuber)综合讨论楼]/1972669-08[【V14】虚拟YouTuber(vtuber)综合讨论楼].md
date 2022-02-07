@@ -527,3 +527,16 @@ siro不如2d化算了，appland早就摆烂只让siro直播了、然后直播那
 樱花本日よりチケット販売開始です。
 [https://zan-live.com/live/detail/10164](https://zan-live.com/live/detail/10164)
 
+
+
+*****
+
+####  fastary  
+##### 10542#       发表于 2022-2-8 04:09
+
+ 本帖最后由 fastary 于 2022-2-8 04:14 编辑 
+
+黑客什么也没说把推特简介改成了“にじさんじ箱推”这一句话<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+不要是毕业不要是毕业不要是毕业求你了一个月动一次也行只要你别走你走了我也不想看管人了——
+
