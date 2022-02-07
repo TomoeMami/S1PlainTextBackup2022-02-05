@@ -13921,3 +13921,28 @@ FK5nyq8VIAEgAWe.jpg
 
 你们在对一个摆烂的游戏设计期待什么？就普通单体宝具糊弄过去完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 86849#       发表于 2022-2-7 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54568615&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-2-6 16:32</a>
+
+情人节目前相对弱的只有卡莲、阿清、女帝吧，花嫁算拐，紫式部魔性杀手，BX核弹 ...</blockquote>
+BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
+
+花嫁登场的时候还不错，后面掉队以后也加强了几次，现在勉勉强强还行
+
+紫式部除了少数几个特攻本以外回收被没加强的齐格爆的很厉害（杀本往往伤害不需要那么高），阿清活在几个影Servant本里，卡莲女帝就没强过
+
+除了花嫁以外都符合登场的时候很弱的印象的
+
+*****
+
+####  eyeego  
+##### 86850#       发表于 2022-2-7 08:46
+
+卡莲跟平景清在2021下水道英灵里基本就是第一第二包了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
