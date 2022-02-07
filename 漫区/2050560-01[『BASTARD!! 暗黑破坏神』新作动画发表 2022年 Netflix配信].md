@@ -1155,3 +1155,31 @@ D.S.的設計藍本上就參考了撒旦。(為了殺神)
 
 這也是為什麼路西法要D.S.作為半身。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85#       发表于 2022-2-7 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54578387&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 14:05</a>
+
+D.S.的設計藍本上就參考了撒旦。(為了殺神)
+
+這也是為什麼路西法要D.S.作為半身。 ...</blockquote>
+这里很奇怪，为啥四大天使会认不出来
+
+DS明明和大天使时代的撒旦叶长的很像
+
+*****
+
+####  Niu  
+##### 86#       发表于 2022-2-7 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54578455&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-6 22:11</a>
+
+这里很奇怪，为啥四大天使会认不出来
+
+DS明明和大天使时代的撒旦叶长的很像 ...</blockquote>
+不是沒認出，是沒明講。尤其是拉斐爾。他其實知道不少內幕。
+
