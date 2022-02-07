@@ -11012,3 +11012,66 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 这两话好像除了大招升级，差点想不出来剧情有什么进展
 
+
+
+*****
+
+####  高卢鸡  
+##### 56364#       发表于 2022-2-5 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542760&amp;ptid=98922" target="_blank">jxzeroga0 发表于 2022-2-4 13:40</a>
+
+这两话好像除了大招升级，差点想不出来剧情有什么进展</blockquote>
+难得见还算两话连着的一场打斗了，跨页也有几张，总比切来切去好
+
+*****
+
+####  神隐の馒头  
+##### 56365#       发表于 2022-2-5 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54556095&amp;ptid=98922" target="_blank">高卢鸡 发表于 2022-2-5 13:41</a>
+难得见还算两话连着的一场打斗了，跨页也有几张，总比切来切去好</blockquote>
+确实是 搞得我都不习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 56366#       发表于 2022-2-5 17:09
+
+比起罗的技能
+
+电磁炮就算是画面上也明显弱太多了
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 56367#       发表于 2022-2-6 02:24
+
+基德罗os：你们俩底牌就这啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  GreenBird  
+##### 56368#       发表于 2022-2-6 09:36
+
+部分角色的战斗细节，相信追连载的人都印象不深。但是每个角色你都有深刻的赶路跑酷的印象。
+
+*****
+
+####  GreenBird  
+##### 56369#       发表于 2022-2-6 09:41
+
+我突然很怀念以前打Mr.1的悟道描写，大招不是突然爆出来的，是战斗中领悟到的。这样既可以渲染一定的绝望感，又可以增添合理性。罗和基德要是多一页这样的描绘就好了……
+
+*****
+
+####  gameselect  
+##### 56370#       发表于 2022-2-6 10:37
+
+罗和基德学会觉醒应该就是在准备鬼岛进攻的时候
+要不然就是前面就会
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
