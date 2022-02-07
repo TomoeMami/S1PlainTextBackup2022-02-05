@@ -1122,3 +1122,36 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 
 所以身上自然沒有神對人類施下的兩道封印，能夠發揮出人類全部的靈性潛能。這就是D.S.的真面目，十賢者所創造的系統D: 靈子力高速無限增值爐。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 83#       发表于 2022-2-7 13:59
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 14:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54578040&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 13:33</a>
+
+不是改造人。是仿造神造人一樣，用科學創造出來的純粹生命。
+
+所以身上自然沒有神對人類施下的兩道封印， ...</blockquote>
+然后撒旦也动了手脚
+
+DS的灵魂性质是反救世主，暗黑亚当，和弥赛亚相对的存在
+
+没有人类的第二封印“原罪”<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niu  
+##### 84#       发表于 2022-2-7 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54578325&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-6 21:59</a>
+
+然后撒旦也动了手脚
+
+DS的灵魂性质是反救世主，暗黑亚当，和弥赛亚相对的存在 ...</blockquote>
+D.S.的設計藍本上就參考了撒旦。(為了殺神)
+
+這也是為什麼路西法要D.S.作為半身。
+
