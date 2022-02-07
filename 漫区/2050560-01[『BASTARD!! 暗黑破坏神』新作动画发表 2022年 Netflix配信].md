@@ -1071,3 +1071,16 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 
 否则TV版做不出来的
 
+
+
+*****
+
+####  kiralzb  
+##### 79#       发表于 2022-2-7 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54530881&amp;ptid=2050560" target="_blank">zerona 发表于 2022-2-3 13:43</a>
+不过早期那个少女3人众应该都被本垒了吧。那段老贼竟然没有画个同人出来太可惜了。 ...</blockquote>
+我又去翻了一下漫画和同人本，DS在主线里是一个没上本垒的，处女就真的还是处女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+蜘蛛女那晚上就是咬耳朵，同人3里也直说了膜还在，这DS是真的逊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+由此看来胖子是真的很坚持初衷了，估计路西是龙王子儿子这里设定也没放弃，再写下去怕不是真的要将雷帝配给谁了，还是断了好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

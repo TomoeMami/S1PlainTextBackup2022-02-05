@@ -5442,3 +5442,83 @@ MC看起来还要再准备一阵，中间不知道干嘛
 “想把fan meeting搬到线上照顾海外ニキ”，又是偶像界遗毒哦。
 果不其然还是韩国海苔话题，韩文英文甚至俄文的，突然想起来那我们简中观众早就meeting过了…哈哈…🙃
 
+
+
+*****
+
+####  andeloz  
+##### 8148#       发表于 2022-2-7 10:08
+
+<img src="https://img.saraba1st.com/forum/202202/06/180728hjsy1sq4s07wjs71.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2022-02-06 at 6.07.17 PM.png</strong> (131.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 10:07 上传
+
+什么情况 和虹上次的bug一样吗
+
+*****
+
+####  离魂仙  
+##### 8149#       发表于 2022-2-7 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54575712&amp;ptid=1947500" target="_blank">andeloz 发表于 2022-2-7 10:08</a>
+
+什么情况 和虹上次的bug一样吗</blockquote>
+[VTuber事務所「ホロライブプロダクション」、YouTubeにおける「MCN」設立のお知らせ](https://prtimes.jp/main/html/rd/p/000000613.000030268.html)
+
+⼀時的にYouTubeのメンバーシップ機能が使⽤できなくなります
+
+2022年2⽉7⽇（⽉）10時ごろから順次実施
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| andeloz| + 1|这样啊|
+
+查看全部评分
+
+*****
+
+####  nian1538  
+##### 8150#       发表于 2022-2-7 10:19
+
+看起来对每个用户停的时间还不一样，我是先从别人开始停的
+
+
+
+*****
+
+####  离魂仙  
+##### 8151#       发表于 2022-2-7 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54569593&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-2-6 18:21</a>
+
+问个俗的，这次阿夸单排上大师，sc混到多少啊，记得半年前嫖到的月sc榜单，阿夸那时候已经看不到人影了，这 ...</blockquote>
+
+[playboard](https://playboard.co/en/channel/UC1opHUrw8rvnsadT-iGp7Cg/videos)
+
+计算器敲了几下，9场直播+1场后日谈共计：5,846,238 + 390,426 = 6,236,664
+
+感觉够不上佐藤希抽卡一根〇毛，所以今天就开ape抽卡试图效益最大化，可能偶像活动已经烧干存折了吧，虽然我并不看好数字
+
+
+
+*****
+
+####  nian1538  
+##### 8152#       发表于 2022-2-7 11:02
+
+ 本帖最后由 nian1538 于 2022-2-7 11:19 编辑 
+
+阿希抽卡一次也就300万左右吧，这样还行了
+
+syl: 昨天念SC的时候（大概2:18开始)倒是说了去年玉玉的那段时间几个月没碰Apex也没碰其他游戏
+
