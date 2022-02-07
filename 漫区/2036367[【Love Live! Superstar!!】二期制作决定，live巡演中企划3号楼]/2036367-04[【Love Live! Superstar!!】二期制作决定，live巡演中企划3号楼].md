@@ -7168,3 +7168,14 @@ Nako什么时候能报个平安啊，这都一个星期没动静了<img src="htt
 
 https://febri.jp/topics/liyuu_1stal_1/
 
+
+
+*****
+
+####  Norkey1  
+##### 5082#       发表于 2022-2-7 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54573771&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-7 00:30</a>
+想起来去年年底谭友搞的个抽奖，不知道抽了没～</blockquote>
+去年抽过了
+
