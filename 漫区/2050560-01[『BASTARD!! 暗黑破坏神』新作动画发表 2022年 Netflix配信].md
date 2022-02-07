@@ -1385,3 +1385,67 @@ AKedOLRcF6wOtWegqz0JYtJxVwHVP1wyvvNdwrzEKZzt4ws900-c-k-c0x00ffffff-no-rj.jpg
 
 <img src="https://img.saraba1st.com/forum/202202/07/190447q505gozufz469zrh.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 99#       发表于 2022-2-7 19:27
+
+不太记得细节，除人类外的种族好像都是十老头之后造的吧？这样的话精灵应该在唯一神借机除掉其他神话才有，他们持续信仰神佛这点感觉挺不靠谱的？
+
+不过泛人类联合这元素我估计也是当时为了出网游加上的元素，各种种族和职业等级，结果网游无了，漫画也烂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 100#       发表于 2022-2-7 19:31
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 19:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582059&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 19:27</a>
+
+不太记得细节，除人类外的种族好像都是十老头之后造的吧？这样的话精灵应该在唯一神借机除掉其他神话才有， ...</blockquote>
+精灵这边保持了大破坏前的技术力和传承啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+十贤者也联系上古神复活了古代语魔术
+
+设定应该早想好了，皇女她妈和DS是老相识了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 101#       发表于 2022-2-7 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580305&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-7 16:47</a>
+
+天使这边搞错了一件事，就是路西法并没有堕天，还是大天使形态
+
+不过拉斐尔和蝇王应该知道的[f:04 ...</blockquote>
+记得官方说法是堕天了，至少是立场上就属于堕天那种，不过唯一神大概也是两个人格的，路西法这边水还是很深，那个救世主也有人才和路西法有关系，加上和龙王子的血缘关系设定，这DS的半身确实是藏了很多要素
+
+*****
+
+####  gpx234mqx  
+##### 102#       发表于 2022-2-7 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582127&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 19:32</a>
+
+记得官方说法是堕天了，至少是立场上就属于堕天那种，不过唯一神大概也是两个人格的，路西法这边水还是很 ...</blockquote>
+路西法属性上还是天使，还是用神灵力
+
+奥特曼七兄弟不也奇怪这个
+
+*****
+
+####  kiralzb  
+##### 103#       发表于 2022-2-7 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582118&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-7 19:31</a>
+
+精灵这边保持了大破坏前的技术力和传承啊
+
+十贤者也联系上古神复活了古代语魔术</blockquote>
+精灵公主吧，记得她还有个皇太子哥哥，不过她好像也有100多岁了，就算说之前和DS滚过床单我也不意外
+
+她妈妈是小说角色吧，漫画之外的媒体我还是没什么接触的，别再来什么血缘关系就行，看人说龙皇子和姐姐（无血缘）生的鲁协就有点难顶，感觉格局小了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

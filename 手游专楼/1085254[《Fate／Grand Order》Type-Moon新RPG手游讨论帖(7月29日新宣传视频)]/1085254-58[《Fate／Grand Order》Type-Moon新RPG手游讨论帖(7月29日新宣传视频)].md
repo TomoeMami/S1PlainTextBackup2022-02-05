@@ -14003,3 +14003,17 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 不都是开活动再开强化本的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是想看看群众期望是强化谁和强化幅度
 
+
+
+*****
+
+####  UNISONIA  
+##### 86857#       发表于 2022-2-7 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54579271&amp;ptid=1085254" target="_blank">snakeling 发表于 2022-2-7 15:28</a>
+
+但卡莲骚啊，还要是影之第四女主。</blockquote>
+然而卡莲根本不是原定在fate系列登场的角色，几本material里都有明说她是从月2拿来用的
+
+而且菌皇谜语人羁绊礼装还放的是月2相关的内容，这谁看得懂啊
+
