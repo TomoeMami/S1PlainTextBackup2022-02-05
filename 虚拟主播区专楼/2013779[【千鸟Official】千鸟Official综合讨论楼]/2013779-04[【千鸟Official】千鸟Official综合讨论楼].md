@@ -8384,3 +8384,19 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 听说文静的特长是杂谈，杂谈系应该不缺素材啊，为什么官号上这么空…… ...</blockquote>
 那就不得不提千鸟的运营了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 5382#       发表于 2022-2-7 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580200&amp;ptid=2013779" target="_blank">古战场亡魂 发表于 2022-2-7 00:39</a>
+
+听说文静的特长是杂谈，杂谈系应该不缺素材啊，为什么官号上这么空…… ...</blockquote>
+之前是没人剪 下克上之后换了套班子 最近已经开始工作了 队友那里已经有恢复投稿了 文静那里我觉得是她对现在的官切水平还是不满意
+
+这女人对自己发出来的作品有一种近乎偏执的完美主义 虽然之前的投稿也没见好到哪里去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+当然怀揣着偶像梦的懒狗主播肯定是不愿意自己动手剪的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
