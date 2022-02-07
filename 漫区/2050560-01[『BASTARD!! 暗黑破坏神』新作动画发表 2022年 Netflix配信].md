@@ -1183,3 +1183,17 @@ DS明明和大天使时代的撒旦叶长的很像
 DS明明和大天使时代的撒旦叶长的很像 ...</blockquote>
 不是沒認出，是沒明講。尤其是拉斐爾。他其實知道不少內幕。
 
+
+
+*****
+
+####  泥鳅化石  
+##### 87#       发表于 2022-2-7 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54578387&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 14:05</a>
+
+D.S.的設計藍本上就參考了撒旦。(為了殺神)
+
+這也是為什麼路西法要D.S.作為半身。 ...</blockquote>
+说起来这里也是我没看懂的地方，鲁杰作为路西法和撒旦到底是什么关系？
+
