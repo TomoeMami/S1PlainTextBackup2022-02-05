@@ -11075,3 +11075,25 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Yeaha123  
+##### 56371#       发表于 2022-2-7 00:36
+
+感觉大妈只要能破她防就变得很菜，动作也不敏捷
+
+*****
+
+####  C男人  
+##### 56372#       发表于 2022-2-7 20:30
+
+罗这招穿刺到底什么原理？
+
+看上去把伤害全打到地面上去了，
+
+何必一直待在大妈怀里，挨一顿武装色粉拳？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
