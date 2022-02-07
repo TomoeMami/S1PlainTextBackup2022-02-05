@@ -1517,3 +1517,29 @@ DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 就DS这正篇里一个没推成的战绩，能不能滚还得打个？，不过也就只能在过去篇里浪了，现代的DS唯一指定女主 ...</blockquote>
 你别告诉我雷帝和他百年之恋到现在还是个雏啊
 
+
+
+*****
+
+####  Niu  
+##### 109#       发表于 2022-2-7 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583262&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-7 04:54</a>
+
+萩原一至那个附录在单行本后面的出道作微热口红是作为1999战争真相出的吧？那个里面想推姐的男主角是不是 ...</blockquote>
+占卜女是成立了靈子科學的大天才。
+
+達郎則是那個時代的亞當。
+
+*****
+
+####  Niu  
+##### 110#       发表于 2022-2-7 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582059&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 03:27</a>
+
+不太记得细节，除人类外的种族好像都是十老头之后造的吧？这样的话精灵应该在唯一神借机除掉其他神话才有， ...</blockquote>
+妖精是作為新人類設計的。大崩壞開始前的文明全盛期就造出來的。
+
+不過十賢者把他們都當燃料就是。但是有一部份妖精早早離開了KCG躲起來建立新國家(後來的妖精國)，才沒有被十賢者玩死或被天使打死。
+

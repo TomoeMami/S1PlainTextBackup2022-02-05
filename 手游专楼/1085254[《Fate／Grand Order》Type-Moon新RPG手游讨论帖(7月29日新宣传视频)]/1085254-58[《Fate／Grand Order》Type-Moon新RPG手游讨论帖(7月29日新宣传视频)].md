@@ -14156,3 +14156,25 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 这就是你5宝的理由吗（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都大半年过去了....萌新也该消停下换个梗了
 
+
+
+*****
+
+####  qixinno2  
+##### 86873#       发表于 2022-2-7 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54585056&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-2-7 23:07</a>
+
+这都大半年过去了....萌新也该消停下换个梗了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有等到萌新也轻松五宝的时候了
+
+*****
+
+####  alucardcz  
+##### 86874#       发表于 2022-2-7 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54585056&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-2-7 23:07</a>
+
+这都大半年过去了....萌新也该消停下换个梗了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等我也有5宝限定的时候（
+
