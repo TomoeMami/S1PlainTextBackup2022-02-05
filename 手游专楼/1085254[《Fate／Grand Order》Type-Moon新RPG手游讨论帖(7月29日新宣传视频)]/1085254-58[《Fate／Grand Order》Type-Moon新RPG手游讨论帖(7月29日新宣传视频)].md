@@ -14099,3 +14099,48 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 50自充红卡狂光炮......还需要更多理由么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是你5宝的理由吗（
 
+
+
+*****
+
+####  rooarr  
+##### 86867#       发表于 2022-2-7 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54584496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-7 22:20</a>
+这就是你5宝的理由吗（</blockquote>
+手上有2宝的表示没体会到高伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不一样的肯定是5宝dalao的体验
+
+*****
+
+####  alucardcz  
+##### 86868#       发表于 2022-2-7 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54584513&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-2-7 22:22</a>
+
+手上有2宝的表示没体会到高伤害感觉不一样的肯定是5宝dalao的体验</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手上1宝的表示除了日常清体力基本没地方能用
+
+*****
+
+####  qixinno2  
+##### 86869#       发表于 2022-2-7 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">唯一的限定五星狂 哪怕一宝我也觉得还算能使
+
+*****
+
+####  alucardcz  
+##### 86870#       发表于 2022-2-7 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说通用硬币呢？ 我也想要120啊 根本升不了
+
+*****
+
+####  qixinno2  
+##### 86871#       发表于 2022-2-7 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54584597&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-7 22:29</a>
+
+话说通用硬币呢？ 我也想要120啊 根本升不了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年周年能出我就当一天叶卫兵
+
