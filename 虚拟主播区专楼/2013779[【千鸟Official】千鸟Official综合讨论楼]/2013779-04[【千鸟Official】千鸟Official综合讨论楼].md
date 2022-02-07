@@ -8372,3 +8372,15 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">听说文静的特长是杂谈，杂谈系应该不缺素材啊，为什么官号上这么空……
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5381#       发表于 2022-2-7 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580200&amp;ptid=2013779" target="_blank">古战场亡魂 发表于 2022-2-7 16:39</a>
+
+听说文静的特长是杂谈，杂谈系应该不缺素材啊，为什么官号上这么空…… ...</blockquote>
+那就不得不提千鸟的运营了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

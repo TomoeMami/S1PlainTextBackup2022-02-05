@@ -731,3 +731,17 @@ duckstation是真的好用 以前我对PS1模拟器的印象一直还停留在EP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实小鸡之类的也就是国外的模仿者，这类卖UI糊弄小白和大众玩家吸金最后反过来抢人家内核的垃圾真的恶心
 
+
+
+*****
+
+####  nightrap  
+##### 64#       发表于 2022-2-7 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580553&amp;ptid=2050753" target="_blank">红叶 发表于 2022-2-7 17:07</a>
+
+如果duck这么做行不行，你fork出去的你要按gpl卖可以，但以后我自己的闭源，你的和我没关系，我怎么升级我 ...</blockquote>
+结合之前Mypal的案例来看，这个还真不好说……
+
+在此只能提示一句，从事开源软件开发的人并非是没有私心和对下游的控制欲的，在开源上出现的问题大多就是这么搞出来的。
+
