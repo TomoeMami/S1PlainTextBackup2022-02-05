@@ -7336,3 +7336,47 @@ FK_JxhDakAEw5-Q.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草台嘛 正常
 
+
+
+*****
+
+####  lj205  
+##### 5093#       发表于 2022-2-7 19:47
+
+必须来一套（除了衣服）
+
+*****
+
+####  player3960  
+##### 5094#       发表于 2022-2-7 19:49
+
+手办和看板娘联动节目搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 5095#       发表于 2022-2-7 19:49
+
+意料之中了，不过话说回来当初明明4个人都拉过票了，唯独sayurin没发过，不然小百合粉的战力还能涨一涨的，挺神秘的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 5096#       发表于 2022-2-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582376&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-02-07 19:49:07</a>
+意料之中了，不过话说回来当初明明4个人都拉过票了，唯独sayurin没发过，不然小百合粉的战力还能涨一涨的， ...</blockquote>感觉小百合拉不拉票，伊达欧吉们应该都会冲的，难道是官方太耿直，没有砍海外的票，所以中华炮起作用了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saglork  
+##### 5097#       发表于 2022-2-7 19:56
+
+不砍中华炮，可可太稳了，啥时候投二单啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
