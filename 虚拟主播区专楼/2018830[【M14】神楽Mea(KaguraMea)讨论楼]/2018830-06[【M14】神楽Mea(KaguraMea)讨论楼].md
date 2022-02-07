@@ -8540,3 +8540,16 @@ syl其实也挺好，别人大A特A，他大撸特撸
 
 大早上又去笑别人连败<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不怕天道好轮回啊
 
+
+
+*****
+
+####  十九号大侠  
+##### 8486#       发表于 2022-2-7 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54574156&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-7 01:22</a>
+那个男枪白银1，谢谢</blockquote>
+mea不是黄金1，能排队白银，我是没想到的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
