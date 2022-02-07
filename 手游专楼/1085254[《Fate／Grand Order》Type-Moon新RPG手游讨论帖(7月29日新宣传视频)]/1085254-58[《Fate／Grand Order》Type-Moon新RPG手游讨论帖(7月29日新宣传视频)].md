@@ -14144,3 +14144,15 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 话说通用硬币呢？ 我也想要120啊 根本升不了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年周年能出我就当一天叶卫兵
 
+
+
+*****
+
+####  森兰丸  
+##### 86872#       发表于 2022-2-7 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54584496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-7 22:20</a>
+
+这就是你5宝的理由吗（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都大半年过去了....萌新也该消停下换个梗了
+

@@ -461,3 +461,13 @@ hendy也收到投诉dm了，oreapo第三人是真的难当…
 
 这下拥抱新时代了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 10537#       发表于 2022-2-7 23:01
+
+数码子半个月前也V化了。
+[https://www.bilibili.com/video/BV183411h7DL](https://www.bilibili.com/video/BV183411h7DL)
+
