@@ -1463,3 +1463,31 @@ AKedOLRcF6wOtWegqz0JYtJxVwHVP1wyvvNdwrzEKZzt4ws900-c-k-c0x00ffffff-no-rj.jpg
 所以身上自然沒有神對人類施下的兩道封印， ...</blockquote>
 萩原一至那个附录在单行本后面的出道作微热口红是作为1999战争真相出的吧？那个里面想推姐的男主角是不是和DS有关？记得里面有个占卜女测量出来他的灵子力异常高，
 
+
+
+*****
+
+####  gpx234mqx  
+##### 105#       发表于 2022-2-7 21:11
+
+ 本帖最后由 gpx234mqx 于 2022-2-7 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582188&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 19:36</a>
+
+精灵公主吧，记得她还有个皇太子哥哥，不过她好像也有100多岁了，就算说之前和DS滚过床单我也不意外
+
+她妈 ...</blockquote>
+
+小说还没找到人写呢，前前代四天王的时代的故事
+
+DS是和她妈滚<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，皇女出身以前她妈就认识DS了
+
+*****
+
+####  gpx234mqx  
+##### 106#       发表于 2022-2-7 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583262&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-7 20:54</a>
+
+萩原一至那个附录在单行本后面的出道作微热口红是作为1999战争真相出的吧？那个里面想推姐的男主角是不是 ...</blockquote>
+那个时代的亚当吧
+
