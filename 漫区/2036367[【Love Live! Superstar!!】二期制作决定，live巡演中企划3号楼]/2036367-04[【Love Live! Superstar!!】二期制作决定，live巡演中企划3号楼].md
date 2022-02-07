@@ -7430,3 +7430,64 @@ G店官方微博都亲自下场了放投票链接了，摆明是要中华炮介�
 
 要不是有疫情这帮人就好说是中国游客买的...  劝某些日本人认清现实。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5103#       发表于 2022-2-7 21:24
+
+<img src="https://img.saraba1st.com/forum/202202/07/212234piiuqimzumipt4ii.png" referrerpolicy="no-referrer">
+
+<strong>0C27DF7E-C0AF-4BD3-AE6A-57556284DA42.png</strong> (381.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/212354xp7ic5giu7llukcz.png" referrerpolicy="no-referrer">
+
+<strong>E19B86B8-75D5-4BBB-BF84-22AAE28C5510.png</strong> (582.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 21:23 上传
+
+*****
+
+####  Enakina  
+##### 5104#       发表于 2022-2-7 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583461&amp;ptid=2036367" target="_blank">型月重工 发表于 2022-02-07 21:08:28</a></blockquote>5厕都能专门给唐可可建anti高楼了还有啥好说的，说的在嗨也就那回事了，也改变不了结果。官方要真在意这些黑屁当初就不会有这个角色了，虽然平时一直骂sm运营不听粉丝意见，不过这种时候那种态度倒意外的舒服，我就这么干，你爱咋咋
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 5105#       发表于 2022-2-7 21:38
+
+<img src="https://img.saraba1st.com/forum/202202/07/213822g4d800dzd4d56nf0.jpg" referrerpolicy="no-referrer">
+
+<strong>20220207_210706.jpg</strong> (73.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 21:38 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/213825ezgeylebcdmvom2t.jpg" referrerpolicy="no-referrer">
+
+<strong>20220207_211037.jpg</strong> (415.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 21:38 上传
+
+*****
+
+####  csolfans  
+##### 5106#       发表于 2022-2-7 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583912&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-7 21:38</a></blockquote>
+这色调太冷了
+

@@ -1491,3 +1491,17 @@ DS是和她妈滚<img src="https://static.saraba1st.com/image/smiley/face2017/04
 萩原一至那个附录在单行本后面的出道作微热口红是作为1999战争真相出的吧？那个里面想推姐的男主角是不是 ...</blockquote>
 那个时代的亚当吧
 
+
+
+*****
+
+####  kiralzb  
+##### 107#       发表于 2022-2-7 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583499&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-7 21:11</a>
+
+小说还没找到人写呢，前前代四天王的时代的故事
+
+DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
+就DS这正篇里一个没推成的战绩，能不能滚还得打个？，不过也就只能在过去篇里浪了，现代的DS唯一指定女主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14049,3 +14049,22 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 完全想不通为什么摩根会是升120级最多的五星，难道早复刻的优势这么大？
 
+
+
+*****
+
+####  森兰丸  
+##### 86862#       发表于 2022-2-7 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583340&amp;ptid=1085254" target="_blank">cckuku 发表于 2022-2-7 20:59</a>
+
+完全想不通为什么摩根会是升120级最多的五星，难道早复刻的优势这么大？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">50自充红卡狂光炮......还需要更多理由么
+
+*****
+
+####  里村紅葉  
+##### 86863#       发表于 2022-2-7 21:42
+
+我今天刚刚发现之前的情人节从者都抽齐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
