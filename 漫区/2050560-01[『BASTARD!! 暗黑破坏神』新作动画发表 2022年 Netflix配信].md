@@ -1084,3 +1084,25 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 蜘蛛女那晚上就是咬耳朵，同人3里也直说了膜还在，这DS是真的逊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 由此看来胖子是真的很坚持初衷了，估计路西是龙王子儿子这里设定也没放弃，再写下去怕不是真的要将雷帝配给谁了，还是断了好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泥鳅化石  
+##### 80#       发表于 2022-2-7 13:16
+
+记得当年EVA因为基督教元素在美帝被各种限制，这部对各路天使各种指名道姓OOXX的作品美国人倒是真敢整。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  泥鳅化石  
+##### 81#       发表于 2022-2-7 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540010&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-4 05:00</a>
+卡魯斯是DS親兒子，設定集裡有寫。但是卡魯斯本人不知道。DS知不知道不曉得。 ...</blockquote>
+?不会吧？D.S不是改造人吗？如果能有后代那不是会像没有避孕魔法的兰斯那样后代满坑满谷？
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
