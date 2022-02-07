@@ -7380,3 +7380,29 @@ FK_JxhDakAEw5-Q.jpg
 
 不砍中华炮，可可太稳了，啥时候投二单啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5098#       发表于 2022-2-7 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582412&amp;ptid=2036367" target="_blank">player3960 发表于 2022-02-07 19:51:32</a>
+感觉小百合拉不拉票，伊达欧吉们应该都会冲的，难道是官方太耿直，没有砍海外的票，所以中华炮起作用了？ ...</blockquote>G店微博都大方的放出投票链接了，可能自有打算吧，而且权重不一样，还有线下投票的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5099#       发表于 2022-2-7 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">投票链接没墙 这怎么输
+
+*****
+
+####  lj205  
+##### 5100#       发表于 2022-2-7 20:07
+
+赢就行了，知道中国市场好，后面疫情没了肯定第一时间安排上，不挺好的吗？但是上海联动店能不能先安排一下？明明有个上海人，居然先安排了台湾和韩国
+
