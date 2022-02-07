@@ -5492,3 +5492,20 @@ MC看起来还要再准备一阵，中间不知道干嘛
 
 看起来对每个用户停的时间还不一样，我是先从别人开始停的
 
+
+
+*****
+
+####  离魂仙  
+##### 8151#       发表于 2022-2-7 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54569593&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-2-6 18:21</a>
+
+问个俗的，这次阿夸单排上大师，sc混到多少啊，记得半年前嫖到的月sc榜单，阿夸那时候已经看不到人影了，这 ...</blockquote>
+
+[playboard](https://playboard.co/en/channel/UC1opHUrw8rvnsadT-iGp7Cg/videos)
+
+计算器敲了几下，9场直播+1场后日谈共计：5,846,238 + 390,426 = 6,236,664
+
+感觉够不上佐藤希抽卡一根〇毛，所以今天就开ape抽卡试图效益最大化，可能偶像活动已经烧干存折了吧，虽然我并不看好数字
+
