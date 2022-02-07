@@ -5442,3 +5442,53 @@ MC看起来还要再准备一阵，中间不知道干嘛
 “想把fan meeting搬到线上照顾海外ニキ”，又是偶像界遗毒哦。
 果不其然还是韩国海苔话题，韩文英文甚至俄文的，突然想起来那我们简中观众早就meeting过了…哈哈…🙃
 
+
+
+*****
+
+####  andeloz  
+##### 8148#       发表于 2022-2-7 10:08
+
+<img src="https://img.saraba1st.com/forum/202202/06/180728hjsy1sq4s07wjs71.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2022-02-06 at 6.07.17 PM.png</strong> (131.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 10:07 上传
+
+什么情况 和虹上次的bug一样吗
+
+*****
+
+####  离魂仙  
+##### 8149#       发表于 2022-2-7 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54575712&amp;ptid=1947500" target="_blank">andeloz 发表于 2022-2-7 10:08</a>
+
+什么情况 和虹上次的bug一样吗</blockquote>
+[VTuber事務所「ホロライブプロダクション」、YouTubeにおける「MCN」設立のお知らせ](https://prtimes.jp/main/html/rd/p/000000613.000030268.html)
+
+⼀時的にYouTubeのメンバーシップ機能が使⽤できなくなります
+
+2022年2⽉7⽇（⽉）10時ごろから順次実施
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| andeloz| + 1|这样啊|
+
+查看全部评分
+
+*****
+
+####  nian1538  
+##### 8150#       发表于 2022-2-7 10:19
+
+看起来对每个用户停的时间还不一样，我是先从别人开始停的
+
