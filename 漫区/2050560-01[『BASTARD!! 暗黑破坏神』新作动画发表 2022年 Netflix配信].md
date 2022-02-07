@@ -1449,3 +1449,17 @@ AKedOLRcF6wOtWegqz0JYtJxVwHVP1wyvvNdwrzEKZzt4ws900-c-k-c0x00ffffff-no-rj.jpg
 
 她妈妈是小说角色吧，漫画之外的媒体我还是没什么接触的，别再来什么血缘关系就行，看人说龙皇子和姐姐（无血缘）生的鲁协就有点难顶，感觉格局小了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  y2w80  
+##### 104#       发表于 2022-2-7 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54578040&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 13:33</a>
+
+不是改造人。是仿造神造人一樣，用科學創造出來的純粹生命。
+
+所以身上自然沒有神對人類施下的兩道封印， ...</blockquote>
+萩原一至那个附录在单行本后面的出道作微热口红是作为1999战争真相出的吧？那个里面想推姐的男主角是不是和DS有关？记得里面有个占卜女测量出来他的灵子力异常高，
+
