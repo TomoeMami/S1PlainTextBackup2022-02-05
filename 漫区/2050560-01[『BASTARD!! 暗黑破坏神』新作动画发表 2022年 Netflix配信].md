@@ -1250,3 +1250,24 @@ D.S.的設計上參考路了撒旦，所以跟撒旦分離後的路西法被選�
 
 不过拉斐尔和蝇王应该知道的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泥鳅化石  
+##### 91#       发表于 2022-2-7 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580114&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-7 16:33</a>
+
+说一下梅塔-利卡那王国王都
+
+王城和城下町是分开的传统欧洲城堡，不是现在那种厕纸小说里那种超大城下町包 ...</blockquote>
+那个年代成名日式奇幻小说都自带世界观的，你不能和现在这群连怪物设定都懒得做哥布林史莱姆反复横跳的作品作比较啊。
+
+*****
+
+####  未向heart  
+##### 92#       发表于 2022-2-7 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">地球在天使恶魔口中已经直接称作伊甸园了，结果地球上还有很多其他神话中的存在，比如巨人啥的，精灵还招出过一个仁王还是个佛像啊，之类的东西，一招就把恶魔暗黑体打爆了。这么一看上帝，天使和恶魔是不是也不是无敌的啊，地球上其他神系那些强大的星幽体还有的混？
+

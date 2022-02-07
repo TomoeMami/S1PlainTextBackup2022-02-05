@@ -769,3 +769,35 @@ gbm要是屏幕有大号的就好了
 
 NDS玩GBA的游戏，最大的问题就是色彩炸了。如果是模拟器起手玩的话，那就无所谓了。
 
+
+
+*****
+
+####  zris  
+##### 64#         楼主| 发表于 2022-2-7 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580088&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-7 16:32</a>
+
+那么……花了多少？</blockquote>
+250的机子，160的壳（这个其实可以免），199的2021点对点屏（这个必须有），399的EZODE烧录卡（可以换成EZO 249,我主要想一步到位而已）
+
+看下来，要能玩起步价起码698···
+
+如果想赏心悦目一步到位，那就1000<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zris  
+##### 65#         楼主| 发表于 2022-2-7 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580228&amp;ptid=2049173" target="_blank">九耳 发表于 2022-2-7 16:41</a>
+
+NDS玩GBA的游戏，最大的问题就是色彩炸了。如果是模拟器起手玩的话，那就无所谓了。 ...</blockquote>
+NDSL 单独看也没啥毛病
+
+但是跟实机对比，还是感觉有点不一样
+
+不过也还好
+
+如今这年头，想感受GBA实机，最便宜的方案还是NDSL＋烧录卡
+
