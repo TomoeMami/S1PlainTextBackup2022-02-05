@@ -489,3 +489,20 @@ siro不如2d化算了，appland早就摆烂只让siro直播了、然后直播那
 
 以前还有人手调表情（没有技术力），现在没有技术力也没人手调表情这3d真的恐怖谷看不下去
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 10540#       发表于 2022-2-8 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54573300&amp;ptid=1972669" target="_blank">tiro_finale 发表于 2022-2-6 23:45</a>
+
+老爱都要噶了，おめシス还健康地活着，就挺魔幻的
+另一个同等魔幻的大概是物述有栖吧 ...</blockquote>
+企业势没大饼+没钱了就自然跑路了有啥魔幻的
+
+不如说旧四天王里面风评最差、最短视、最功利的akari pro现在反而活的最像样才魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然被卖了一次，
+
+不过居然能卖掉也是魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
