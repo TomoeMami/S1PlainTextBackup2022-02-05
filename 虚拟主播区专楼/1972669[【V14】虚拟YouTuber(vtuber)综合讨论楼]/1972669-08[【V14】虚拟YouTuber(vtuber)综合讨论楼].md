@@ -506,3 +506,24 @@ siro不如2d化算了，appland早就摆烂只让siro直播了、然后直播那
 
 不过居然能卖掉也是魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 10541#       发表于 2022-2-8 00:38
+
+谱皇高中毕业live开催......毕业了不考大学就专心当管人了吗
+[https://twitter.com/kaf_info/status/1490611318700711937](https://twitter.com/kaf_info/status/1490611318700711937)
+
+【ライブ情報】
+
+花譜高校卒業記念スペシャル配信ライブ
+
+「僕らため息ひとつで大人になれるんだ。」
+
+2022年3月26日(土)開催決定！
+
+樱花本日よりチケット販売開始です。
+[https://zan-live.com/live/detail/10164](https://zan-live.com/live/detail/10164)
+

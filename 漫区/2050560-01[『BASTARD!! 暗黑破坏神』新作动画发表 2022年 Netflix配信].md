@@ -1560,3 +1560,12 @@ DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 
 能造出破坏神，方舟和卫星炮这种SF的玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑化的石头  
+##### 112#       发表于 2022-2-8 00:42
+
+拷贝上更新很及时的
+
