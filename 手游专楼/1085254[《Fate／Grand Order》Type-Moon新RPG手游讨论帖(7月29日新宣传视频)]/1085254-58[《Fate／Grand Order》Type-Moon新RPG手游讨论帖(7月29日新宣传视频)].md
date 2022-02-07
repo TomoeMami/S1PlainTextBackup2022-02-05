@@ -14068,3 +14068,12 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 我今天刚刚发现之前的情人节从者都抽齐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 86864#       发表于 2022-2-7 22:00
+
+高自充狂，足够泛用，而且50冲拆开在20被动的环境十分不错
+
