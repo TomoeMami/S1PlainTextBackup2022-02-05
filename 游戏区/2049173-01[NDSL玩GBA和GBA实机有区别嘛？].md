@@ -744,3 +744,19 @@ gbm要是屏幕有大号的就好了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  oidoid  
+##### 62#       发表于 2022-2-7 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54579496&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-7 15:44</a>
+
+捣鼓了一晚上终于换壳加换屏
+
+配上ezode，点亮的那一刻
+
+我想起费加斯那句，我们是西海岸人，玩得 ...</blockquote>
+那么……花了多少？
+
