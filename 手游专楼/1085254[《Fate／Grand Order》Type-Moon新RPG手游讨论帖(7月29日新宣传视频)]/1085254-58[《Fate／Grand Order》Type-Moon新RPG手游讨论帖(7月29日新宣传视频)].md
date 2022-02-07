@@ -14077,3 +14077,25 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 高自充狂，足够泛用，而且50冲拆开在20被动的环境十分不错
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86865#       发表于 2022-2-7 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583962&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-7 21:42</a>
+
+我今天刚刚发现之前的情人节从者都抽齐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，羡慕
+
+*****
+
+####  alucardcz  
+##### 86866#       发表于 2022-2-7 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583785&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-2-7 21:28</a>
+
+50自充红卡狂光炮......还需要更多理由么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是你5宝的理由吗（
+

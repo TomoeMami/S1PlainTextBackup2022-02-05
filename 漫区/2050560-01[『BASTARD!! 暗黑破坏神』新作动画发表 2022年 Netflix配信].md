@@ -1505,3 +1505,15 @@ DS是和她妈滚<img src="https://static.saraba1st.com/image/smiley/face2017/04
 DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 就DS这正篇里一个没推成的战绩，能不能滚还得打个？，不过也就只能在过去篇里浪了，现代的DS唯一指定女主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  y2w80  
+##### 108#       发表于 2022-2-7 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583934&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 21:39</a>
+
+就DS这正篇里一个没推成的战绩，能不能滚还得打个？，不过也就只能在过去篇里浪了，现代的DS唯一指定女主 ...</blockquote>
+你别告诉我雷帝和他百年之恋到现在还是个雏啊
+

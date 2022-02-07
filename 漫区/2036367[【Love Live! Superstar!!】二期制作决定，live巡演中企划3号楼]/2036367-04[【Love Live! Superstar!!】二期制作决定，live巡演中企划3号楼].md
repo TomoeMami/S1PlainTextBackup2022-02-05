@@ -7491,3 +7491,21 @@ G店官方微博都亲自下场了放投票链接了，摆明是要中华炮介�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54583912&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-7 21:38</a></blockquote>
 这色调太冷了
 
+
+
+*****
+
+####  wsdbyh  
+##### 5107#       发表于 2022-2-7 22:14
+
+<blockquote>ayangsu 发表于 2022-2-7 19:22
+赢</blockquote>
+当上了看板娘，主题手办也跑不了吧，毕竟同为看板娘的善子和雪菜都有主题手办
+
+*****
+
+####  优妮可  
+##### 5108#       发表于 2022-2-7 22:15
+
+白衣服，比ws还白
+
