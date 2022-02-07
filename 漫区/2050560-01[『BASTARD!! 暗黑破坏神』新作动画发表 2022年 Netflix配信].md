@@ -1543,3 +1543,20 @@ DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 
 不過十賢者把他們都當燃料就是。但是有一部份妖精早早離開了KCG躲起來建立新國家(後來的妖精國)，才沒有被十賢者玩死或被天使打死。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 111#       发表于 2022-2-7 23:52
+
+ 本帖最后由 gpx234mqx 于 2022-2-8 00:06 编辑 
+
+就是那个犹太魔女在20世纪70年代搞出了灵子科学，然后美苏开始应用，然后大国赞助十贤者（不止10个人）制造了破坏神阿撒拉和DS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后制造完成破坏神暴走和DS打起来死了17亿人，之后天使恶魔现世大战又死了25亿人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1999大破坏前的那个地球科技力远超现实世界<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+能造出破坏神，方舟和卫星炮这种SF的玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

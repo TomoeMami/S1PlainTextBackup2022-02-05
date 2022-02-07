@@ -471,3 +471,21 @@ hendy也收到投诉dm了，oreapo第三人是真的难当…
 数码子半个月前也V化了。
 [https://www.bilibili.com/video/BV183411h7DL](https://www.bilibili.com/video/BV183411h7DL)
 
+
+
+*****
+
+####  Ketestrait  
+##### 10538#       发表于 2022-2-7 23:57
+
+社长夜见柴卡这打牌剧场真实爆笑<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 10539#       发表于 2022-2-8 00:07
+
+siro不如2d化算了，appland早就摆烂只让siro直播了、然后直播那3D效果真是完全不能看、
+
+以前还有人手调表情（没有技术力），现在没有技术力也没人手调表情这3d真的恐怖谷看不下去
+
