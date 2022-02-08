@@ -7751,3 +7751,31 @@ FC0F0D72-B813-4202-9E24-E2EDE6B3A5E4.jpeg
 
 Sunday~Sunday~<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  Dark_Zagi  
+##### 5123#       发表于 2022-2-8 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54584970&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-2-7 23:01</a>
+
+发现liyuu是那种没有跟腱的腿，脚是扁平足。光腿光脚显得格外的粗，这个是天生的减肥也没办法。
+
+最好的办法 ...</blockquote>
+几年前的cos腿型还挺好的，还是现在变圆了的缘故
+
+*****
+
+####  cybernetics31  
+##### 5124#       发表于 2022-2-8 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脸反正圆了不少
+
+*****
+
+####  stygian  
+##### 5125#       发表于 2022-2-8 21:38
+
+没事，裂啦二巡开始彩排运动量上去就瘦了
+
