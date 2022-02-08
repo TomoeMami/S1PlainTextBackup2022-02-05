@@ -1738,3 +1738,19 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 然後是個各大國家實際運用的90年代。然後贊助了明明有11個人卻被稱為十賢者的團體。
 
+
+
+*****
+
+####  kiralzb  
+##### 125#       发表于 2022-2-8 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54592114&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 14:56</a>
+魔法跟奇蹟在舊文明都存在。甚至在人類誕生前都存在。
+
+但這些現象都還不是"科學"。
+
+60年代發生的聖母奇蹟 ...</blockquote>
+这是有年表之类吗？我对年代没啥清晰的印象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有DS的研究目的是人造生命来突破第二原罪来着？记得讲了一大堆猿人啥的，好像最初的人类吃了智慧果，解除了第一封印，十贤者搞出DS就是为了得到生命果，具体表现就是能无限使用灵子力吗？感觉这部分的解释挺虚的，不通过男女交配诞生就行的话，老头门都能造出那么多奇怪的物种了，感觉不到DS的特殊性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
