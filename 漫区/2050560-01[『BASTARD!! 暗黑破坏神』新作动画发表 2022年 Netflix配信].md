@@ -2045,3 +2045,24 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 而且DS比七大魔王还强，只能看着了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 148#       发表于 2022-2-9 00:56
+
+ 本帖最后由 gpx234mqx 于 2022-2-9 00:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54593465&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 16:50</a>
+
+方舟根本算不上戰力。
+
+戰艦貝西摩斯才是底牌。是為了運用系統利維亞桑而建造的十賢者真正的母艦。但是還 ...</blockquote>
+别忘了默示录炮
+
+当初默示录计划就是四个
+
+系统D，系统A，超灭绝兵器默示录炮，贝黑摩斯
+
+赞助十贤者的大国真是疯了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
