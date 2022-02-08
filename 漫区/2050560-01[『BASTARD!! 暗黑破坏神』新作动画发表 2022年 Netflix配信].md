@@ -2012,3 +2012,36 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 观察到了未知能源。从而跳了科技树
 
+
+
+*****
+
+####  gpx234mqx  
+##### 146#       发表于 2022-2-9 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54592114&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 14:56</a>
+
+魔法跟奇蹟在舊文明都存在。甚至在人類誕生前都存在。
+
+但這些現象都還不是"科學"。
+
+60年代發生的聖母奇蹟 ...</blockquote>
+不止11个人，十贤者是一个大型团队
+
+占卜婆婆都是前十贤者成员<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+400年来因目标不同陆续有人退出
+
+*****
+
+####  gpx234mqx  
+##### 147#       发表于 2022-2-9 00:38
+
+ 本帖最后由 gpx234mqx 于 2022-2-9 00:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598009&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-8 23:58</a>
+
+就剧情里还是可以的，因为救世主出来了，DS没了撒旦怎么也要再搞一个来对抗吧，毕竟这相克关系不看实力就 ...</blockquote>
+七大魔王和撒旦又打不死DS，这是属性克制
+
+而且DS比七大魔王还强，只能看着了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
