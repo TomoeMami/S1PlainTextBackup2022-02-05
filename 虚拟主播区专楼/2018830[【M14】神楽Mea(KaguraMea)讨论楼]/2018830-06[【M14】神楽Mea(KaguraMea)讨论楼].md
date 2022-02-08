@@ -9052,3 +9052,40 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 无情连唱还是爽
 
+
+
+*****
+
+####  T_Hb  
+##### 8537#       发表于 2022-2-8 22:00
+
+这一点鼻音感觉把声线都变甜了
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 8538#       发表于 2022-2-8 22:00
+
+刚来 有没有说最后这个通知大概是啥
+
+*****
+
+####  SNOWIMEA  
+##### 8539#       发表于 2022-2-8 22:03
+
+春风女神你来的可真及时，刚好月兔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 8540#       发表于 2022-2-8 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">那你觉得我应该在向日葵的约定时候来吗
+
+*****
+
+####  aliade  
+##### 8541#       发表于 2022-2-8 22:07
+
+这月兔太强了
+

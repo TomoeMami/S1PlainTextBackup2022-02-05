@@ -5597,3 +5597,12 @@ APEX开始各种数据也开始上涨，推特点赞，直播同接，视频观�
 
 我的评价是不如打枪好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 8160#       发表于 2022-2-8 21:56
+
+日本人的品味真是哈哈了，抽卡也这么多人跑来看
+

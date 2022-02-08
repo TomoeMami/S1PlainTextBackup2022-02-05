@@ -607,3 +607,14 @@ syl rion带的这队都把他smurfing炎上的事当梗玩，也算是贯彻玩�
 
 已经有弟弟代打的梗了，beni不参加有点可惜，要是也在这队才好玩呢
 
+
+
+*****
+
+####  fastary  
+##### 10550#       发表于 2022-2-8 21:42
+
+黑客：虽然现在能自由直播了但之后暂时不杂谈了，怕被问到抑郁相关的事说漏嘴，先就玩玩独立游戏啥的
+
+到底什么东西要藏得这么深啊，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
