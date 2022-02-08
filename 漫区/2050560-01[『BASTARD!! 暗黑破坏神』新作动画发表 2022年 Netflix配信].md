@@ -1668,3 +1668,53 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 比起ds，反而是卡尔和忍者的互动更多，看真相历史时甚至和都来了段亲密接触，忍者都兴奋得起立了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 现在老贼自己也有女儿，真让他画下去，我是真怕他会搞出分后宫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 120#       发表于 2022-2-8 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54585471&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 23:41</a>
+占卜女是成立了靈子科學的大天才。
+
+達郎則是那個時代的亞當。</blockquote>
+好像不是成立吧，记得这门黑科技存在很久，好像圣母玛利亚那时就开始？贤者他们团队本身就在大国支持下开发着相关的研究，那个女天才是将公式提出还是啥的，达朗我觉得可能也不算纯粹的亚当，代号是亚当1还是啥来着？
+
+
+
+*****
+
+####  y2w80  
+##### 121#       发表于 2022-2-8 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54581723&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-7 19:01</a>
+
+新画的阿斯拉萨克斯的脸比早期瘦多了
+
+和旧版比起来，下巴上明确画了嘴</blockquote>
+这个动画版造型不满意，一点都没H.R.Giger的风格了，萩原版那种非人的异形感觉估计对动画画师要求太高了，这么纤瘦是网游风么？
+
+*****
+
+####  Niu  
+##### 122#       发表于 2022-2-8 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54591244&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 21:42</a>
+
+我印象里利维亚桑系统就是龙战士吧，编号也是1～8，设定里路西法机是主机，其他是自律操控，按小女孩的记 ...</blockquote>
+龍戰士單體就是利用龍因子制造的人工光體。只能單純作為兵器。
+
+但本質是要搭載到戰艦貝西摩斯上做作為系統利維亞桑並列起動。
+
+方舟決戰的最終局面系統起動拼出生命之樹，但還是戰敗。顯現的人造亞當卡德蒙也被惡魔封印。這場敗戰是十賢者真正意義上的玩脫。也是為什麼之後賢者們縮成了一副DS如果死了救得絕望了的態度。
+
+*****
+
+####  shinro  
+##### 123#       发表于 2022-2-8 14:17
+
+我草，网飞真是爹
+
+直接制作打恶魔大元帅吧
+
