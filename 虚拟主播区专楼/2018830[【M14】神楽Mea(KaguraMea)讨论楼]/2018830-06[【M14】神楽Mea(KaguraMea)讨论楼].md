@@ -9505,3 +9505,40 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 尽然是新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呓亘  
+##### 8596#       发表于 2022-2-9 00:09
+
+按照阿咩的审美...不知道新衣服会是什么样子的....当时新皮我花了一个星期才适应...别又要重新适应吧....
+
+*****
+
+####  呓亘  
+##### 8597#       发表于 2022-2-9 00:11
+
+想要针那种风格的
+
+*****
+
+####  路人庚  
+##### 8598#       发表于 2022-2-9 00:11
+
+这还有几天，去把jimmy画的咩图每天反复看几十遍就习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8599#       发表于 2022-2-9 00:20
+
+有什么不好接受的，新皮肯定是兼容新模型的，希望多整几个配件玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ESAKA!!!!  
+##### 8600#       发表于 2022-2-9 00:31
+
+怎么感觉是jk装
+

@@ -1981,3 +1981,34 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 但是暗黑亞當真不行。當年撒旦肯簽約是他需要 ...</blockquote>
 就剧情里还是可以的，因为救世主出来了，DS没了撒旦怎么也要再搞一个来对抗吧，毕竟这相克关系不看实力就无解，虽然DS完全不理撒旦他们也没打算对DS咋样也是个迷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 144#       发表于 2022-2-9 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54587498&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-8 08:55</a>
+
+贤者们后面都变得像普通老头了，ds没了还会伤心
+
+不过有没有说过龙战士实际的目的？这东西在15年前 ...</blockquote>
+哭的那几个是分道扬镳了
+
+“真正的”十贤者已经掌握先进科学和恶魔合体了
+
+*****
+
+####  gpx234mqx  
+##### 145#       发表于 2022-2-9 00:27
+
+ 本帖最后由 gpx234mqx 于 2022-2-9 00:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54591545&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-8 14:06</a>
+
+好像不是成立吧，记得这门黑科技存在很久，好像圣母玛利亚那时就开始？贤者他们团队本身就在大国支持下开 ...</blockquote>
+犹太人一直在研究
+
+60年代南美出现的圣母显灵给这群神棍提供了现实样本<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+观察到了未知能源。从而跳了科技树
+
