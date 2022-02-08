@@ -549,3 +549,14 @@ siro不如2d化算了，appland早就摆烂只让siro直播了、然后直播那
 
 这也太搞笑了……没想到昨晚夜见因为事故不小心漏出来的笔记让本来打的飞起的虹串瞬间安静了，说实话我还是第一次看见针对夜见的这么大规模的信者大战的……打了将近两串，可能因为昨晚看的人比较多吧，感觉游戏王大叔们挺可爱的，看到夜见在努力学就又变成萌萌人了，比棒球大叔好处多了，一样是努力学做笔记的安洁虹棒那段时间被劈的好惨
 
+
+
+*****
+
+####  fastary  
+##### 10544#       发表于 2022-2-8 14:44
+
+黑客今天有直播……所以大概真的只是很多人猜的应和彩虹4周年整活？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">（虽然目前4周年纪念活动和本人一点关系都没有的样子
+
+改个资料就开始动摇但看他还在直播又觉得不重要了，这什么可怜的gachi被男主播玩弄于鼓掌之中.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
