@@ -2134,3 +2134,21 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
+
+
+*****
+
+####  Niu  
+##### 154#       发表于 2022-2-9 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598848&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-8 09:33</a>
+
+恶魔能杀DS啊，相克是救世主杀恶魔，DS杀救世主吧
+
+7魔王实力问题还挺奇怪的，DS当初地狱里应该不是正面打 ...</blockquote>
+把痛給奪走，不只DS變強了，魔王也變弱了。
+
+比如某人變蘿莉，某人不講話，都是為了彌補實力的流失對自己的身體作了該改變。
+
+反正除了蒼蠅跟撒旦之外都不靠譜了。
+
