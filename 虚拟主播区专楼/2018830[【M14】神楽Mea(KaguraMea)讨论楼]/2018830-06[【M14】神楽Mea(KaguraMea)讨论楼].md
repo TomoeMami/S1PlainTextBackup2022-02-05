@@ -8672,3 +8672,30 @@ mea还有机会和赤坂联动吗，海苔男能不能安排一下
 
 基本开帖子回帖子的都指着赤坂去的……
 
+
+
+*****
+
+####  藤原银  
+##### 8499#       发表于 2022-2-8 13:04
+
+赤坂烂中烂，不知道是不是打A昏了头
+
+*****
+
+####  璃絵和花瑠  
+##### 8500#       发表于 2022-2-8 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54590805&amp;ptid=2018830" target="_blank">藤原银 发表于 2022-2-8 13:04</a>
+赤坂烂中烂，不知道是不是打A昏了头</blockquote>
+有没有可能是因为看管人上头了，麻麻推限这货天天在前排<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤原银  
+##### 8501#       发表于 2022-2-8 13:07
+
+桀桀，管人罪名又添一条
+
