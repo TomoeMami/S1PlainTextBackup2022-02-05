@@ -1890,3 +1890,34 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 问问聚聚，老贼这几年还有啥动作吗</blockquote>
 同人本3出了之后，这作相关的就只有个人第一本画集的重制工作，多了几十页的新画的re：BASTARD!!，是设定之类的内容，用最新的画风画的，现在还未出，在推上放过几张预览，LS有人放过的王城设定就是其中之一
 
+
+
+*****
+
+####  ak123  
+##### 137#       发表于 2022-2-8 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54577853&amp;ptid=2050560" target="_blank">泥鳅化石 发表于 2022-2-7 13:16</a>
+记得当年EVA因为基督教元素在美帝被各种限制，这部对各路天使各种指名道姓OOXX的作品美国人倒是真敢整。
+
+ ...</blockquote>
+因为米国自己也变了，白人基督教文化也是网飞这种自由派资本要积极解构的对象
+
+*****
+
+####  kiralzb  
+##### 138#       发表于 2022-2-8 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54593385&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 16:42</a>
+
+怪物不是人類啊。合成獸跟模仿神從零造人可是不同的概念。
+
+這個模仿甚至連賜與生命的神之吐息都模仿了。 ...</blockquote>
+因为他用科学来解释第一封印是大脑皮层啥的，怪兽精灵之类的很多都是泛人类，就这点设定的话不觉得有根本的区别
+
+而且就算只限定于人类，只靠那些贤者的说法，还是得不出DS的唯一性，毕竟是技术的产物
+
+还有黑暗亚当，既然是和撒旦约定造的，那也就是可控，跟救世主那种看上去随机出的表现还是有差距
+
+十贤者对D系统的解释感觉还是太粗糙了点，哪怕多点讲点成功属于意外或者素材上的不可再生性也不至于我有廉价这种想法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

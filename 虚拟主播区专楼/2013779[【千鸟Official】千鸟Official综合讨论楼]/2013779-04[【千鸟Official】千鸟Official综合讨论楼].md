@@ -8456,3 +8456,21 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 不过标准？？杂谈切片还要有啥标准，加个字幕不就是了， ...</blockquote>
 新运营团队做了一些切片，琳那里有两个，只能说还有提升空间，不过起码不是死人了
 
+
+
+*****
+
+####  藤原银  
+##### 5388#       发表于 2022-2-8 18:41
+
+期待千鸟运营彻底复活
+
+*****
+
+####  灰色的狐狸  
+##### 5389#       发表于 2022-2-8 19:00
+
+王木木播了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

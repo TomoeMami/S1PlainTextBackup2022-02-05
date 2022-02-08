@@ -8901,3 +8901,77 @@ E加入犬山或者组长的组
 
   怕是卖谷！
 
+
+
+*****
+
+####  路人庚  
+##### 8522#       发表于 2022-2-8 18:52
+
+前段时间一口气关注了不少画师，出新谷或新pv的可能性挺大的
+
+*****
+
+####  JY要塞  
+##### 8523#       发表于 2022-2-8 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">一定是利好坦克民
+
+*****
+
+####  T_Hb  
+##### 8524#       发表于 2022-2-8 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那属实是屁大点事
+
+*****
+
+####  古战场亡魂  
+##### 8525#       发表于 2022-2-8 18:55
+
+用语 这么讲究的吗？？？？？？？？
+
+根据神楽Mea观测局的观测
+
+通知：卖东西。
+
+告知：联动,新人,参加活动,卖东西等杂项。
+
+报告：段子。
+
+说些事：不好的事情。
+
+根据即将到来的情人节,预估是情人节音声
+
+*****
+
+####  藤原银  
+##### 8526#       发表于 2022-2-8 18:56
+
+草，什么语言学分析
+
+*****
+
+####  掉头学姐  
+##### 8527#       发表于 2022-2-8 19:03
+
+情人节音声
+
+*****
+
+####  clvan_  
+##### 8528#       发表于 2022-2-8 19:04
+
+你麻也没说什么重大告知，那大概就是屁大点事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 8529#       发表于 2022-2-8 19:07
+
+——
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">安啦安啦，又不用等多久～
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
