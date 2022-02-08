@@ -570,3 +570,12 @@ siro不如2d化算了，appland早就摆烂只让siro直播了、然后直播那
 【哇是袋鼠中之人-哔哩哔哩】 https://b23.tv/Y2i3gi6
 luca还以为是低配xqc，结果是低配卢本伟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 10546#       发表于 2022-2-8 16:42
+
+游戏王热度确实不错，老板娘也有稍稍乘上一点，替她高兴。只能说真心去玩的大家都看得出吧，我郡玩了一回就弃了还给饭推社长等人的切片我真是，还以为郡郡只看大胸和en人呢😥
+
