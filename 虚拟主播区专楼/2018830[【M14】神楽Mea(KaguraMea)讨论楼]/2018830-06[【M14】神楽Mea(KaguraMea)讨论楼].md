@@ -9135,3 +9135,306 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 八成买谷，要是毕业的话，我不信这人这么低调。这么注重仪式感的人，就算毕业，肯定也会挖空心思调整葬礼上 ...</blockquote>
 细说萌音之神的葬礼？
 
+
+
+*****
+
+####  T_Hb  
+##### 8548#       发表于 2022-2-8 22:38
+
+卧槽
+
+*****
+
+####  T_Hb  
+##### 8549#       发表于 2022-2-8 22:38
+
+我泪目了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SNOWIMEA  
+##### 8550#       发表于 2022-2-8 22:38
+
+🌿，新衣服
+
+
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 8551#       发表于 2022-2-8 22:38
+
+好，我现在的心情是拳击这女人
+
+这种好事能不能写标题 
+
+*****
+
+####  rosevalley46  
+##### 8552#       发表于 2022-2-8 22:39
+
+你楼谁前几天说衣服在排队来着
+
+*****
+
+####  十九号大侠  
+##### 8553#       发表于 2022-2-8 22:39
+
+终于有新衣了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 8554#       发表于 2022-2-8 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  肥到终点  
+##### 8555#       发表于 2022-2-8 22:39
+
+我还是觉得短发好看
+
+*****
+
+####  璃絵和花瑠  
+##### 8556#       发表于 2022-2-8 22:39
+
+好活，开香槟咯🍥🍥🍥
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  makourisu-2  
+##### 8557#       发表于 2022-2-8 22:40
+
+你麻麻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您这告知法也是绝了
+
+*****
+
+####  古战场亡魂  
+##### 8558#       发表于 2022-2-8 22:40
+
+其实也有往新衣服想，但是实在等的太久了，不报希望了。
+
+*****
+
+####  yywzjsw  
+##### 8559#       发表于 2022-2-8 22:40
+
+艹<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草牛  
+##### 8560#       发表于 2022-2-8 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8561#       发表于 2022-2-8 22:40
+
+新衣服啊啊啊啊啊啊啊啊啊啊
+
+我射啦
+
+*****
+
+####  T_Hb  
+##### 8562#       发表于 2022-2-8 22:41
+
+该开个tag狠狠的炒了
+
+*****
+
+####  freeze_雪风  
+##### 8563#       发表于 2022-2-8 22:41
+
+我不相信<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Charlie茶  
+##### 8564#       发表于 2022-2-8 22:41
+
+新衣服
+
+越来越不屑了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8565#       发表于 2022-2-8 22:43
+
+ 本帖最后由 路人庚 于 2022-2-8 22:49 编辑 
+
+只能说属实没想到，还以为jimmy大神的这一身衣服也要先穿两三年再说的（或者说难道新衣服也是jimmy大神的吗？
+
+好吧还是jimmy，唯一指定亲妈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2月12日东京22点
+
+*****
+
+####  肥到终点  
+##### 8566#       发表于 2022-2-8 22:43
+
+怎么感觉像之前AUT改的3周年曲mv里面那个长发
+
+*****
+
+####  yywzjsw  
+##### 8567#       发表于 2022-2-8 22:43
+
+这衣服剪影，好女友感觉，感觉是连衣裙那种常服
+
+*****
+
+####  古战场亡魂  
+##### 8568#       发表于 2022-2-8 22:44
+
+看背景不是草莓牛奶那套吧，我再去看看其他曲绘。
+
+*****
+
+####  T_Hb  
+##### 8569#       发表于 2022-2-8 22:44
+
+ 本帖最后由 T_Hb 于 2022-2-8 22:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次说了rariemonn排队排1年啊,这又是快一年了，开心的唱笑了
+
+确实还是jimmy
+
+*****
+
+####  Joffre✔  
+##### 8570#       发表于 2022-2-8 22:46
+
+看影子感觉中间是散发，双马尾也细了很多
+
+*****
+
+####  2014720  
+##### 8571#       发表于 2022-2-8 22:46
+
+过年喽happy<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8572#       发表于 2022-2-8 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 8573#       发表于 2022-2-8 22:47
+
+也没两天直接就发出来了，真有你的
+
+*****
+
+####  专业划水人员  
+##### 8574#       发表于 2022-2-8 22:47
+
+小麻思想出了问题吧！新衣服都不整个重大发表
+
+*****
+
+####  Cushaw  
+##### 8575#       发表于 2022-2-8 22:47
+
+新衣服比白金还重要？我不信<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 8576#       发表于 2022-2-8 22:48
+
+等一个穿新衣服直播坐牢冲白金<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 8577#       发表于 2022-2-8 22:48
+
+那新衣服会不会有lol要素
+
+*****
+
+####  T_Hb  
+##### 8578#       发表于 2022-2-8 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定没有，只希望水袋再大一点
+
+*****
+
+####  czhhws  
+##### 8579#       发表于 2022-2-8 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">一看新衣服。好耶
+
+*****
+
+####  十九号大侠  
+##### 8580#       发表于 2022-2-8 22:49
+
+欧派可不能变小啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  时雨rain  
+##### 8581#       发表于 2022-2-8 22:49
+
+呜呜呜，好家伙当大家伙都不认为是衣服的时候就出新衣服，这何尝不是一种。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8582#       发表于 2022-2-8 22:50
+
+看这发型有点童趣
+
+*****
+
+####  路人庚  
+##### 8583#       发表于 2022-2-8 22:50
+
+你咩：新衣服也是我喜欢的样式
+
+（忽略了露出度、莱子大小的提问）
+
+*****
+
+####  Mr.shelter  
+##### 8584#       发表于 2022-2-8 22:50
+
+等 到 了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 8585#       发表于 2022-2-8 22:51
+
+希望是回家的路那种幼女风<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 8586#       发表于 2022-2-8 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实之前直播说的时候有暗示过类似的话 那么看来情人节谷大概率是新皮设定 
+

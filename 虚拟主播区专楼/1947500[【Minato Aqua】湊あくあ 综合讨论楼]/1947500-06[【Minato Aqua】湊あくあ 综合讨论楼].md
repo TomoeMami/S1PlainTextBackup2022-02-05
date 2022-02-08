@@ -5615,3 +5615,23 @@ APEX开始各种数据也开始上涨，推特点赞，直播同接，视频观�
 
 这抽卡竟然快5w同接也够离谱了。
 
+
+
+*****
+
+####  星の守  
+##### 8162#       发表于 2022-2-8 22:23
+
+ 本帖最后由 星の守 于 2022-2-8 22:25 编辑 
+
+nene想要大师挑战，486说别，夸说你先上到钻石再说吧，然后从nene嘴里出来就变成了夸让她先上钻石才和她一起玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+今天夸看到切片了，才在直播中特意解释了一下这回事。如果这是女人之间的勾心斗角，那也太可怕了一点，希望是我想多了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8163#       发表于 2022-2-8 22:26
+
+非 阿夸 非 www
+
