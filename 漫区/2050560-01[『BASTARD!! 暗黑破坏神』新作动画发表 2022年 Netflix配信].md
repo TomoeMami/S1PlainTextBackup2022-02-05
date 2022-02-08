@@ -1850,3 +1850,43 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 问问聚聚，老贼这几年还有啥动作吗
 
+
+
+*****
+
+####  ak123  
+##### 133#       发表于 2022-2-8 18:35
+
+网飞最近投资的制作都不太行，怕不是要崩的一逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 134#       发表于 2022-2-8 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594066&amp;ptid=2050560" target="_blank">传说中的小鱼 发表于 2022-2-8 17:42</a>
+
+后来是不是做了漫画重制版？记得后来有新版的生肉，恶魔大元帅也是1999年的事了，20多年了？ ...</blockquote>
+出过完全版，开始的01有部分修改，02大幅修改，之后就基本没改过直接出了，第10本最终也没能出版，封面也没画完那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后来用这完全版的排版，再换个新封面，出了文库版，连载依旧没更新
+
+*****
+
+####  ak123  
+##### 135#       发表于 2022-2-8 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54591575&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-8 14:08</a>
+这个动画版造型不满意，一点都没H.R.Giger的风格了，萩原版那种非人的异形感觉估计对动画画师要求太高了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不如说规避版权了，毕竟最早那可真是直球抄袭吉格的死灵之书，虽然80年代那时候日本人经常这么搞
+
+*****
+
+####  kiralzb  
+##### 136#       发表于 2022-2-8 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594465&amp;ptid=2050560" target="_blank">失落阿荡 发表于 2022-2-8 18:27</a>
+
+问问聚聚，老贼这几年还有啥动作吗</blockquote>
+同人本3出了之后，这作相关的就只有个人第一本画集的重制工作，多了几十页的新画的re：BASTARD!!，是设定之类的内容，用最新的画风画的，现在还未出，在推上放过几张预览，LS有人放过的王城设定就是其中之一
+

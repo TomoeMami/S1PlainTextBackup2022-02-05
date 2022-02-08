@@ -8862,3 +8862,42 @@ E加入犬山或者组长的组
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  makourisu-2  
+##### 8517#       发表于 2022-2-8 18:28
+
+说不定又搞出来线下见面会了呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8518#       发表于 2022-2-8 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要命了，她这么怕死的人
+
+*****
+
+####  2014720  
+##### 8519#       发表于 2022-2-8 18:30
+
+前不久不是取消了一堆她办的起来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 8520#       发表于 2022-2-8 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">主播不是要跑路吧
+
+
+
+*****
+
+####  aisakahammer  
+##### 8521#       发表于 2022-2-8 18:46
+
+  怕是卖谷！
+

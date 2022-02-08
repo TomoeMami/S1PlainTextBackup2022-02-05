@@ -11136,3 +11136,19 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 就当她大战后mp不足了吧
 
+
+
+*****
+
+####  wingzerocos  
+##### 56376#       发表于 2022-2-8 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54582904&amp;ptid=98922" target="_blank">C男人 发表于 2022-2-7 20:30</a>
+
+罗这招穿刺到底什么原理？
+
+看上去把伤害全打到地面上去了，</blockquote>
+我觉得他们大概是打算把大妈埋了。
+
+罗打洞，基德推大妈下去。
+
