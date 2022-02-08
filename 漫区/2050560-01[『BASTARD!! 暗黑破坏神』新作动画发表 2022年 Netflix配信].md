@@ -1621,3 +1621,12 @@ DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 
 就現在有限的情報來看，系統利維亞桑恐怕是讓十賢者他們自己搞創世的機構。那個人造亞當卡德蒙恐怕也是系統利維亞桑的效果之一。
 
+
+
+*****
+
+####  wohaihao  
+##### 116#       发表于 2022-2-8 12:29
+
+DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

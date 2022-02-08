@@ -8649,3 +8649,26 @@ mea还有机会和赤坂联动吗，海苔男能不能安排一下
 
 赤坂现在整的活有点烂
 
+
+
+*****
+
+####  2014720  
+##### 8497#       发表于 2022-2-8 12:35
+
+赤坂和你麻现在那个势头比较好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8498#       发表于 2022-2-8 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54590440&amp;ptid=2018830" target="_blank">2014720 发表于 2022-2-8 12:35</a>
+
+赤坂和你麻现在那个势头比较好啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">漫区开了个帖子，评论当前最走下坡路的漫画。
+
+底下人回复，直接评选漫画家好了。
+
+基本开帖子回帖子的都指着赤坂去的……
+
