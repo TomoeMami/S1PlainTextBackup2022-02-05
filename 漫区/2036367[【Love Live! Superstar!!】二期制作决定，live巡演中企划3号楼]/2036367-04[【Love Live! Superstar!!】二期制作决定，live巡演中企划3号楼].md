@@ -7599,3 +7599,12 @@ FC0F0D72-B813-4202-9E24-E2EDE6B3A5E4.jpeg
 
 可可这看板立绘表情怎么看着这么憨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5113#       发表于 2022-2-8 11:12
+
+看了一下发现自己当初一专下的是original版本，不知道特典图是不是一样的，还是也是分成二次元一版三次元一版
+
