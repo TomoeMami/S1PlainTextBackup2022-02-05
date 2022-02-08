@@ -8418,3 +8418,41 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 
 【【文静×内德维德】《修炼爱情》——“远距离的欣赏 静距离的迷惘”-哔哩哔哩】 https://b23.tv/EJoAJtr
 
+
+
+*****
+
+####  小憨1  
+##### 5385#       发表于 2022-2-8 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580200&amp;ptid=2013779" target="_blank">古战场亡魂 发表于 2022-2-7 16:39</a>
+听说文静的特长是杂谈，杂谈系应该不缺素材啊，为什么官号上这么空…… ...</blockquote>
+1.产能不足，运营团队重组之后也就前段时间才刚交接完毕
+2.根据以前文静所说的，运营重组前有一些产出，但被她自己毙了，觉得没达到自己的标准
+3. 9.18当天上传了第一版不为谁而做的歌+主题为金色罕见/稀有罕见的切片。前者涉及到未经授权使用别人的图，打回返工，后者在敏感日期上传罕见内容，直接删掉了
+
+*****
+
+####  古战场亡魂  
+##### 5386#       发表于 2022-2-8 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594322&amp;ptid=2013779" target="_blank">小憨1 发表于 2022-2-8 18:11</a>
+
+1.产能不足，运营团队重组之后也就前段时间才刚交接完毕
+
+2.根据以前文静所说的，运营重组前有一些产出， ...</blockquote>
+真tm的人才……翻唱无许可盗图，敏感日期发内容。
+
+不过标准？？杂谈切片还要有啥标准，加个字幕不就是了，给不给力看主播自己。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 5387#       发表于 2022-2-8 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594347&amp;ptid=2013779" target="_blank">古战场亡魂 发表于 2022-2-8 18:14</a>
+真tm的人才……翻唱无许可盗图，敏感日期发内容。
+
+不过标准？？杂谈切片还要有啥标准，加个字幕不就是了， ...</blockquote>
+新运营团队做了一些切片，琳那里有两个，只能说还有提升空间，不过起码不是死人了
+

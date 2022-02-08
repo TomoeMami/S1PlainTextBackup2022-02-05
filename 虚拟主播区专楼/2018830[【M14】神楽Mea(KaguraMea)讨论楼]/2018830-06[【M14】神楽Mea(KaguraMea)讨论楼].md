@@ -8760,3 +8760,105 @@ mea还有机会和赤坂联动吗，海苔男能不能安排一下
 
 不知道，希望不是屁大点事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8509#       发表于 2022-2-8 18:09
+
+ 本帖最后由 古战场亡魂 于 2022-2-8 18:11 编辑 
+
+让我猜猜看
+
+。
+
+A周边贩卖
+
+B出个新的翻唱。
+
+C参加最协
+
+D解散名存实亡的神乐组
+
+E加入犬山或者组长的组
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8510#       发表于 2022-2-8 18:12
+
+不管是毕业还是企划都有可能
+
+神乐组解散啥啊，都没和九条咋互动过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8511#       发表于 2022-2-8 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594332&amp;ptid=2018830" target="_blank">2014720 发表于 2022-2-8 18:12</a>
+
+不管是毕业还是企划都有可能
+
+神乐组解散啥啊，都没和九条咋互动过</blockquote>
+把这名存实亡的玩意散了吧，看着有点闹心……
+
+*****
+
+####  T_Hb  
+##### 8512#       发表于 2022-2-8 18:16
+
+能不能先告知再唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+神乐组不就只存在嘴上，从未实际存在过的东西怎么解散
+
+*****
+
+####  时间在我手中  
+##### 8513#       发表于 2022-2-8 18:16
+
+快进到找到野男人要毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 8514#       发表于 2022-2-8 18:21
+
+前两天九条自己过了个一周年
+加入别人怎么可能，她现在基本上处于组织不需要她她也不需要组织的位置
+说不定要说的事情真不小<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  clvan_  
+##### 8515#       发表于 2022-2-8 18:21
+
+草，别是有个新人吧。
+
+毕业肯定不可能，vcp在那摆着呢
+
+你麻这种说法一般也不是企划，估计是谷子或者什么活动吧
+
+*****
+
+####  往世雷书  
+##### 8516#       发表于 2022-2-8 18:24
+
+ 本帖最后由 往世雷书 于 2022-2-8 18:25 编辑 
+
+谷子一般是直播开始就说吧，这一看就要出事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202202/08/182311qruttkmrgjjjfmbr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220208_182056_tv.danmaku.bili_edit_3172682371266400.jpg</strong> (407.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-8 18:23 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
