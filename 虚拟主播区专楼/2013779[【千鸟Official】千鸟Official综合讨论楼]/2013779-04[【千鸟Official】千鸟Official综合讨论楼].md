@@ -8474,3 +8474,14 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  人民de救星  
+##### 5390#       发表于 2022-2-8 19:06
+
+期待兜兜和咪咪擦枪走火<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

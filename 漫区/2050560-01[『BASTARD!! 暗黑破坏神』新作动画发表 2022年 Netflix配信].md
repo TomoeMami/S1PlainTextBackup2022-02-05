@@ -1921,3 +1921,12 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 十贤者对D系统的解释感觉还是太粗糙了点，哪怕多点讲点成功属于意外或者素材上的不可再生性也不至于我有廉价这种想法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大柴爱怀旧  
+##### 139#       发表于 2022-2-8 19:28
+
+我想看地狱大元帅的
+

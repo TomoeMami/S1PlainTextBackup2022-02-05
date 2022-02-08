@@ -8975,3 +8975,42 @@ E加入犬山或者组长的组
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  T_Hb  
+##### 8530#       发表于 2022-2-8 19:09
+
+ 本帖最后由 T_Hb 于 2022-2-8 19:14 编辑 
+
+会影响听歌的心情，为什么不先告知，或者直接不预告唐突告知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8531#       发表于 2022-2-8 19:21
+
+ 本帖最后由 路人庚 于 2022-2-8 19:26 编辑 
+
+虽然用语看上去很讲究但谷子出现了两次（而且实际上最下面的那个基本也没怎么正常出现过
+
+图文无关（）
+
+<img src="https://img.saraba1st.com/forum/202202/08/192633glc9d9nmlzllelsl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7B9906A3-37BE-4A38-8C52-BF9ECBA91AA7.jpeg</strong> (21.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-8 19:26 上传
+
+*****
+
+####  往世雷书  
+##### 8532#       发表于 2022-2-8 19:21
+
+吊胃口呗，让你全程关注涨点同接
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
