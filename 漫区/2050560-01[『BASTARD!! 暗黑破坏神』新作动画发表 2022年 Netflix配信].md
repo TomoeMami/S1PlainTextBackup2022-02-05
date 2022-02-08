@@ -1754,3 +1754,49 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 这是有年表之类吗？我对年代没啥清晰的印象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 还有DS的研究目的是人造生命来突破第二原罪来着？记得讲了一大堆猿人啥的，好像最初的人类吃了智慧果，解除了第一封印，十贤者搞出DS就是为了得到生命果，具体表现就是能无限使用灵子力吗？感觉这部分的解释挺虚的，不通过男女交配诞生就行的话，老头门都能造出那么多奇怪的物种了，感觉不到DS的特殊性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niu  
+##### 126#       发表于 2022-2-8 16:00
+
+ 本帖最后由 Niu 于 2022-2-8 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54592378&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-7 23:16</a>
+
+这是有年表之类吗？我对年代没啥清晰的印象
+
+还有DS的研究目的是人造生命来突破第二原罪来着？记得 ...</blockquote>
+人類身上有兩個封印。吃下智慧之果解開第一封印的猿人解開了第一封印。腦子長出了大腦新皮質成為有智慧的人類。
+
+十第二封印要靠生命之果解開。但是回不去伊甸園的人類拿不到生命之果。
+
+所以十賢者就乾脆用科學從零造人。完全不經過神的干涉的純粹生命，腦子裏自然也不會有神的封印。
+
+沒有第二封印的人腦可以發揮人類靈力的無限潛能。而人類本質上是神的分靈。
+
+簡單的說，DS是個能有如神一樣生出靈力的靈子力永久機關。
+
+*****
+
+####  zerona  
+##### 127#       发表于 2022-2-8 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54591626&amp;ptid=2050560" target="_blank">Niu 发表于 2022-02-08 14:13:44</a>
+龍戰士單體就是利用龍因子制造的人工光體。只能單純作為兵器。
+
+但本質是要搭載到戰艦貝西摩斯上做作為系 ...</blockquote>他们认为方舟可以压制吗？是倚仗什么？我记得他们用方舟的炮打了半天。然后天使上船把魔战将军和侍卫2边都灭了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kiralzb  
+##### 128#       发表于 2022-2-8 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54592881&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 16:00</a>
+人類身上有兩個封印。吃下智慧之果解開第一封印的猿人解開了第一封印。腦子長出了大腦新皮質成為有智慧的 ...</blockquote>
+那我记得还挺清楚的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+所以这样的话我觉得DS就没啥特殊性了，真没了贤者们也不至于绝望吧，只是这些条件就能造出没第二原罪的话，要造第二个ds应该不难，或者说为啥创造出那么多奇怪生物就每一个可以？
+应该还是需要些特殊条件吧，比如达朗？
+

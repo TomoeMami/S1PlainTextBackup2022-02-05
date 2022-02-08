@@ -14042,3 +14042,15 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想看木瓜学姐的偷情本。
 
+
+
+*****
+
+####  RoPlem  
+##### 2571#       发表于 2022-2-8 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54510707&amp;ptid=1963832" target="_blank">梦诗歌雪 发表于 2022-2-1 15:12</a>
+
+原来还以为这个洗记忆的仪器就是单纯洗记忆，这表现已经是因果律一样的消除存在痕迹了啊，连合影上 ...</blockquote>
+虾姑姑本质上就是staff的私货啊，没有哪个小孩子会真的喜欢当小孩的，只有见识到了成人世界残酷的“大人”才会想当小孩
+

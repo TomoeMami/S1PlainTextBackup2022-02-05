@@ -8409,3 +8409,12 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 
 早知道，还是白子<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 5384#       发表于 2022-2-8 15:56
+
+【【文静×内德维德】《修炼爱情》——“远距离的欣赏 静距离的迷惘”-哔哩哔哩】 https://b23.tv/EJoAJtr
+
