@@ -1930,3 +1930,16 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 我想看地狱大元帅的
 
+
+
+*****
+
+####  触手皇帝  
+##### 140#       发表于 2022-2-8 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54580627&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-7 17:12</a>
+天使側有這些問題是因為現在這些天使們都是新秀。連四大天使都是新人上任。
+
+天界裡真陣正了解實情的真高 ...</blockquote>
+老哥请问你这些信息是从哪儿看的？这漫画里头好多地方都交待得不清不楚的，我又看不懂日文搞得好多坑都没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

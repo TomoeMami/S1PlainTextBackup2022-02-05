@@ -5635,3 +5635,73 @@ nene想要大师挑战，486说别，夸说你先上到钻石再说吧，然后�
 
 非 阿夸 非 www
 
+
+
+*****
+
+####  离魂仙  
+##### 8164#       发表于 2022-2-8 22:43
+
+她也看到了大师场吃鸡的地平线视角，那这自搜强度还挺高的嘛
+[湊アクアさんとのプレマス帯　ホライゾン視点　続き](https://www.youtube.com/watch?v=onl9qb1ZbSQ)
+
+话说怎么还没抽到，一年的修行不仅能在钻石段控分，还能控抽卡运？
+
+依稀记得两年前传家宝开幕几分钟就抽到了，痛失高同接高收入
+
+*****
+
+####  wuzu  
+##### 8165#       发表于 2022-2-8 22:46
+
+抽卡的钱，有能的税理士能不能算到经费里去避税啊
+
+*****
+
+####  越动天下  
+##### 8166#       发表于 2022-2-8 22:46
+
+要井了呀 无所谓 同接高就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8167#       发表于 2022-2-8 22:48
+
+solo上大师的最高同接不如抽卡，我不能接受。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzu  
+##### 8168#       发表于 2022-2-8 22:50
+
+别人的痛苦，是最好的食粮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  einne  
+##### 8169#       发表于 2022-2-8 22:50
+
+打枪不如抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 8170#       发表于 2022-2-8 22:52
+
+早说了游戏民费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpy393  
+##### 8171#       发表于 2022-2-8 22:52
+
+看开点，以前打枪同接也不如抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 8172#       发表于 2022-2-8 23:00
+
+笑死，毒里舔包那波地平线屁都没舔到，全被你亏哥拿了
+

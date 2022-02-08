@@ -7794,3 +7794,12 @@ pay：我怎么吃都没胖
 
 打铁：我体重反而下降了（惨遭鲤鱼背刺爆料回宫城老家一趟就胖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5127#       发表于 2022-2-8 22:56
+
+这个傻逼g店，看板娘的goods发货还分开发，平白无故多付邮费，然后最便宜的徽章也没了
+
