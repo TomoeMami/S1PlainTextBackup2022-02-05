@@ -7848,3 +7848,37 @@ l
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  player3960  
+##### 5131#       发表于 2022-2-9 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598750&amp;ptid=2036367" target="_blank">任天索尼子 发表于 2022-02-09 01:18:35</a>
+鲤鱼也被人挖出来有前男友了 估计是大学时候谈的？然后挖料人被人骂关你屁事 v2.5.2 ...</blockquote>这楼还有不知道这事的人吗？鲤黑三件套我都看腻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  任天索尼子  
+##### 5132#       发表于 2022-2-9 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598782&amp;ptid=2036367" target="_blank">player3960 发表于 2022-2-9 01:24</a>
+这楼还有不知道这事的人吗？鲤黑三件套我都看腻了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+我对这还真不知道 不过现在连日本肥宅都已经不把谈恋爱当炎上点了吧 这黑的太low了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 5133#       发表于 2022-2-9 01:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种破事去lag发就好了吧？烦吗？
+
+Nako现在情况到底怎样？隔壁生田辉中了也照常发推……Nako真是太安静了
+

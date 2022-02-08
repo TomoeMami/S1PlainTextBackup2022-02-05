@@ -2093,3 +2093,33 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 對了，占卜婆婆的本名有被提到過嗎? 有沒有證據或是暗示她就是當年的猶太妹??
 
+
+
+*****
+
+####  kiralzb  
+##### 151#       发表于 2022-2-9 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598396&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 00:38</a>
+
+七大魔王和撒旦又打不死DS，这是属性克制
+
+而且DS比七大魔王还强，只能看着了</blockquote>
+恶魔能杀DS啊，相克是救世主杀恶魔，DS杀救世主吧
+
+7魔王实力问题还挺奇怪的，DS当初地狱里应该不是正面打败他们拿痛，可说用计偷袭，怎么才能搞到6个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然也有可能偷了1、2个就直接实力超越直接抢，不过同时打三个魔王以上感觉还是虚啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 152#       发表于 2022-2-9 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598565&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 00:56</a>
+
+别忘了默示录炮
+
+当初默示录计划就是四个</blockquote>
+当初就只有A和D吧？其他的应该都是在见到天使恶魔大战后采集了大量数据才开始捣鼓出来的
+
