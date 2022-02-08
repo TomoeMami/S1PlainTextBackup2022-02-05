@@ -1646,3 +1646,25 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 我印象里利维亚桑系统就是龙战士吧，编号也是1～8，设定里路西法机是主机，其他是自律操控，按小女孩的记忆，在方舟战后面就全出动了，结果上也没啥创世的成绩留下？感觉还是可疑
 而且ds本来也只是d系统的成品，龙战士是大战后十贤者再搞出来，还加了什么要龙因子才能驾驶，不知道怎么就变成为ds专用了，最后打妹控又将主机的龙体给打没了，感觉就挺随便的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 118#       发表于 2022-2-8 13:52
+
+老贼将微热口红加进来想将世界观统合也不是不行，但加了个米加勒人间体就挺莫名的，要说转世嘛，那时候撒旦都堕落不知道多久了，时间上就对不上，毕竟大战才过了400年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 119#       发表于 2022-2-8 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54584292&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-7 22:06</a>
+你别告诉我雷帝和他百年之恋到现在还是个雏啊</blockquote>
+还真有可能，毕竟另一身份是女儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+也就摸遍，抱着睡啥的，完全不意外
+实际上在本篇里就在塑造她离开父亲独立的要素
+比起ds，反而是卡尔和忍者的互动更多，看真相历史时甚至和都来了段亲密接触，忍者都兴奋得起立了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+现在老贼自己也有女儿，真让他画下去，我是真怕他会搞出分后宫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
