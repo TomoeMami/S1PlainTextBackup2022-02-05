@@ -9475,3 +9475,33 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 你咩姐的泳装基本只可能去看录播了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8592#       发表于 2022-2-8 23:42
+
+感觉这衣服地雷系的吧
+
+*****
+
+####  病態極端  
+##### 8593#       发表于 2022-2-8 23:42
+
+看剪影，感覺頭肩比好大
+
+*****
+
+####  时间在我手中  
+##### 8594#       发表于 2022-2-8 23:45
+
+刚刚打游戏忽然听到新衣装差点没给爷大狙打歪来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说比我想的要好不少
+
+*****
+
+####  掉头学姐  
+##### 8595#       发表于 2022-2-8 23:49
+
+尽然是新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

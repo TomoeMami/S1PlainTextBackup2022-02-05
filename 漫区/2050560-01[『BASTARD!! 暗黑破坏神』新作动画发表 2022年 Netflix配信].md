@@ -1967,3 +1967,17 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 老哥请问你这些信息是从哪儿看的？这漫画里头好多地方都交待得不清不楚的，我又看不懂日文搞得好多坑都没 ...</blockquote>
 老賊個人出版的設定集。
 
+
+
+*****
+
+####  kiralzb  
+##### 143#       发表于 2022-2-8 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54597749&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 23:35</a>
+
+唯一性? 那的確沒有。  DS算是難以制造，但不是獨一無二。
+
+但是暗黑亞當真不行。當年撒旦肯簽約是他需要 ...</blockquote>
+就剧情里还是可以的，因为救世主出来了，DS没了撒旦怎么也要再搞一个来对抗吧，毕竟这相克关系不看实力就无解，虽然DS完全不理撒旦他们也没打算对DS咋样也是个迷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
