@@ -1630,3 +1630,19 @@ DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 
 DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 117#       发表于 2022-2-8 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54590209&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 12:19</a>
+龍戰士是用來跟系統利維亞桑並用的零件。
+
+龍戰士其實有好幾台。並列起動後能湊出個生命之樹。
+
+就現在有限 ...</blockquote>
+我印象里利维亚桑系统就是龙战士吧，编号也是1～8，设定里路西法机是主机，其他是自律操控，按小女孩的记忆，在方舟战后面就全出动了，结果上也没啥创世的成绩留下？感觉还是可疑
+而且ds本来也只是d系统的成品，龙战士是大战后十贤者再搞出来，还加了什么要龙因子才能驾驶，不知道怎么就变成为ds专用了，最后打妹控又将主机的龙体给打没了，感觉就挺随便的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
