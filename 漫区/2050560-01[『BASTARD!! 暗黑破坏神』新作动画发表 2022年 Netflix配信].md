@@ -1943,3 +1943,27 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 天界裡真陣正了解實情的真高 ...</blockquote>
 老哥请问你这些信息是从哪儿看的？这漫画里头好多地方都交待得不清不楚的，我又看不懂日文搞得好多坑都没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niu  
+##### 141#       发表于 2022-2-8 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594689&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-8 02:51</a>
+
+因为他用科学来解释第一封印是大脑皮层啥的，怪兽精灵之类的很多都是泛人类，就这点设定的话不觉得有根本 ...</blockquote>
+唯一性? 那的確沒有。  DS算是難以制造，但不是獨一無二。
+
+但是暗黑亞當真不行。當年撒旦肯簽約是他需要一個暗黑亞當開地獄門。現在門已經開了，他沒比要再簽約造另一個暗黑亞當。
+
+*****
+
+####  Niu  
+##### 142#       发表于 2022-2-8 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54597343&amp;ptid=2050560" target="_blank">触手皇帝 发表于 2022-2-8 07:01</a>
+
+老哥请问你这些信息是从哪儿看的？这漫画里头好多地方都交待得不清不楚的，我又看不懂日文搞得好多坑都没 ...</blockquote>
+老賊個人出版的設定集。
+
