@@ -7779,3 +7779,18 @@ Sunday~Sunday~<img src="https://static.saraba1st.com/image/smiley/face2017/075.p
 
 没事，裂啦二巡开始彩排运动量上去就瘦了
 
+
+
+*****
+
+####  starring  
+##### 5126#       发表于 2022-2-8 22:07
+
+这期广播说体重的话题她们互损笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+鲤鱼：一巡的时候吃了很多，发胖了
+
+pay：我怎么吃都没胖
+
+打铁：我体重反而下降了（惨遭鲤鱼背刺爆料回宫城老家一趟就胖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
