@@ -2123,3 +2123,14 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 当初默示录计划就是四个</blockquote>
 当初就只有A和D吧？其他的应该都是在见到天使恶魔大战后采集了大量数据才开始捣鼓出来的
 
+
+
+*****
+
+####  月下的沉默  
+##### 153#       发表于 2022-2-9 01:59
+
+真的是活久见了
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+

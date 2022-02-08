@@ -7882,3 +7882,34 @@ l
 
 Nako现在情况到底怎样？隔壁生田辉中了也照常发推……Nako真是太安静了
 
+
+
+*****
+
+####  csolfans  
+##### 5134#       发表于 2022-2-9 01:47
+
+<blockquote>任天索尼子 发表于 2022-2-9 01:18
+鲤鱼也被人挖出来有前男友了 估计是大学时候谈的？然后挖料人被人骂关你屁事
+
+—— 来自 realme RMX ...</blockquote>
+大学拍过拖不很正常吗，都2022年了
+
+*****
+
+####  任天索尼子  
+##### 5135#       发表于 2022-2-9 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598961&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-2-9 01:47</a>
+大学拍过拖不很正常吗，都2022年了</blockquote>
+所以我不说黑的很low么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lanslort  
+##### 5136#       发表于 2022-2-9 04:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 鲤鱼有前男友不奇怪，前男友是谁我倒是有点好奇。感觉也会是圈内人？
+
