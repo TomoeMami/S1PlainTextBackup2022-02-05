@@ -1589,3 +1589,17 @@ DS是和她妈滚，皇女出身以前她妈就认识DS了</blockquote>
 
 然後讓人類死掉30多億是要刻意減少能給神提供信仰的人口。
 
+
+
+*****
+
+####  kiralzb  
+##### 114#       发表于 2022-2-8 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54587199&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 07:57</a>
+這件事現在仔細想想真是細思恐極。系統A暴走對系統D進行猛攻表面上看起來是天使支配了系統A來幹死暗黑亞 ...</blockquote>
+贤者们后面都变得像普通老头了，ds没了还会伤心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过有没有说过龙战士实际的目的？这东西在15年前才搞了个原型给王子，还为了阻止ds能放手同归，是知道ds死不掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且后面又上月球，后手留得有点多，龙战士主机也废了，感觉优先度其实没那么高
+还有那个和光暗亚当不同的人造亚当也不知道起啥作用
+
