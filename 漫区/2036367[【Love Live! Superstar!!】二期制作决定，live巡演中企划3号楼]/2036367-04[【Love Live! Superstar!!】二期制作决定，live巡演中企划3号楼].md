@@ -7837,3 +7837,14 @@ l
 
 开听
 
+
+
+*****
+
+####  任天索尼子  
+##### 5130#       发表于 2022-2-9 01:18
+
+鲤鱼也被人挖出来有前男友了 估计是大学时候谈的？然后挖料人被人骂关你屁事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

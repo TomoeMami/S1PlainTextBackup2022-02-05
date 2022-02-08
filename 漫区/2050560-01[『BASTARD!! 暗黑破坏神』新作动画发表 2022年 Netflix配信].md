@@ -2066,3 +2066,30 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 赞助十贤者的大国真是疯了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niu  
+##### 149#       发表于 2022-2-9 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598340&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-8 08:31</a>
+
+不止11个人，十贤者是一个大型团队
+
+占卜婆婆都是前十贤者成员</blockquote>
+我是在調述啊。4天王有5個人那樣。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不過關於相剋你記錯了。
+
+天使殺不了暗亞當，惡魔殺不了光亞當。亞當能互殺。自己人打自己人也殺的了。所以惡魔殺的了暗亞當。
+
+蒼蠅解釋自己計畫時爆料了。要殺暗亞當得惡魔出手。但是魔王們除了蒼蠅跟撒旦都比DS弱。蒼蠅也不想冒險，撒旦還沒回來。那就乾脆用計逼尤里勒墮天暴走去殺DS。(雖然也失敗了。)
+
+*****
+
+####  Niu  
+##### 150#       发表于 2022-2-9 01:26
+
+對了，占卜婆婆的本名有被提到過嗎? 有沒有證據或是暗示她就是當年的猶太妹??
+
