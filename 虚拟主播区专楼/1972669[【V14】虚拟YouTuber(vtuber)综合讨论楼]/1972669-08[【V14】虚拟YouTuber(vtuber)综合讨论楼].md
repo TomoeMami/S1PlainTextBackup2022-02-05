@@ -579,3 +579,22 @@ luca还以为是低配xqc，结果是低配卢本伟<img src="https://static.sar
 
 游戏王热度确实不错，老板娘也有稍稍乘上一点，替她高兴。只能说真心去玩的大家都看得出吧，我郡玩了一回就弃了还给饭推社长等人的切片我真是，还以为郡郡只看大胸和en人呢😥
 
+
+
+*****
+
+####  winda  
+##### 10547#       发表于 2022-2-8 17:26
+
+nrk和sovault聊游戏王md，她目前不入坑md的理由是自己花钱买了实卡为什么还要去md氪金抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想法独特
+syl rion带的这队都把他smurfing炎上的事当梗玩，也算是贯彻玩梗化镇火的路线了
+
+*****
+
+####  poipanchao  
+##### 10548#       发表于 2022-2-8 17:38
+
+玩梗镇火算是久经考验的必胜策了
+玩的好的还多个梗，指皇笑而不语
+其实beni也在这么搞
+
