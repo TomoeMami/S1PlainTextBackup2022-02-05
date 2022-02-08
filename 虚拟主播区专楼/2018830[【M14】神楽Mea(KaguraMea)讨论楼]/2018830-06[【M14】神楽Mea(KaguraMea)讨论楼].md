@@ -8737,3 +8737,26 @@ mea还有机会和赤坂联动吗，海苔男能不能安排一下
 
 只要麻麻上了白金，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 8506#       发表于 2022-2-8 18:00
+
+9点歌回有告知
+
+*****
+
+####  古战场亡魂  
+##### 8507#       发表于 2022-2-8 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8508#       发表于 2022-2-8 18:04
+
+不知道，希望不是屁大点事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
