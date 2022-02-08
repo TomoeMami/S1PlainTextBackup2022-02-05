@@ -11097,3 +11097,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ohi  
+##### 56373#       发表于 2022-2-8 17:13
+
+大妈这是失了智吧，用小拳拳锤什么，直接一把抓住罗把他捏死不就完了
+
