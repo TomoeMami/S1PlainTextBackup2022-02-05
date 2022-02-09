@@ -2456,3 +2456,12 @@ A和 ...</blockquote>
 
 可是在DS从地狱王者归来后，直接将难度曲线拉满，导致后面那一堆泛人类都显得CJB，真如精灵王女所说，只能期待月球藏了啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  传说中的小鱼  
+##### 176#       发表于 2022-2-9 17:03
+
+后面是怎么回事了？只看到DS在打天使恶魔，人类的龙战士什么的都没了？
+
