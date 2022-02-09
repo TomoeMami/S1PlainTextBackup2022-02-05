@@ -8386,3 +8386,15 @@ Nako没事了</blockquote>
 
 也就是个粪坑，不理就是
 
+
+
+*****
+
+####  Enakina  
+##### 5172#       发表于 2022-2-9 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608286&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-02-09 19:00:44</a>
+有个黑鲤鱼黑得最热火朝天的贴吧，是之前泥潭一个坛友为了讨论乃木坂46建的，后来坛友出坑后贴吧就荒废了。 ...</blockquote>火星了，结论是无视，提它都是给它张脸了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

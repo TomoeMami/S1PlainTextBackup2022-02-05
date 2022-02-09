@@ -2536,3 +2536,14 @@ A和 ...</blockquote>
 但是看剩下两个的反应也不像呀，要是都反水给恶魔搞无效共鸣的话为啥还要为DS着急？ ...</blockquote>
 十賢者是自己想當神。殺光天使然後奴役惡魔。但是跟惡魔融合後被納入惡魔社會的權力構造，陷入被更高級的惡魔給使喚的立場。方舟一戰時，賢者們還對這一事實沒有自覺。所以與其是反水到惡魔勢力，更像是不自覺的作了惡魔的打工仔。也就是說，如果方舟戰役後看清自己的立場，着急是理所當然。
 
+
+
+*****
+
+####  触手皇帝  
+##### 182#       发表于 2022-2-9 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608179&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 18:49</a>
+你是看到哪里了？DS打天使和恶魔的只有方舟战4年后吧？那里据说是因为换刊了所以停掉了原来的地狱篇，直 ...</blockquote>
+“上”了龙战士<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
