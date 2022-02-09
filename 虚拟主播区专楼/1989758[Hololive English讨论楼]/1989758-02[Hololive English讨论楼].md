@@ -1405,3 +1405,22 @@ Ametori off collab coming soon(TM)<img src="https://static.saraba1st.com/image/s
 
 ame gone for 3 weeks after valentine, mostly for moving
 
+
+
+*****
+
+####  shimmy1996  
+##### 1631#       发表于 2022-2-9 10:27
+
+<img src="https://img.saraba1st.com/forum/202202/09/102608s9aa55lr999ppztn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-02-08_20-25-30.jpg</strong> (131.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 10:26 上传
+
+盯着 TOWAME 1分钟后看墙壁有惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+Ame终于要去找新房子了，期间可能会有twitter space或hotel (ASMR?) stream
+

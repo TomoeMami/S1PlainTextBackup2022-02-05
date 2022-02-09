@@ -7972,3 +7972,41 @@ Nako现在情况到底怎样？隔壁生田辉中了也照常发推……Nako真
 
 鱼这一专没贴动画，就特典还行(虽然fc的特典很坑)，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">首周能卖多少真不好说
 
+
+
+*****
+
+####  梶原ひかり  
+##### 5143#       发表于 2022-2-9 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54601032&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-2-9 09:59</a>
+
+鱼这一专没贴动画，就特典还行(虽然fc的特典很坑)，首周能卖多少真不好说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">感觉挺客观的 淘宝上销量已经500+了
+
+*****
+
+####  lj205  
+##### 5144#       发表于 2022-2-9 10:10
+
+比一单多就行
+
+*****
+
+####  cat1230  
+##### 5145#       发表于 2022-2-9 10:16
+
+等壁吧的星团大佬统计结果。代购坑的地方是o榜不计数吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Enakina  
+##### 5146#       发表于 2022-2-9 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54601228&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-02-09 10:16:34</a>
+等壁吧的星团大佬统计结果。代购坑的地方是o榜不计数吧</blockquote>我有加代购群，都是几个店铺正常程序下单的，没理由不计数吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
