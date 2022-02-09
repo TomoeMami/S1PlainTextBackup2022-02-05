@@ -14985,3 +14985,15 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 这次的轮替好像不是双UP了，是说有了保底以后再也没有双UP卡池了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有那么一种可能 dw的技术做不到双up池加保底
 
+
+
+*****
+
+####  里村紅葉  
+##### 86953#       发表于 2022-2-9 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54610292&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 21:59</a>
+
+有没有那么一种可能 dw的技术做不到双up池加保底</blockquote>
+他们大概只能做到保底随机一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后保底一个池子又只有一次
+
