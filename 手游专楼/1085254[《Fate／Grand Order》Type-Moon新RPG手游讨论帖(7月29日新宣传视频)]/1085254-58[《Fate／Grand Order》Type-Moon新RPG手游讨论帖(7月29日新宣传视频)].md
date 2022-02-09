@@ -14878,3 +14878,57 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 巴姐四破的对话竟然换回了一阶立绘，看来海神凭依也就是走个过场...
 
+
+
+*****
+
+####  qb0079  
+##### 86941#       发表于 2022-2-9 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看见个1宝6T大菩萨的，感觉是个好玩具
+
+*****
+
+####  khxooo  
+##### 86942#       发表于 2022-2-9 20:55
+
+根据摩根的情人节剧情，今年的无限池估计就是摩根祭了。
+
+*****
+
+####  cckuku  
+##### 86943#       发表于 2022-2-9 20:55
+
+看了nga的帖子，现在在认真思考欧若拉落地的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86944#       发表于 2022-2-9 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608925&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-2-9 19:59</a>
+
+巴姐四破的对话竟然换回了一阶立绘，看来海神凭依也就是走个过场...</blockquote>
+可我觉得这满破还不如那张4星礼装。。。换一换效果可能会更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86945#       发表于 2022-2-9 20:59
+
+这宝具太没用了吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+行动不能状态无法发动<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86946#       发表于 2022-2-9 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54609557&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-2-9 20:59</a>
+
+这宝具太没用了吧
+
+行动不能状态无法发动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以技能才给了个一回合弱体无效啊
+

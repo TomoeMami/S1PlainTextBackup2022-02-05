@@ -8445,3 +8445,17 @@ Nako没事了</blockquote>
 我觉得鲤鱼首周能过4000就是大胜利...保3争4吧</blockquote>
 4000?接近3000都是赢了
 
+
+
+*****
+
+####  梶原ひかり  
+##### 5177#       发表于 2022-2-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54609238&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-9 20:32</a>
+
+这玩意统计的初动吧，首日也太妖了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这都是累计数据...不过有几个不完整 后面的没加上去
+
