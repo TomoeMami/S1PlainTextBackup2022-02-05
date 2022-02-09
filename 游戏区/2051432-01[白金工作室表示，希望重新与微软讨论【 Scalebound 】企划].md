@@ -646,3 +646,36 @@ fs是角川的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  霜天冰华  
+##### 68#       发表于 2022-2-10 03:11
+
+微软：过主啦
+
+*****
+
+####  2014720  
+##### 69#       发表于 2022-2-10 03:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611125&amp;ptid=2051432" target="_blank">refiver 发表于 2022-2-9 23:12</a>
+所以当年那个传闻说是微软那边的人玩了demo以后觉得不行直接拍板取消究竟是真是假…… ...</blockquote>
+当年实机就是6分游戏水平
+
+*****
+
+####  Fun_Sun  
+##### 70#       发表于 2022-2-10 04:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611667&amp;ptid=2051432" target="_blank">铁拳圣裁 发表于 2022-2-9 23:58</a>
+
+白金只亲任，其他俩家根本不给好脸，而且白金本身还没什么本事，做不了3a动作游戏，有啥可收的。
+
+fs社是 ...</blockquote>
+
+FS是角川的
+
+BN是他们魂系列，环的全球发行商（除了日本，是FS自己发行）
+
