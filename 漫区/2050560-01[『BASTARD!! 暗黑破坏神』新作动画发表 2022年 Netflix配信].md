@@ -2152,3 +2152,55 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 反正除了蒼蠅跟撒旦之外都不靠譜了。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 155#       发表于 2022-2-9 08:15
+
+ 本帖最后由 gpx234mqx 于 2022-2-9 08:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598848&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 01:33</a>
+
+恶魔能杀DS啊，相克是救世主杀恶魔，DS杀救世主吧
+
+7魔王实力问题还挺奇怪的，DS当初地狱里应该不是正面打 ...</blockquote>
+搞反了，是天使没法打死ds，恶魔没法打死亚当
+
+*****
+
+####  gpx234mqx  
+##### 156#       发表于 2022-2-9 08:16
+
+ 本帖最后由 gpx234mqx 于 2022-2-9 08:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598940&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 01:43</a>
+
+当初就只有A和D吧？其他的应该都是在见到天使恶魔大战后采集了大量数据才开始捣鼓出来的 ...</blockquote>
+一开始就有了，默示录计划
+
+利维亚桑计划的龙战士才是大破坏之后造的
+
+*****
+
+####  gpx234mqx  
+##### 157#       发表于 2022-2-9 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598797&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-9 01:26</a>
+
+對了，占卜婆婆的本名有被提到過嗎? 有沒有證據或是暗示她就是當年的猶太妹?? ...</blockquote>
+这个没提过
+
+没名字也没法判断
+
+*****
+
+####  y2w80  
+##### 158#       发表于 2022-2-9 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54600043&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-02-09 08:19:54</a>
+这个没提过
+
+没名字也没法判断</blockquote>老了颜值崩成这样我不能接受😂
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

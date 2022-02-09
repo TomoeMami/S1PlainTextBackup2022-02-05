@@ -7922,3 +7922,14 @@ Nako现在情况到底怎样？隔壁生田辉中了也照常发推……Nako真
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长那个样子没谈过才怪好嘛
 
+
+
+*****
+
+####  ads147147  
+##### 5138#       发表于 2022-2-9 08:18
+
+不然呢，难道是找女朋友吗（）
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
