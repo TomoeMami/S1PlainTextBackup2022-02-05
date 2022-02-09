@@ -578,3 +578,18 @@ via:微博 [-极文-](https://weibo.com/qqwaaszzx?refer_flag=0000015010_&amp;fro
 
 所以当年那个传闻说是微软那边的人玩了demo以后觉得不行直接拍板取消究竟是真是假……
 
+
+
+*****
+
+####  铁拳圣裁  
+##### 62#       发表于 2022-2-9 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611047&amp;ptid=2051432" target="_blank">yuanico 发表于 2022-2-9 23:06</a>
+一直想问，白金和fromsoft，微软或者sony没想过收了？</blockquote>
+白金只亲任，其他俩家根本不给好脸，而且白金本身还没什么本事，做不了3a动作游戏，有啥可收的。
+
+fs社是万代旗下的，人家凭啥卖呢。
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

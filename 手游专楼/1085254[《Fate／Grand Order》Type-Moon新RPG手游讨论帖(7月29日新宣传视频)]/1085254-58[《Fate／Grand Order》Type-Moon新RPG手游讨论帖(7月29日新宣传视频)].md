@@ -15040,3 +15040,34 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 看见个1宝6T大菩萨的，感觉是个好玩具</blockquote>
 我刚发现逆光剑反击状态竟然是持续一回合，碰上血厚还爱乱动的BOSS就能连发宝具，而且某种意义上甚至可以当光炮用，有点强啊...叫玩具说不定算是委屈巴姐了...
 
+
+
+*****
+
+####  alucardcz  
+##### 86958#       发表于 2022-2-9 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611462&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-2-9 23:40</a>
+
+我刚发现逆光剑反击状态竟然是持续一回合，碰上血厚还爱乱动的BOSS就能连发宝具。同时由于是敌方回合发动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是建立在大量sl的前提下  这不叫玩具什么叫玩具呢
+
+*****
+
+####  保罗赫伯特  
+##### 86959#       发表于 2022-2-9 23:58
+
+光狐的情人节剧情支线还多，败北结局里还能看到她露出暗狐再临时候那个眼白变黑的屑表情，光暗狐果然是一体的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 86960#       发表于 2022-2-9 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611570&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 23:49</a>
+
+你这是建立在大量sl的前提下  这不叫玩具什么叫玩具呢</blockquote>
+也对，随机性太大了，和小安一样，是对面不攻击就会空大的宝具<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+给巴姐套个无敌盾，给对面上技能封印和宝具封印，应该就能稳定输出了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
