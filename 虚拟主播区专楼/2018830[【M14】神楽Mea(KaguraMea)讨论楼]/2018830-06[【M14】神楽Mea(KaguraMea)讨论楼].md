@@ -9609,3 +9609,34 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 是不是有人觉得你咩姐最近联动太少来着？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 8607#       发表于 2022-2-9 12:52
+
+？？？？？？？？？？？？？
+
+*****
+
+####  呓亘  
+##### 8608#       发表于 2022-2-9 12:53
+
+不要男人！不要男人！不要男人！
+不过我对这位老哥印象还行……没有对舞元那么反感....
+
+*****
+
+####  呓亘  
+##### 8609#       发表于 2022-2-9 12:54
+
+阿咩和他联动好几次了吧 我记得404上有几个阿咩和他联动的切片 播放量还挺高 几十万呢
+
+*****
+
+####  andeloz  
+##### 8610#       发表于 2022-2-9 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">问题是不是才联动过没多久吗
+

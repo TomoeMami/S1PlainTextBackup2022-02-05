@@ -694,3 +694,20 @@ kiss切割玲玲军了，我缺的这块大家庭上哪补啊😭
 
 如果玲子切割尾巴区和喵喵露能起飞的话，我甘愿被小动物吃掉化成养分成为玲子起飞的供料，只要玲子不嫌弃就好，呜呜呜
 
+
+
+*****
+
+####  harry3  
+##### 72#       发表于 2022-2-9 12:51
+
+ 本帖最后由 harry3 于 2022-2-9 12:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594275&amp;ptid=2050895" target="_blank">GJ05 发表于 2022-2-8 18:05</a>
+
+大概率新加坡的
+
+—— 来自 OPPO PCLM10, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+唐白虎自述中文是义务教育学的。
+
+新加坡早就取消中文义务教育了，马来才有
+
