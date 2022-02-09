@@ -7951,3 +7951,24 @@ Nako现在情况到底怎样？隔壁生田辉中了也照常发推……Nako真
 
 不太懂，鲤鱼这资源投入，得卖多少张才算回本之类的。
 
+
+
+*****
+
+####  梶原ひかり  
+##### 5141#       发表于 2022-2-9 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54600356&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-9 09:00</a>
+
+不太懂，鲤鱼这资源投入，得卖多少张才算回本之类的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单纯算CD成本 作词作曲录音封面等制作成本 个人独立制作700张上下就能涵盖所有费用了 
+
+商业公司应该更便宜点..如果算上宣发就不好计算了
+
+*****
+
+####  cybernetics31  
+##### 5142#       发表于 2022-2-9 09:59
+
+鱼这一专没贴动画，就特典还行(虽然fc的特典很坑)，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">首周能卖多少真不好说
+
