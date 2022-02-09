@@ -9853,3 +9853,44 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2014720  
+##### 8635#       发表于 2022-2-9 20:04
+
+<img src="https://p.sda1.dev/4/57ab4dc5ea2f9f94f9e5a5d7482412e0/4d161f726e46140e.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8636#       发表于 2022-2-9 20:07
+
+ 本帖最后由 2014720 于 2022-2-9 20:11 编辑 
+
+这游戏也太刺激了，我绝对不会和女性朋友玩这个的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8637#       发表于 2022-2-9 20:14
+
+紧跟时事
+
+*****
+
+####  wuzu  
+##### 8638#       发表于 2022-2-9 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8639#       发表于 2022-2-9 20:21
+
+不行，这游戏这么刺激的吗我擦
+
+我不是联想多啊，这游戏是真的厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8408,3 +8408,20 @@ Nako没事了</blockquote>
 [https://twitter.com/Deadnooodles/status/1490597712043311107](https://twitter.com/Deadnooodles/status/1490597712043311107)
 <img src="https://p.sda1.dev/4/daf481730cdb479661017fb3b9073dfb/20220209_195104.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑雪姫  
+##### 5174#       发表于 2022-2-9 20:15
+
+我觉得鲤鱼首周能过4000就是大胜利...
+
+<img src="https://img.saraba1st.com/forum/202202/09/201529dy1vedlzk88fvkfw.jpg" referrerpolicy="no-referrer">
+
+<strong>e5891146f21fbe09f979680e36600c338744ad4c.jpg</strong> (29.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 20:15 上传
+
