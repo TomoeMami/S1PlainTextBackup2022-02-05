@@ -2404,3 +2404,15 @@ A和 ...</blockquote>
 
 以普通人来说
 
+
+
+*****
+
+####  传说中的小鱼  
+##### 172#       发表于 2022-2-9 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54603843&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 13:21</a>
+
+完全版02改了很多，没看过可以看看，剧情本身的话27卷看过了那就没有新的了，记忆没模糊的话确实没必要重 ...</blockquote>
+记得完全版和大解毒刚出都是生肉？现在有汉化资源了吗？
+
