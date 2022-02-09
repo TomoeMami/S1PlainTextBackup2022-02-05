@@ -2429,3 +2429,14 @@ A和 ...</blockquote>
 
 最喜欢的女角色是米迦勒，恶魔大元帅则是所有人喜闻乐见233
 
+
+
+*****
+
+####  kiralzb  
+##### 174#       发表于 2022-2-9 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54604690&amp;ptid=2050560" target="_blank">传说中的小鱼 发表于 2022-2-9 14:29</a>
+记得完全版和大解毒刚出都是生肉？现在有汉化资源了吗？</blockquote>
+没有汉化吧？反正都是DS讲废话，看画就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

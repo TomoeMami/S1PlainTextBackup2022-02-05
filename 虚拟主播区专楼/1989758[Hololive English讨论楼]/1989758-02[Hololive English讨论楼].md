@@ -1424,3 +1424,16 @@ ame gone for 3 weeks after valentine, mostly for moving
 
 Ame终于要去找新房子了，期间可能会有twitter space或hotel (ASMR?) stream
 
+
+
+*****
+
+####  影山银  
+##### 1632#       发表于 2022-2-9 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54566330&amp;ptid=1989758" target="_blank">vimisbesteditor 发表于 2022-2-6 12:12</a>
+话说大家对日英混杂的歌曲怎么看的？mumei的a new start日英混听起来感觉一段一段的 ...</blockquote>
+mumei这首歌原本是全日文的，她自己感觉不合适特地让cali帮忙填的英文歌词
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
