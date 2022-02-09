@@ -2334,3 +2334,19 @@ A和 ...</blockquote>
 
 是后面写了利维亚桑计划出现画面
 
+
+
+*****
+
+####  kiralzb  
+##### 167#       发表于 2022-2-9 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54602430&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 11:44</a>
+
+龙战士不在同一页
+
+是后面写了利维亚桑计划出现画面</blockquote>
+我记得是左右页吧，应该是同一版面的
+
+反正那卫星炮其实挺拉跨的，实际上就是个靶子，纯粹是浪漫主义了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
