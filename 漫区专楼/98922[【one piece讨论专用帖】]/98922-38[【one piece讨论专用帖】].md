@@ -11203,3 +11203,12 @@ Big·Mom 的大招都放过一轮了，这不是没用吗。
 桃之助：是的！那是乔伊波伊（JOY BOY）的伙伴，800年前犯下了罪行！！
 下周休刊。
 
+
+
+*****
+
+####  wingzerocos  
+##### 56379#       发表于 2022-2-9 09:18
+
+果然顺手把炸药也扔洞里了。大妈这掉坑可能就是到结束了再爬出来了，也不知道什么时候解决她剧情上的坑<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
