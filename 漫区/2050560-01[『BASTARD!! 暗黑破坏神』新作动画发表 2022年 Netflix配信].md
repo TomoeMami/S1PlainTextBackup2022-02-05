@@ -2204,3 +2204,17 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  触手皇帝  
+##### 159#       发表于 2022-2-9 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54600052&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-9 08:22</a>
+
+老了颜值崩成这样我不能接受😂
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+你看看十贤者就知道这职业对颜值不保鲜····毕竟都几百岁了
+
