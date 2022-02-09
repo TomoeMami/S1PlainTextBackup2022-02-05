@@ -11381,3 +11381,35 @@ Big·Mom的儿女们掉海里多久了
 
 罗皇真的离谱，那个百年来未觉醒的果实恐怕就是罗皇的了
 
+
+
+*****
+
+####  天宮奏  
+##### 56397#       发表于 2022-2-9 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608189&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-2-9 18:50</a>
+
+补充情报：
+
+罗阻止大妈夺走所有人寿命的方法是用柯拉松（有回忆中的一格脸）用过的“凪（静音）”消除了大 ...</blockquote>
+没有辣鸡的果实，只有辣鸡的使用者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+超能力大战最后基本上就是拼一个对能力开发上的想象力
+
+*****
+
+####  Yeaha123  
+##### 56398#       发表于 2022-2-9 19:48
+
+艾斯就是因为果实太辣鸡死的
+
+*****
+
+####  Supermangunv3  
+##### 56399#       发表于 2022-2-9 19:51
+
+<blockquote>Yeaha123 发表于 2022-2-9 19:48
+艾斯就是因为果实太辣鸡死的</blockquote>
+麻子哥不是因为能跑不跑吗？
+

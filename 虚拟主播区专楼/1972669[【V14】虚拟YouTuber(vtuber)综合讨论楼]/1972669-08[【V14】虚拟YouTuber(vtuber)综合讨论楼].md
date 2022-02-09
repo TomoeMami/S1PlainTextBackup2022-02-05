@@ -716,3 +716,14 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 
 有意思的是这个不是黑黑and罗浮猫而是一哥and二哥and罗浮猫
 
+
+
+*****
+
+####  fastary  
+##### 10559#       发表于 2022-2-9 19:55
+
+很想吐槽一句怎么又双叒是live消息啊不过每次都要说这么一句好像显得很酸……虽然我确实很酸<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+被疫情橄榄好几次而且看不到好转迹象还要赌社运，搞得像舍不得过往甜头和沉没成本死活都离不开渣男的情节一样<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
