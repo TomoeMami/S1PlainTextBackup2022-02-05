@@ -807,3 +807,19 @@ Malay and English are compulsory subjects in all schools. All schools use the sa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">快快切割吧，我已经等不及要看混战了
 
+
+
+*****
+
+####  泽成明代  
+##### 80#       发表于 2022-2-10 01:03
+
+切割帖里不是跟风玩梗的居多吗？一拥而上喷炸弹人，一看风评不对就改口切割，切割不成过几天重新开播了又无事发生
+
+*****
+
+####  请问有猪扒饭吗  
+##### 81#       发表于 2022-2-10 01:24
+
+k子都和小古联姻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还惦记切割呢                大家庭不灭！😤😤😤
+
