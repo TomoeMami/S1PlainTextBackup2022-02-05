@@ -14565,3 +14565,147 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 巴姐这强度别说2022下水道了 竞争废狗史下水道都是强而有力啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86914#       发表于 2022-2-9 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607667&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-9 18:05</a>
+
+卡莲这强化本配置</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还有卡连 这太欧了
+
+*****
+
+####  exiaexa  
+##### 86915#       发表于 2022-2-9 18:08
+
+你们不要乱讲，怎么就下水道了
+
+这明明是竞速神器
+
+毕竟你游“竞速”从来不算重复SL时间
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86916#       发表于 2022-2-9 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607701&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-9 18:08</a>
+
+你们不要乱讲，怎么就下水道了
+
+这明明是竞速神器</blockquote>
+不能破条竞啥速  
+
+还是说 打到1学能靠毒诅咒什么的破条？
+
+*****
+
+####  exiaexa  
+##### 86917#       发表于 2022-2-9 18:12
+
+ 本帖最后由 exiaexa 于 2022-2-9 18:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607710&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 18:08</a>
+
+不能破条竞啥速  
+
+还是说 打到1学能靠毒诅咒什么的破条？</blockquote>
+不是dot
+
+是巴姐自己宝具aaex干掉一条，然后对面反击干到1
+
+下回合你再宝具+随便啥，这里就掉了两条血了
+
+最后一条反击击杀，这时候因为回合算法还算是2t内
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86918#       发表于 2022-2-9 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607741&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-9 18:12</a>
+
+不是dot是巴姐自己宝具aaex干掉一条，然后对面反击干到1
+
+下回合你再宝具+随便啥，这里就掉了两条血了
+
+最后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥 我意思是指令卡上个dot  然后反击打到1血  这样能破条吗
+
+*****
+
+####  xiongxingyu  
+##### 86919#       发表于 2022-2-9 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607710&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 18:08</a>
+
+不能破条竞啥速  
+
+还是说 打到1学能靠毒诅咒什么的破条？</blockquote>
+仔细回忆了下，dot好像还不能破条，只能补刀。也就是说只有最后2管血理论上可以做到一回合收掉。问题是我方回合要怎么打掉一条血呢？平A?又不是某冠位弓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 86920#       发表于 2022-2-9 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607590&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-9 17:58</a>
+
+宝具说明写了吧，成为敌方普通攻击目标的时候
+
+什么放宝具上buff应该是都不动如山
+
+不然就只能说是文本错误 ...</blockquote>
+我已经看见有，对面上了个暴击buff，给我们全体+星，然后巴姐反击了的视频了
+
+而且看讨论也是上debuff是会反击的
+
+*****
+
+####  exiaexa  
+##### 86921#       发表于 2022-2-9 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607780&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 18:15</a>
+
+啥 我意思是指令卡上个dot  然后反击打到1血  这样能破条吗</blockquote>
+这就不知道了
+
+你游dot到底能不能整死人我一直很迷惑
+
+我记忆里是对面的dot会跳到1血
+
+但是1血挂dot会不会暴毙我不知道
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 86922#       发表于 2022-2-9 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607221&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-2-9 17:29</a>
+
+很遗憾完全没有</blockquote>
+那么就是7周年“福利”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86923#       发表于 2022-2-9 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607797&amp;ptid=1085254" target="_blank">qb0079 发表于 2022-2-9 18:16</a>
+
+我已经看见有，对面上了个暴击buff，给我们全体+星，然后巴姐反击了的视频了
+
+而且看讨论也是上debuff是会 ...</blockquote>
+那就是文本叙述错误嘛
+
+要么改文本要么修BUG
+
+反正你游都不给补偿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
