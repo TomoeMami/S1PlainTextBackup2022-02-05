@@ -8425,3 +8425,23 @@ Nako没事了</blockquote>
 
 2022-2-9 20:15 上传
 
+
+
+*****
+
+####  Enakina  
+##### 5175#       发表于 2022-2-9 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54609080&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-02-09 20:15:32</a></blockquote>这玩意统计的初动吧，首日也太妖了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5176#       发表于 2022-2-9 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54609080&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-2-9 20:15</a>
+我觉得鲤鱼首周能过4000就是大胜利...保3争4吧</blockquote>
+4000?接近3000都是赢了
+

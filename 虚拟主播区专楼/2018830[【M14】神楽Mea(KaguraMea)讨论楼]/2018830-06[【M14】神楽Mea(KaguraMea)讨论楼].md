@@ -9894,3 +9894,54 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 我不是联想多啊，这游戏是真的厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 8640#       发表于 2022-2-9 20:31
+
+哈哈哈哈，仔细一看，Live2d的缎带怎么被扣掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  汇聚群光  
+##### 8641#       发表于 2022-2-9 20:32
+
+也就只有两个异性玩才会这么刺激吧，之前mea和如月、如月和九条玩这个的时候感觉都还好，除了有时候画面会比较鬼畜以外
+
+*****
+
+####  2014720  
+##### 8642#       发表于 2022-2-9 20:33
+
+ 本帖最后由 2014720 于 2022-2-9 20:34 编辑 
+
+我擦，这联动同接居然还可以
+
+你麻一叫起来味道感觉全变了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8643#       发表于 2022-2-9 20:41
+
+<img src="https://img.saraba1st.com/forum/202202/09/204107ibt976ppil1o2elt.gif" referrerpolicy="no-referrer">
+
+<strong>8j6tf-93eaf.gif</strong> (408.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 20:41 上传
+
+偷的图
+
+*****
+
+####  2014720  
+##### 8644#       发表于 2022-2-9 20:42
+
+我宣布这是仅次于兔鞠的野男人，五元可以扫进历史的垃圾堆了
+
