@@ -2367,3 +2367,15 @@ A和 ...</blockquote>
 
 最後是最最最惡心人的無效共鳴。
 
+
+
+*****
+
+####  传说中的小鱼  
+##### 169#       发表于 2022-2-9 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54594559&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-8 18:37</a>
+
+出过完全版，开始的01有部分修改，02大幅修改，之后就基本没改过直接出了，第10本最终也没能出版，封面也 ...</blockquote>
+谢谢，看来记忆没错，那就没必要重新看了？
+
