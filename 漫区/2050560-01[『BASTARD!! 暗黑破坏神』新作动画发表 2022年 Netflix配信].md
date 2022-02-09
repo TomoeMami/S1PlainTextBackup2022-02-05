@@ -2465,3 +2465,48 @@ A和 ...</blockquote>
 
 后面是怎么回事了？只看到DS在打天使恶魔，人类的龙战士什么的都没了？
 
+
+
+*****
+
+####  触手皇帝  
+##### 177#       发表于 2022-2-9 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54601903&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-9 11:06</a>
+
+回去翻了下圖。痛哭的那兩個賢者是方舟上的頭上三管子賢者跟光頭鬍子賢者。
+
+另外7位為了殺卡魯斯滅口露出 ...</blockquote>
+但是看剩下两个的反应也不像呀，要是都反水给恶魔搞无效共鸣的话为啥还要为DS着急？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 178#       发表于 2022-2-9 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54606809&amp;ptid=2050560" target="_blank">传说中的小鱼 发表于 2022-2-9 17:03</a>
+
+后面是怎么回事了？只看到DS在打天使恶魔，人类的龙战士什么的都没了？</blockquote>
+方舟一战大家死光，卡兹王子内亚当救活当了亚当的跟班<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 179#       发表于 2022-2-9 18:37
+
+ 本帖最后由 kiralzb 于 2022-2-9 18:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54601761&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-9 10:55</a>
+
+因為雜誌移籍畫了卻不能刊登的稿子上有。
+
+@gpx234mqx 有圖吧?</blockquote>
+其实漫画里有出现的，虽然只有一页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/09/183856dbwu6poou6zpuuza.jpg" referrerpolicy="no-referrer">
+
+<strong>Bastard20_189.jpg</strong> (298.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 18:38 上传
+

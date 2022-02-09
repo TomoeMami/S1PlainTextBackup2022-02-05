@@ -655,3 +655,48 @@ syl rion带的这队都把他smurfing炎上的事当梗玩，也算是贯彻玩�
 
 🌈四周年king单独给开线下，不愧是世一男v
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10554#       发表于 2022-2-9 18:28
+
+ 本帖最后由 alcoholic1000 于 2022-2-9 18:31 编辑 
+
+槽点太多不知从何吐起...<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 
+
+【葛葉・叶・ROF-MAO ３マンライブ 開催決定！】
+
+葛葉、叶、ROF-MAOのThree-Man LIVE「Aim Higher」
+
+7月27日、ぴあアリーナMMにて開催決定！
+
+キービジュアル &amp; 葛葉、ROF-MAO CD封入特典：チケット先行抽選券情報も解禁！
+
+<img src="https://img.saraba1st.com/forum/202202/09/182624c05z04xr0zbe37h4.png" referrerpolicy="no-referrer">
+
+<strong>葛葉・叶・ROF-MAO ３マンライブ.png</strong> (296.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 18:26 上传
+
+Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除掉一切发育阶段直接嗯冲<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">互相偷想起一些战地五
+
+*****
+
+####  IDIDIDID  
+##### 10555#       发表于 2022-2-9 18:30
+
+ 本帖最后由 IDIDIDID 于 2022-2-9 18:32 编辑 
+
+虹男jp除了俩没3d条子的总战力了吧，田角第四年了还是沉迷赌大建搞总力战。
+
+*****
+
+####  Suny08  
+##### 10556#       发表于 2022-2-9 18:37
+
+这次是真all-in了，看样子疫情这两年虹亏了不少，这波最强虹男+fes要是还办不下来基本可以寄了
+

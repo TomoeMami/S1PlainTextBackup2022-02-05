@@ -14709,3 +14709,36 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 反正你游都不给补偿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 86924#       发表于 2022-2-9 18:28
+
+花里胡哨确定，宝具本都救不回来了。我完全相信宝具本不可能升级锁1血代码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86925#       发表于 2022-2-9 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607693&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 18:07</a>
+
+你怎么还有卡连 这太欧了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 86926#       发表于 2022-2-9 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">忍不住又补了30石，五星礼装依旧不见踪影，放弃了……
+
+*****
+
+####  10925  
+##### 86927#       发表于 2022-2-9 18:39
+
+竞速神器上可以-1T(或者说.5T)啊。毕竟只是不能破血条，最后一条雪是能打死的。最后两条血，先破了，然后出巴姐宝具，把对面反击死。
+
