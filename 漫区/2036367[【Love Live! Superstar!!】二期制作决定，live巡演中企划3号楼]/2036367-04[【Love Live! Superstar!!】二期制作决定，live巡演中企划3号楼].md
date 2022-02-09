@@ -8354,3 +8354,21 @@ Nako没事了</blockquote>
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  cybernetics31  
+##### 5169#       发表于 2022-2-9 18:58
+
+现在整个环境后劲哪有这么多啊 。。。。。。。为了特典，首日 首周是大头，中华炮真愿意拿钱买的也没那么多的
+
+*****
+
+####  cqc1021  
+##### 5170#       发表于 2022-2-9 19:00
+
+有个黑鲤鱼黑得最热火朝天的贴吧，是之前泥潭一个坛友为了讨论乃木坂46建的，后来坛友出坑后贴吧就荒废了。不知道啥时候被一个乃团兼水团厄介给鹊巢鸠占了，然后被改造成了鲤黑贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

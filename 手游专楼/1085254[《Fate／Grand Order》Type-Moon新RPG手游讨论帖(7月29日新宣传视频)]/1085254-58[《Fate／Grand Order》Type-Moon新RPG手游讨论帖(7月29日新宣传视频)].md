@@ -14742,3 +14742,47 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 竞速神器上可以-1T(或者说.5T)啊。毕竟只是不能破血条，最后一条雪是能打死的。最后两条血，先破了，然后出巴姐宝具，把对面反击死。
 
+
+
+*****
+
+####  qixinno2  
+##### 86928#       发表于 2022-2-9 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬的玩具
+
+*****
+
+####  zore  
+##### 86929#       发表于 2022-2-9 18:46
+
+高宝奇人+1
+
+*****
+
+####  超阳电子炮  
+##### 86930#       发表于 2022-2-9 18:51
+
+想要个五星李庄都这么难
+
+*****
+
+####  上坂莲华  
+##### 86931#       发表于 2022-2-9 18:53
+
+30抽出4张就算欧了，我一个十连三张是不是摩根钦定老婆人选了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+巴姐这个其实应该是可以玩花活的，就是看给不给做本了，可以做个单血条多动症BOSS，然后免疫宝具只能用普通攻击打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86932#       发表于 2022-2-9 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607293&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-2-9 17:34</a>
+
+攒的护符全丢没捞到5星礼装…当然也没出一张金卡……</blockquote>
+妈的，40连3张母女丼礼装<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+4星礼装满破，啥玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
