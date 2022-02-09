@@ -2232,3 +2232,39 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 戰艦貝西摩斯才是底牌。是為了運用系統利維亞桑而建造的十賢者真正的母艦。但是還 ...</blockquote>
 戰艦貝西摩斯长啥样子？是漫画里的还是后来设定里的才有的？
 
+
+
+*****
+
+####  Niu  
+##### 161#       发表于 2022-2-9 10:55
+
+<blockquote>zerona 发表于 2022-2-8 18:36
+戰艦貝西摩斯长啥样子？是漫画里的还是后来设定里的才有的？</blockquote>
+因為雜誌移籍畫了卻不能刊登的稿子上有。
+[@gpx234mqx](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=471880) 有圖吧?
+
+*****
+
+####  gpx234mqx  
+##### 162#       发表于 2022-2-9 10:58
+
+ 本帖最后由 gpx234mqx 于 2022-2-9 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54601761&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-9 10:55</a>
+
+因為雜誌移籍畫了卻不能刊登的稿子上有。
+
+@gpx234mqx 有圖吧?</blockquote>
+有草稿图啊
+
+哪本漫画后面
+
+66EBB270-A626-4AEA-983C-7C3897A901C6.jpeg
+(242.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202202/09/110346u2zpe9e95eyr8p6e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
