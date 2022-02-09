@@ -5842,3 +5842,17 @@ tybf也没分局啊，只是一起搬家，但是有个搬入的先后顺序而�
 
 一直是说要和友人一起搬新家的
 
+
+
+*****
+
+####  Scardy  
+##### 8187#       发表于 2022-2-9 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54604287&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-2-9 13:59</a>
+居然是和Kanata双人合唱啊
+这两个人上次一起出现是什么时候都没印象了，就记得kanata在友人C面前说夸是自己 ...</blockquote>
+在mc里偶遇算嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
