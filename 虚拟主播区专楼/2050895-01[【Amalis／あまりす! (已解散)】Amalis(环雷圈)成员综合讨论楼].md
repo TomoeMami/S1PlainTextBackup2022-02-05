@@ -711,3 +711,12 @@ kiss切割玲玲军了，我缺的这块大家庭上哪补啊😭
 
 新加坡早就取消中文义务教育了，马来才有
 
+
+
+*****
+
+####  人別離苦  
+##### 73#       发表于 2022-2-9 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">李家坡除了英语必须一个 没有必须学中文 但华人一般都选中文的
+

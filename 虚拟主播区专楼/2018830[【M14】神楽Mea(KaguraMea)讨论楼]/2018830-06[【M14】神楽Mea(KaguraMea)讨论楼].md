@@ -9717,3 +9717,27 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 上次对谈阿咩开头有点呆，我还以为不在状态呢，过了会就好看起来了
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8620#       发表于 2022-2-9 13:41
+
+??????what's up
+
+<img src="https://img.saraba1st.com/forum/202202/09/134100dueeeqbxztsmsfmx.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220209130858093.jpg</strong> (10.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 13:41 上传
+
+*****
+
+####  gongge666  
+##### 8621#       发表于 2022-2-9 13:43
+
+说到兔子人就不禁想起当年好像也差不多时间和那位一起线下玩兔子人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
