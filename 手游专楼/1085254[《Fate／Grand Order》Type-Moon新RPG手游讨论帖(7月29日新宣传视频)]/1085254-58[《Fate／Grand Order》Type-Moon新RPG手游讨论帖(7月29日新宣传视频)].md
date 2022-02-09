@@ -14232,3 +14232,49 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 卡面我给0分...
 
+
+
+*****
+
+####  angelooo  
+##### 86880#       发表于 2022-2-9 17:08
+
+三破这礼裙几个意思？想听资深月厨的评论233
+
+
+
+*****
+
+####  白金口袋  
+##### 86881#       发表于 2022-2-9 17:10
+
+凯尔特人紧身衣是标配吗？那为啥小刚不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86882#       发表于 2022-2-9 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这宝具的确是新机制 可是绿卡  敌方回合打伤害但不能破条  有个猫用?
+
+*****
+
+####  alucardcz  
+##### 86883#       发表于 2022-2-9 17:14
+
+翻页
+
+*****
+
+####  天王寺凯伊姆  
+##### 86884#       发表于 2022-2-9 17:16
+
+真逆光剑啊，拿来单挑？
+
+*****
+
+####  DARKGRAY  
+##### 86885#       发表于 2022-2-9 17:17
+
+怎么设计的啊，这机制不是等于反而被人后发先至了吗！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
