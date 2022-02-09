@@ -2440,3 +2440,19 @@ A和 ...</blockquote>
 记得完全版和大解毒刚出都是生肉？现在有汉化资源了吗？</blockquote>
 没有汉化吧？反正都是DS讲废话，看画就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kiralzb  
+##### 175#       发表于 2022-2-9 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54604503&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 14:15</a>
+
+第一话出场控制九头蛇、被ds秒杀的的卡鲁斯的舍弟其实是个十分强大的魔法师
+
+以普通人来说</blockquote>
+好像魔法师本身就少吧，四天王其实在中央大陆的人类国度里确实是横着走，这位怎么说也是队长，是很强了
+
+可是在DS从地狱王者归来后，直接将难度曲线拉满，导致后面那一堆泛人类都显得CJB，真如精灵王女所说，只能期待月球藏了啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
