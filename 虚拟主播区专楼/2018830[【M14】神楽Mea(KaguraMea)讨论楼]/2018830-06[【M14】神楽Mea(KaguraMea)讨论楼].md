@@ -9640,3 +9640,80 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">问题是不是才联动过没多久吗
 
+
+
+*****
+
+####  呓亘  
+##### 8611#       发表于 2022-2-9 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+小麻果然要找男人了
+
+*****
+
+####  古战场亡魂  
+##### 8612#       发表于 2022-2-9 13:07
+
+1月19号才联动过啊。
+
+今天这是，啊，又是tm的超级兔子人，我tm吐了……你们管人就没有其他游戏了吗
+
+*****
+
+####  T_Hb  
+##### 8613#       发表于 2022-2-9 13:10
+
+高强度完成任务是吧，2/10
+
+不过上次对谈确实有意思，但是兔子人真不行
+
+*****
+
+####  2014720  
+##### 8614#       发表于 2022-2-9 13:12
+
+兔子人怎么了
+
+你们呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 8615#       发表于 2022-2-9 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8616#       发表于 2022-2-9 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54603718&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-2-9 13:10</a>
+
+高强度完成任务是吧，2/10
+
+不过上次对谈确实有意思，但是兔子人真不行</blockquote>
+1/10在哪里？？？？？
+
+*****
+
+####  T_Hb  
+##### 8617#       发表于 2022-2-9 13:23
+
+上次在罗贝尔频道啊，1月19号
+
+*****
+
+####  古战场亡魂  
+##### 8618#       发表于 2022-2-9 13:24
+
+和这位上次联动切片点击好高啊……日文切片英文切片都高，有时间补一下吧，应该上次联动效果很好吧。
+
+*****
+
+####  T_Hb  
+##### 8619#       发表于 2022-2-9 13:26
+
+上次对谈阿咩开头有点呆，我还以为不在状态呢，过了会就好看起来了
+

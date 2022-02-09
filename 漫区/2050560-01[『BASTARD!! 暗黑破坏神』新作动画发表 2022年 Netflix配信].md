@@ -2379,3 +2379,17 @@ A和 ...</blockquote>
 出过完全版，开始的01有部分修改，02大幅修改，之后就基本没改过直接出了，第10本最终也没能出版，封面也 ...</blockquote>
 谢谢，看来记忆没错，那就没必要重新看了？
 
+
+
+*****
+
+####  kiralzb  
+##### 170#       发表于 2022-2-9 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54603197&amp;ptid=2050560" target="_blank">传说中的小鱼 发表于 2022-2-9 12:32</a>
+
+谢谢，看来记忆没错，那就没必要重新看了？</blockquote>
+完全版02改了很多，没看过可以看看，剧情本身的话27卷看过了那就没有新的了，记忆没模糊的话确实没必要重新看
+
+还想要补其他剧情的话，那就看看3本大解毒同人本，硬核点的再看小说，游戏好像能云，最后还有字典厚的HAQ，收录了以前一些老贼主页上的读者问答，不少里设定都出自这里，包括著名的DS儿子说，雷帝对DS其实是父爱等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
