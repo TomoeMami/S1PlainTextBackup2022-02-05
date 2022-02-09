@@ -14943,3 +14943,12 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  里村紅葉  
+##### 86948#       发表于 2022-2-9 21:36
+
+这次的轮替好像不是双UP了，是说有了保底以后再也没有双UP卡池了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

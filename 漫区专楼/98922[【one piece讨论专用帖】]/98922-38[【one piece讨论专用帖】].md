@@ -11413,3 +11413,14 @@ Big·Mom的儿女们掉海里多久了
 艾斯就是因为果实太辣鸡死的</blockquote>
 麻子哥不是因为能跑不跑吗？
 
+
+
+*****
+
+####  cdfjg  
+##### 56400#       发表于 2022-2-9 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608841&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-2-9 19:51</a>
+ 麻子哥不是因为能跑不跑吗？</blockquote>
+但如果他是屏障果实就可以不用跑，还能推平海军本部
+
