@@ -10018,3 +10018,51 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 这种游戏，女v和女v玩，男v和女v玩真的完全不一样啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8654#       发表于 2022-2-9 22:31
+
+这耐久耐的我血压上来了……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">卡了一个小时了。
+
+*****
+
+####  T_Hb  
+##### 8655#       发表于 2022-2-9 22:34
+
+ 本帖最后由 T_Hb 于 2022-2-9 22:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是这游戏不行的地方了
+
+终于过了
+
+*****
+
+####  古战场亡魂  
+##### 8656#       发表于 2022-2-9 22:35
+
+英文区人士如是说​i remember when i used to eat cereal as a kid while watching them try to clear this stage<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8657#       发表于 2022-2-9 22:37
+
+过了！！！！！！！！！泪目！！！！！！
+
+*****
+
+####  T_Hb  
+##### 8658#       发表于 2022-2-9 22:39
+
+广告来了，怎么没把图发给罗贝尔啊
+
+*****
+
+####  时间在我手中  
+##### 8659#       发表于 2022-2-9 22:40
+
+就看了一下最后一关，能过属实可喜可贺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

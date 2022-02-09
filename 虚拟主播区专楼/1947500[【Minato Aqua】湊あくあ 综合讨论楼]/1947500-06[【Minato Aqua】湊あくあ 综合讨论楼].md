@@ -5905,3 +5905,23 @@ tybf也没分局啊，只是一起搬家，但是有个搬入的先后顺序而�
 
 嗓子哑了，说是可能太干了，今晚本来还有录音源的预定，应该是发discord推迟了。准备溜了
 
+
+
+*****
+
+####  null0304  
+##### 8193#       发表于 2022-2-9 22:24
+
+为什么...<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+ateshi.png
+(46.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 22:22 上传
+
+ateshisuki
+
+<img src="https://img.saraba1st.com/forum/202202/09/222235zlv42g6l6jg704z2.png" referrerpolicy="no-referrer">
+
