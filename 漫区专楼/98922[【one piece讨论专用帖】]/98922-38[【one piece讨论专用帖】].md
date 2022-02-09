@@ -11326,3 +11326,28 @@ Big·Mom的儿女们掉海里多久了
 让罗宾下船！！</blockquote>
 还要罗宾翻译历史正文呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  超紳士  
+##### 56392#       发表于 2022-2-9 14:01
+
+要什么历史正文，发行《御田日记》就行了
+
+*****
+
+####  tyauto  
+##### 56393#       发表于 2022-2-9 14:15
+
+笑死，大妈才是草帽这边的最佳队友吧，临走还不忘把炸弹带走<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+4B4FFB11F1E4E33976356CACE49DF711_edit_52148120149261.jpg
+(128.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 14:14 上传
+
+<img src="https://img.saraba1st.com/forum/202202/09/141453vpmtal6itdgtwapp.jpg" referrerpolicy="no-referrer">
+
