@@ -756,3 +756,38 @@ kiss切割玲玲军了，我缺的这块大家庭上哪补啊😭
 
 <img src="https://img.saraba1st.com/forum/202202/09/214859fj01qu4m26n0l268.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  harry3  
+##### 76#       发表于 2022-2-9 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54609639&amp;ptid=2050895" target="_blank">GJ05 发表于 2022-2-9 21:06</a>
+
+马来西亚一向主张大马来主义，压制华人文化，脑子进水了搞中文义务教育，不然华文独中怎么来的。 ...</blockquote>
+Public primary schools are divided into two categories based on the medium of instruction:
+
+Malay-medium National Schools (Sekolah Kebangsaan, SK)
+
+non-Malay-medium National-type Schools (Sekolah Jenis Kebangsaan, SJK), also known as "vernacular schools",[23] further divided into
+
+National-type School (Chinese) (Sekolah Jenis Kebangsaan (Cina), SJK(C)), Mandarin-medium and simplified Chinese writing
+
+National-type School (Tamil) (Sekolah Jenis Kebangsaan (Tamil), SJK (T)), Tamil-medium
+
+All schools admit students regardless of racial and language background.
+
+Malay and English are compulsory subjects in all schools. All schools use the same syllabus for non-language subjects regardless of the medium of instruction. The teaching of the Chinese language is compulsory in SJK(C), and Tamil language is compulsory in SJK(T).
+[https://en.wikipedia.org/wiki/Ed ... %20are%20compulsory](https://en.wikipedia.org/wiki/Education_in_Malaysia#:~:text=Malay%20and%20English%20are%20compulsory),compulsory%20in%20SJK(T).
+
+国民型华文中学
+[https://zh.wikipedia.org/wiki/%E ... 7%E4%B8%AD%E5%AD%A6](https://zh.wikipedia.org/wiki/%E5%9B%BD%E6%B0%91%E5%9E%8B%E5%8D%8E%E6%96%87%E4%B8%AD%E5%AD%A6)
+
+*****
+
+####  请问有猪扒饭吗  
+##### 77#       发表于 2022-2-9 23:42
+
+怎么玲子训了一波粉，感觉反而喵喵露浓度变高了？米线都有人解释是不好的梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">as不会真要重走as的老路吧
+
