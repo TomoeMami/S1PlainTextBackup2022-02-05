@@ -9542,3 +9542,14 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 怎么感觉是jk装
 
+
+
+*****
+
+####  若风之景  
+##### 8601#       发表于 2022-2-9 09:26
+
+为什么不是哥特洛丽塔风<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
