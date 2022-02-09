@@ -624,3 +624,12 @@ fs是角川的
 
 不是还说要做服务型游戏嘛，看到这消息第一反应是“就你们家这产能，做这玩意不是被玩家喷死？”
 
+
+
+*****
+
+####  Vladimeow  
+##### 66#       发表于 2022-2-10 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头这种恃才傲物的特性在白金更加的发扬光大了，赶紧死吧老东西
+

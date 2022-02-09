@@ -15094,3 +15094,18 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 这次情人节算是解释了为什么妖兰会喜欢上咕哒，因为她看见未来的她喜欢上了，所以从现在开始就喜欢了，算是鸡和鸡蛋的争论？
 
+
+
+*****
+
+####  exiaexa  
+##### 86963#       发表于 2022-2-10 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54612047&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-10 00:33</a>
+
+这次情人节算是解释了为什么妖兰会喜欢上咕哒，因为她看见未来的她喜欢上了，所以从现在开始就喜欢了，算是 ...</blockquote>
+上一个这么玩的人叫爱歌
+
+只能说菌鸽鸽一个套路从高中玩到现在
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
