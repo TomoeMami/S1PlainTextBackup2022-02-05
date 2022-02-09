@@ -14952,3 +14952,36 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 这次的轮替好像不是双UP了，是说有了保底以后再也没有双UP卡池了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 86949#       发表于 2022-2-9 21:46
+
+双up没了不是好事吗，抽双up太容易歪了
+
+*****
+
+####  Jamaisvu  
+##### 86950#       发表于 2022-2-9 21:52
+
+妖崔的情人节礼物竟然是个叫“全自动同族斩灭巧克力”的棺材钉飞剑，这种好东西要是早点拿出来，通关2.6岂不是易如反掌。
+
+*****
+
+####  khxooo  
+##### 86951#       发表于 2022-2-9 21:59
+
+继梵高后，妖兰和冲田都爬上了咕哒的床了，夜袭三人组到底行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86952#       发表于 2022-2-9 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54610016&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-9 21:36</a>
+
+这次的轮替好像不是双UP了，是说有了保底以后再也没有双UP卡池了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有那么一种可能 dw的技术做不到双up池加保底
+

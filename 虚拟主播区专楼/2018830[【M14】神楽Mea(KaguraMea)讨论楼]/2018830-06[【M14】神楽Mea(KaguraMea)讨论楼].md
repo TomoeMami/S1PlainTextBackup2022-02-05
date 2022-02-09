@@ -10009,3 +10009,12 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 猜猜结束会不会给自己新衣服打广告
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8653#       发表于 2022-2-9 21:56
+
+这种游戏，女v和女v玩，男v和女v玩真的完全不一样啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
