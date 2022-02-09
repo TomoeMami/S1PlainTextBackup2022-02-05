@@ -2218,3 +2218,17 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 你看看十贤者就知道这职业对颜值不保鲜····毕竟都几百岁了
 
+
+
+*****
+
+####  zerona  
+##### 160#       发表于 2022-2-9 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54593465&amp;ptid=2050560" target="_blank">Niu 发表于 2022-2-8 16:50</a>
+
+方舟根本算不上戰力。
+
+戰艦貝西摩斯才是底牌。是為了運用系統利維亞桑而建造的十賢者真正的母艦。但是還 ...</blockquote>
+戰艦貝西摩斯长啥样子？是漫画里的还是后来设定里的才有的？
+
