@@ -14932,3 +14932,14 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 行动不能状态无法发动</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以技能才给了个一回合弱体无效啊
 
+
+
+*****
+
+####  sk86  
+##### 86947#       发表于 2022-2-9 21:20
+
+等一个西装灵衣
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

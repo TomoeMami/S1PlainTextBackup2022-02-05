@@ -727,3 +727,18 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 
 被疫情橄榄好几次而且看不到好转迹象还要赌社运，搞得像舍不得过往甜头和沉没成本死活都离不开渣男的情节一样<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10560#       发表于 2022-2-9 21:13
+
+因为不认识所以顺着主办页面看了下黑客两个队友的信息
+
+一个是也有差不多50w订阅的油管主
+
+一个看推发了个连续7赛季日本第一<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+好大的大腿啊……加油啊黑客，输技不输势<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

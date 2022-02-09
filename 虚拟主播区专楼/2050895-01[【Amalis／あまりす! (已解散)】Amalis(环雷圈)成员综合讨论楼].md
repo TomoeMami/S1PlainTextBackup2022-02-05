@@ -720,3 +720,19 @@ kiss切割玲玲军了，我缺的这块大家庭上哪补啊😭
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">李家坡除了英语必须一个 没有必须学中文 但华人一般都选中文的
 
+
+
+*****
+
+####  GJ05  
+##### 74#       发表于 2022-2-9 21:06
+
+ 本帖最后由 GJ05 于 2022-2-9 21:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54603497&amp;ptid=2050895" target="_blank">harry3 发表于 2022-2-9 12:51</a>
+唐白虎自述中文是义务教育学的。
+
+新加坡早就取消中文义务教育了，马来才有 ...</blockquote>
+马来西亚一向主张大马来主义，压制华人文化，脑子进水了搞中文义务教育<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，不然华文独中怎么来的。而新加坡英语必学，然后还强制要求一门第二语言，一般来说都是选自己的民族语言。同时玲子之前还提起过她那边疫情期间有聚会人数限制，这个规定新加坡有而马来没有
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
