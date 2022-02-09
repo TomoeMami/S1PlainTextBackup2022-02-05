@@ -633,3 +633,16 @@ fs是角川的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光头这种恃才傲物的特性在白金更加的发扬光大了，赶紧死吧老东西
 
+
+
+*****
+
+####  zris  
+##### 67#       发表于 2022-2-10 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54597236&amp;ptid=2051432" target="_blank">piigzyq 发表于 2022-2-8 22:53</a>
+白金一直想把龙鳞化身卖出去，不管是继续给微软做，还是换个皮给别家</blockquote>
+咋卖，ip不是在微软手上嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
