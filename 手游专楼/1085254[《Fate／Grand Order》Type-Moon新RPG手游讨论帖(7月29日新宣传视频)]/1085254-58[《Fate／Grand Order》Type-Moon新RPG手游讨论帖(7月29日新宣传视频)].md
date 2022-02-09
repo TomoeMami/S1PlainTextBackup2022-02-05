@@ -15009,3 +15009,12 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 妖崔的情人节礼物竟然是个叫“全自动同族斩灭巧克力”的棺材钉飞剑，这种好东西要是早点拿出来，通 ...</blockquote>
 对摩根的没用啊，而2.6最麻烦的也就摩根。
 
+
+
+*****
+
+####  alucardcz  
+##### 86955#       发表于 2022-2-9 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么已经有人挂满破活动礼装了 这合理吗
+
