@@ -14997,3 +14997,15 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 有没有那么一种可能 dw的技术做不到双up池加保底</blockquote>
 他们大概只能做到保底随机一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后保底一个池子又只有一次
 
+
+
+*****
+
+####  khxooo  
+##### 86954#       发表于 2022-2-9 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54610209&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-2-9 21:52</a>
+
+妖崔的情人节礼物竟然是个叫“全自动同族斩灭巧克力”的棺材钉飞剑，这种好东西要是早点拿出来，通 ...</blockquote>
+对摩根的没用啊，而2.6最麻烦的也就摩根。
+

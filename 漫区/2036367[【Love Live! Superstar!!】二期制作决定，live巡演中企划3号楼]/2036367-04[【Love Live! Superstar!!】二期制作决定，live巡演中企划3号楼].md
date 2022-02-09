@@ -8498,3 +8498,14 @@ Nako没事了</blockquote>
 
 现在就是担心11号的雪灾影响<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 5182#       发表于 2022-2-9 22:48
+
+网易云也已经上架鲤鱼的一专
+
+整张专辑听下来，最喜欢的是めたもるふぉーぜ、花鳥風月、Ambition和Reply
+

@@ -10066,3 +10066,21 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 就看了一下最后一关，能过属实可喜可贺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 8660#       发表于 2022-2-9 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为数不多的阿咩通关过的单机游戏（
+
+*****
+
+####  古战场亡魂  
+##### 8661#       发表于 2022-2-9 22:46
+
+ 本帖最后由 古战场亡魂 于 2022-2-9 23:01 编辑 
+
+这关双方轮流靠谱轮流摆烂实属把我惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
