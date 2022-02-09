@@ -2296,3 +2296,41 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 哪本漫画后面</blockquote>
  谢了。漫画里这“战舰”没出现过吧。
 
+
+
+*****
+
+####  kiralzb  
+##### 165#       发表于 2022-2-9 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54600026&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 08:16</a>
+
+一开始就有了，默示录计划
+
+利维亚桑计划的龙战士才是大破坏之后造的</blockquote>
+默示录计划和AD系统，卫星炮，战舰，龙战士都是一起闪现的，只靠这个的话还是不足以说是同一时期吧？
+
+A和D是明确说过旧世界时期一起搞的，出问题也是这俩，在天使恶魔降临后才开始弄龙战士
+
+这里战舰作为龙战士的母舰跟着开发我觉得比较合理
+
+至于卫星炮，400年前就有的话应该也被打爆了，所以我觉得也是后来造的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+主要是AD系统实际上都是为了人类发展，A是能当威慑力和环境保护，D是无限能量
+
+而另外那些都是明显的针对性武器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 166#       发表于 2022-2-9 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54602311&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 11:37</a>
+
+默示录计划和AD系统，卫星炮，战舰，龙战士都是一起闪现的，只靠这个的话还是不足以说是同一时期吧？
+
+A和 ...</blockquote>
+龙战士不在同一页
+
+是后面写了利维亚桑计划出现画面
+
