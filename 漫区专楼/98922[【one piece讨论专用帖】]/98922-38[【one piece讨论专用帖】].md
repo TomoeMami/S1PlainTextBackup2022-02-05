@@ -11152,3 +11152,36 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 罗打洞，基德推大妈下去。
 
+
+
+*****
+
+####  C男人  
+##### 56377#       发表于 2022-2-9 08:24
+
+ 本帖最后由 C男人 于 2022-2-9 08:29 编辑 
+
+Big·Mom 的大招都放过一轮了，这不是没用吗。
+
+连 魔神双皇击 和凯多的合体技都放过了，
+
+要么打不中，要么被索隆单扛。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/09/082821lnqpanpgfwnn9a1a.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220209_082457.jpg</strong> (239.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 08:28 上传
+
+<img src="https://img.saraba1st.com/forum/202202/09/082827jsycpnt4csy11rp1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>d000baa1cd11728b0d43171d4c0e89c6c2fd2c99.jpeg</strong> (177.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 08:28 上传
+
