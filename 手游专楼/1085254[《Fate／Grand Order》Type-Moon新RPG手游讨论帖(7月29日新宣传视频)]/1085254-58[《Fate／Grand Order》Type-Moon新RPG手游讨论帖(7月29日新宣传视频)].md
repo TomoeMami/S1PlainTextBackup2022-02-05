@@ -14393,3 +14393,175 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  qixinno2  
+##### 86898#       发表于 2022-2-9 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反击打不死也太**了
+
+*****
+
+####  xiongxingyu  
+##### 86899#       发表于 2022-2-9 17:45
+
+想不到这么快就享受到迦勒底最新黑科技了，尼玛330连1个巴塞特，歪的都没有，算上每日一抽和上一个五星间隔都快400发了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86900#       发表于 2022-2-9 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607386&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-9 17:42</a>
+
+原来那个摩根母女的礼装是五星的吗，30抽出了四张，然后四星礼装没见过
+
+—— 来自 OnePlus ONEPLUS ...</blockquote>
+欧，羡慕，吊起来打
+
+*****
+
+####  exiaexa  
+##### 86901#       发表于 2022-2-9 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607386&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-9 17:42</a>
+
+原来那个摩根母女的礼装是五星的吗，30抽出了四张，然后四星礼装没见过
+
+—— 来自 OnePlus ONEPLUS ...</blockquote>
+欧洲狗做个人吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 86902#       发表于 2022-2-9 17:47
+
+这巴姐的宝具是1T内被打就反击？也就是被人打3下就反击3次...
+
+那好像有点搞头
+
+*****
+
+####  DARKGRAY  
+##### 86903#       发表于 2022-2-9 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607180&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-9 17:26</a>
+
+朋友 换个思路 做为敌方 是不是无敌了？</blockquote>
+做敌方机制也还是还原错误啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 86904#       发表于 2022-2-9 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607460&amp;ptid=1085254" target="_blank">qb0079 发表于 2022-2-9 17:47</a>
+
+这巴姐的宝具是1T内被打就反击？也就是被人打3下就反击3次...
+
+那好像有点搞头 ...</blockquote>
+反击不能破条，基本上就是下水道底层居民了，非要用的话得配个dot，玩花活儿是要付出代价的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 86905#       发表于 2022-2-9 17:50
+
+巴姐这三破对我就是，“你谁啊。”假如让我画她的同人，画一百张，可能我也想不出这个造型。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86906#       发表于 2022-2-9 17:53
+
+ 本帖最后由 exiaexa 于 2022-2-9 17:54 编辑 
+
+想了下，巴姐这宝具
+
+是不是可以用来打周回，单体倍率光炮
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是对面放个BUFF技能直接就寄了
+
+你有多强完全取决于对面的进攻欲望
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qb0079  
+##### 86907#       发表于 2022-2-9 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607480&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-2-9 17:49</a>
+
+反击不能破条，基本上就是下水道底层居民了，非要用的话得配个dot，玩花活儿是要付出代价的啊 ...</blockquote>
+不能破条虽然是个问题，但打剧情boss说不定能有花活
+
+现在看其他讨论是，对面上buff和给debuff好像都会反击，对一些高血量的剧情boss说不定有奇效
+
+*****
+
+####  DARKGRAY  
+##### 86908#       发表于 2022-2-9 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607522&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-9 17:53</a>
+
+想了下，巴姐这宝具
+
+是不是可以用来打周回，单体倍率光炮</blockquote>
+并没有，设计显然预计了这个反击次数问题，倍率是光炮的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86909#       发表于 2022-2-9 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607543&amp;ptid=1085254" target="_blank">qb0079 发表于 2022-2-9 17:54</a>
+
+不能破条虽然是个问题，但打剧情boss说不定能有花活
+
+现在看其他讨论是，对面上buff和给debuff好像都会反 ...</blockquote>
+宝具说明写了吧，成为敌方普通攻击目标的时候
+
+什么放宝具上buff应该是都不动如山
+
+不然就只能说是文本错误了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86910#       发表于 2022-2-9 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607543&amp;ptid=1085254" target="_blank">qb0079 发表于 2022-2-9 17:54</a>
+
+不能破条虽然是个问题，但打剧情boss说不定能有花活
+
+现在看其他讨论是，对面上buff和给debuff好像都会反 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定不会啊 上面不是写的很清楚了
+
+
+
+*****
+
+####  qixinno2  
+##### 86911#       发表于 2022-2-9 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毫无期待感的十连 一五星俩四星活动礼装
+
+*****
+
+####  qixinno2  
+##### 86912#       发表于 2022-2-9 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">卡莲这强化本配置
+
+*****
+
+####  eyeego  
+##### 86913#       发表于 2022-2-9 18:05
+
+巴姐这强度别说2022下水道了 竞争废狗史下水道都是强而有力啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

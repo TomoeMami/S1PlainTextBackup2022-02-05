@@ -8305,3 +8305,34 @@ Nako没事了</blockquote>
 
 说起来这个出货量好像也不大，A和G都缺货，我这两家到现在都没发出来日亚除非买原价特典，要打折就没货
 
+
+
+*****
+
+####  优妮可  
+##### 5166#       发表于 2022-2-9 17:57
+
+<img src="https://img.saraba1st.com/forum/202202/09/175709ubw0miqti1tmpgz7.jpg" referrerpolicy="no-referrer">
+
+<strong>cut1_246f.jpg</strong> (113.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 17:57 上传
+
+<img src="https://img.saraba1st.com/forum/202202/09/175709u278c2j20jppbmpu.jpg" referrerpolicy="no-referrer">
+
+<strong>cut1_174rere.jpg</strong> (89.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 17:57 上传
+
+<img src="https://img.saraba1st.com/forum/202202/09/175709guulzhu3w3ll37om.jpg" referrerpolicy="no-referrer">
+
+<strong>cut1_317f.jpg</strong> (129.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-9 17:57 上传
+
