@@ -8372,3 +8372,17 @@ Nako没事了</blockquote>
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 5171#       发表于 2022-2-9 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608286&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-2-9 19:00</a>
+
+有个黑鲤鱼黑得最热火朝天的贴吧，是之前泥潭一个坛友为了讨论乃木坂46建的，后来坛友出坑后贴吧就荒废了。 ...</blockquote>
+这个已经讨论过了，不用再继续了
+
+也就是个粪坑，不理就是
+

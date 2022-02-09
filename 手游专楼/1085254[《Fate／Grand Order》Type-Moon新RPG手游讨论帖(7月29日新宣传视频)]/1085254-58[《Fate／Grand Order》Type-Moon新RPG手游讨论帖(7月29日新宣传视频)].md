@@ -14786,3 +14786,32 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 4星礼装满破，啥玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86933#       发表于 2022-2-9 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608221&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2022-2-9 18:53</a>
+30抽出4张就算欧了，我一个十连三张是不是摩根钦定老婆人选了
+
+巴姐这个其实应该是可以玩花活 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠位弓：你喊我？
+
+*****
+
+####  quanlix  
+##### 86934#       发表于 2022-2-9 19:05
+
+后发了，你这先至哪去了
+
+*****
+
+####  Jamaisvu  
+##### 86935#       发表于 2022-2-9 19:11
+
+其实按照原设定，逆光剑必须在对方的王牌宝具发动后才能使用，现在这面对普通攻击就可以打出，应该算是掉价...哦不，强化过了。
+
+单看技能组还不错，不过宝具太怪了，万一被普通攻击提前打死该如何是好...丑阶绿单依然是莉莉丝一枝独秀啊...
+
