@@ -14178,3 +14178,19 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 这都大半年过去了....萌新也该消停下换个梗了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等我也有5宝限定的时候（
 
+
+
+*****
+
+####  exiaexa  
+##### 86875#       发表于 2022-2-9 11:21
+
+摩根主要是作为一个狂打手，万金油的程度太夸张了，说是多核的t0首选项也不为过，多核配置你啥队伍都可以塞一个进去
+
+缺点就是伤害被制裁，所以伤害被制裁那就补伤害啊，120+2000+5宝，补完后可以说基本没有短板
+
+说到最后我觉得是性癖的可能性更高一点
+会打直球的单亲冷系ol妈妈，各种意义上要素拉满
+男性玩家难道要去拉奥伯龙吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

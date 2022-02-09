@@ -2268,3 +2268,31 @@ DS、牙羽獠、横岛忠夫是我最爱的日漫角色<img src="https://static
 
 <img src="https://img.saraba1st.com/forum/202202/09/110346u2zpe9e95eyr8p6e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niu  
+##### 163#       发表于 2022-2-9 11:06
+
+<blockquote>gpx234mqx 发表于 2022-2-8 08:25
+哭的那2个是分道扬镳了
+
+“真正的”七个十贤者已经掌握先进科学和恶魔？合体了
+</blockquote>
+回去翻了下圖。痛哭的那兩個賢者是方舟上的頭上三管子賢者跟光頭鬍子賢者。
+
+另外7位為了殺卡魯斯滅口露出真面目。與其說是那兩人跟其他7人反了，應該是卡魯斯把7人反殺只剩下那兩位吧。
+
+*****
+
+####  zerona  
+##### 164#       发表于 2022-2-9 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54601811&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 10:58</a>
+
+有草稿图啊
+
+哪本漫画后面</blockquote>
+ 谢了。漫画里这“战舰”没出现过吧。
+
