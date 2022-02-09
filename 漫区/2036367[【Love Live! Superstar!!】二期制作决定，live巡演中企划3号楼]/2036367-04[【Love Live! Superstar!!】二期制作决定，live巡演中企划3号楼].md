@@ -8272,3 +8272,36 @@ Nako没事了</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cybernetics31  
+##### 5162#       发表于 2022-2-9 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能有3000就算顶天了
+
+*****
+
+####  lj205  
+##### 5163#       发表于 2022-2-9 17:32
+
+第一天应该超过一单的数字了吧？挺好的
+
+*****
+
+####  Enakina  
+##### 5164#       发表于 2022-2-9 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607181&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-02-09 17:26:34</a>
+能有3000就算顶天了</blockquote>虽然后劲估计不咋的，但3000还是稳的，一般第一天能占初动的一半吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5165#       发表于 2022-2-9 17:40
+
+说起来这个出货量好像也不大，A和G都缺货，我这两家到现在都没发出来日亚除非买原价特典，要打折就没货
+

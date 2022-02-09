@@ -14278,3 +14278,118 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 怎么设计的啊，这机制不是等于反而被人后发先至了吗！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yzj134100  
+##### 86886#       发表于 2022-2-9 17:24
+
+宝具差点意思
+
+*****
+
+####  天王寺凯伊姆  
+##### 86887#       发表于 2022-2-9 17:24
+
+<blockquote>天王寺凯伊姆 发表于 2022-2-9 17:16
+真逆光剑啊，拿来单挑？</blockquote>
+收回，这负面效果太搞笑了
+
+*****
+
+####  alucardcz  
+##### 86888#       发表于 2022-2-9 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607032&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-2-9 17:17</a>
+
+怎么设计的啊，这机制不是等于反而被人后发先至了吗！</blockquote>
+朋友 换个思路 做为敌方 是不是无敌了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86889#       发表于 2022-2-9 17:29
+
+<blockquote>khxooo 发表于 2022-2-9 16:58
+这是官方60帧来了？</blockquote>
+很遗憾完全没有
+
+*****
+
+####  alucardcz  
+##### 86890#       发表于 2022-2-9 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607221&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-2-9 17:29</a>
+
+很遗憾完全没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了个彻底删除账号的功能（
+
+*****
+
+####  exiaexa  
+##### 86891#       发表于 2022-2-9 17:32
+
+ 本帖最后由 exiaexa 于 2022-2-9 17:37 编辑 
+
+母女井狙击失败，告辞
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便这逆光剑真的弱智
+
+你要是做个真·后发先至，大佬说不定还能拿着打出花来，1t破1条血，对面特动后直接反击再破一条血
+
+现在就是谁用谁傻逼，相当于上了巴姐直接空过1回合
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 86892#       发表于 2022-2-9 17:34
+
+攒的护符全丢没捞到5星礼装…当然也没出一张金卡……
+
+*****
+
+####  黑上シグマ  
+##### 86893#       发表于 2022-2-9 17:36
+
+ 本帖最后由 黑上シグマ 于 2022-2-9 17:38 编辑 
+
+三破以后的语音的大姐姐感不错
+
+抽掉攒的+课的总共大概两单半的石头，就一张五星礼装，这合理吗？
+
+*****
+
+####  天王寺凯伊姆  
+##### 86894#       发表于 2022-2-9 17:37
+
+宝具bgm是fha op，合理也很好评
+
+*****
+
+####  rooarr  
+##### 86895#       发表于 2022-2-9 17:41
+
+1单没出5星礼装，我也觉得不正常<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 86896#       发表于 2022-2-9 17:42
+
+原来那个摩根母女的礼装是五星的吗，30抽出了四张，然后四星礼装没见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  eden_hazard  
+##### 86897#       发表于 2022-2-9 17:42
+
+150石礼装齐了，还蹦出个男人婆。
+宝具本之后我的五宝卡莲就快要有用武之地了，只差一个新绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
