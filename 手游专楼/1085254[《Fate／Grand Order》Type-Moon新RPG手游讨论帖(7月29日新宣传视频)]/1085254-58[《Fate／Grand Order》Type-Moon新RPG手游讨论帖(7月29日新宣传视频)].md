@@ -15071,3 +15071,17 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 给巴姐套个无敌盾，给对面上技能封印和宝具封印，应该就能稳定输出了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 86961#       发表于 2022-2-10 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611661&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-2-9 23:58</a>
+
+也对，随机性太大了，和小安一样，是对面不攻击就会空大的宝具
+
+给巴姐套个无敌盾，给对面上技能 ...</blockquote>
+卡里古拉：谁叫我？
+
