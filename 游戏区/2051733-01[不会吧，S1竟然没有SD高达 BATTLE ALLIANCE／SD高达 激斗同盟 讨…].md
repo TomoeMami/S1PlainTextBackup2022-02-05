@@ -663,3 +663,31 @@ DLC，季票，豪华版，限定版
 
 —— 来自 vivo V1809A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  silvia  
+##### 73#       发表于 2022-2-10 23:47
+
+胶囊战士味，可以
+
+*****
+
+####  二丁目拓也  
+##### 74#         楼主| 发表于 2022-2-10 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54630379&amp;ptid=2051733" target="_blank">920619lqy 发表于 2022-2-10 22:54</a>
+
+其实说简单加面板也不对，早期那些比如新HK之类的图困难以上的出怪点和顺序确实不一样了，不过难度根本不 ...</blockquote>
+不都是搜狗卡5枪吗...
+
+*****
+
+####  920619lqy  
+##### 75#       发表于 2022-2-11 00:01
+
+<blockquote>二丁目拓也 发表于 2022-2-10 09:56
+不都是搜狗卡5枪吗...</blockquote>
+就是因为正常打难度高得过分，玩家才被逼成了搜狗输入法的形状
+

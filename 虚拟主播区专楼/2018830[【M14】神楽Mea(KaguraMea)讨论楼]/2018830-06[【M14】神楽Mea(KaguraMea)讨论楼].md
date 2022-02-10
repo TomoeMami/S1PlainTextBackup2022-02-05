@@ -10909,3 +10909,14 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 好了，差不多也该停了，和本楼没关系的话题强行提也没啥意思。
 
+
+
+*****
+
+####  梦魂落叶  
+##### 8744#       发表于 2022-2-10 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54631452&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-10 23:42</a>
+好了，差不多也该停了，和本楼没关系的话题强行提也没啥意思。</blockquote>
+不知道，只知道2.12号新衣装发布<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
