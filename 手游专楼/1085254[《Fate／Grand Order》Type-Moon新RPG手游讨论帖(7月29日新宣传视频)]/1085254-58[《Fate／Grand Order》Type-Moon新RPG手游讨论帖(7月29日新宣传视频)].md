@@ -15140,3 +15140,22 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 众所周知prototype和旧fate严格意义上不算一个东西，爱歌到底是什么时候出现的还挺谜的
 
+
+
+*****
+
+####  exiaexa  
+##### 86966#       发表于 2022-2-10 09:21
+
+ 本帖最后由 exiaexa 于 2022-2-10 09:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54615536&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-2-10 09:00</a>
+其实现在没有任何线索能证明高中版fate里有爱歌
+
+爱歌第一次被提到甚至一跃到了2011年的FP披露，Tribute P ...</blockquote>
+你要杠这个那我只能说那聊个jb
+
+既然是有大纲的东西，那你告诉我写个大纲没有爱歌那阿菌是有病吗特意提一嘴，更别说fp当年这玩意儿纯属玩票，说句难听的你相信菌鸽鸽会预知到两年后有个东西要吃fp老本所以提前做一个爱歌出来吗
+
+这么继续杠下去甚至可以说在fp这个问题上，跟没有任何人能证明蘑菇高中时代的旧剑跟fppv的旧剑是一个东西，近卫又不是阿菌的幼驯染
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
