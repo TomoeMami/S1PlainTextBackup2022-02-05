@@ -6277,3 +6277,30 @@ x3</blockquote>
 
 才意识到这条动态没搬……
 
+
+
+*****
+
+####  sanlow666  
+##### 439#         楼主| 发表于 2022-2-10 18:04
+
+乃琳Queen:[发布动态](https://t.bilibili.com/625557352397091849) <blockquote>跟妈妈打电话
+
+我：“妈妈～你在干嘛呀！我想你啦～”
+
+妈妈：“我在吃饭呢～给你看！”
+
+然后眼泪就不争气的从嘴角流下来了
+
+<img src="https://img.saraba1st.com/forum/202202/10/180436ndwfvvgfgjfgfjgn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-10 18:04 上传
+
+x3
+
+我现在就出门找吃的！！！！(♯｀∧´)</blockquote>
+

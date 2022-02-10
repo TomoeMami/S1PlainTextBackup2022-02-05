@@ -8756,3 +8756,59 @@ D06F82A3-BEF7-4807-B242-BD4D12A022EB.jpeg
 
 今天12
 
+
+
+*****
+
+####  cat1230  
+##### 5202#       发表于 2022-2-10 18:00
+
+掉的有点快啊，还是说一般都这样吗
+
+*****
+
+####  Enakina  
+##### 5203#       发表于 2022-2-10 18:04
+
+正常，这种歌手一般都是没后劲的，第一天已经是很大占比了。后面几天就几百几百的磨一磨，我估计最后能有3000多吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ayangsu  
+##### 5204#       发表于 2022-2-10 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54625678&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-10 18:00</a>
+掉的有点快啊，还是说一般都这样吗</blockquote>
+都这样，昨天第四今天第10，第6今天11了，这两个也9号发的专辑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nufawneafg  
+##### 5205#       发表于 2022-2-10 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54625678&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-10 18:00</a>
+掉的有点快啊，还是说一般都这样吗</blockquote>
+长卖还得靠歌的传唱度，声优/偶像歌手歌的传唱度有限
+
+*****
+
+####  Enakina  
+##### 5206#       发表于 2022-2-10 18:11
+
+说起来，这两天逛圈吧，发现人家目光都是聚焦于几十万几百万的大头，热衷于预测什么时候破百万千万啥的，第一时间去蹲鲤鱼数据的我感觉到了世界的参差，不过又看看销量几百的伙伴们还在努力着，突然又觉得还好了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nufawneafg  
+##### 5207#       发表于 2022-2-10 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54625802&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-10 18:11</a>
+说起来，这两天逛圈吧，发现人家目光都是聚焦于几十万几百万的大头，热衷于预测什么时候破百万千万啥的，第 ...</blockquote>
+金字塔嘛，没了下面大规模的小艺人这音乐市场才叫完球了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
