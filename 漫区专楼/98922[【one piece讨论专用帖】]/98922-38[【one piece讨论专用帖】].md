@@ -11719,3 +11719,22 @@ image.jpg
 
 罗神一战封神，谁还敢质疑50亿赏金的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陶矢  
+##### 56428#       发表于 2022-2-10 14:52
+
+我觉得顶上最蠢的一幕是黑胡子说老爹你忍心杀我吗向白胡子求饶，指定大反派还TM不如科比有骨气，那一瞬间我第一次从尾田光环中走出来，尾田后面再画黑胡子的时候可别再来这种镜头了，球球
+
+*****
+
+####  584520184  
+##### 56429#       发表于 2022-2-10 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54622521&amp;ptid=98922" target="_blank">陶矢 发表于 2022-2-10 14:52</a>
+
+我觉得顶上最蠢的一幕是黑胡子说老爹你忍心杀我吗向白胡子求饶，指定大反派还TM不如科比有骨气，那一瞬间我 ...</blockquote>
+恰恰相反，我觉得黑胡子求饶这一出简直尽显枭雄本色，角色塑造简直浑然天成
+
