@@ -8982,3 +8982,17 @@ https://b23.tv/jfktBHl
 
 多买了一张票，有谁要吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 5223#       发表于 2022-2-11 02:30
+
+ 本帖最后由 stygian 于 2022-2-11 02:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54630376&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-10 22:54</a>
+[https://b23.tv/jfktBHl](https://b23.tv/jfktBHl)
+
+大家可以看看这篇专栏，是关于星团的音乐风格分析，写的挺硬核的，看不懂也没关系 ...</blockquote>
+写的挺好，很多地方我和他意见差不多，不过这哥们应该不太看偶像，王道偶像音乐经历淳君和前山田健一两个人改造后转调变奏啥的真的是家常便饭了
+

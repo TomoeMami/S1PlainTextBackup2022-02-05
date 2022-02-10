@@ -739,3 +739,19 @@ BWS
 冰魔法师</blockquote>
 不知道正式版能不能收到这角色……
 
+
+
+*****
+
+####  笛普达克范太希  
+##### 75#       发表于 2022-2-11 03:33
+
+没搞懂仇恨怎么算的，对面经常雨露均沾，还有离开敌方射程后有的敌人低速移动有的敌人又不动<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谜の宝箱  
+##### 76#       发表于 2022-2-11 05:14
+
+Se 还强制中文英配么，试玩的时候想换中文日配都不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
