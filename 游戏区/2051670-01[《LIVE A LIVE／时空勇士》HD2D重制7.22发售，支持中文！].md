@@ -883,3 +883,23 @@ Square啊···你会弄就多弄点啊 <img src="https://static.saraba1st.com/i
 
 这游戏百度的词条还是我当年建的。。。
 
+
+
+*****
+
+####  电磁炮233  
+##### 97#       发表于 2022-2-10 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54620241&amp;ptid=2051670" target="_blank">ff2077 发表于 2022-2-10 12:50</a>
+乐了，nga已经开始吵中世篇了 话说我玩的时候，包括后面看露娜慕斯讲剧情的时候都没感觉咋恶了，就 ...</blockquote>
+我强烈怀疑现在这个ntr当乐子随口说的时代，中式篇还能破防几个宅宅
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fkinway  
+##### 98#       发表于 2022-2-10 13:23
+
+我记得s1的汉化发布还是猫踢发的吧，隔了那么久的游戏还能搞出来汉化组真是功德无量
+

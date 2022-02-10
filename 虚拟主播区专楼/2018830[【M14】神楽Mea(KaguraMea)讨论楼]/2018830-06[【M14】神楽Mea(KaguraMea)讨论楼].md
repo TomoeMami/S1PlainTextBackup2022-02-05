@@ -10131,3 +10131,49 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 今天到死线的工作...到底是什么呢...希望她只是口嗨...
 
+
+
+*****
+
+####  D麦林  
+##### 8667#       发表于 2022-2-10 13:12
+
+又到了围观V圈新瓜并为你麻感到不值的时候
+平带导演的名言时至今日依然振聋发聩
+
+*****
+
+####  やト  
+##### 8668#       发表于 2022-2-10 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54620686&amp;ptid=2018830" target="_blank">D麦林 发表于 2022-2-10 13:12</a>
+
+又到了围观V圈新瓜并为你麻感到不值的时候
+
+平带导演的名言时至今日依然振聋发聩 ...</blockquote>
+ 什么名言
+
+*****
+
+####  D麦林  
+##### 8669#       发表于 2022-2-10 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54620711&amp;ptid=2018830" target="_blank">やト 发表于 2022-2-10 13:14</a>
+
+什么名言</blockquote>
+《这是什么自爆式公关啊阿碧也太苦了吧》
+
+现在再来看真是典中典中典
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|谢|
+
+查看全部评分
+
