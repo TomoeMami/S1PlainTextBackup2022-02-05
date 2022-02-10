@@ -10411,3 +10411,55 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 你丫不会说老子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Joffre✔  
+##### 8693#       发表于 2022-2-10 16:34
+
+<blockquote>aisakahammer 发表于 2022-2-10 15:36
+又不是什么死人 天天某某某的   名字都不敢提的屏蔽词么，晦气</blockquote>
+在我眼里这些就是臭尸体，说全名晦气
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫| + 2|晦气|
+
+查看全部评分
+
+*****
+
+####  rosevalley46  
+##### 8694#       发表于 2022-2-10 16:36
+
+反正看完最近的直播和vcp我对她的能力之类的完全没担心,只要她想干活就肯定能有饭吃
+
+就是别搁那脑死101就行,把自己都快整玉玉了都<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8695#       发表于 2022-2-10 16:39
+
+lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
+
+用了6次冲白金失败换个能用一个赛季的梗。
+
+念叨白金比念叨舞元强吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8696#       发表于 2022-2-10 16:40
+
+ 本帖最后由 T_Hb 于 2022-2-10 16:43 编辑 
+
+还真是苔总不拉就没舞元看，看来舞咩已经被消费的差不多了
+
