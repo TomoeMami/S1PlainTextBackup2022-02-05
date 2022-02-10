@@ -10268,3 +10268,19 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  gongge666  
+##### 8677#       发表于 2022-2-10 14:38
+
+记得当时有说法，B站内部天狗也是分mea毒唯和meaqua贴贴两种的，举办演唱会的是mea毒唯这伙人。鬼知道mea突然发神经舔夸，还删号跑路，一下子联系不上了，直接把这群毒唯气死（主要还是气她舔夸）。后来活动勉强办完了，这群人也不再粉她了，扫楼视频也不打算发了。当时早期nga那伙人里有好几个B站员工
+
+*****
+
+####  草牛  
+##### 8678#       发表于 2022-2-10 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">扫楼视频不是因为里面有hololive才不发的吗
+

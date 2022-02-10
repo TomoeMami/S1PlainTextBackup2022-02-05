@@ -11710,3 +11710,12 @@ image.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说看图透，索隆真被砍了?
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56427#       发表于 2022-2-10 14:22
+
+罗神一战封神，谁还敢质疑50亿赏金的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -990,3 +990,14 @@ se hd-2d算是找到财富密码了</blockquote>
 
 2022-2-10 13:48 上传
 
+
+
+*****
+
+####  wakatoro  
+##### 107#       发表于 2022-2-10 14:24
+
+这款游戏还是看泥潭“唯一指定”up主才知道的，明明是老游戏，题材就让人很心动。 老游戏hd-2d化赶紧排上进程把
+
+—— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
