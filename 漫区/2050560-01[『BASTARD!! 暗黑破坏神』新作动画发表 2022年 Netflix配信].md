@@ -2662,3 +2662,17 @@ A和 ...</blockquote>
 要比不带犹大之痛的七魔王强啊</blockquote>
 大元帅也是天使吧？不然怎么会使路西法的大招烈光流星乱舞？
 
+
+
+*****
+
+####  gpx234mqx  
+##### 191#       发表于 2022-2-10 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54629356&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-10 21:58</a>
+
+大元帅也是天使吧？不然怎么会使路西法的大招烈光流星乱舞？</blockquote>
+不是，七魔王说她是不知道来历的哪里的土著神
+
+七魔王也不认识自然不是天使
+

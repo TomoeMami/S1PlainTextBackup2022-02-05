@@ -15299,3 +15299,17 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 又是口红哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 86979#       发表于 2022-2-10 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54629106&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-2-10 21:46</a>
+
+暗兔这个完全是掌握主导权的女秘书了
+
+这是送上司人情巧克力</blockquote>
+暗兔比光兔好多了，最多也就是压榨，光兔可是直接会让你负资产的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

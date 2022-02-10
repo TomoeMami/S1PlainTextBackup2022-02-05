@@ -10705,3 +10705,29 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 群里发了，老爱这个是自己申请参加的
 
+
+
+*****
+
+####  梦魂落叶  
+##### 8721#       发表于 2022-2-10 22:05
+
+吃了下隔壁阿梓的瓜，总觉得某种意义上和当年天狗不让你麻直播间提圣皇的冲突非常神似<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，只不过一切都是pro plus版，连盒武器都搬出来了确实蛮哈人的
+这么一圈下来国v这两年是不是把你麻这几年整得活儿全复刻完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8722#       发表于 2022-2-10 22:17
+
+还是有点不一样，当年连体人意淫的什么半夜陪去医院，人家可能真做到了。我觉得她们还挺真的。但是粉丝矛盾比这边还要强的多。
+
+*****
+
+####  十九号大侠  
+##### 8723#       发表于 2022-2-10 22:20
+
+哈人
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

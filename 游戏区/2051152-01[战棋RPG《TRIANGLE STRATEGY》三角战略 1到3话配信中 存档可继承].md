@@ -697,3 +697,22 @@ BWS
 记得是按左摇杆</blockquote>
 谢谢
 
+
+
+*****
+
+####  幻想风靡_  
+##### 71#       发表于 2022-2-10 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54628475&amp;ptid=2051152" target="_blank">thez 发表于 2022-2-10 21:09</a>
+
+铁国线能收个弓箭手，盐国能收啥？</blockquote>
+冰魔法师
+
+*****
+
+####  minysun  
+##### 72#       发表于 2022-2-10 22:15
+
+去马云那边搜了下实体欧版比港日便宜一大截，有知情的坛友解答一下原因吗？
+
