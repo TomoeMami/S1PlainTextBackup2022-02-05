@@ -716,3 +716,26 @@ BWS
 
 去马云那边搜了下实体欧版比港日便宜一大截，有知情的坛友解答一下原因吗？
 
+
+
+*****
+
+####  thez  
+##### 73#       发表于 2022-2-10 22:30
+
+ 本帖最后由 thez 于 2022-2-10 22:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54629681&amp;ptid=2051152" target="_blank">minysun 发表于 2022-2-10 22:15</a>
+
+去马云那边搜了下实体欧版比港日便宜一大截，有知情的坛友解答一下原因吗？ ...</blockquote>
+淘宝所有游戏都这样……欧美版的风险是可能发货晚，而且前面有人说欧美版也可能没日配（我觉得不至于）
+
+*****
+
+####  thez  
+##### 74#       发表于 2022-2-10 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54629470&amp;ptid=2051152" target="_blank">幻想风靡_ 发表于 2022-2-10 22:04</a>
+
+冰魔法师</blockquote>
+不知道正式版能不能收到这角色……
+

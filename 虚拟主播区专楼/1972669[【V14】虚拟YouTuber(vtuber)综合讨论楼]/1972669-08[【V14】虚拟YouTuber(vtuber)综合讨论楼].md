@@ -896,3 +896,14 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 郡道的审判之眼还是#3东哥出来后那段长时间BL发情胡言乱语吓跑的人比较多 ...</blockquote>
 羽村哥那段雌堕发言我都看傻了，我郡不发疯太为难她了啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">...
 
+
+
+*****
+
+####  与天争锋_LZ  
+##### 10575#       发表于 2022-2-10 22:42
+
+1800这么恐怖吗
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
