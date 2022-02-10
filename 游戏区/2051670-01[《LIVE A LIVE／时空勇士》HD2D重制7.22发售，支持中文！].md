@@ -1158,3 +1158,14 @@ ign说是全平台的，但官网就只写了ns<img src="https://static.saraba1s
 几个人里最喜欢忍者和牛仔
 全平台的话就等等了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruina  
+##### 122#       发表于 2022-2-10 23:02
+
+这部在lunamos的视频里云的基本一干二净了，还以为不会有出重制版的机会了
+
+唉，虽然剧情方面对我来说已经完全没有了未知感<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

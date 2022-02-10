@@ -2685,3 +2685,14 @@ A和 ...</blockquote>
 
 24集大概打破坏神原创结尾吧，我感觉做不到方舟篇完<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  走在路上  
+##### 193#       发表于 2022-2-10 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54628819&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-02-10 21:29:57</a></blockquote>啥玩意儿？忍者城那个眼怪？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

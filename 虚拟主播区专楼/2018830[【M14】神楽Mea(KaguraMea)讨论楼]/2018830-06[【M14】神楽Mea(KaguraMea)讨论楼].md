@@ -10769,3 +10769,71 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 事件中没有贴贴粉，只有一个被阿夸轻松操控并在后面笑话的咩啊。
 
+
+
+*****
+
+####  2014720  
+##### 8728#       发表于 2022-2-10 22:49
+
+不会真的有人觉得粉丝比朋友还重要吧，不会吧<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8729#       发表于 2022-2-10 22:50
+
+斗鱼出来的女主播都很厉害啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aisakahammer  
+##### 8730#       发表于 2022-2-10 22:52
+
+  这个局面的关键不就是   真是朋友么 ，真就重要，不真就不重要。
+
+
+
+*****
+
+####  thisisaspider  
+##### 8731#       发表于 2022-2-10 22:53
+
+来个人名替换版：很多人可能不看BS，阿夸其实早都被两位同伴揭穿过。
+
+真正的顶级茶艺大师，掐着夹子音成功上岸的另一位屑女仆。
+
+"多大人了还在装小孩"“白痴装久了小心真的变傻”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 8732#       发表于 2022-2-10 22:54
+
+  夸皇这种单排上大师的游戏大师，怎么是菠萝这种丧家之犬可以碰瓷的，也就连体人老想着两边拉上关系。
+
+*****
+
+####  十九号大侠  
+##### 8733#       发表于 2022-2-10 22:55
+
+是谈论人与人之间的真情，还是游戏实力啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rosevalley46  
+##### 8734#       发表于 2022-2-10 23:01
+
+你们这种事情也要找代餐么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 8735#       发表于 2022-2-10 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">差不多得了，刻意营业是看着真没意思
+
