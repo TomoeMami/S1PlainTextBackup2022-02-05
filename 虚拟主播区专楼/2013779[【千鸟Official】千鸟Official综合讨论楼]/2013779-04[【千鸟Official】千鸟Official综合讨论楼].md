@@ -8542,3 +8542,12 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 不在一个房子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 你没关注贴吧前几天烂炒么
 
+
+
+*****
+
+####  rgauss  
+##### 5397#       发表于 2022-2-10 20:44
+
+我工作多年，对事的看法只剩博弈与利弊，追求最大利益最小损失，变得冷漠；看到千鸟这样跌跌撞撞，却咬着牙继续的样子，亦是怜爱。
+

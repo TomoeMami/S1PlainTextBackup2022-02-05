@@ -10640,3 +10640,12 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 真以为蹭的上啊</blockquote>
 你不会不知道有b站直播的个人主播才一两千粉就上了吧
 
+
+
+*****
+
+####  藤原银  
+##### 8714#       发表于 2022-2-10 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">遗憾，也记得Mea讲过很多次她是老爱的铁粉，结果这最后一次也没能参加的上
+
