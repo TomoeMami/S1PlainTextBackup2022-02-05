@@ -755,3 +755,14 @@ BWS
 
 Se 还强制中文英配么，试玩的时候想换中文日配都不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  笨笨塞  
+##### 77#       发表于 2022-2-11 07:27
+
+<blockquote>谜の宝箱 发表于 2022-2-11 05:14
+Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockquote>
+这次试玩可以随便改。
+
