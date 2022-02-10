@@ -11797,3 +11797,17 @@ image.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">好吧，你们说再多我还是不能接受说出人的梦想是不会终止的角色是个卑鄙小人
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 56436#       发表于 2022-2-10 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54623390&amp;ptid=98922" target="_blank">陶矢 发表于 2022-2-10 15:39</a>
+
+好吧，你们说再多我还是不能接受说出人的梦想是不会终止的反派是个卑鄙小人而不是邪恶大人
+
+不过想想 ...</blockquote>
+就是这么回事呀，我们传统价值不也提倡韩信胯下之辱的典故，黑胡子的行为虽然确实是能屈能伸，但他的道德观念实在太过淡薄，有点像演义里的曹操风格，他杀了多年老伙伴抢果实和曹老板多疑杀老友可以说是如出一辙了，只能说感谢尾田，还在巅峰期创作了黑胡子这种枭雄形象，现在只能创作御田和大和这种钢笔了
+

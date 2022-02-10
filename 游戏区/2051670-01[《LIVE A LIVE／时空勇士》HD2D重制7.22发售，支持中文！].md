@@ -1001,3 +1001,38 @@ se hd-2d算是找到财富密码了</blockquote>
 
 —— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Niu  
+##### 108#       发表于 2022-2-10 15:49
+
+<blockquote>adretyu67 发表于 2022-2-9 18:48
+就差个鲁多拉秘宝了吧。
+
+不过别家有机会我倒是想看海格力斯的荣光和四狂神战记。
+</blockquote>
+四狂神的版權在SE手上
+
+*****
+
+####  Niu  
+##### 109#       发表于 2022-2-10 15:55
+
+<blockquote>hamartia 发表于 2022-2-9 18:47
+这个猛
+
+你们还想要SFC时期SE哪些RPG?
+</blockquote>
+Dark Half難歸難，但是真的好玩。這種真能體驗魔王滅世的game也十分難得。而且遊戲重製總會降低難度，所以難度不會是問題。
+
+*****
+
+####  Niu  
+##### 110#       发表于 2022-2-10 15:59
+
+<blockquote>henryqxg 发表于 2022-2-9 19:47
+这宣传片最后肉村吼的那句配合经典bgm鸡皮疙瘩都起来了，不过还是ns独占啊，hd2d这几作全部都是ns限时独占 ...</blockquote>
+最後吼的不是中村。吼的是反水基友的知名迷台詞。
+

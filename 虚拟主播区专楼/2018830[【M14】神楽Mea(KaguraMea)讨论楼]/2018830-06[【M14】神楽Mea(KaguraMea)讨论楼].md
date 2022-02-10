@@ -10364,3 +10364,32 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 确实，没事我还去看圣皇上大师<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 8688#       发表于 2022-2-10 15:42
+
+隔壁也有人评价不要攻击观众行为了
+
+真想知道当初小羊和天狗满世界挨打的时候这些正义之士在哪
+
+*****
+
+####  往世雷书  
+##### 8689#       发表于 2022-2-10 15:48
+
+很多人是自己挨打了才开始惊呼圈子环境好烂，看别人挨打要么没感觉要么觉得是圈子自我纠正打得好，而且自己挨打过后依旧这样想，能有人认识到管好自己少管别人就谢天谢地了，不要苛责别人，别人没义务替你发声。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2014720  
+##### 8690#       发表于 2022-2-10 15:59
+
+今年真的是2202了就别怨怨艾艾了
+
+后天就有历史性的新皮发布了，想想你楼某人去年2.0整的活，总之建议做好思想准备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

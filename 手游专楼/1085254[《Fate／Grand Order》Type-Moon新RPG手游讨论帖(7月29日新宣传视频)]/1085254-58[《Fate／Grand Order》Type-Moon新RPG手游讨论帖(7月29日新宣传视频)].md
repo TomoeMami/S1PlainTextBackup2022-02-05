@@ -15268,3 +15268,12 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 这玩法，战斗司书第一卷秒了233</blockquote>
 不是人人都有那水平的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yzj134100  
+##### 86976#       发表于 2022-2-10 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只套回避不套无敌就是为了能让大狗必中是吧
+
