@@ -1,0 +1,581 @@
+
+
+*****
+
+####  实津二三  
+##### 1#       楼主       发表于 2022-2-10 07:01
+
+ 本帖最后由 实津二三 于 2022-2-10 07:30 编辑 
+
+<img src="https://p.sda1.dev/4/e908e499f9c9d5d3c14a8a6df97ee255/20220210_065749.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/f13e517dd601e6c3f17f7eca0404a44f/20220210_065710.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/2516143e9f5fd1e4cc3e683bc6f48697/20220210_065657.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/ab9aff7d8f92da3db9ef74b87c80d495/20220210_065656.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/4e485e50953c8ec74d42252406cbe7ab/20220210_065655.jpg" referrerpolicy="no-referrer">
+七位主角，八段故事，跨越时空的JRPG名作。全区支持简繁中文，2022年7月22日发售，日版7480円，美版49.99美元。
+
+*****
+
+####  伯翎飞云  
+##### 2#       发表于 2022-2-10 07:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道有没有中文。
+
+*****
+
+####  stoiorz  
+##### 3#       发表于 2022-2-10 07:02
+
+原汁原味没添料吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  helix  
+##### 4#       发表于 2022-2-10 07:02
+
+今天nd最兴奋的消息
+
+*****
+
+####  EigenVesper  
+##### 5#       发表于 2022-2-10 07:03
+
+这个实在太出乎意料了，se你干的好啊
+
+*****
+
+####  是这样  
+##### 6#       发表于 2022-2-10 07:04
+
+来了来了
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  三级怪兽  
+##### 7#       发表于 2022-2-10 07:04
+
+估计还得等arcsystem搞中文了
+
+*****
+
+####  实津二三  
+##### 8#         楼主| 发表于 2022-2-10 07:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614225&amp;ptid=2051670" target="_blank">stoiorz 发表于 2022-2-10 07:02</a>
+原汁原味没添料吗？
+
+—— 来自 S1Fun</blockquote>
+这不是都HD2D化了……看画面也能看出和原版截然不同啊。剧情上有没有填料就不知道了。
+
+*****
+
+####  不垃圾屌丝  
+##### 9#       发表于 2022-2-10 07:06
+
+【NS《Live A Live》任天堂直面会2022.02.10预告片-哔哩哔哩】 https://b23.tv/MOPcQ32
+又看了遍预告，过场剧情有语音
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  四级过了  
+##### 10#       发表于 2022-2-10 07:06
+
+se hd-2d算是找到财富密码了
+
+*****
+
+####  多狼医生  
+##### 11#       发表于 2022-2-10 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614221&amp;ptid=2051670" target="_blank">伯翎飞云 发表于 2022-2-10 07:02</a>
+不知道有没有中文。</blockquote>
+支持简繁中文
+
+*****
+
+####  nightrap  
+##### 12#       发表于 2022-2-10 07:09
+
+这款游戏可同样是有位遭人痛恨的斯德哥尔摩综合症女主，不知新版是否能纠正这一点……
+
+*****
+
+####  helix  
+##### 13#       发表于 2022-2-10 07:12
+
+纠正啥，不就要这个味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡不醒的虾米  
+##### 14#       发表于 2022-2-10 07:12
+
+希望剧情有加料…希望剧情有加料！
+
+*****
+
+####  电磁炮233  
+##### 15#       发表于 2022-2-10 07:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614310&amp;ptid=2051670" target="_blank">nightrap 发表于 2022-2-10 07:09</a>
+这款游戏可同样是有位遭人痛恨的斯德哥尔摩综合症女主，不知新版是否能纠正这一点…… ...</blockquote>
+改了女主魔王线还怎么做？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nightrap  
+##### 16#       发表于 2022-2-10 07:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614274&amp;ptid=2051670" target="_blank">四级过了 发表于 2022-2-10 07:06</a>
+
+se hd-2d算是找到财富密码了</blockquote>
+我倒期待Enix当年的游戏也有这样的机会，去年重制了一个ActRaiser，以后不知是否还会继续。不过因为历史关系，这里面有些注定是不会有机会了。
+
+*****
+
+####  希远闹  
+##### 17#       发表于 2022-2-10 07:12
+
+必玩啊 首发有中文
+
+*****
+
+####  helix  
+##### 18#       发表于 2022-2-10 07:13
+
+hd2d天地创造
+我可以
+
+*****
+
+####  nightrap  
+##### 19#       发表于 2022-2-10 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614342&amp;ptid=2051670" target="_blank">电磁炮233 发表于 2022-2-10 07:12</a>
+
+改了女主魔王线还怎么做？
+
+—— 来自 S1Fun</blockquote>
+能加一条剧情路线就行，让玩家能有更多的选择。很多让玩家痛恨的设定就是因为让玩家在这个时候没有选择。
+
+*****
+
+####  2082082012  
+##### 20#       发表于 2022-2-10 07:15
+
+se亲妈复活了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  monolithsoft  
+##### 21#       发表于 2022-2-10 07:17
+
+SE眼红八方啦，买
+
+*****
+
+####  Erikas  
+##### 22#       发表于 2022-2-10 07:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">这部剧情体验怎样，比八方好点吗
+
+*****
+
+####  black1991518  
+##### 23#       发表于 2022-2-10 07:24
+
+这真的是太好了，还多了配音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wsktcy  
+##### 24#       发表于 2022-2-10 07:25
+
+整场直面会最期待的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  实津二三  
+##### 25#         楼主| 发表于 2022-2-10 07:26
+
+ 本帖最后由 实津二三 于 2022-2-10 07:28 编辑 
+
+感觉重制没有青山刚昌他们的原画了啊。
+
+*****
+
+####  kinfox  
+##### 26#       发表于 2022-2-10 07:27
+
+<blockquote>Erikas 发表于 2022-2-10 07:21
+这部剧情体验怎样，比八方好点吗</blockquote>
+堪称神剧情 尤其最后一个故事 哈哈哈哈
+
+*****
+
+####  congjasd  
+##### 27#       发表于 2022-2-10 07:28
+
+流程多长
+
+*****
+
+####  Booorunestud  
+##### 28#       发表于 2022-2-10 07:28
+
+今天最大的了…
+
+*****
+
+####  电磁炮233  
+##### 29#       发表于 2022-2-10 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614536&amp;ptid=2051670" target="_blank">congjasd 发表于 2022-2-10 07:28</a>
+流程多长</blockquote>
+二十小时吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  叶雾  
+##### 30#       发表于 2022-2-10 07:29
+
+中村已经预约了233
+
+
+
+*****
+
+####  Pettabuz  
+##### 31#       发表于 2022-2-10 07:29
+
+SFC的经典全用HD-2D搬一遍才好呢，如果这是财富密码我希望S多用用
+
+*****
+
+####  yunxyz  
+##### 32#       发表于 2022-2-10 07:34
+
+天地创造呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 33#       发表于 2022-2-10 07:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我超，史克威尔那堆SFC名作都可以期待起来了
+
+*****
+
+####  灰色的狐狸  
+##### 34#       发表于 2022-2-10 07:44
+
+给我看激动坏了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  mcq_2  
+##### 35#       发表于 2022-2-10 07:45
+
+奇怪，我玩完了没什么感觉啊，谁反白说一下神在哪
+
+*****
+
+####  congjasd  
+##### 36#       发表于 2022-2-10 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614543&amp;ptid=2051670" target="_blank">电磁炮233 发表于 2022-2-10 07:28</a>
+二十小时吧
+
+—— 来自 S1Fun</blockquote>
+理想长度
+准备玩了
+
+*****
+
+####  Renkonsai  
+##### 37#       发表于 2022-2-10 08:09
+
+这次ND最大的惊喜了
+
+*****
+
+####  厨具战士  
+##### 38#       发表于 2022-2-10 08:11
+
+我就问一句：可以请JAM唱《GOGO铁皮大王》吗？
+
+*****
+
+####  Booorunestud  
+##### 39#       发表于 2022-2-10 08:36
+
+傻逼se别给我整个英文语音版才有中文…
+
+*****
+
+####  超人越神  
+##### 40#       发表于 2022-2-10 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614452&amp;ptid=2051670" target="_blank">Erikas 发表于 2022-2-10 07:21</a>
+这部剧情体验怎样，比八方好点吗</blockquote>
+单从剧情和系统体验来说，完爆八方旅人几条街
+
+—— 来自 Xiaomi M2004J7AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  NaYo丶  
+##### 41#       发表于 2022-2-10 08:40
+
+7480日元居然才50刀奇妙的汇率
+还有我看时田贵司动了 合理期待ct<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  渺小小  
+##### 42#       发表于 2022-2-10 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">出个豪华版或者DLC把和漫画家们联动的人设拿出来好不好啊····
+
+*****
+
+####  センコウ  
+##### 43#       发表于 2022-2-10 08:44
+
+・ポゴ：#緒方恵美
+
+・サンダウン：#大塚明夫
+
+・心山拳老師：#石丸博也
+
+・おぼろ丸：#橋詰知久
+
+・高原日勝：#関智一
+
+・アキラ：#赤羽根健治
+
+・オルステッド：#中村悠一
+
+*****
+
+####  windtrack  
+##### 44#       发表于 2022-2-10 08:44
+
+八方旅人引擎的价值体现出来了
+
+不过这价格 ....合适吗？
+
+*****
+
+####  tonberry  
+##### 45#       发表于 2022-2-10 08:45
+
+lal这游戏牛就牛在身为sfc的rpg做的太有灵气、太超前了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Winder07  
+##### 46#       发表于 2022-2-10 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54615318&amp;ptid=2051670" target="_blank">センコウ 发表于 2022-2-10 08:44</a>
+
+・ポゴ：#緒方恵美
+
+・サンダウン：#大塚明夫
+
+・心山拳老師：#石丸博也</blockquote>
+还是蛮有钱的嘛
+
+*****
+
+####  睡不醒的虾米  
+##### 47#       发表于 2022-2-10 09:07
+
+<blockquote>厨具战士 发表于 2022-2-10 08:11
+我就问一句：可以请JAM唱《GOGO铁皮大王》吗？</blockquote>
+这个好这个好！
+
+*****
+
+####  nightrap  
+##### 48#       发表于 2022-2-10 09:09
+
+ 本帖最后由 nightrap 于 2022-2-10 09:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614611&amp;ptid=2051670" target="_blank">soranoguiji 发表于 2022-2-10 07:35</a>
+
+我超，史克威尔那堆SFC名作都可以期待起来了</blockquote>
+我更期待Enix当年做的一些游戏，相对来说这些更为冷门。
+
+现在看看SE还有哪些冷饭可炒：
+
+S社在FF之前的游戏，这些我估计对于当代的玩家来说不太容易接受得了，而且这些游戏扩展延申的余地不大，基本不用考虑了。除此之外，S社在FC上还有一款汤姆索亚游戏，这个当年就因为争议只发行了日版，现在更是拿不出手的了。SFC上的Alcahest和马里奥RPG，因为分别是跟HAL和任天堂合作的游戏，现在基本都不可能翻炒或出新了，甚至不但现在的SE不能，对方也是不能的。FFMQ作为一个时代的产物现在同样是无法翻炒的。半熟英雄、前线任务-枪之危机、圣龙这些现在也基本可以排除掉可能性了。
+
+这样一来，S社在SFC上还存在翻炒可能性的就只有鲁多拉和财猎了，看看SE现在是否还能想起这些了。
+
+再就是PS上的武藏传、晶莹之露，看看SE将来能否顾得上了，至于SQUARE当年那堆类型稀奇古怪的游戏估计都没有重现的可能了。
+
+Enix现在看来有翻炒可能性的就只有Quintet出的那几款游戏了：Soul Blader、盖亚幻想记、天地创造，ActRaiser 2相对前作非常失败不太可能像前作一样重制，Slap Stick这个过于冷门希望也不大。还有Produce的几款游戏：Elnard、Brain Lord、Mystic Ark希望也都不是很大。其实相比之下，Enix被埋没的冷门游戏更多，而且Enix在第五代的3大主机上都有过尝试，但是这些游戏能重制的可能性都很小。
+
+*****
+
+####  topia  
+##### 49#       发表于 2022-2-10 09:16
+
+se，暂时的神<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  多狼医生  
+##### 50#       发表于 2022-2-10 09:27
+
+确认是全平台
+
+*****
+
+####  eulereld  
+##### 51#       发表于 2022-2-10 09:29
+
+好啊想玩這作好久了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nervpp  
+##### 52#       发表于 2022-2-10 09:31
+
+真正的八方旅人来了
+
+*****
+
+####  Guildenstern  
+##### 53#       发表于 2022-2-10 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614410&amp;ptid=2051670" target="_blank">monolithsoft 发表于 2022-2-10 07:17</a>
+
+SE眼红八方啦，买</blockquote>
+可是八方就是SE的游戏啊?
+
+*****
+
+####  katern  
+##### 54#       发表于 2022-2-10 09:39
+
+新玩家看到公主会不会ptsd啊
+
+*****
+
+####  zakufa782  
+##### 55#       发表于 2022-2-10 09:41
+
+草 这cv阵容也太典型了
+
+*****
+
+####  OBW  
+##### 56#       发表于 2022-2-10 09:45
+
+三大恶女之一重现。
+
+*****
+
+####  ff2077  
+##### 57#       发表于 2022-2-10 09:50
+
+ign说是全平台，我看官网上还只写了ns<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  silversor  
+##### 58#       发表于 2022-2-10 09:56
+
+这游戏，好像是回合制？会不会像八方那样走路遇怪，打主线还要刷级找装备的，以前每天就摸那么点时间，在ns上玩得太难受了，最后顶不住弃坑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡不醒的虾米  
+##### 59#       发表于 2022-2-10 10:01
+
+<blockquote>silversor 发表于 2022-2-10 09:56
+这游戏，好像是回合制？会不会像八方那样走路遇怪，打主线还要刷级找装备的，以前每天就摸那么点时间，在ns ...</blockquote>
+走路暗雷没错，主线难度全在特色系统上了，不用刷级。
+
+*****
+
+####  killbillwillil  
+##### 60#       发表于 2022-2-10 10:01
+
+以后还有什么可以期待做成hd2d的？除了ct？
+
+还想到一个，天地创造<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  SorroFrost  
+##### 61#       发表于 2022-2-10 10:04
+
+话说结局还会改吗
+
+*****
+
+####  NaYo丶  
+##### 62#       发表于 2022-2-10 10:05
+
+还能复刻皇骑啊(虽然有精神续作了）
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天妇罗  
+##### 63#       发表于 2022-2-10 10:08
+
+ct可不可以有？
+
+*****
+
+####  Lunamos  
+##### 64#       发表于 2022-2-10 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54616553&amp;ptid=2051670" target="_blank">killbillwillil 发表于 2022-2-10 11:01</a>
+
+以后还有什么可以期待做成hd2d的？除了ct？
+
+还想到一个，天地创造</blockquote>
+ARPG感觉不是很合适，我做的梦里说天地创造有一个类似FF7Re的重制<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  killbillwillil  
+##### 65#       发表于 2022-2-10 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54616748&amp;ptid=2051670" target="_blank">Lunamos 发表于 2022-2-10 10:10</a>
+
+ARPG感觉不是很合适，我做的梦里说天地创造有一个类似FF7Re的重制</blockquote>
+srpg也能做了，一样走像素的arpg感觉应该问题也不大，就是不知道大人物们肯不肯<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beebeec  
+##### 66#       发表于 2022-2-10 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看过lunamos讲的故事，想不到还有重制版
+
