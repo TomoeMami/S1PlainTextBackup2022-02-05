@@ -10188,3 +10188,58 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 8671#       发表于 2022-2-10 13:46
+
+呃，平某这种一到这种时候就落井下石阴阳怪气的乐色玩意说的东西也能名言了是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  D麦林  
+##### 8672#       发表于 2022-2-10 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54621369&amp;ptid=2018830" target="_blank">璃絵和花瑠 发表于 2022-2-10 13:46</a>
+
+呃，平某这种一到这种时候就落井下石阴阳怪气的乐色玩意说的东西也能名言了是吧。
+
+—— 来自 Xiaom ...</blockquote>
+名言（回旋镖意味上）
+
+你麻遇上事了他冷嘲热讽
+
+谁知道他B自家的企业事遇上事了自爆的更狠啊
+
+想想都要笑出声了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Mr.shelter  
+##### 8673#       发表于 2022-2-10 13:50
+
+个人势说错话我重拳出击，企业势说错话我一言不发<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 8674#       发表于 2022-2-10 13:56
+
+所以啥乐子啊，来个传送门看看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

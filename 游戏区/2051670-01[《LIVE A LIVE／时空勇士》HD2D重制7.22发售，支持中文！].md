@@ -952,3 +952,41 @@ se hd-2d算是找到财富密码了</blockquote>
 
 圣龙战记可以来一波么？
 
+
+
+*****
+
+####  屑猫猫  
+##### 104#       发表于 2022-2-10 13:46
+
+最重点的忍者篇呢，想看这个篇章的图，格斗篇不知道会怎么个处理
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  wyy123  
+##### 105#       发表于 2022-2-10 13:47
+
+看日服显示日版带中文，实体应该跟数字版一样啊，带中文去预定个日版
+
+*****
+
+####  henryqxg  
+##### 106#       发表于 2022-2-10 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54621103&amp;ptid=2051670" target="_blank">ff2077 发表于 2022-2-10 13:34</a>
+
+这叫一鱼多吃，过几年再用hd2d炒一遍，1-6 起码来个180刀吧
+
+—— 来自 S1Fun ...</blockquote>
+ピクセルリマスター版『FF6』2月24日発売決定。差距太大了，不过我觉得应该不会再炒了，倒是可以期待把dq一作接一作全部炒一遍
+
+<img src="https://img.saraba1st.com/forum/202202/10/134842z46amsar8widwdr9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-10 13:48 上传
+
