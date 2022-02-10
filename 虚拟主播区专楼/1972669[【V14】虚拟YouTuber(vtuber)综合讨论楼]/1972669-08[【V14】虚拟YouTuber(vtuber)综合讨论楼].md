@@ -799,3 +799,14 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 
 之前nrk裏垢泄露叫小千キャリーまんこ的事又可以大书特书了
 
+
+
+*****
+
+####  poipanchao  
+##### 10567#       发表于 2022-2-10 17:26
+
+千大师带你nrk小钻石还是随便带的（）
+
+我好想bora<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

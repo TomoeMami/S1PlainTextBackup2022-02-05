@@ -1132,3 +1132,19 @@ ign说是全平台的，但官网就只写了ns<img src="https://static.saraba1s
 
 蠢和傻占了大多，恶什么的还不够数
 
+
+
+*****
+
+####  Meltina  
+##### 120#       发表于 2022-2-10 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54617552&amp;ptid=2051670" target="_blank">hamartia 发表于 2022-2-10 10:47</a>
+
+这个猛
+
+你们还想要SFC时期SE哪些RPG?</blockquote>
+这么说想要《Energy Breaker》，当年关注英文化补丁，坑了差不多10年有一天突然出了，很有兴致打了一大半，因为战斗难度太低导致后半昏昏欲睡没能打完，能改一下系统就好了。
+
+还有《四狂神传说2》，这个也是战斗系统太单调了，但解谜方面真是太好玩了。
+
