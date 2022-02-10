@@ -579,3 +579,28 @@ srpg也能做了，一样走像素的arpg感觉应该问题也不大，就是不
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看过lunamos讲的故事，想不到还有重制版
 
+
+
+*****
+
+####  红叶  
+##### 67#       发表于 2022-2-10 10:26
+
+sfc上二线rpg都可以整下了 什么鲁多拉秘宝之类，有没有胆来个圣龙传说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zakufa782  
+##### 68#       发表于 2022-2-10 10:30
+
+这cv阵容也太典型了
+
+*****
+
+####  acejoe  
+##### 69#       发表于 2022-2-10 10:33
+
+还是看lunamos视频认识这一作的
+

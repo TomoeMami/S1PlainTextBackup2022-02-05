@@ -689,3 +689,17 @@ BN是他们魂系列，环的全球发行商（除了日本，是FS自己发行�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611125&amp;ptid=2051432" target="_blank"> refiver 发表于 2022-2-9 23:12</a> 所以当年那个传闻说是微软那边的人玩了demo以后觉得不行直接拍板取消究竟是真是假…… </blockquote>
 当年据说已经拖了2个deadline了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，而且尼尔那时候把人都调去做尼尔了，傻子才陪他们继续烧钱来自: iPhone客户端
 
+
+
+*****
+
+####  piigzyq  
+##### 72#       发表于 2022-2-10 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54612634&amp;ptid=2051432" target="_blank">zris 发表于 2022-2-10 01:36</a>
+
+咋卖，ip不是在微软手上嘛
+
+—— 来自 S1Fun</blockquote>
+所以说了是换个皮，不涉及IP部分
+
