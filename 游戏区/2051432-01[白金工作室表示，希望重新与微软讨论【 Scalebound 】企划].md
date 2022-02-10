@@ -703,3 +703,24 @@ BN是他们魂系列，环的全球发行商（除了日本，是FS自己发行�
 —— 来自 S1Fun</blockquote>
 所以说了是换个皮，不涉及IP部分
 
+
+
+*****
+
+####  BK10  
+##### 73#       发表于 2022-2-10 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54617374&amp;ptid=2051432" target="_blank">piigzyq 发表于 2022-2-10 10:37</a>
+所以说了是换个皮，不涉及IP部分</blockquote>
+想太多，真打算卖出去不至于一直在这叫微软了，也不看看他们平时接的单子资源和龙鳞比完全不是一个级别，不想要3A级别的东西不至于这么叫微软，不过把这么好的主给得罪也是没谁了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  piigzyq  
+##### 74#       发表于 2022-2-10 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54617656&amp;ptid=2051432" target="_blank">BK10 发表于 2022-2-10 10:51</a>
+
+想太多，真打算卖出去不至于一直在这叫微软了，也不看看他们平时接的单子资源和龙鳞比完全不是一个级别， ...</blockquote>
+白金还真就这么想，只能说没有有钱的傻子接盘。明面不叫微软，难道明着说我们想用龙鳞的资源做一个新作嘛
+

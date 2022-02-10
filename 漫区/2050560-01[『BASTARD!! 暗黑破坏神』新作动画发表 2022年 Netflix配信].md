@@ -2547,3 +2547,27 @@ A和 ...</blockquote>
 你是看到哪里了？DS打天使和恶魔的只有方舟战4年后吧？那里据说是因为换刊了所以停掉了原来的地狱篇，直 ...</blockquote>
 “上”了龙战士<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  传说中的小鱼  
+##### 183#       发表于 2022-2-10 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608179&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 18:49</a>
+
+你是看到哪里了？DS打天使和恶魔的只有方舟战4年后吧？那里据说是因为换刊了所以停掉了原来的地狱篇，直 ...</blockquote>
+打开了地狱门放出了被封印的恶魔
+
+好像看到这里，好像快20年了？
+
+*****
+
+####  传说中的小鱼  
+##### 184#       发表于 2022-2-10 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54607981&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-9 18:31</a>
+
+方舟一战大家死光，卡兹王子内亚当救活当了亚当的跟班</blockquote>
+还以为能看大战。。结果。。。。 谢谢
+
