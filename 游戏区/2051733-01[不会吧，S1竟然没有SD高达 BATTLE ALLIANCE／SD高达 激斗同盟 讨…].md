@@ -691,3 +691,17 @@ DLC，季票，豪华版，限定版
 不都是搜狗卡5枪吗...</blockquote>
 就是因为正常打难度高得过分，玩家才被逼成了搜狗输入法的形状
 
+
+
+*****
+
+####  二丁目拓也  
+##### 76#         楼主| 发表于 2022-2-11 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54631981&amp;ptid=2051733" target="_blank">920619lqy 发表于 2022-2-11 00:01</a>
+
+就是因为正常打难度高得过分，玩家才被逼成了搜狗输入法的形状</blockquote>
+后面的图基本都不能卡了，结果除了几个用独眼巨人炸过去的其他都不怎么玩了
+
+改机时候是全掉落图纸都刷了一遍
+
