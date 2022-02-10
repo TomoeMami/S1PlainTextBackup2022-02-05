@@ -15209,3 +15209,51 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 另，旧fate与其说是“有大纲”，不如说是“仅有大纲”。正文应该除了序章以外都没有完成
 
+
+
+*****
+
+####  exiaexa  
+##### 86971#       发表于 2022-2-10 10:26
+
+不行这个巴姐，越用越生草
+
+首先是这个三破，真的一股子美女你谁啊的生草感，怎么想都觉得自己抽错了人
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后就是反击语音，连续重复某一条的时候真的草，你们是故意让天生目仁美配得这么草的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后你们这个反击动画不能做得精致一点吗
+
+现在这个整一个平A战士
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 86972#       发表于 2022-2-10 10:36
+
+不感兴趣了。跳了。最近沉迷MD都懒得玩FGO了。。
+
+*****
+
+####  angelooo  
+##### 86973#       发表于 2022-2-10 11:13
+
+<blockquote>khxooo 发表于 2022-2-10 00:33
+这次情人节算是解释了为什么妖兰会喜欢上咕哒，因为她看见未来的她喜欢上了，所以从现在开始就喜欢了，算是 ...</blockquote>
+这玩法，战斗司书第一卷秒了233
+
+*****
+
+####  Jamaisvu  
+##### 86974#       发表于 2022-2-10 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54617119&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-10 10:26</a>
+
+不行这个巴姐，越用越生草
+
+首先是这个三破，真的一股子美女你谁啊的生草感，怎么想都觉得自己抽错了人</blockquote>
+巴姐有个技能语音念得贼快，我一开始还以为是加速导致的，后来发现别人都是正常语速...
+

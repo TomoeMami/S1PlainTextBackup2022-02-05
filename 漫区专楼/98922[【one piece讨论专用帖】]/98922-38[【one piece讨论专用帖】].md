@@ -11591,3 +11591,22 @@ image.jpg
 雷利他们本来要跟御田回去，结果御田拒绝了，这事是他自己家事国事可以理解.即便失败了也不想其他人为他白白牺牲，白胡子不以为儿子复仇为借口没问题.
 问题在以藏...御田这边没有借口但是以藏有，憋到现在才让白胡子残团去参战，而不是当年全盛时期.说实在他们也不知道基德和罗能到这种水平，当时只有五皇一个人，哪怕有霸缠这群人也是去送死的.整体看下来剧情非常离谱
 
+
+
+*****
+
+####  武男  
+##### 56415#       发表于 2022-2-10 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608810&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-2-9 19:48</a>
+
+艾斯就是因为果实太辣鸡死的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">艾斯那不是他自己非要跑回去送嘛，狗哥嘴了两句他就跑回来找死，狗哥自己也满头问号呢。
+
+*****
+
+####  yeluffy  
+##### 56416#       发表于 2022-2-10 11:15
+
+手术果实真名可能就是空间果实
+

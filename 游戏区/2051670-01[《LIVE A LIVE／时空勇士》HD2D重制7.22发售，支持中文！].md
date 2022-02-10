@@ -679,3 +679,35 @@ ps时代的话，我可以为晶莹之露买单。关于那游戏我有一段不
 
 现在再给这类游戏人资源，等于支持他们用垃圾游戏发动恐怖袭击
 
+
+
+*****
+
+####  windtrack  
+##### 76#       发表于 2022-2-10 11:13
+
+非SE的超任RPG我倒是挺想让眼镜厂那个granhistoria复刻的
+
+*****
+
+####  Lunamos  
+##### 77#       发表于 2022-2-10 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54617641&amp;ptid=2051670" target="_blank">魔王候补77号 发表于 2022-2-10 11:50</a>
+
+早上看直播的时候一堆人刷
+
+“lunamos赢了”
+
+2333</blockquote>
+蹭了一波超时空热度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过这也体现出我视频剧透的坏处了……
+
+*****
+
+####  frankhzf  
+##### 78#       发表于 2022-2-10 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来个天地创造吧，球球了
+
