@@ -15313,3 +15313,12 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 这是送上司人情巧克力</blockquote>
 暗兔比光兔好多了，最多也就是压榨，光兔可是直接会让你负资产的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空气蛹  
+##### 86980#       发表于 2022-2-10 23:39
+
+兰丸真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

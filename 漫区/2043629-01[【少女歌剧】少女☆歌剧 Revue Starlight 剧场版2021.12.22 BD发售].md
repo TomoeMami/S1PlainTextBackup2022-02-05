@@ -8833,3 +8833,26 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 虽然不现实，那我能不能期待下月中那外校手游舞台剧演完后宣布 ''飞鸽院为主轴，咸鱼馆跟边境线为辅'' 的剧场版动画/后续舞台剧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nh_zzz  
+##### 666#       发表于 2022-2-10 23:25
+
+会日文的可以留意一下这个，考究合集
+
+劇場版スタァライトの考察合同誌企画を立ち上げました！
+
+#舞台創造科3年B組卒業論文集
+
+<img src="https://img.saraba1st.com/forum/202202/10/232441l4v56qgqstvv55l7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-10 23:24 上传
+
+[https://docs.google.com/spreadsh ... 5UmgHXAM/edit#gid=0](https://docs.google.com/spreadsheets/d/1BBmWDFmcZyQEizrHUYsbuZYDFTboMeMmvXX5UmgHXAM/edit#gid=0)
+
