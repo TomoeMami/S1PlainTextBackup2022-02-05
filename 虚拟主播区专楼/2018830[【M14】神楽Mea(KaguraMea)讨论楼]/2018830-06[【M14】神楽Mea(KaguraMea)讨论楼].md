@@ -10588,3 +10588,12 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 这帽子，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mr.shelter  
+##### 8708#       发表于 2022-2-10 17:53
+
+卧槽，这我有点心动了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">想买
+
