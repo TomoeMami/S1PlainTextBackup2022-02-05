@@ -779,3 +779,23 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 
 这商法绝了，不主流出道就低人一头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 10565#       发表于 2022-2-10 17:16
+
+本来想趁郡郡和月之都在播审判之眼，我两个都看然后批判一下郡郡游戏实况力来着，看到现在发现其实郡除了打斗差点其他也姑且及格吧...
+
+主要是很敢说，配合剧情就莫名谐了起来，去到风俗店发现有店员名叫ココちゃん、マリンちゃん、かなえちゃん，爆笑后在评论的劝阻下选了剧情线的かなえ，选完还大喊出航，真的很走钢索<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 10566#       发表于 2022-2-10 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nrk和小千えぺまつり一队啊
+
+之前nrk裏垢泄露叫小千キャリーまんこ的事又可以大书特书了
+
