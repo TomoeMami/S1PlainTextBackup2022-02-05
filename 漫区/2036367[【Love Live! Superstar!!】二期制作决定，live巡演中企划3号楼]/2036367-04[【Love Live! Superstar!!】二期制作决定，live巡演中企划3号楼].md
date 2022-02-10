@@ -8843,3 +8843,29 @@ D06F82A3-BEF7-4807-B242-BD4D12A022EB.jpeg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  iuhehc  
+##### 5211#       发表于 2022-2-10 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626919&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-10 19:38</a>
+
+鲤鱼最后转了下卖票网站，明天就是live了。结果真的是b限了，我记得推特有个韩国鲤友，厨力惊人，专辑20张 ...</blockquote>
+韩团买专辑死忠都是这样买的，几十、百万的销量就很顶
+
+*****
+
+####  yevvet  
+##### 5212#       发表于 2022-2-10 19:52
+
+鲤鱼要是唱歌技巧上升就好了。最近听歌像她音质的歌手还是很多的，声音尖尖的，但是技巧很好转音什么都都超好听
+
+*****
+
+####  yevvet  
+##### 5213#       发表于 2022-2-10 19:55
+
+觉得ambition最好听。曲风和声线碰撞的感觉很新鲜。
+

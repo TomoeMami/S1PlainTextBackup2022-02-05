@@ -2571,3 +2571,18 @@ A和 ...</blockquote>
 方舟一战大家死光，卡兹王子内亚当救活当了亚当的跟班</blockquote>
 还以为能看大战。。结果。。。。 谢谢
 
+
+
+*****
+
+####  kiralzb  
+##### 185#       发表于 2022-2-10 19:50
+
+有生放送，监督热谈史莱姆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+土下座确认出场
+
+公主CV東山奈央
+
+阿比CV杉田
+

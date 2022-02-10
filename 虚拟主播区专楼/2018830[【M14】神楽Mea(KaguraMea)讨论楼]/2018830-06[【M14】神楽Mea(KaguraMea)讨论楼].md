@@ -10597,3 +10597,26 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 卧槽，这我有点心动了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">想买
 
+
+
+*****
+
+####  呓亘  
+##### 8709#       发表于 2022-2-10 19:59
+
+啊 老爱final live嘉宾名单上没阿咩...
+
+*****
+
+####  T_Hb  
+##### 8710#       发表于 2022-2-10 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不会以为会有吧
+
+*****
+
+####  古战场亡魂  
+##### 8711#       发表于 2022-2-10 20:02
+
+老爱临走前mea还是没能联动啊，送别出演也没能参加，作为绊爱铁粉是个遗憾啊。
+
