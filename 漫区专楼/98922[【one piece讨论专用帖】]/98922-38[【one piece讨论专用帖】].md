@@ -11836,3 +11836,17 @@ image.jpg
 类比一下，就好像火烧赤壁后的曹操，虽然很狼狈，但还是要安排他笑三次来显示他的心高气傲。最后一次被关羽伏击时总算没脾气了才装了把孙子。
 把黑胡子的行为换算过来，相当于曹操看见战船被火烧着了立马跪下求饶，被人放走了马上又躲在没有敌人的地方豪迈大笑，这种迎风倒的性格不是枭雄是小丑<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  584520184  
+##### 56439#       发表于 2022-2-10 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54622836&amp;ptid=98922" target="_blank">陶矢 发表于 2022-2-10 15:11</a>
+
+什么火云邪神，为求活无所不用其极的角色有很多，我看来黑胡子不是这种  
+
+没遇到黑暗果实就认命的 ...</blockquote>
+他们那群船员是什么好货吗？是因为理想和原则聚集在一起的吗？
+

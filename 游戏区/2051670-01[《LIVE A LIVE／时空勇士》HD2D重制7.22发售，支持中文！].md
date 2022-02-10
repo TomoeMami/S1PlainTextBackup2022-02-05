@@ -1102,3 +1102,16 @@ se的家底还是可以翻几十年的
 
 ns限定么，没有ps4/5版本么
 
+
+
+*****
+
+####  ff2077  
+##### 118#       发表于 2022-2-10 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54624129&amp;ptid=2051670" target="_blank">斯托雷加 发表于 2022-2-10 16:24</a>
+ns限定么，没有ps4/5版本么</blockquote>
+ign说是全平台的，但官网就只写了ns<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

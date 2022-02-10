@@ -10463,3 +10463,56 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 还真是苔总不拉就没舞元看，看来舞咩已经被消费的差不多了
 
+
+
+*****
+
+####  时间在我手中  
+##### 8697#       发表于 2022-2-10 16:56
+
+今年这人重心感觉基本都在VCP和一些其他的，但是我对VCP实在提不起啥劲就是了
+
+*****
+
+####  T_Hb  
+##### 8698#       发表于 2022-2-10 16:56
+
+目前是没啥意思的，等mv出来再说
+
+*****
+
+####  古战场亡魂  
+##### 8699#       发表于 2022-2-10 17:01
+
+没办法，对日综实在是不怎么感冒，感觉还是国情问题，笑点不同。
+
+之前看虹人吹主播上节目说什么企划鬼才，我的反应是就这？？现在依然是这个反应。
+
+明天要航天了，估摸着是水火箭吧，这企划有点费手机啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/10/165929apjvn4vvvpelhlpj.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220210165908961.jpg</strong> (86.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-10 16:59 上传
+
+*****
+
+####  T_Hb  
+##### 8700#       发表于 2022-2-10 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">✝升天✝
+
+
+
+*****
+
+####  璃絵和花瑠  
+##### 8701#       发表于 2022-2-10 17:04
+
+这下超天酱了<img src="https://p.sda1.dev/4/a3f1bf39d6df969ef7971f7450048842/796126839.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
