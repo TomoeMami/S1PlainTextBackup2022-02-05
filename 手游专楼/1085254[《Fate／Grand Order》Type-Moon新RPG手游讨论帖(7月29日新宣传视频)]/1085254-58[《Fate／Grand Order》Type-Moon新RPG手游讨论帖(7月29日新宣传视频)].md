@@ -15159,3 +15159,24 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 这么继续杠下去甚至可以说在fp这个问题上，跟没有任何人能证明蘑菇高中时代的旧剑跟fppv的旧剑是一个东西，近卫又不是阿菌的幼驯染
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86967#       发表于 2022-2-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54612047&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-10 00:33</a>
+
+这次情人节算是解释了为什么妖兰会喜欢上咕哒，因为她看见未来的她喜欢上了，所以从现在开始就喜欢了，算是 ...</blockquote>
+恋人和老婆是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86968#       发表于 2022-2-10 09:44
+
+光兔是拉着咕哒玩了几百天赌场赢翻了，然后输了倒欠兔子几百亿，为了还钱继续
+
+中途退出没巧克力
+
