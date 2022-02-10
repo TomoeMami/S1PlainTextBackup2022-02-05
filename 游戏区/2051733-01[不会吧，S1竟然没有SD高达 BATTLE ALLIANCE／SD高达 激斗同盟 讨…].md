@@ -705,3 +705,19 @@ DLC，季票，豪华版，限定版
 
 改机时候是全掉落图纸都刷了一遍
 
+
+
+*****
+
+####  kaolimadepi  
+##### 77#       发表于 2022-2-11 01:12
+
+我觉得这个更像SD高达扭蛋战记，演示里有正儿八经的BOSS战而不是拿玩家可用机体凑数。山东敢达的竞技化设定如瞄准地图敌人让PVE很无聊。
+
+*****
+
+####  bgmilk  
+##### 78#       发表于 2022-2-11 01:14
+
+   只想玩aoz，从来都没在单机act游戏里玩过aoz的机子，sd也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
