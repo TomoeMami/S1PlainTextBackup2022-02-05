@@ -738,3 +738,106 @@ ps时代的话，我可以为晶莹之露买单。关于那游戏我有一段不
 
 我昨天刚在三角帖子里说se这套hd2d技术业内领先怎么不量产，今天就有好消息了
 
+
+
+*****
+
+####  EigenVesper  
+##### 82#       发表于 2022-2-10 11:45
+
+多这么复刻几作sfc游戏吧，出了就买
+
+*****
+
+####  henryqxg  
+##### 83#       发表于 2022-2-10 11:47
+
+这宣传片最后肉村吼的那句配合经典bgm鸡皮疙瘩都起来了，不过还是ns独占啊，hd2d这几作全部都是ns限时独占啊
+
+*****
+
+####  Meltina  
+##### 84#       发表于 2022-2-10 11:48
+
+这游戏的SFC版本汉化情况和游戏介绍可以看我和糊鸭以前一起做的天幻专题
+
+过去S1有专区的，现在关了，不过文章我都基本搬过去天幻放着了
+
+[http://lal.ffsky.cn](http://lal.ffsky.cn)
+
+*****
+
+####  superchenxx01  
+##### 85#       发表于 2022-2-10 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54618864&amp;ptid=2051670" target="_blank">Meltina 发表于 2022-2-10 11:48</a>
+这游戏的SFC版本汉化情况和游戏介绍可以看我和糊鸭以前一起做的天幻专题
+
+过去S1有专区的，现在关了，不过文 ...</blockquote>
+膜拜大佬
+
+—— 来自 OPPO PEXM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  GMJ  
+##### 86#       发表于 2022-2-10 11:53
+
+这个八方引擎做游戏是不是利润很可观啊这腹泻一样的HD2D老作品复刻
+
+*****
+
+####  black199  
+##### 87#       发表于 2022-2-10 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614705&amp;ptid=2051670" target="_blank">mcq_2 发表于 2022-2-10 07:45</a>
+
+奇怪，我玩完了没什么感觉啊，谁反白说一下神在哪</blockquote>
+脑洞大
+
+*****
+
+####  Lunamos  
+##### 88#       发表于 2022-2-10 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54618864&amp;ptid=2051670" target="_blank">Meltina 发表于 2022-2-10 12:48</a>
+
+这游戏的SFC版本汉化情况和游戏介绍可以看我和糊鸭以前一起做的天幻专题
+
+过去S1有专区的，现在关了，不过文 ...</blockquote>
+S1专区还在吧，2016年还有人发帖
+[https://bbs.saraba1st.com/2b/forum-61-1.html](https://bbs.saraba1st.com/2b/forum-61-1.html)
+
+*****
+
+####  henryqxg  
+##### 89#       发表于 2022-2-10 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54618989&amp;ptid=2051670" target="_blank">GMJ 发表于 2022-02-10 11:53:54</a>
+这个八方引擎做游戏是不是利润很可观啊这腹泻一样的HD2D老作品复刻</blockquote>我昨天还说是便秘了你怎么就认为腹泻了
+
+八方过去这么多年，总共就出了八方手游和三角两作，现在加个dq3和lal，远远不够啊，这套技术业内天花板，之前的浪漫沙加还有bd2都没用
+bd2还是用的难看的粘土人，ff像素复刻版也没想到用hd2d，全都放弃了
+
+现在算是终于想通了吧，不过都是ns独占，老任可能给支持了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Meltina  
+##### 90#       发表于 2022-2-10 12:02
+
+是，可以通过连接进入，但首页没入口了，我默认是被关闭了，平时没人的。我建议大家有问题还在发在主游戏区。可恶的水狗每天就知道在微博发油腻猥琐的征婚。
+
+当年搞这个专区最大的成果就是启动了个汉化，虽然后半部分是在天幻完成的，但也是沿用了前半的成果。
+
+
+
+*****
+
+####  笔の海  
+##### 91#       发表于 2022-2-10 12:05
+
+hd2d这套真的很香<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">摩多摩多
+

@@ -8542,3 +8542,38 @@ Nako没事了</blockquote>
 
 无症状感染。。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> 稍微好点吧
 
+
+
+*****
+
+####  Enakina  
+##### 5186#       发表于 2022-2-10 11:47
+
+这段不该是虹4th排练期吗，这接触过的人，不敢想了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5187#       发表于 2022-2-10 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来岬那个公告上写的是疗养结束………………应该也有做PCR检测过了吧……
+
+*****
+
+####  优妮可  
+##### 5188#       发表于 2022-2-10 11:55
+
+应该是少歌交响乐，或者是和岩田组合那里出了问题。虹的应该还没开始吧
+
+*****
+
+####  Enakina  
+##### 5189#       发表于 2022-2-10 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54618886&amp;ptid=2036367" target="_blank">lj205 发表于 2022-02-10 11:49:06</a>
+说起来岬那个公告上写的是疗养结束………………应该也有做PCR检测过了吧…… ...</blockquote>我也想吐槽了，就不能写个核酸阴性吗，非搞的棱模两可的，看的人放心了但没完全放心
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

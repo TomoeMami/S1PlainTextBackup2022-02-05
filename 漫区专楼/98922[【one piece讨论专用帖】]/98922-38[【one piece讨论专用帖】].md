@@ -11631,3 +11631,18 @@ image.jpg
 
 索隆可以和鹰眼单挑，最后黑胡子出来抢龙的果实，救出萨博后又被红狗嘴炮去送，五皇漏气被打晕，又狗3年， 红发又出面子果实，剧情又一个轮回？
 
+
+
+*****
+
+####  zxzx7753  
+##### 56419#       发表于 2022-2-10 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608189&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-2-9 18:50</a>
+补充情报：
+罗阻止大妈夺走所有人寿命的方法是用柯拉松（有回忆中的一格脸）用过的“凪（静音）”消除了大 ...</blockquote>
+是比较垃圾  但对群体时比较有效
+还有可能克白胡子的震震果实
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
