@@ -2617,3 +2617,34 @@ A和 ...</blockquote>
 你是看到哪里了？DS打天使和恶魔的只有方舟战4年后吧？那里据说是因为换刊了所以停掉了原来的地狱篇，直 ...</blockquote>
 那个巨乳处女恶魔大元帅，和那7个恶魔王比，哪边的级别更高啊？恶魔王更高么？
 
+
+
+*****
+
+####  gpx234mqx  
+##### 188#       发表于 2022-2-10 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54627916&amp;ptid=2050560" target="_blank">未向heart 发表于 2022-2-10 20:35</a>
+
+那个巨乳处女恶魔大元帅，和那7个恶魔王比，哪边的级别更高啊？恶魔王更高么？ ...</blockquote>
+恶魔大元帅本来是其他神话的土著神
+
+要比不带犹大之痛的七魔王强啊
+
+*****
+
+####  gpx234mqx  
+##### 189#       发表于 2022-2-10 21:29
+
+ 本帖最后由 gpx234mqx 于 2022-2-10 21:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54627146&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-10 19:50</a>
+
+有生放送，监督热谈史莱姆
+
+土下座确认出场
+
+公主CV東山奈央</blockquote>
+铃木土下座右卫门好棒<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+龙与地下城食屎啦<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
