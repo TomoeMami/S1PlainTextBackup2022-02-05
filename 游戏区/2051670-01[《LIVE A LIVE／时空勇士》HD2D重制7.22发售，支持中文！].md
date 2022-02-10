@@ -865,3 +865,21 @@ Square啊···你会弄就多弄点啊 <img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="http://5b0988e595225.cdn.sohucs.com/images/20190604/c2dd903028024bb7b7a43139e8ea21a9.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ff2077  
+##### 95#       发表于 2022-2-10 12:50
+
+乐了，nga已经开始吵中世篇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  时空之旅  
+##### 96#       发表于 2022-2-10 12:52
+
+这游戏百度的词条还是我当年建的。。。
+
