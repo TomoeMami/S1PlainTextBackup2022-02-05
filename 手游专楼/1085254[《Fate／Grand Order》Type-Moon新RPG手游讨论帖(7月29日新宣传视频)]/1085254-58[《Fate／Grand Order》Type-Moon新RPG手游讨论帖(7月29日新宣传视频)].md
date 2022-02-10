@@ -15257,3 +15257,14 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 首先是这个三破，真的一股子美女你谁啊的生草感，怎么想都觉得自己抽错了人</blockquote>
 巴姐有个技能语音念得贼快，我一开始还以为是加速导致的，后来发现别人都是正常语速...
 
+
+
+*****
+
+####  khxooo  
+##### 86975#       发表于 2022-2-10 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54618140&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-2-10 11:13</a>
+这玩法，战斗司书第一卷秒了233</blockquote>
+不是人人都有那水平的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

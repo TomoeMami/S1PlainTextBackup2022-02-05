@@ -10284,3 +10284,19 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">扫楼视频不是因为里面有hololive才不发的吗
 
+
+
+*****
+
+####  掉头学姐  
+##### 8679#       发表于 2022-2-10 15:05
+
+以后斗鱼顶流来新手村变多，瓜会越来越多的吧，咩还是做个小主播就这样也挺好
+
+*****
+
+####  2111X  
+##### 8680#       发表于 2022-2-10 15:21
+
+什么冲蝗情报组遗风，一眼贴贴人原创故事。
+
