@@ -971,3 +971,12 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202202/10/213616l5bnj8xntgatge75.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  m4suzu  
+##### 97#       发表于 2022-2-11 06:35
+
+虽然玩梗玲玲军里面都是猫猫露，但是v8自带的好战切割踩一捧一风气会让粉丝群体间不断分化是真的，毕竟扮演温暖大家庭远没有毒唯大战来的有乐子，不过吸血完就切割也算是典中典了
+
