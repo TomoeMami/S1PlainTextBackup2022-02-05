@@ -8869,3 +8869,13 @@ D06F82A3-BEF7-4807-B242-BD4D12A022EB.jpeg
 
 觉得ambition最好听。曲风和声线碰撞的感觉很新鲜。
 
+
+
+*****
+
+####  lj205  
+##### 5214#       发表于 2022-2-10 20:10
+
+真有爱肯定有办法，咱们不都这么过来的吗？
+现在就比较担心大雪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
