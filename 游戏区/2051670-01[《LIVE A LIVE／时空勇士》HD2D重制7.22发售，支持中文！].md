@@ -1148,3 +1148,13 @@ ign说是全平台的，但官网就只写了ns<img src="https://static.saraba1s
 
 还有《四狂神传说2》，这个也是战斗系统太单调了，但解谜方面真是太好玩了。
 
+
+
+*****
+
+####  Kojimaru  
+##### 121#       发表于 2022-2-10 20:36
+
+几个人里最喜欢忍者和牛仔
+全平台的话就等等了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

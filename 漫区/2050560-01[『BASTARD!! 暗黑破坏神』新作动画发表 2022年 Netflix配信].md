@@ -2605,3 +2605,15 @@ A和 ...</blockquote>
 
 シーラ・トェル・メタ＝リカーナ：東山奈央
 
+
+
+*****
+
+####  未向heart  
+##### 187#       发表于 2022-2-10 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608179&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-9 18:49</a>
+
+你是看到哪里了？DS打天使和恶魔的只有方舟战4年后吧？那里据说是因为换刊了所以停掉了原来的地狱篇，直 ...</blockquote>
+那个巨乳处女恶魔大元帅，和那7个恶魔王比，哪边的级别更高啊？恶魔王更高么？
+

@@ -8530,3 +8530,15 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 
 说起来思思还没搬过去吗
 
+
+
+*****
+
+####  rgauss  
+##### 5396#       发表于 2022-2-10 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626943&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-2-10 19:39</a>
+说起来思思还没搬过去吗</blockquote>
+不在一个房子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你没关注贴吧前几天烂炒么
+

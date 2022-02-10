@@ -884,3 +884,15 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 
 郡道的审判之眼还是#3东哥出来后那段长时间BL发情胡言乱语吓跑的人比较多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 10574#       发表于 2022-2-10 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54627254&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-2-10 19:56</a>
+
+郡道的审判之眼还是#3东哥出来后那段长时间BL发情胡言乱语吓跑的人比较多 ...</blockquote>
+羽村哥那段雌堕发言我都看傻了，我郡不发疯太为难她了啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">...
+
