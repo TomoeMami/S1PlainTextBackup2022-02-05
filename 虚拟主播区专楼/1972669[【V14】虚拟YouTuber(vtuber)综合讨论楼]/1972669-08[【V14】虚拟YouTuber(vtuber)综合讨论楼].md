@@ -828,3 +828,39 @@ Syl，话说apex12赛季新模式真不错，玩了两局有点意思，排除�
 
 这1809人是什么形式参加？短片？
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10570#       发表于 2022-2-10 19:08
+
+写的挺清楚的 <blockquote>“hello, world 2022″出演者・参加者を大募集！
+
+今回のライブ演出は多数のバーチャルタレントが出演するようなライブ演出を目指しております。ライブへの出演時間や演出、モーションに関しましては当イベント制作チームに一任して頂く形になりますので、予めご了承ください。
+
+コンセプトアート：
+
+<img src="https://img.saraba1st.com/forum/202202/10/190525s3gcj78ojh9u8cwe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>「Kizuna AI The Last Live “hello, world 2022”」.jpeg</strong> (591.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-10 19:05 上传
+
+①3Dモデルでのご参加
+
+内容：ライブ本編のステージ上にご出演頂きます。
+
+対象：3Dモデルをお持ちの方で当社指定フォーマットにて、モデルデータの提供が可能な方
+
+※3Dモデルデータの納品形式・詳細につきましては、応募フォームに記載の内容をご確認ください</blockquote>
+
+*****
+
+####  滑稽Captain  
+##### 10571#       发表于 2022-2-10 19:23
+
+你球一箱怎么一个人都没
+
