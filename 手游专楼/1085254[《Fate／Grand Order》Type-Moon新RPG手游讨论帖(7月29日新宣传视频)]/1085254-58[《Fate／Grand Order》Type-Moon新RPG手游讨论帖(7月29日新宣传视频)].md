@@ -15277,3 +15277,12 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只套回避不套无敌就是为了能让大狗必中是吧
 
+
+
+*****
+
+####  khxooo  
+##### 86977#       发表于 2022-2-10 16:11
+
+芝诺比亚的剧情有点刺激啊，完全就是未亡人想找第二春却碍于情面不敢明说，随便找个借口给自己的行为找正确性，配合那卡面真的是好的不能再好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

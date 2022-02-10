@@ -1036,3 +1036,69 @@ Dark Half難歸難，但是真的好玩。這種真能體驗魔王滅世的game�
 这宣传片最后肉村吼的那句配合经典bgm鸡皮疙瘩都起来了，不过还是ns独占啊，hd2d这几作全部都是ns限时独占 ...</blockquote>
 最後吼的不是中村。吼的是反水基友的知名迷台詞。
 
+
+
+*****
+
+####  TheOccuria  
+##### 111#       发表于 2022-2-10 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54621435&amp;ptid=2051670" target="_blank">henryqxg 发表于 2022-2-10 13:49</a>
+
+ピクセルリマスター版『FF6』2月24日発売決定。差距太大了，不过我觉得应该不会再炒了，倒是可以期待把dq ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这东西可以慢慢来嘛，接下来先hd2d dq
+
+等这个像素合集大家差不多都忘了的时候再来ff的hd2d
+
+se的家底还是可以翻几十年的
+
+*****
+
+####  asergh0630rx  
+##### 112#       发表于 2022-2-10 16:13
+
+这个是不是吊打八方？
+
+*****
+
+####  yao  
+##### 113#       发表于 2022-2-10 16:16
+
+用这套重制旧作工作量也不小的，SE最想看到的还是类似FF789HD这种官方模拟器增强多边形的重制多多捞金吧。
+
+*****
+
+####  Winder07  
+##### 114#       发表于 2022-2-10 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54623993&amp;ptid=2051670" target="_blank">yao 发表于 2022-2-10 16:16</a>
+
+用这套重制旧作工作量也不小的，SE最想看到的还是类似FF789HD这种官方模拟器增强多边形的重制多多捞金吧。 ...</blockquote>
+这套不就是3D渲染模拟出2D效果的，做完以后，后续就可以直接增强卖了
+
+*****
+
+####  cloudchily  
+##### 115#       发表于 2022-2-10 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54620663&amp;ptid=2051670" target="_blank">电磁炮233 发表于 2022-2-10 13:11</a>
+
+我强烈怀疑现在这个ntr当乐子随口说的时代，中式篇还能破防几个宅宅
+
+—— 来自 S1Fun ...</blockquote>
+你错了，其实张口闭口NTR的才是最脆弱的人，他们愿意看到的只是那种没有切肤之痛的NTR, 而对于塑造得好的角色和故事来说，也就是说在更“严肃”的文字里，他们是无法接受NTR的
+
+*****
+
+####  topia  
+##### 116#       发表于 2022-2-10 16:23
+
+不知道具体内容会不会有修改<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯托雷加  
+##### 117#       发表于 2022-2-10 16:24
+
+ns限定么，没有ps4/5版本么
+
