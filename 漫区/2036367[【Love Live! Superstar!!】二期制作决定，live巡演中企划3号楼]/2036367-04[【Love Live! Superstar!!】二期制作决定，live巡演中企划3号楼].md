@@ -8821,3 +8821,25 @@ D06F82A3-BEF7-4807-B242-BD4D12A022EB.jpeg
 
 破站这goods怎么也不一次上完，还挤牙膏一样
 
+
+
+*****
+
+####  ayangsu  
+##### 5209#       发表于 2022-2-10 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626277&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-10 18:52</a>
+破站这goods怎么也不一次上完，还挤牙膏一样</blockquote>
+最搞笑的是袋子上了又下架了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 5210#       发表于 2022-2-10 19:38
+
+鲤鱼最后转了下卖票网站，明天就是live了。结果真的是b限了，我记得推特有个韩国鲤友，厨力惊人，专辑20张的买，可惜了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

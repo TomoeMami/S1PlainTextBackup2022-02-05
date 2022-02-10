@@ -907,3 +907,42 @@ k子都和小古联姻了<img src="https://static.saraba1st.com/image/smiley/fac
 训！</blockquote>
 所以O_O到底算是负面梗还是普通梗？
 
+
+
+*****
+
+####  请问有猪扒饭吗  
+##### 91#       发表于 2022-2-10 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626725&amp;ptid=2050895" target="_blank">苏格兰奶牛 发表于 2022-2-10 19:25</a>
+
+所以O_O到底算是负面梗还是普通梗？</blockquote>
+玲子自己不在意那就直接结构成普通梗，参考ybb
+
+*****
+
+####  人別離苦  
+##### 92#       发表于 2022-2-10 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626666&amp;ptid=2050895" target="_blank">Vneet 发表于 2022-2-10 19:21</a>
+建议用⊙_⊙，今晚几点？</blockquote>
+8点吧👁️_👁️
+
+*****
+
+####  苏格兰奶牛  
+##### 93#       发表于 2022-2-10 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626764&amp;ptid=2050895" target="_blank">请问有猪扒饭吗 发表于 2022-2-10 19:28</a>
+
+玲子自己不在意那就直接结构成普通梗，参考ybb</blockquote>
+对大部分普通管人观众（非v87）来说呢？
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">简单了解了一下这个梗的由来，我个人是感觉无所谓，不过不知道其他人是怎么想的
+
+*****
+
+####  Vneet  
+##### 94#       发表于 2022-2-10 19:33
+
+实话这emoji看久了的确有一丢丢渗人的⊙_⊙
+
