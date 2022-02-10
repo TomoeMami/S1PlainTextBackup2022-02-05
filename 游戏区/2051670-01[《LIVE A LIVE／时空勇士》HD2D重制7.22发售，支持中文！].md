@@ -903,3 +903,52 @@ Square啊···你会弄就多弄点啊 <img src="https://static.saraba1st.com/i
 
 我记得s1的汉化发布还是猫踢发的吧，隔了那么久的游戏还能搞出来汉化组真是功德无量
 
+
+
+*****
+
+####  Vladimeow  
+##### 99#       发表于 2022-2-10 13:26
+
+只要是HD2D我都吃<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 100#       发表于 2022-2-10 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54614274&amp;ptid=2051670" target="_blank">四级过了 发表于 2022-2-10 07:06</a>
+se hd-2d算是找到财富密码了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我最好把老FF全部HD2D一遍，可惜SE摆烂了
+
+*****
+
+####  showyourass  
+##### 101#       发表于 2022-2-10 13:33
+
+今天看到有人在B站给我留言：“[doge]这个游戏出重制版了，UP等你回来更新重制版”，上论坛一看果然有讨论贴。
+
+我曾经也做过这个游戏的视频（[https://www.bilibili.com/video/BV14E411t7mn](https://www.bilibili.com/video/BV14E411t7mn)），当时本来打算做完全部篇章，结果巧的是更新完第一个视频后没多久，lunamos更新了这个游戏的全部视频，我感觉就没什么更新的必要了。。。。
+
+期待《Live a Live》重制版多点剧情和玩法上的小惊喜，毕竟从宣传视频上来看，剧情和玩法似乎还是老一套，不过对我个人来讲，为了游戏音乐还是值得再回味一遍的。
+
+除了我头像这首《GO!GO!ブリキ大王!!》很好听之外，强推这首战斗曲串烧《Battlissimo》[https://music.163.com/song?id=31140124&amp;userid=336552658](https://music.163.com/song?id=31140124&amp;userid=336552658)
+
+我经常戴着耳机走路的时候听这首，沉浸在自我想象的装逼愉悦之中，可以分泌一些快乐的激素，感觉人也更年轻充满了活力。
+
+*****
+
+####  ff2077  
+##### 102#       发表于 2022-2-10 13:34
+
+这叫一鱼多吃，过几年再用hd2d炒一遍，1-6 起码来个180刀吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  あきとし  
+##### 103#       发表于 2022-2-10 13:39
+
+圣龙战记可以来一波么？
+

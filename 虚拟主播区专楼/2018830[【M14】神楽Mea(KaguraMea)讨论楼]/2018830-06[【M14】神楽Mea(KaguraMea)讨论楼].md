@@ -10177,3 +10177,14 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 查看全部评分
 
+
+
+*****
+
+####  往世雷书  
+##### 8670#       发表于 2022-2-10 13:43
+
+别人是企业势，庄司是个人势，差距是根本性的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
