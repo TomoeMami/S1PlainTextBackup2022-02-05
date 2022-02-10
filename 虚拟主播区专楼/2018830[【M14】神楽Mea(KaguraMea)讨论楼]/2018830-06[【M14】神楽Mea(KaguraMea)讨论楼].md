@@ -10837,3 +10837,39 @@ lol其实不亏，现在暂时也不打了，没事能把白金当梗玩玩。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">差不多得了，刻意营业是看着真没意思
 
+
+
+*****
+
+####  thisisaspider  
+##### 8736#       发表于 2022-2-10 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54630385&amp;ptid=2018830" target="_blank">aisakahammer 发表于 2022-2-10 22:54</a>
+
+夸皇这种单排上大师的游戏大师，怎么是菠萝这种丧家之犬可以碰瓷的，也就连体人老想着两边拉上关系。 ...</blockquote>
+阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！阿夸最强！
+
+*****
+
+####  璃絵和花瑠  
+##### 8737#       发表于 2022-2-10 23:15
+
+ 本帖最后由 璃絵和花瑠 于 2022-2-10 23:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=5462018&amp;ptid=205792" target="_blank">IDIDID 发表于 2019-8-19 06:32</a>
+是我喜欢的车轱辘话</blockquote>
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  离心  
+##### 8738#       发表于 2022-2-10 23:16
+
+所以说v圈就是一个圈，旧事总能翻新
+
+*****
+
+####  T_Hb  
+##### 8739#       发表于 2022-2-10 23:17
+
+我的评价是 晦气
+

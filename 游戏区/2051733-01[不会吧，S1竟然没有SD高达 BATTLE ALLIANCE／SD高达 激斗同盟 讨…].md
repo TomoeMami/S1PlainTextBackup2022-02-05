@@ -650,3 +650,16 @@ DLC，季票，豪华版，限定版
 —— 来自 HUAWEI S ...</blockquote>
 其实说简单加面板也不对，早期那些比如新HK之类的图困难以上的出怪点和顺序确实不一样了，不过难度根本不在这里，每个杂兵都硬得和花岗岩一样还漫山遍野的，就离谱好吧…后来那些原作剧情缝合任务稍微好一些，至少困难难度是可以想办法打的
 
+
+
+*****
+
+####  kusanagi9999  
+##### 72#       发表于 2022-2-10 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54621799&amp;ptid=2051733" target="_blank">bgmilk 发表于 2022-2-10 14:07</a>
+最有宇宙战感觉的是ps3的高达uc 没有之一。</blockquote>
+高达uc玩起来太他娘费劲了，肝的要死，而且经常拼刀，打一把下来都要缓一会手指
+
+—— 来自 vivo V1809A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
