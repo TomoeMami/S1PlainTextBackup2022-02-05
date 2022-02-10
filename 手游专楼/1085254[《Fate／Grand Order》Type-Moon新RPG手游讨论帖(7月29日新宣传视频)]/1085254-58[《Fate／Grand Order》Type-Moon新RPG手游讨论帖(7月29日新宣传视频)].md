@@ -15180,3 +15180,32 @@ BX登场那时候是被评价成五星耻辱的，慢慢加强回来的
 
 中途退出没巧克力
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86969#       发表于 2022-2-10 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54610290&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-9 21:59</a>
+
+继梵高后，妖兰和冲田都爬上了咕哒的床了，夜袭三人组到底行不行啊</blockquote>
+三人组不是在床底下吗
+
+*****
+
+####  UNISONIA  
+##### 86970#       发表于 2022-2-10 09:58
+
+ 本帖最后由 UNISONIA 于 2022-2-10 10:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54615872&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-10 09:21</a>
+
+你要杠这个那我只能说那聊个jb</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能算杠吗我就是槽一下
+
+prototype和旧fate确定不是一个东西，武内的采访部分能直接看出来，15周年展上也有相关的描述（虽然没说的很明白）
+
+prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多新设定，而且在这玩意到底是不是旧fate的问题上闪烁其词，阿菌也从来没有提过旧版里有FP那些“新增内容”
+
+另，旧fate与其说是“有大纲”，不如说是“仅有大纲”。正文应该除了序章以外都没有完成
+
