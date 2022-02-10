@@ -11674,3 +11674,39 @@ image.jpg
 不过讲真，罗这个角色我是很喜欢的，开挂就开挂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 另外能看到海贼论武饭圈破防也挺好玩
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 56423#       发表于 2022-2-10 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54608189&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-2-9 18:50</a>
+补充情报：
+罗阻止大妈夺走所有人寿命的方法是用柯拉松（有回忆中的一格脸）用过的“凪（静音）”消除了大 ...</blockquote>
+凯撒的瓦斯果实可以造真空，也能达成静音效果
+所以克拉松果实确实是垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  久保由利香  
+##### 56424#       发表于 2022-2-10 14:08
+
+罗我之前就觉得很强，room太夸张了，现在都觉醒了有这表现也不奇怪吧
+
+*****
+
+####  久保由利香  
+##### 56425#       发表于 2022-2-10 14:09
+
+克拉松最重要还是当间谍吧，隐秘性第一
+
+*****
+
+####  klzxs  
+##### 56426#       发表于 2022-2-10 14:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说看图透，索隆真被砍了?
+

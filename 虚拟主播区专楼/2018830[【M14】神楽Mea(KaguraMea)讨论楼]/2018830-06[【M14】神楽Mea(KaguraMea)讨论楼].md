@@ -10243,3 +10243,28 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 所以啥乐子啊，来个传送门看看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 8675#       发表于 2022-2-10 14:03
+
+他那话就很怪，bls冠军有演唱会是2019比赛开始前就定下来的，别说影响卖票，就是一张票都卖不出去也得照办。而且11.21当天主播就位主持人就位线下观众就位，突然因为器材事故推迟一个月，器材场地负责人是b站日本分部找的，要说被背刺也是庄司被背刺，b站叫哪门子屈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  璃絵和花瑠  
+##### 8676#       发表于 2022-2-10 14:04
+
+ 本帖最后由 璃絵和花瑠 于 2022-2-10 14:21 编辑 
+
+不对，那个说的应该是当时准备的节目，编辑了
+不过确实和当时和后来的情况对上了
+
+说起来你麻当时好像是被平带导演，瓶皇和上帝之鹰还是谁连踩了，真几把魔幻。<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
