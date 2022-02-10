@@ -10300,3 +10300,67 @@ favorite油管直播间<img src="https://static.saraba1st.com/image/smiley/face2
 
 什么冲蝗情报组遗风，一眼贴贴人原创故事。
 
+
+
+*****
+
+####  黒長直姫  
+##### 8681#       发表于 2022-2-10 15:30
+
+主要还是气mea舔我
+
+*****
+
+####  2014720  
+##### 8682#       发表于 2022-2-10 15:31
+
+ 本帖最后由 2014720 于 2022-2-10 15:37 编辑 
+
+什么样的故事会都不如你楼圣经好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/85d06acc3dd86bd400fb430fd618a103/IMG_CMP_169719824.jpeg" referrerpolicy="no-referrer">
+
+当然平带导演这种自家演唱会出事了还要仗着自己身份下场嘲讽粉丝的，后来又把这种事当自己特点的玩意，真是看两眼都觉得浪费时间
+
+*****
+
+####  呓亘  
+##### 8683#       发表于 2022-2-10 15:33
+
+这个真不真还不一定呢吧……
+
+*****
+
+####  ashero  
+##### 8684#       发表于 2022-2-10 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54622317&amp;ptid=2018830" target="_blank">gongge666 发表于 2022-2-10 14:38</a>
+记得当时有说法，B站内部天狗也是分mea毒唯和meaqua贴贴两种的，举办演唱会的是mea毒唯这伙人。鬼知道mea突 ...</blockquote>
+删推号时间不到几小时就恢复了 一眼假
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aisakahammer  
+##### 8685#       发表于 2022-2-10 15:36
+
+又不是什么死人 天天某某某的   名字都不敢提的屏蔽词么，晦气
+
+*****
+
+####  往世雷书  
+##### 8686#       发表于 2022-2-10 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54623252&amp;ptid=2018830" target="_blank">2014720 发表于 2022-2-10 15:31</a>
+什么样的故事会都不如你楼圣经好吧</blockquote>
+**被狗日了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  59268416  
+##### 8687#       发表于 2022-2-10 15:38
+
+确实，没事我还去看圣皇上大师<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -8676,3 +8676,16 @@ D06F82A3-BEF7-4807-B242-BD4D12A022EB.jpeg
 第2话 「看板娘はかのん、看板フクロウはマンマルデス！ ...</blockquote>
 这个烂活玩第三遍了
 
+
+
+*****
+
+####  nufawneafg  
+##### 5196#       发表于 2022-2-10 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54621153&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-2-10 13:36</a>
+『ちょこっとリエラ～Liella!ワゴンカフェ！編～』
+
+第2话 「看板娘はかのん、看板フクロウはマンマルデス！ ...</blockquote>
+这也要迫害我堇<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
