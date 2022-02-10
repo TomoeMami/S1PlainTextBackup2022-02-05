@@ -1180,3 +1180,12 @@ ign说是全平台的，但官网就只写了ns<img src="https://static.saraba1s
 
 —— 来自 samsung SM-T220, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  取名真是难  
+##### 124#       发表于 2022-2-11 00:55
+
+se 你做的好 你做的好啊
+

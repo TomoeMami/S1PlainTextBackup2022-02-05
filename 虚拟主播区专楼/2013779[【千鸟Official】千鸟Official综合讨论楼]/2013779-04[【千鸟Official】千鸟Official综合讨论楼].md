@@ -8712,3 +8712,40 @@ suki
 
 什么母女合唱<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 5416#       发表于 2022-2-11 00:47
+
+还在播 明天不上班的吗
+
+*****
+
+####  袜子  
+##### 5417#       发表于 2022-2-11 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">麻了，我到家才知道我的已经过了，等录播了
+
+*****
+
+####  IDIDIDID  
+##### 5418#       发表于 2022-2-11 00:52
+
+文静开个皮套人危机公关收费班会不会效益比自己直播要好，其他厂妹真不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 5419#       发表于 2022-2-11 00:56
+
+我只能说文静的版本开始了，现在V圈战国纷飞，各个都是高筑墙，文静直播间随便聊真是太爽了
+
+*****
+
+####  灰色的狐狸  
+##### 5420#       发表于 2022-2-11 01:03
+
+锐评来了锐评来了！
+
