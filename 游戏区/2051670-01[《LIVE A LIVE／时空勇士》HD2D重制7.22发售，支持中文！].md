@@ -1169,3 +1169,14 @@ ign说是全平台的，但官网就只写了ns<img src="https://static.saraba1s
 
 唉，虽然剧情方面对我来说已经完全没有了未知感<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2082082012  
+##### 123#       发表于 2022-2-11 00:36
+
+这几张插画真的好看<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/4/2f3d8b201c76787a3e58bc8d35b61528/IMG_CMP_79896172.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-T220, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
