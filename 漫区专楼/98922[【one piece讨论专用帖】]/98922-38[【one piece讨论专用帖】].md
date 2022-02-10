@@ -11610,3 +11610,24 @@ image.jpg
 
 手术果实真名可能就是空间果实
 
+
+
+*****
+
+####  arcturus  
+##### 56417#       发表于 2022-2-10 11:24
+
+手术果实就是高维空间果实，手法都是从四维空间进入三维空间进行任意操作，降维打击，觉醒后可以发二向箔<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  传说中的小鱼  
+##### 56418#       发表于 2022-2-10 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54612576&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-2-10 01:28</a>
+
+烧烧果实的真名其实是坑比果实，萨博也是个铁坑货，没有他革命军的大本营也不会寄掉 ...</blockquote>
+之后剧情是把萨博抓去行刑，革命军全体去救，路飞救出大监狱的可爱多，大妈和明哥，一起冲击海军本部
+
+索隆可以和鹰眼单挑，最后黑胡子出来抢龙的果实，救出萨博后又被红狗嘴炮去送，五皇漏气被打晕，又狗3年， 红发又出面子果实，剧情又一个轮回？
+
