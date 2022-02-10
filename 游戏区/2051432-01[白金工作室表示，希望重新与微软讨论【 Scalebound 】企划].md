@@ -735,3 +735,17 @@ BN是他们魂系列，环的全球发行商（除了日本，是FS自己发行�
 
 我记得看到那个实机演示，土爆了，男主耳机挂在脖子上，高潮了一个特写，男主把耳机戴上rock n roll
 
+
+
+*****
+
+####  钱坤一  
+##### 76#       发表于 2022-2-10 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54611033&amp;ptid=2051432" target="_blank">Firvox 发表于 2022-2-9 23:05</a>
+
+好奇横尾工作时也戴那个头套吗</blockquote>
+那肯定不戴
+
+戴头套说了只是应对外界媒体和公共场合宣传
+
