@@ -2648,3 +2648,17 @@ A和 ...</blockquote>
 
 龙与地下城食屎啦<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  y2w80  
+##### 190#       发表于 2022-2-10 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54628777&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-10 21:27</a>
+
+恶魔大元帅本来是其他神话的土著神
+
+要比不带犹大之痛的七魔王强啊</blockquote>
+大元帅也是天使吧？不然怎么会使路西法的大招烈光流星乱舞？
+

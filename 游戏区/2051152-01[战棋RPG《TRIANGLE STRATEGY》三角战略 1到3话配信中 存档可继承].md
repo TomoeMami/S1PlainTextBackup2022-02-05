@@ -685,3 +685,15 @@ BWS
 我看有些试玩视频貌似可以战斗时全程在所有人身上显示行动顺序的数字，这个怎么按出来？我自己玩只有光标移 ...</blockquote>
 记得是按左摇杆
 
+
+
+*****
+
+####  thez  
+##### 70#       发表于 2022-2-10 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54628830&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-2-10 21:30</a>
+
+记得是按左摇杆</blockquote>
+谢谢
+

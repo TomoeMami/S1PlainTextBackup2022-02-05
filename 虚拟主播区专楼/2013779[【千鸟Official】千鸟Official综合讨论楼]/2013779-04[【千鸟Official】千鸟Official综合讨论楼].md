@@ -8560,3 +8560,55 @@ spade怎么不是合唱<img src="https://static.saraba1st.com/image/smiley/face2
 
 有段时间没看了，艾队一踢四分居什么情况😰
 
+
+
+*****
+
+####  rgauss  
+##### 5399#       发表于 2022-2-10 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54628560&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-2-10 21:14</a>
+
+有段时间没看了，艾队一踢四分居什么情况😰</blockquote>
+艾队在搬家时候没有一起搬，然后请假回家，回来后仍然没住在一起，这时候就有人问运营，运营就回“由于作息差，并没有住在一起，但住的也很近，是协商的结果。”
+
+*****
+
+####  IDIDIDID  
+##### 5400#       发表于 2022-2-10 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54629084&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-2-10 21:45</a>
+
+艾队在搬家时候没有一起搬，然后请假回家，回来后仍然没住在一起，这时候就有人问运营，运营就回“由于作 ...</blockquote>
+烂炒一下她不会真是站cj一派的吧
+
+
+
+*****
+
+####  人民de救星  
+##### 5401#       发表于 2022-2-10 21:54
+
+哎呀，滑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sjbssd  
+##### 5402#       发表于 2022-2-10 22:01
+
+怎么还直播间阴阳怪气其他幼儿V的，文静属实网络巨魔了
+
+*****
+
+####  灰色的狐狸  
+##### 5403#       发表于 2022-2-10 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54627894&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-2-10 20:34</a>
+
+不在一个房子
+
+你没关注贴吧前几天烂炒么</blockquote>
+不看贴吧的哇
+
