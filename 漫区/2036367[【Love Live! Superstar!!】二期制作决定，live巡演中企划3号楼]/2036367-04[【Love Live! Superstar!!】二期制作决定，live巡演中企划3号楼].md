@@ -10741,3 +10741,95 @@ CD感觉没现场带劲啊，还是现场版嗨一点
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  普之舜舜  
+##### 5399#       发表于 2022-2-11 23:45
+
+我在整理资源，之前抓取了原直播源，还有obs录制了一下，可惜obs没设置好，没录制声音来，
+
+视频源是flv格式的，播放起来有点问题，用小丸工具箱压制重新上传了下
+
+*****
+
+####  Enakina  
+##### 5400#       发表于 2022-2-11 23:47
+
+又看了遍鲤鱼几首歌的live，这才是一场精彩的live水平啊，同时更让我觉得星团那1st太拉了，那打光，镜头，特效，完全是学校文化演出的感觉，ll你究竟把赚的钱都花到哪里去了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  lj205  
+##### 5401#       发表于 2022-2-11 23:47
+
+ 本帖最后由 lj205 于 2022-2-11 23:51 编辑 
+
+今天这个舞完全学不来，最后只记得搓麻动作
+
+*****
+
+####  普之舜舜  
+##### 5402#       发表于 2022-2-11 23:52
+
+ 本帖最后由 普之舜舜 于 2022-2-12 00:00 编辑 
+
+在回顾考虑要不要把弹幕版本发出来，不过好像弹幕不是好友好
+
+<img src="https://img.saraba1st.com/forum/202202/11/234805uka2giihjihkqjkh.jpg" referrerpolicy="no-referrer">
+
+<strong>弹幕3.jpg</strong> (176.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 23:48 上传
+
+<strong>这个七海娜娜米我记得好像是国v，听视频好像有个伴舞叫娜娜米，但也不至于满屏吧？</strong><img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"><strong>看起来好像弹幕在撕逼，不过什么耳机，什么公海有点听不懂了</strong>
+
+<img src="https://img.saraba1st.com/forum/202202/11/234946ti58i5y8wvqzg6ny.jpg" referrerpolicy="no-referrer">
+
+<strong>弹幕4.jpg</strong> (149.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 23:49 上传
+
+<strong>这个米亚店主是之前s1那个人吧？那时候来楼里大闹一顿了</strong>
+
+<img src="https://img.saraba1st.com/forum/202202/11/235127o3hmav0p5vzxhape.jpg" referrerpolicy="no-referrer">
+
+<strong>弹幕22.jpg</strong> (103.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 23:51 上传
+
+<strong>还有这个鲤鱼姐不喜欢的梗还在玩呀？</strong><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"><strong>梗小鬼和警察又在撕逼</strong>
+
+<img src="https://img.saraba1st.com/forum/202202/11/235201cgfu2464wfqkfhgq.jpg" referrerpolicy="no-referrer">
+
+<strong>弹幕图片1.jpg</strong> (144.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 23:52 上传
+
+嗯，好像这样的弹幕集中在某个段落，感觉挺影响的。
+
+*****
+
+####  ddy2811  
+##### 5403#       发表于 2022-2-11 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647774&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-2-11 23:45</a>
+
+我在整理资源，之前抓取了原直播源，还有obs录制了一下，可惜obs没设置好，没录制声音来，
+
+视频源是flv格式 ...</blockquote>
+有资源求一份<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

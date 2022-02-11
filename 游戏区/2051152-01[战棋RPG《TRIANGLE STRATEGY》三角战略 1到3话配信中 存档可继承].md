@@ -1015,3 +1015,41 @@ srpg部分还不错
 
 除了美术以外感觉就很平庸....
 
+
+
+*****
+
+####  leachiman  
+##### 102#         楼主| 发表于 2022-2-11 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647485&amp;ptid=2051152" target="_blank">bwsusaga 发表于 2022-2-11 23:19</a>
+
+还没玩，就问下前三话能看成育成系统是个什么样儿么？</blockquote>
+等级：可以刷，固定属性成长
+
+职业：可以升两阶，花费金币和转职勋章，给新技能、属性点和TP
+
+武器：可以锻造，花费金币和材料（有限但易获取），选项很多，加威力、属性之类的。第2、3阶的显示问号看不到有啥用
+
+饰品：目前看到有加属性或者抗性的
+
+还有个武器奥义没解锁，不知道有啥用，可能是大招，
+
+*****
+
+####  windtrack  
+##### 103#       发表于 2022-2-11 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647485&amp;ptid=2051152" target="_blank">bwsusaga 发表于 2022-2-11 23:19</a>
+
+还没玩，就问下前三话能看成育成系统是个什么样儿么？</blockquote>
+人物与职业锁定
+
+低级职业转高级职业，有3个阶段，目前只能看到2阶段，3阶段是否有分支不清楚
+
+人物技能完全和职业与等级挂钩，不需要也不能装备技能，目前也没看到存在兼职的情况
+
+装备栏只有2个饰品
+
+武器靠金钱和素材升级解锁，有一些互斥解锁分支
+
