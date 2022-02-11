@@ -775,3 +775,17 @@ RA登陆STEAM的第一时间我就评价过了，可惜还是有些人非要贪�
 
 最大的问题就是没有特别好的前端。
 
+
+
+*****
+
+####  路西恩  
+##### 67#       发表于 2022-2-11 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54549593&amp;ptid=2050753" target="_blank">Tring 发表于 2022-2-4 21:40</a>
+就是小鸡旗下的手机ns模拟器</blockquote>
+这个是巨恶心
+想玩就得强制搭配手柄
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
