@@ -10705,3 +10705,21 @@ m-on要收费的，刚看到说四月份播
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉叔叔家怎样都赚，直播间sc就没停过，舰长也是各种上
 
+
+
+*****
+
+####  cat1230  
+##### 5395#       发表于 2022-2-11 22:46
+
+鲤鱼这演唱会会卖bd么？想收藏一份啊
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Norkey1  
+##### 5396#       发表于 2022-2-11 22:55
+
+bd基本没可能吧…社长倒是挺看重鲤鱼的，今天上座率怎么样啊
+

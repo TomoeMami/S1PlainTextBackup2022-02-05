@@ -8809,3 +8809,26 @@ suki
 
 泥哥看似吹文静 实际呃呃
 
+
+
+*****
+
+####  人民de救星  
+##### 5427#       发表于 2022-2-11 22:48
+
+今天看了NB厂的新衣回，只能说文静是版本答案。 令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 5428#       发表于 2022-2-11 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647139&amp;ptid=2013779" target="_blank">人民de救星 发表于 2022-2-11 22:48</a>
+
+今天看了NB厂的新衣回，只能说文静是版本答案。 令人感叹
+
+—— 来自 S1Fun ...</blockquote>
+why?
+
