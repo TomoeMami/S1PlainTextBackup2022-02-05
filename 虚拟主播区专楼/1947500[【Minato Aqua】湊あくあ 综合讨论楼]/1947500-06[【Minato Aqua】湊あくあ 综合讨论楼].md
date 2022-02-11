@@ -5997,3 +5997,39 @@ ateshisuki
 
 难道还能爆出来像mafumafu那样级别的男友吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  erer  
+##### 8202#       发表于 2022-2-11 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638250&amp;ptid=1947500" target="_blank">心垂万刃 发表于 2022-2-11 12:12</a>
+
+难道还能爆出来像mafumafu那样级别的男友吗？</blockquote>
+那只能祝福99了。
+
+*****
+
+####  erer  
+##### 8203#       发表于 2022-2-11 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638250&amp;ptid=1947500" target="_blank">心垂万刃 发表于 2022-2-11 12:12</a>
+
+难道还能爆出来像mafumafu那样级别的男友吗？</blockquote>
+那只能祝福99了。
+
+*****
+
+####  星の守  
+##### 8204#       发表于 2022-2-11 12:36
+
+急什么，等夸夸到了润姨这个年龄了，到时候就顺其自然了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8205#       发表于 2022-2-11 12:38
+
+那还要好久。也不晓得那时候还在不在播，希望身体健康吧，我滴夸宝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
