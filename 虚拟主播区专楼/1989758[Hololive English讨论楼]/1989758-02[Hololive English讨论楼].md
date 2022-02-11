@@ -1446,3 +1446,35 @@ mumei这首歌原本是全日文的，她自己感觉不合适特地让cali帮�
 
 gura一年产出那么多切片，结果官方做YouTube的作业就拼了这么个low effort的东西，录屏出来的低音质画质，年份都打错了。运营能不能上点儿心。
 
+
+
+*****
+
+####  PureIllusion  
+##### 1634#       发表于 2022-2-12 00:26
+
+ 本帖最后由 PureIllusion 于 2022-2-12 00:28 编辑 
+
+估计没人关心，不过前几天这贴总结挺好的 <blockquote>17667443
+
+Arguing in good faith is a rarity by nature of the anonymous imageboard which we inhabit. However that's not to say that nobody does it. On the Mori issue, there are at least 4 sides and two alignments. There are people arguing in bad faith for and against Mori. And then there are people arguing in good faith for and against Mori.
+
+The people arguing in bad faith for Mori insist that she's done nothing wrong ever and everything is just Antis shitposting for (You's). This post would fit into it. They often make bad arguments like comparing people who criticize Mori to Chinks and saying this just like Coco. They make posts like ignorant Redditors or even normalfags and some of them may actually be.
+
+The people arguing in bad faith against Mori usually are just seaniggers or Anti's shitposting for (You)s. They make less than constructive posts like "All Deadbeats are cucks LMAO" and "Mori should graduate before she drags my oshi into a three way with Connor!" They are easy targets to point to for strawman arguments.
+
+The people arguing in good faith for Mori are saying that she is still learning, that she's under a lot of pressure, that she hasn't done anything unforgiveable yet.
+
+The people arguing in good faith against Mori say that she should really be more professional especially when on official corporate branded Twitter accounts, not respond to cuck porn posted by known Antis, not make posts referencing drugs, not "fire back just to own the haters" and generally act childish. They will also say it's been over a year and high time for Mori to get her shit together.
+
+Both sides of the people arguing in good faith have one thing in common, neither of them really wants Mori to graduate or be unhappy. Because that would affect Mori or their oshi negatively. Everyone arguing in good faith for the most part wants her to unfuck herself and stop chugging stupid bitch juice all the time. They are just frustrated as to how she should do it and if she even wants to because of her stubborn contrarian mindset.
+
+TLDR: No, people who actually give a shit about Hololive and aren't just seaniggers shitposting for (You)s are not happy. They want Mori to stop being a fuckup, not for her to be angry and bitter.</blockquote>
+
+*****
+
+####  M1NG  
+##### 1635#       发表于 2022-2-12 00:35
+
+不太看死神，不是很懂；就我看下来死神确实多少对某些事情过于认真，以至于经常会让联动或者平时闲聊的气氛变得很怪异，所以后面就不怎么看她播了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

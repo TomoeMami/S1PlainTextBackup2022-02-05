@@ -1053,3 +1053,17 @@ srpg部分还不错
 
 武器靠金钱和素材升级解锁，有一些互斥解锁分支
 
+
+
+*****
+
+####  leachiman  
+##### 104#         楼主| 发表于 2022-2-12 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647728&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-11 23:40</a>
+
+试玩版感受就是 剧情平淡如水就是那种各种潜伏在和平下的阴谋老一套，不看好日本人现在能写出什么好剧本
+
+战 ...</blockquote>
+封顶可能是50级，去年的demo就有人一直刷到50级，上个月的预告片也能看到战斗画面里有40多级的角色
+

@@ -10852,3 +10852,23 @@ CD感觉没现场带劲啊，还是现场版嗨一点
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5406#       发表于 2022-2-12 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647854&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-2-11 23:52</a>
+在回顾考虑要不要把弹幕版本发出来，不过好像弹幕不是好友好
+
+这个七海娜娜米我记得好像是国v，听视频好像 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人痴是这样的
+
+*****
+
+####  MiaoJi  
+##### 5407#       发表于 2022-2-12 00:36
+
+体感把弹幕屏蔽拉到15级左右刚刚好，不那么冷清也不会很烦人
+
