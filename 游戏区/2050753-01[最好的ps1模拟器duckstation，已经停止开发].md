@@ -789,3 +789,19 @@ RA登陆STEAM的第一时间我就评价过了，可惜还是有些人非要贪�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  精钢魔像  
+##### 68#       发表于 2022-2-11 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54641335&amp;ptid=2050753" target="_blank">yseternal 发表于 2022-2-11 15:47</a>
+
+有人能推荐个好用的前端不，我试过好多，都不太满意。我家里有一台街机，里面被我改造了，塞了一台PC进去。 ...</blockquote>
+ra 就挺好。自己写游玩列表，每个游戏都单独保存着色器和模拟器核心设置
+
+手写是很繁琐，如果会编程就好很多
+
+游戏的海报截图ra的网站都整理好了，会编程就可以写个爬虫爬下来整合进游玩列表里
+

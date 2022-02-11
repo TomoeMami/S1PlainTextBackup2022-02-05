@@ -1186,3 +1186,14 @@ QQ图片20220211153357.jpg
 
 <img src="https://img.saraba1st.com/forum/202202/11/154329xe2ffzaadsae2aae.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  noHentai  
+##### 10604#       发表于 2022-2-11 16:39
+
+润姨这不是逼婚？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><blockquote>discord现在在检测到系统进入直播开启obs后就会自动切换到免打扰模式除非你手动切回来
+润姨以前直播都不开回放，那天晚上难得开了。
+这个提示，在直播过程中一直弹，弹了很多无关的消息出来，观众提醒了很多次她也不理。</blockquote>
+
