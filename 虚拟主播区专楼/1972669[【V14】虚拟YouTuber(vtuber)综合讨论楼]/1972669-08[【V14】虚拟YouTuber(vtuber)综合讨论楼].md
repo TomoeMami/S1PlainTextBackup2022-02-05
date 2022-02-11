@@ -1137,3 +1137,19 @@ vup lkd！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上怪文书好多啊，我还看到了以前因为阿豆姐破防的美发粉
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 10601#       发表于 2022-2-11 15:19
+
+恐女地雷男和恐男地雷女，锁死祝99<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10602#       发表于 2022-2-11 15:23
+
+eden组又有新节目了，我好酸啊，eden组真的有火到周边节目轮着出的程度吗，按这个趋势是不是年内就能看到你虹首个同期组男女混团主流出道了啊
+

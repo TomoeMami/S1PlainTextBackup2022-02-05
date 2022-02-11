@@ -1425,3 +1425,28 @@ ff6没用
 
 这部剧情其实就还好吧，真正好玩的地方我感觉是不同篇章有不同的风格，有功夫篇选弟子或者幕末篇0杀全杀的不同玩法区别，格斗篇试着学全技能或者SF篇打通地球队长也都挺有意思的，而且隐藏要素相当多，很多篇章都有隐藏boss
 
+
+
+*****
+
+####  killng  
+##### 141#       发表于 2022-2-11 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54620663&amp;ptid=2051670" target="_blank">电磁炮233 发表于 2022-02-10 13:11:47</a>
+我强烈怀疑现在这个ntr当乐子随口说的时代，中式篇还能破防几个宅宅
+
+—— 来自  ...</blockquote>这几年新宅入圈，20年21年动漫游戏界的绿帽节奏不管是数量还是规模比我前20年碰到的加起来都多，当代的阿宅敏感的很，说是个泛绿帽时代都不过分了，XB2也经常作为“日本人酷爱NTR”的罪证之一呢
+你觉得别人是玩梗，事实上别人是真的急眼了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  幻想风靡_  
+##### 142#       发表于 2022-2-11 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640824&amp;ptid=2051670" target="_blank">killng 发表于 2022-2-11 15:16</a>
+
+这几年新宅入圈，20年21年动漫游戏界的绿帽节奏不管是数量还是规模比我前20年碰到的加起来都多，当代的阿宅 ...</blockquote>
+这么一说确实，去年toar坛里还有人发帖觉得水将抓走女主那段有暗示ntr……
+
