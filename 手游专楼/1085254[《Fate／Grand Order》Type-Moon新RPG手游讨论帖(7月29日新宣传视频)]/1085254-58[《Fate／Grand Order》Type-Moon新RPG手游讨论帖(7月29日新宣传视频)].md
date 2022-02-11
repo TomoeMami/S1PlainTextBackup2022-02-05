@@ -15378,3 +15378,17 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 如果怎么看未来都是死呢</blockquote>
 那就老老实实死别钻洞钻一半啊
 
+
+
+*****
+
+####  UNISONIA  
+##### 86986#       发表于 2022-2-12 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54645746&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2022-2-11 20:52</a>
+
+龙有未来视的话那阿尔比昂本体是怎么回事
+
+眼光太短或者腿太短，两者总归得有一个 ...</blockquote>
+可能是拖延症<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
