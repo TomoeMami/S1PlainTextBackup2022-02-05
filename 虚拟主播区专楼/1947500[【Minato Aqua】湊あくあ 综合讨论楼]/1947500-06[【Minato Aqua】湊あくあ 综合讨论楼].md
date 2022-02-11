@@ -6111,3 +6111,12 @@ ateshisuki
 
 只能想到一星期不洗澡的恶臭yhm（捂脸）
 
+
+
+*****
+
+####  离魂仙  
+##### 8215#       发表于 2022-2-11 18:51
+
+原来是这样声音难怪了，比百鬼活泼 又比星川成熟一点的感觉，真羡慕她们的观众，不用像我刚才那样被夸爆破一个蓝牙耳机<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

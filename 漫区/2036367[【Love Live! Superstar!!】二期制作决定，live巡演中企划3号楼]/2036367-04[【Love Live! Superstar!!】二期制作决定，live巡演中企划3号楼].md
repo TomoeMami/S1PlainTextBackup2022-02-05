@@ -10367,3 +10367,36 @@ encore!
 <blockquote>谢谢大家平看我的演唱会，我们一定会见面的！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwert98765  
+##### 5364#       发表于 2022-2-11 18:41
+
+已经出现戒断反应了（误）
+
+*****
+
+####  stygian  
+##### 5365#       发表于 2022-2-11 18:41
+
+粗算了下成本，比起一般的live这场hori和烂铁应该赚不了太多，很厚道了
+
+*****
+
+####  cybernetics31  
+##### 5366#       发表于 2022-2-11 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">大家谷子一专买起来啊
+
+*****
+
+####  csolfans  
+##### 5367#       发表于 2022-2-11 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54643799&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-2-11 18:45</a>
+
+大家谷子一专买起来啊</blockquote>
+不知买啥好 可能买场刊
+

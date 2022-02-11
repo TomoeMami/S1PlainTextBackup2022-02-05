@@ -11351,3 +11351,30 @@ syl，苔箱也开始玩主播女孩重度依赖了还行
 
 Hinted at during our previous stream, find out more about the Virtual Cinderella Project featuring Kagura Mea, Hanazono Serena, and Hiseki Erio as our special guest on show! Let's get to know these girls and support them during their idol journey!</blockquote>
 
+
+
+*****
+
+####  TiHaru  
+##### 8792#       发表于 2022-2-11 18:51
+
+这个漫展算是东南亚比较大的了吧，我还去见过mikito
+
+*****
+
+####  clvan_  
+##### 8793#       发表于 2022-2-11 18:52
+
+这个anime festival asia是什么东西
+
+看了眼官网嘉宾没几个还全不认识
+
+*****
+
+####  古战场亡魂  
+##### 8794#       发表于 2022-2-11 19:00
+
+ 本帖最后由 古战场亡魂 于 2022-2-11 19:01 编辑 
+
+去东南亚漫展参加活动加点油管订阅是吧。
+
