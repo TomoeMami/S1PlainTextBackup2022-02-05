@@ -9703,3 +9703,136 @@ nonfiction衣服对身材要求也高，看上去还要裙撑，表演换衣服�
 
 一专最喜欢这首，登场的转场也好牛
 
+
+
+*****
+
+####  ads147147  
+##### 5291#       发表于 2022-2-11 17:22
+
+66块钱确实很值，这个出演效果也很好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  starring  
+##### 5292#       发表于 2022-2-11 17:23
+
+一专最喜欢的那首歌居然用黑白画面转播<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5293#       发表于 2022-2-11 17:24
+
+完成的居然这么好
+
+*****
+
+####  starring  
+##### 5294#       发表于 2022-2-11 17:27
+
+居然唱龙约的歌
+
+*****
+
+####  竹筷  
+##### 5295#       发表于 2022-2-11 17:27
+
+我超，龙约！
+
+*****
+
+####  cqc1021  
+##### 5296#       发表于 2022-2-11 17:29
+
+不夸张的说，这场live的打光已经达到日本一流演唱会水平了
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 5297#       发表于 2022-2-11 17:29
+
+这首我还真没听过。。。
+
+*****
+
+####  普之舜舜  
+##### 5298#       发表于 2022-2-11 17:30
+
+导播yyds
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 5299#       发表于 2022-2-11 17:32
+
+还有床，镜子，这道具真好
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  秋月艾莉  
+##### 5300#       发表于 2022-2-11 17:32
+
+好汀
+
+*****
+
+####  ayangsu  
+##### 5301#       发表于 2022-2-11 17:33
+
+质量真高啊，这真的是我66块钱能看的么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 5302#       发表于 2022-2-11 17:34
+
+真的，这几年看的线上单论演出这场绝对能进top3了
+
+*****
+
+####  stygian  
+##### 5303#       发表于 2022-2-11 17:34
+
+全程gachi恋距离，我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5304#       发表于 2022-2-11 17:35
+
+草 开摆
+
+*****
+
+####  lj205  
+##### 5305#       发表于 2022-2-11 17:35
+
+直播个睡觉
+
+*****
+
+####  iuhehc  
+##### 5306#       发表于 2022-2-11 17:35
+
+舞美设计 灯光 进行流畅度 运镜 妆容服装都很不错，算很高级的配置了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 5307#       发表于 2022-2-11 17:35
+
+直接睡个觉，哈哈哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

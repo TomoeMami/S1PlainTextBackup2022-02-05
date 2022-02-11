@@ -1215,3 +1215,12 @@ eden组已看腻，请下一波新人赶紧来
 
 在一堆相关热搜里还夹着一个“ATM失灵”节目效果简直拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdhai  
+##### 10607#       发表于 2022-2-11 17:39
+
+ATM失灵太绝了
+
