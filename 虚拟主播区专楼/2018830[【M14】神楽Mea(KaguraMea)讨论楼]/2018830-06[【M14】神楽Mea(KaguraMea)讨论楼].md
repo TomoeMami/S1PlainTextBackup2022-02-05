@@ -11417,3 +11417,31 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 这茬是过不去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 8799#       发表于 2022-2-11 20:04
+
+ 本帖最后由 T_Hb 于 2022-2-11 20:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/11/200859eva3t45dv7tvvzk0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 20:08 上传
+
+不会没有外景吧，还真没，结果是个纯搞笑节目，是我期望太高了
+
+*****
+
+####  古战场亡魂  
+##### 8800#       发表于 2022-2-11 20:21
+
+你们日综也太弱智了吧……
+

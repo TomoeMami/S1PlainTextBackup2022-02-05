@@ -10411,3 +10411,38 @@ s1的坛友们，我这边有鲤鱼姐的录播，你们带着票根私信我就
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  竹筷  
+##### 5369#       发表于 2022-2-11 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54644645&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-2-11 19:51</a>
+
+s1的坛友们，我这边有鲤鱼姐的录播，你们带着票根私信我就好了
+
+—— 来自 OPPO PDKM00, Android 11上的 S1 ...</blockquote>
+B站的app怎么看自己的票根
+
+*****
+
+####  iuhehc  
+##### 5370#       发表于 2022-2-11 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54644879&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-2-11 20:04</a>
+
+B站的app怎么看自己的票根</blockquote>
+我的-直播中心-我的门票
+
+
+
+*****
+
+####  黑雪姫  
+##### 5371#       发表于 2022-2-11 20:14
+
+太君你们也白嫖啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/mw1024/7b537b1bgy1gz9twdee7lj21bo0iqq8a.jpg" referrerpolicy="no-referrer">
+
