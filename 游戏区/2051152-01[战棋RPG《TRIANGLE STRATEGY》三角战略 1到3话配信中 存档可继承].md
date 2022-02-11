@@ -899,3 +899,28 @@ Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockq
 
 一小时一关吧，如果二十多关的话那流程估计比风花雪月还长
 
+
+
+*****
+
+####  swordofsoul1  
+##### 91#       发表于 2022-2-11 21:14
+
+剧情长无演出看得瞌睡<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+srpg部分还不错
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 92#       发表于 2022-2-11 21:23
+
+有时候感觉自己口味真被大作养刁了，现在这种2d站桩对话的剧情确实有点看不进去，但是明明gal我还玩的进去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zikimi  
+##### 93#       发表于 2022-2-11 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">demo打完了，正好4小时30分钟
+

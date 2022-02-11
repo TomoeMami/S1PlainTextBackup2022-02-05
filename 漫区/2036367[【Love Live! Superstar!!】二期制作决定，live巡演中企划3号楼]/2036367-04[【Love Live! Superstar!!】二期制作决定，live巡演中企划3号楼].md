@@ -10548,3 +10548,66 @@ b站锁ip吧 日本人除了到现场外只能白嫖
 
 但鲤鱼这个live不是要上电视台么，这个不花钱吧。日本人看的话？
 
+
+
+*****
+
+####  stygian  
+##### 5382#       发表于 2022-2-11 21:03
+
+<img src="https://img.saraba1st.com/forum/202202/11/210257lan8p8v5nkg448ww.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (92.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/210258hadsybphatdvgxsz.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (94.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/210258krb106z29b2j20rr.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (108.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/210258j7pca4lc4ch7fhz2.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (148.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 21:02 上传
+
+*****
+
+####  stygian  
+##### 5383#       发表于 2022-2-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54645853&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-11 21:00</a>
+
+我昨天就在拉版的鲤鱼suki串里看到太君问为啥有钱国家（中国）线上门票比我们便宜
+
+但鲤鱼这个live不 ...</blockquote>
+问就是おまくに<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+m-on要收费的，刚看到说四月份播
+
+*****
+
+####  x分裂者  
+##### 5384#       发表于 2022-2-11 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54643414&amp;ptid=2036367" target="_blank">zhangyifan33 发表于 2022-2-11 18:12</a>
+
+我觉得朋友你有点儿误解我想表达的意思了，其实我不是也说了理解cd机的说法更多是基于稳的角度的夸赞。但 ...</blockquote>
+你俩都太认真了，说cd机本质只是一种话术，和绝绝子之类的流行语差不多，说的人肯定没有这种倾向的。而且主要是要求不同，你说snh之类的cd机那肯定是在夸，说龚琳娜这种等级就说不清是夸还是阴阳了。
+
