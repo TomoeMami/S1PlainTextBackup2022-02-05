@@ -1388,3 +1388,14 @@ Alice为了你我要成为牛鼠呜呜呜<img src="https://static.saraba1st.com/
 有啥管人新闻号推荐推荐</blockquote>
 5ch二手💩转载号的意思
 
+
+
+*****
+
+####  free  
+##### 10623#       发表于 2022-2-12 01:11
+
+今天看到多个小道消息称老爱在休眠live上还将有一个大发表，如果是真的会是什么呢......
+
+不如把绊爱的音源公开了吧，这样以后大家都可以自己调教着玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

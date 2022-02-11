@@ -1067,3 +1067,12 @@ srpg部分还不错
 战 ...</blockquote>
 封顶可能是50级，去年的demo就有人一直刷到50级，上个月的预告片也能看到战斗画面里有40多级的角色
 
+
+
+*****
+
+####  henryqxg  
+##### 105#       发表于 2022-2-12 01:05
+
+剧情打瞌睡。。。就怕成品是一个强化版佣兵烈焰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
