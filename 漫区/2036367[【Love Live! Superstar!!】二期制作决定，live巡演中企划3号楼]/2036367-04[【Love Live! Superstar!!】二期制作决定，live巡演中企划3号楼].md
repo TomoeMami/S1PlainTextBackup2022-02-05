@@ -10400,3 +10400,14 @@ encore!
 大家谷子一专买起来啊</blockquote>
 不知买啥好 可能买场刊
 
+
+
+*****
+
+####  普之舜舜  
+##### 5368#       发表于 2022-2-11 19:51
+
+s1的坛友们，我这边有鲤鱼姐的录播，你们带着票根私信我就好了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
