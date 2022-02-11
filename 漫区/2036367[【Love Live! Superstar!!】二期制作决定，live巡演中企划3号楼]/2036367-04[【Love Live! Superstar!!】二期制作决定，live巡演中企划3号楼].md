@@ -10833,3 +10833,22 @@ CD感觉没现场带劲啊，还是现场版嗨一点
 视频源是flv格式 ...</blockquote>
 有资源求一份<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5404#       发表于 2022-2-12 00:06
+
+我全程关弹幕，然后跟群友聊天，看得开心
+
+*****
+
+####  Enakina  
+##### 5405#       发表于 2022-2-12 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647854&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-02-11 23:52:28</a>
+嗯，好像这样的弹幕集中在某个段落，感觉挺影响的。</blockquote>弹幕正常，不过没想到还有吵代购的。我衷心希望不要第三次在专楼里看见车西了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
