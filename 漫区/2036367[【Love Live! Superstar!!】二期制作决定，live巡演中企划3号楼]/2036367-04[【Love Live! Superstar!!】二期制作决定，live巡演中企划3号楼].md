@@ -9250,3 +9250,59 @@ nonfiction多好的一首歌啊 衣服也那么好看 居然不做给cast穿
 
 nonfiction衣服对身材要求也高，看上去还要裙撑，表演换衣服比较困难吧，总感觉不会做出来了
 
+
+
+*****
+
+####  名津流  
+##### 5245#       发表于 2022-2-11 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54631697&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-2-10 23:50</a>
+
+草</blockquote>
+3.5的小商品还要拼单，都当大明星了还这么节俭，这样的女孩是这个时代还能诞生的吗？
+
+*****
+
+####  名津流  
+##### 5246#       发表于 2022-2-11 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54631905&amp;ptid=2036367" target="_blank">ddy2811 发表于 2022-2-10 23:58</a>
+
+多买了一张票，有谁要吗？</blockquote>
+票还在吗？没人要的话给我吧
+
+*****
+
+####  megapikachu  
+##### 5247#       发表于 2022-2-11 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638700&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-2-11 12:43</a>
+
+最近四首solo简直是TVB儿歌金曲颁奖典礼，今天恋的估计也差不多
+
+-------</blockquote>
+那位up主其实有点没搞清楚状况。大家之所以吹cd机，是因为很多（声优）偶像，连唱歌唱得像样点都做不到（更别说她们的表演强度很多都还没到星团的水准）。所以唱得像样，观众不用听着听着就皱眉“怎么唱成这样子”（cd机）才会成为一种赞扬甚至吹捧。说白了，很多（声优）偶像在唱歌这一项上，甚至连最基本的东西都还没做好呢，有啥资格讲花活。
+
+*****
+
+####  iuhehc  
+##### 5248#       发表于 2022-2-11 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638700&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-2-11 12:43</a>
+
+最近四首solo简直是TVB儿歌金曲颁奖典礼，今天恋的估计也差不多
+
+-------</blockquote>
+他说吹CD机不好听是因为偶像只要稍微舞蹈大点就不会有CD机的效果，说像放CD反而像在质疑假唱，我挺认同的，jpop最顶尖的偶像都好我说句实话除非是一动不动手麦立麦唱歌，只要有舞蹈动作，不是预录生唱不垫音，1000%都不会是CD的效果
+
+*****
+
+####  仟音一心  
+##### 5249#       发表于 2022-2-11 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638931&amp;ptid=2036367" target="_blank">名津流 发表于 2022-2-11 13:01</a>
+3.5的小商品还要拼单，都当大明星了还这么节俭，这样的女孩是这个时代还能诞生的吗？ ...</blockquote>
+因为是拼多多所以便宜很多了吧，当然本来就很便宜就是了。我在拼多多上也找到这款了，但因为店铺不同，我找到的卖5.8一个。
+下面那个拼单的显然是去凑热闹的鲤友啊，拼多多还能送海外不成？
+

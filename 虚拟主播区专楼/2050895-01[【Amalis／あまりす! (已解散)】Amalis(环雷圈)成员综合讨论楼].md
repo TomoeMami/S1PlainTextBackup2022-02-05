@@ -1014,3 +1014,16 @@ image.png
 
 —— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  莫洛骑士  
+##### 101#         楼主| 发表于 2022-2-11 13:12
+
+ 本帖最后由 莫洛骑士 于 2022-2-11 01:17 编辑 
+
+<img src="https://p.sda1.dev/4/f1ad3a8b4c07de04e15e868babd20005/IMG_CMP_113230272.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/4/f8d799725816b918f54d27edf6807bda/0BC5FEC250369EA2175C93BD82756E84.jpg" referrerpolicy="no-referrer">
+
