@@ -1437,3 +1437,12 @@ mumei这首歌原本是全日文的，她自己感觉不合适特地让cali帮�
 
 —— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  PureIllusion  
+##### 1633#       发表于 2022-2-11 13:35
+
+gura一年产出那么多切片，结果官方做YouTube的作业就拼了这么个low effort的东西，录屏出来的低音质画质，年份都打错了。运营能不能上点儿心。
+

@@ -831,3 +831,19 @@ Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockq
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  gyfsgm  
+##### 85#       发表于 2022-2-11 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54576602&amp;ptid=2051152" target="_blank">henryqxg 发表于 2022-2-7 11:28</a>
+
+啊对对忘记这货了
+
+希望se多搞点啊，出的速度还是慢，八方都过去这么多年了
+
+这风格看的真的很舒服 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">幻想105个男人和3个女人传也是这个风格
+
