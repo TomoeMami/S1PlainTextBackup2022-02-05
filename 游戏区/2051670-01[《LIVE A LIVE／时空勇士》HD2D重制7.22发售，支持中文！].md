@@ -1450,3 +1450,17 @@ ff6没用
 这几年新宅入圈，20年21年动漫游戏界的绿帽节奏不管是数量还是规模比我前20年碰到的加起来都多，当代的阿宅 ...</blockquote>
 这么一说确实，去年toar坛里还有人发帖觉得水将抓走女主那段有暗示ntr……
 
+
+
+*****
+
+####  Winder07  
+##### 143#       发表于 2022-2-11 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54630479&amp;ptid=2051670" target="_blank">ruina 发表于 2022-2-10 23:02</a>
+
+这部在lunamos的视频里云的基本一干二净了，还以为不会有出重制版的机会了
+
+唉，虽然剧情方面对我来说已经完 ...</blockquote>
+还有半年你可以忘掉，我好像看了又好像没看，总之没印象
+
