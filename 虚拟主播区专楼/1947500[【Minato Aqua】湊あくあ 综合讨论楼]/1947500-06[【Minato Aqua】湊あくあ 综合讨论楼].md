@@ -5952,3 +5952,14 @@ ateshisuki
 
 没有新活，MC和live都要准备，接下来这几天应该不太会播
 
+
+
+*****
+
+####  TiHaru  
+##### 8197#       发表于 2022-2-11 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54610584&amp;ptid=1947500" target="_blank">null0304 发表于 2022-2-9 22:24</a>
+为什么...</blockquote>
+这组图我秋秋空间也看到人转了
+
