@@ -11893,3 +11893,15 @@ image.jpg
 
 他太小看麦哲伦了
 
+
+
+*****
+
+####  武男  
+##### 56443#       发表于 2022-2-11 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54631267&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2022-2-10 23:36</a>
+
+黑胡子这人其实有点矛盾，在白胡子船上隐忍这么多年，又有计划偷取果实进行一系列行动，看似一切安排得很周 ...</blockquote>
+本身就是个豪赌之人，只要赌中了，那不就能争霸世界。如果天命不在，就在白团那里终老。
+

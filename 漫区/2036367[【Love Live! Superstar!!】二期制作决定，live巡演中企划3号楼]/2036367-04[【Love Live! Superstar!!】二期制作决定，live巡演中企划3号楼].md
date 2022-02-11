@@ -9054,3 +9054,17 @@ https://b23.tv/jfktBHl
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 5230#       发表于 2022-2-11 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54635560&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-11 09:13</a>
+
+莫非是因为开的场子多，每个地方都得布置，所以就走简单风了？可能2nd好点吧，不过那几个衣服是真的拉胯， ...</blockquote>
+出道曲那套衣服最开始还可以，轻飘飘的袖子也好看，裙子也短一点能看到绑腿，一巡开始都改成什么鬼样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有鞋子，除了OP那套别的都是用鞋套，太省了
+
