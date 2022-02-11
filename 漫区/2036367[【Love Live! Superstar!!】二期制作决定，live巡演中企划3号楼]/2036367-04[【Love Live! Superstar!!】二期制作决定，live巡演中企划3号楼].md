@@ -9624,3 +9624,82 @@ nonfiction衣服对身材要求也高，看上去还要裙撑，表演换衣服�
 
 感觉就要哭了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5281#       发表于 2022-2-11 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">挂着后台结果没自动刷新 开始了都不知道
+
+*****
+
+####  普之舜舜  
+##### 5282#       发表于 2022-2-11 17:08
+
+鲤鱼，鲤鱼
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 5283#       发表于 2022-2-11 17:10
+
+今天这造型脸实在是圆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 5284#       发表于 2022-2-11 17:10
+
+看不了啊...B站为啥不能加个回放啊，哪怕只有24小时内有效也行啊...
+
+*****
+
+####  普之舜舜  
+##### 5285#       发表于 2022-2-11 17:11
+
+现场的互动好嗨呀！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 5286#       发表于 2022-2-11 17:12
+
+挺稳的
+
+*****
+
+####  优妮可  
+##### 5287#       发表于 2022-2-11 17:13
+
+这是在干嘛
+
+*****
+
+####  stygian  
+##### 5288#       发表于 2022-2-11 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54642632&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-11 17:13</a>
+
+这是在干嘛</blockquote>
+补水+换衣服
+
+*****
+
+####  iuhehc  
+##### 5289#       发表于 2022-2-11 17:17
+
+看得出来事务所真的有好好搞的这个live，b这个票价太值了
+
+*****
+
+####  竹筷  
+##### 5290#       发表于 2022-2-11 17:18
+
+一专最喜欢这首，登场的转场也好牛
+
