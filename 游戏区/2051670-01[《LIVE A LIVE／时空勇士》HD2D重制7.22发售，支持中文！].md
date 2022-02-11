@@ -1358,3 +1358,70 @@ https://bbs.nga.cn/read.php?tid=30615672
 
 ff6的剧情和这部相比谁更优秀一点？我看ff6也是这个引擎重制了 steam快发售了？
 
+
+
+*****
+
+####  Meltina  
+##### 135#       发表于 2022-2-11 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54639873&amp;ptid=2051670" target="_blank">ruina 发表于 2022-2-11 14:11</a>
+
+大佬，其实我阅读体验权限应该还不够点进去
+
+不过也没事，期待一下游戏发售的时候
+
+ ...</blockquote>
+更新了个天幻的链接
+
+*****
+
+####  ruina  
+##### 136#       发表于 2022-2-11 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640401&amp;ptid=2051670" target="_blank">Meltina 发表于 2022-2-11 14:46</a>
+
+更新了个天幻的链接</blockquote>
+感谢分享
+
+*****
+
+####  Meltina  
+##### 137#       发表于 2022-2-11 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640069&amp;ptid=2051670" target="_blank">粪坑战士 发表于 2022-2-11 14:23</a>
+
+ff6的剧情和这部相比谁更优秀一点？我看ff6也是这个引擎重制了 steam快发售了？ ...</blockquote>
+1. FF6不是这个画面，是一个叫像素版的玩意，用这个玩意重做了FF1~6，我看FF6的像素还是以前的样子
+
+2. 这个八方旅人的HD-2D和像素版不一样，而且这次很明显所有小人的像素都重新做了精细了很多，原版的小人是很小的
+
+3. 这个游戏的剧情都独立时空小短篇，类似那种短篇故事集，和FF6不一样的，总体来说比FF6小品一点流程也短一点，胜在比较有创意和想象力
+
+*****
+
+####  kevinausting  
+##### 138#       发表于 2022-2-11 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640069&amp;ptid=2051670" target="_blank">粪坑战士 发表于 2022-2-11 14:23</a>
+
+ff6的剧情和这部相比谁更优秀一点？我看ff6也是这个引擎重制了 steam快发售了？ ...</blockquote>
+FF6不是HD2D，是像（原）素（味）复刻版。
+
+*****
+
+####  Bruce33  
+##### 139#       发表于 2022-2-11 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640069&amp;ptid=2051670" target="_blank">粪坑战士 发表于 2022-2-11 14:23</a>
+
+ff6的剧情和这部相比谁更优秀一点？我看ff6也是这个引擎重制了 steam快发售了？ ...</blockquote>
+ff6没用
+
+*****
+
+####  helix  
+##### 140#       发表于 2022-2-11 15:05
+
+这部剧情其实就还好吧，真正好玩的地方我感觉是不同篇章有不同的风格，有功夫篇选弟子或者幕末篇0杀全杀的不同玩法区别，格斗篇试着学全技能或者SF篇打通地球队长也都挺有意思的，而且隐藏要素相当多，很多篇章都有隐藏boss
+
