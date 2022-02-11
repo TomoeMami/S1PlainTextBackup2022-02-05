@@ -10145,3 +10145,225 @@ encore!
 
 要绷不住了
 
+
+
+*****
+
+####  stygian  
+##### 5338#       发表于 2022-2-11 18:20
+
+要哭了
+
+*****
+
+####  qwert98765  
+##### 5339#       发表于 2022-2-11 18:21
+
+鲤鱼哭哭
+
+*****
+
+####  稀勢のささ  
+##### 5340#       发表于 2022-2-11 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说话真直 
+
+
+
+*****
+
+####  stygian  
+##### 5341#       发表于 2022-2-11 18:22
+
+草，你真敢说
+
+*****
+
+####  普之舜舜  
+##### 5342#       发表于 2022-2-11 18:22
+
+鲤鱼姐哭了，鲤鱼不哭不哭
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 5343#       发表于 2022-2-11 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也想说staff选这么大的场是想啥
+
+*****
+
+####  黑雪姫  
+##### 5344#       发表于 2022-2-11 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54643515&amp;ptid=2036367" target="_blank">stygian 发表于 2022-2-11 18:22</a>
+
+草，你真敢说</blockquote>
+看不了live 求说啥了？
+
+*****
+
+####  普之舜舜  
+##### 5345#       发表于 2022-2-11 18:24
+
+说了哔哩哔哩的朋友们 ，谢谢我们
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  starring  
+##### 5346#       发表于 2022-2-11 18:24
+
+“敢开这么大的场，staff在想啥”<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5347#       发表于 2022-2-11 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54643536&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-2-11 18:23</a>
+
+看不了live 求说啥了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“这么大的场子让我上 staff怎么想的”
+
+*****
+
+####  普之舜舜  
+##### 5348#       发表于 2022-2-11 18:25
+
+“本来大家不能来，但是谢谢大家看我的直播，希望大家能开心，谢谢大家”
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 5349#       发表于 2022-2-11 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54643536&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-2-11 18:23</a>
+
+看不了live 求说啥了？</blockquote>
+大场子怕没人来
+
+下雪怕没人来
+
+总之就是怕没人来
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 5350#       发表于 2022-2-11 18:25
+
+ 本帖最后由 仟音一心 于 2022-2-11 18:32 编辑 
+
+中文了！她心里有我！<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+21FB5641-61C9-458A-B09C-DBB67D43B757.png
+(9.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/183224hhah36wetw5g1ksv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5351#       发表于 2022-2-11 18:25
+
+鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 5352#       发表于 2022-2-11 18:26
+
+鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ads147147  
+##### 5353#       发表于 2022-2-11 18:26
+
+哭哭。不哭。
+
+*****
+
+####  iuhehc  
+##### 5354#       发表于 2022-2-11 18:26
+
+鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 5355#       发表于 2022-2-11 18:26
+
+他心里有我！！！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 5356#       发表于 2022-2-11 18:27
+
+笑死，给俺30秒擤下鼻涕
+
+*****
+
+####  player3960  
+##### 5357#       发表于 2022-2-11 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">鲤鱼啊，小姑凉真不容易，但又这么努力和优秀
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 5358#       发表于 2022-2-11 18:29
+
+能做安可曲的也只剩reply最合适了
+
+*****
+
+####  稀勢のささ  
+##### 5359#       发表于 2022-2-11 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终究还是听到了鱼叫
+
+*****
+
+####  lj205  
+##### 5360#       发表于 2022-2-11 18:34
+
+这次线上线下应该都达到预期了吧，演唱会还有唱片
+
+*****
+
+####  cat1230  
+##### 5361#       发表于 2022-2-11 18:39
+
+结束啦，好幸福啊
+
+*****
+
+####  iuhehc  
+##### 5362#       发表于 2022-2-11 18:39
+
+空   虚
+
+*****
+
+####  仟音一心  
+##### 5363#       发表于 2022-2-11 18:40
+
+<blockquote>谢谢大家平看我的演唱会，我们一定会见面的！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -11300,3 +11300,54 @@ syl，苔箱也开始玩主播女孩重度依赖了还行
 
 怎么都不喜欢 可惜 还想接着发散的
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8786#       发表于 2022-2-11 18:30
+
+正常点行吗……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8787#       发表于 2022-2-11 18:30
+
+别，不如等会儿✝升天✝
+
+*****
+
+####  汇聚群光  
+##### 8788#       发表于 2022-2-11 18:32
+
+待会儿应该是播片而不是直播吧，要不然怎么到现在了还没说在哪个直播间
+
+*****
+
+####  T_Hb  
+##### 8789#       发表于 2022-2-11 18:32
+
+当然是录好的，不然直播上天吗
+
+*****
+
+####  古战场亡魂  
+##### 8790#       发表于 2022-2-11 18:37
+
+肯定录好的啊，不然大半夜表演航天吗。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 8791#       发表于 2022-2-11 18:39
+
+ 本帖最后由 T_Hb 于 2022-2-11 18:41 编辑 
+
+[https://www.youtube.com/watch?v=VPohppt_1fg](https://www.youtube.com/watch?v=VPohppt_1fg)
+ <blockquote>AFA Station TV’s AFA Special Edition will take place on the 19th of Feb 2022! 
+
+Hinted at during our previous stream, find out more about the Virtual Cinderella Project featuring Kagura Mea, Hanazono Serena, and Hiseki Erio as our special guest on show! Let's get to know these girls and support them during their idol journey!</blockquote>
+
