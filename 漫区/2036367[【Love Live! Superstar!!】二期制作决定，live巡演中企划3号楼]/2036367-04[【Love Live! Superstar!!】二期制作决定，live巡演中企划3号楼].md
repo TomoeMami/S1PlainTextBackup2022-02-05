@@ -10872,3 +10872,24 @@ CD感觉没现场带劲啊，还是现场版嗨一点
 
 体感把弹幕屏蔽拉到15级左右刚刚好，不那么冷清也不会很烦人
 
+
+
+*****
+
+####  beefandman  
+##### 5408#       发表于 2022-2-12 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54647249&amp;ptid=2036367" target="_blank">Norkey1 发表于 2022-02-11 22:55:41</a>
+bd基本没可能吧…社长倒是挺看重鲤鱼的，今天上座率怎么样啊</blockquote>Pacifico横滨本来就是大场，隔一个空位坐一个，看着有点空没办法。不过我感觉去掉隔着坐的要素没空太多，还成吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  cat1230  
+##### 5409#       发表于 2022-2-12 04:44
+
+晚上睡不着就把拉板的鲤鱼串看了一遍，日本那边也是基本好评（或者不喜欢的人也不会进这个串，日本人毕竟ky），想要bd的不止我啊，串里也就有好几个人提了，不知道有没有可能性。打铁他们貌似在但串里也没老哥提供啥石锤（但我觉得肯定在），另外鲤鱼的肉体厨真挺多的阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">串里提到1楼环境很和谐但2楼边上治安很差，不知道啥情况，串里也没解释，说是很吵。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

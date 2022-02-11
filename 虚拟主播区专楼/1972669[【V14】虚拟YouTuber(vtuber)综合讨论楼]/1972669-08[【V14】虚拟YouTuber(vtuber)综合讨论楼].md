@@ -1399,3 +1399,19 @@ Alice为了你我要成为牛鼠呜呜呜<img src="https://static.saraba1st.com/
 
 不如把绊爱的音源公开了吧，这样以后大家都可以自己调教着玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 10624#       发表于 2022-2-12 02:17
+
+不是有传说会有动画的消息 虽然我觉得很纯扯淡，成本和收益角度考虑。。。
+
+*****
+
+####  我不是很好  
+##### 10625#       发表于 2022-2-12 02:23
+
+你说cover要做动画我信
+
