@@ -943,3 +943,26 @@ srpg部分还不错
 怎么选日语，选项中没有啊</blockquote>
 打开菜单后第一项游戏设置里面就有
 
+
+
+*****
+
+####  Mephisto  
+##### 96#       发表于 2022-2-11 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646386&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-2-11 21:45</a>
+
+打开菜单后第一项游戏设置里面就有</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leachiman  
+##### 97#         楼主| 发表于 2022-2-11 22:20
+
+剧情我开自动播放让他自己播片就刷手机去了，工地日语勉强听个大概，没听明白的地方就看对话回放
+
+其他地方，音乐、配音、美术、战斗（困难）都好评
+
+及格分以上肯定有的
+

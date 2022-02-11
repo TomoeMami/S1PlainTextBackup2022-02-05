@@ -11470,3 +11470,16 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为能舍弃一部手机呢
 
+
+
+*****
+
+####  D麦林  
+##### 8804#       发表于 2022-2-11 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54645536&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-11 20:38</a>
+我还以为能来个水火箭呢……</blockquote>
+看到一半我还以为真的要用气象气球吊到太空里去呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+结果就结束了
+不过说不定下期就玩真的呢
+
