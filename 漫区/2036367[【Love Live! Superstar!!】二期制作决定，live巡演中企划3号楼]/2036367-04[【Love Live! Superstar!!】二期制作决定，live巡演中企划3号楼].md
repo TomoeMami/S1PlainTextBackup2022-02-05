@@ -9034,3 +9034,23 @@ https://b23.tv/jfktBHl
 
 希望2nd舞台设计和服装上都能下点本，一专的衣服看的一言难尽，R3的FMT都比星演唱会的豪华
 
+
+
+*****
+
+####  player3960  
+##### 5228#       发表于 2022-2-11 09:07
+
+星团舞台服装突出一个贫穷，，2nd用点心吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 5229#       发表于 2022-2-11 09:13
+
+莫非是因为开的场子多，每个地方都得布置，所以就走简单风了？可能2nd好点吧，不过那几个衣服是真的拉胯，除了op那个裙子还可以。其他几件都什么啊，小星星都成睡衣了。我记得后来几场nako的露腋op服还给封住了，什么全年龄偶像啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
