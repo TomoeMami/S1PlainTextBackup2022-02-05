@@ -9511,3 +9511,116 @@ nonfiction衣服对身材要求也高，看上去还要裙撑，表演换衣服�
 
 延迟到45分开始，现在两千五百多人
 
+
+
+*****
+
+####  世界的膀胱者  
+##### 5267#       发表于 2022-2-11 16:42
+
+设备故障经典操作
+
+你日本staff不知道提前测试的吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 5268#       发表于 2022-2-11 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要早起大几率是看不完全场了，能看多少是多少
+
+*****
+
+####  cybernetics31  
+##### 5269#       发表于 2022-2-11 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一进去就看见有土豪打了2000，id音宝的狗还行
+
+*****
+
+####  秋月艾莉  
+##### 5270#       发表于 2022-2-11 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640427&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-2-11 14:49</a>
+
+我也能理解夸像放CD是在表达现场很稳，有部分是有些是借像CD吹稳的，这还好，我不赞同这么吹，就像短跑运 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那大概就是因为专业不同导致见解不同了，我是不学音乐啦不过在我所学的领域里类比一下的话就像是也有很多人钟爱明显的笔触不平滑的光影过渡处理认为那是画的韵味所在的
+
+但一般也不会有人认为一个画师被夸“你画得真几把像，像照片一样真”，会像是说画师在假画是对画师的不尊重，除非有明显证据证明画者并不是想搞这个吧
+
+*****
+
+####  cat1230  
+##### 5271#       发表于 2022-2-11 16:47
+
+开始了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5272#       发表于 2022-2-11 16:51
+
+还没到正片啊，刚好赶上可以下班车听
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 5273#       发表于 2022-2-11 16:52
+
+人不少，可以
+
+*****
+
+####  绯想alter2nd  
+##### 5274#       发表于 2022-2-11 16:52
+
+看起来人不少的样子
+
+*****
+
+####  cqc1021  
+##### 5275#       发表于 2022-2-11 16:55
+
+社畜买了票才发现这么早开始，看不了了
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 5276#       发表于 2022-2-11 16:56
+
+有点紧张，希望后面放开
+
+*****
+
+####  ads147147  
+##### 5277#       发表于 2022-2-11 16:57
+
+说阿b卖出去6k张票，现在3k多人，还是时间太早了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 5278#       发表于 2022-2-11 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉导播比一巡部分场次强
+
+*****
+
+####  iuhehc  
+##### 5279#       发表于 2022-2-11 17:00
+
+鲤鱼sololive看起来比星的live更有花钱的感觉呢
+
+*****
+
+####  stygian  
+##### 5280#       发表于 2022-2-11 17:00
+
+感觉就要哭了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
