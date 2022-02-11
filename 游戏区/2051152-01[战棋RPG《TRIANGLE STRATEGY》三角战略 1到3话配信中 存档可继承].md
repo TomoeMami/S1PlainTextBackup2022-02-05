@@ -924,3 +924,22 @@ srpg部分还不错
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">demo打完了，正好4小时30分钟
 
+
+
+*****
+
+####  Mephisto  
+##### 94#       发表于 2022-2-11 21:42
+
+怎么选日语，选项中没有啊
+
+*****
+
+####  先生空气  
+##### 95#       发表于 2022-2-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646357&amp;ptid=2051152" target="_blank">Mephisto 发表于 2022-2-11 21:42</a>
+
+怎么选日语，选项中没有啊</blockquote>
+打开菜单后第一项游戏设置里面就有
+

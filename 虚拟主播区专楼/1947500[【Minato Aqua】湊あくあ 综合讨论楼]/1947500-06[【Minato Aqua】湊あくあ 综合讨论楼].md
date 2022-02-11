@@ -6177,3 +6177,24 @@ holo综昨天晚上讨论一晚上 隔壁看看就行 还有同接是联动带�
 
 偶像包袱下的问题发言吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新磕娘  
+##### 8223#       发表于 2022-2-11 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54644406&amp;ptid=1947500" target="_blank">越动天下 发表于 2022-2-11 19:36</a>
+
+holo综昨天晚上讨论一晚上 隔壁看看就行 还有同接是联动带来的 不过能近5万也是我没想到的 ...</blockquote>
+隔壁是哪...我好久没用了，真不知道
+
+*****
+
+####  越动天下  
+##### 8224#       发表于 2022-2-11 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646168&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-2-11 21:24</a>
+隔壁是哪...我好久没用了，真不知道</blockquote>
+就 生きて生きて生きて生きろ  这个名字的楼 17881楼之后都是讨论
+

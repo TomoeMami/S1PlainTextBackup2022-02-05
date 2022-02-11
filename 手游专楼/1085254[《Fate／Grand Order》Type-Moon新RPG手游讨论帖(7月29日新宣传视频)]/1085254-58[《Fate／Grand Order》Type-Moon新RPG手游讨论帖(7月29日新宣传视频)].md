@@ -15366,3 +15366,15 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 眼光太短或者腿太短，两者总归得有一个 ...</blockquote>
 如果怎么看未来都是死呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  newfaceryo  
+##### 86985#       发表于 2022-2-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646144&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-11 21:22</a>
+
+如果怎么看未来都是死呢</blockquote>
+那就老老实实死别钻洞钻一半啊
+

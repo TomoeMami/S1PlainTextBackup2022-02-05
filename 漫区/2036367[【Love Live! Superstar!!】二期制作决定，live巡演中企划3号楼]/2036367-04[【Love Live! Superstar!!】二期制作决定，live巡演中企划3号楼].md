@@ -10611,3 +10611,41 @@ m-on要收费的，刚看到说四月份播
 我觉得朋友你有点儿误解我想表达的意思了，其实我不是也说了理解cd机的说法更多是基于稳的角度的夸赞。但 ...</blockquote>
 你俩都太认真了，说cd机本质只是一种话术，和绝绝子之类的流行语差不多，说的人肯定没有这种倾向的。而且主要是要求不同，你说snh之类的cd机那肯定是在夸，说龚琳娜这种等级就说不清是夸还是阴阳了。
 
+
+
+*****
+
+####  ddy2811  
+##### 5385#       发表于 2022-2-11 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638946&amp;ptid=2036367" target="_blank">名津流 发表于 2022-2-11 13:02</a>
+
+票还在吗？没人要的话给我吧</blockquote>
+上午就送了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 5386#       发表于 2022-2-11 21:31
+
+ 本帖最后由 stygian 于 2022-2-11 21:32 编辑 
+
+5ch有人报告说事务所社长来了
+
+*****
+
+####  lj205  
+##### 5387#       发表于 2022-2-11 21:33
+
+今天到场预计1500左右吧，CD初动接近3000
+
+*****
+
+####  player3960  
+##### 5388#       发表于 2022-2-11 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646242&amp;ptid=2036367" target="_blank">stygian 发表于 2022-02-11 21:31:01</a>
+5ch有人报告说事务所社长来了</blockquote>社长又来督战了啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
