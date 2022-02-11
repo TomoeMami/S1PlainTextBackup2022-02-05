@@ -1087,3 +1087,21 @@ vup lkd！
 
 草，搜了一下是民间自拼的二创
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 10596#       发表于 2022-2-11 14:20
+
+没想到相川真冬这个卖腐炼铜货实际喜欢年上的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 10597#       发表于 2022-2-11 14:22
+
+主机群看到有人在问是miko还是润的discord，35飞来横锅 
+
+不过mafumafu总比mahoto好吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">（这什么相男人的眼光
+

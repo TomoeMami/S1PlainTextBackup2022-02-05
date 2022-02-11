@@ -1333,3 +1333,19 @@ https://bbs.nga.cn/read.php?tid=30615672
 以前我在这贴里列了一些
 [https://bbs.saraba1st.com/2b/thread-699960-1-1.html](https://bbs.saraba1st.com/2b/thread-699960-1-1.html)
 
+
+
+*****
+
+####  ruina  
+##### 133#       发表于 2022-2-11 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54639680&amp;ptid=2051670" target="_blank">Meltina 发表于 2022-2-11 13:55</a>
+
+这游戏有很多梗和小细节，可以自己玩的时候感受下
+
+以前我在这贴里列了一些</blockquote>
+大佬，其实我阅读体验权限应该还不够点进去<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+不过也没事，期待一下游戏发售的时候<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+

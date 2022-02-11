@@ -847,3 +847,14 @@ Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockq
 这风格看的真的很舒服 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">幻想105个男人和3个女人传也是这个风格
 
+
+
+*****
+
+####  Rivercat  
+##### 86#       发表于 2022-2-11 14:12
+
+叙事节奏有问题。过场剧情长的离谱，演出约等于无，跳过后做选择又一头雾水。
+
+就只能不停地按键看各种写得没啥亮点的对话和各种在二刺猿里似曾相识的人设。
+
