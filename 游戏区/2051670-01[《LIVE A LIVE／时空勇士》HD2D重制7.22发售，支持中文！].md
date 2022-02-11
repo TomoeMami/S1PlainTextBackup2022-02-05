@@ -1316,3 +1316,20 @@ https://bbs.nga.cn/read.php?tid=30615672
 
 中世纪篇勇者算是最惨主角之一了吧，看lunamos视频的时候就感觉勇者倒了血霉被一对狗男女搞崩溃
 
+
+
+*****
+
+####  Meltina  
+##### 132#       发表于 2022-2-11 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54630479&amp;ptid=2051670" target="_blank">ruina 发表于 2022-2-10 23:02</a>
+
+这部在lunamos的视频里云的基本一干二净了，还以为不会有出重制版的机会了
+
+唉，虽然剧情方面对我来说已经完 ...</blockquote>
+这游戏有很多梗和小细节，可以自己玩的时候感受下
+
+以前我在这贴里列了一些
+[https://bbs.saraba1st.com/2b/thread-699960-1-1.html](https://bbs.saraba1st.com/2b/thread-699960-1-1.html)
+
