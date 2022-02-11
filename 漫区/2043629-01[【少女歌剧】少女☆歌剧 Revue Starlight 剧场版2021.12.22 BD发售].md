@@ -8856,3 +8856,14 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 [https://docs.google.com/spreadsh ... 5UmgHXAM/edit#gid=0](https://docs.google.com/spreadsheets/d/1BBmWDFmcZyQEizrHUYsbuZYDFTboMeMmvXX5UmgHXAM/edit#gid=0)
 
+
+
+*****
+
+####  angela5d30  
+##### 667#       发表于 2022-2-11 19:13
+
+以前没整过这类东西，想请教一下坛友那个少歌手游舞台剧的线上直播的事。
+
+我看那个网站那边有三场可以买，我没能从百度搜到千秋乐公演以外俩者的具体含义，想问一下切换影像配信跟定点影像配信有什么区别，定点影像意思是镜头是固定不会拉近到舞台剧演员身上的意思吗？谢谢了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
