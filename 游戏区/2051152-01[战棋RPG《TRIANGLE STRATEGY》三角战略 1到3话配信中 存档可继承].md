@@ -977,3 +977,24 @@ srpg部分还不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  bwsusaga  
+##### 99#       发表于 2022-2-11 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646798&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-2-11 22:20</a>
+
+剧情我开自动播放让他自己播片就刷手机去了，工地日语勉强听个大概，没听明白的地方就看对话回放
+
+其他地方 ...</blockquote>
+还没玩，就问下前三话能看成育成系统是个什么样儿么？
+
+*****
+
+####  leachiman  
+##### 100#         楼主| 发表于 2022-2-11 23:23
+
+仔细看了发售pv，剧情信息量还挺大的
+
