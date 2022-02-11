@@ -1105,3 +1105,26 @@ vup lkd！
 
 不过mafumafu总比mahoto好吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">（这什么相男人的眼光
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 10598#       发表于 2022-2-11 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54640045&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-2-11 14:22</a>
+
+主机群看到有人在问是miko还是润的discord，35飞来横锅 
+
+不过mafumafu总比mahoto好吧（这什么相男人 ...</blockquote>
+魔法美发这人人品也不行就是
+
+*****
+
+####  Longinus_  
+##### 10599#       发表于 2022-2-11 14:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">mahoto还是搞偶像的时候今泉佑唯出事认识的
+
+没想到在这里连起来了
+

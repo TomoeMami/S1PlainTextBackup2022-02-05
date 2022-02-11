@@ -1349,3 +1349,12 @@ https://bbs.nga.cn/read.php?tid=30615672
 
 不过也没事，期待一下游戏发售的时候<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  粪坑战士  
+##### 134#       发表于 2022-2-11 14:23
+
+ff6的剧情和这部相比谁更优秀一点？我看ff6也是这个引擎重制了 steam快发售了？
+
