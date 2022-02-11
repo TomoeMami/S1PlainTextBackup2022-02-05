@@ -820,3 +820,14 @@ Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockq
 
 玩过的觉得怎么样？SRPG的游戏现在本来就不多，出了肯定会买。
 
+
+
+*****
+
+####  可乐杜  
+##### 84#       发表于 2022-2-11 11:59
+
+现在港版游戏怎么都是360左右，是抬价还是汇率有变化啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

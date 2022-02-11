@@ -1053,3 +1053,28 @@ vup lkd！
 
 可能用工作号交流比较刺激吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10592#       发表于 2022-2-11 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54637016&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-2-11 10:55</a>
+其实我是好奇他们没私人Line号吗，用工作discord大号算什么</blockquote>
+听说的是mafumafu早就销了line不知道为啥
+
+*****
+
+####  Guadalcanal  
+##### 10593#       发表于 2022-2-11 12:00
+
+带劲<img src="https://p.sda1.dev/4/68a97f15f07fd67f99dfc107894cf0b2/IMG_CMP_176952777.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  疏影横斜水清浅  
+##### 10594#       发表于 2022-2-11 12:03
+
+官宣了？？？
+
