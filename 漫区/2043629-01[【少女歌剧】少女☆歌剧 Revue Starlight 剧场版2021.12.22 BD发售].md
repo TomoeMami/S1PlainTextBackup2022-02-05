@@ -8888,3 +8888,17 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 另外千秋乐是最后一场公演，现在疫情，最后舞台谢幕鞠躬的较多，千秋一般贵一点是因为可能有额外的发表和谢幕致辞。
 
+
+
+*****
+
+####  angela5d30  
+##### 669#       发表于 2022-2-11 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646006&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-2-11 21:11</a>
+切换就是现场不同机位，效果参考之前少歌的舞台BD即可。基本上根据故事叙述切，关键的部分可以看清演员表 ...</blockquote>
+好的，谢谢你那么详尽的替我解惑。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+那我趁这俩天考虑下要买哪场吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Xiaomi MI 8 Lite, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
