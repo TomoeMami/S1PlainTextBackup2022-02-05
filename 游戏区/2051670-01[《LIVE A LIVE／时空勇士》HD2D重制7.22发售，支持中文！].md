@@ -1223,3 +1223,29 @@ se 你做的好 你做的好啊
 
 泡沫经济时代的东西真好啊
 
+
+
+*****
+
+####  svmkty  
+##### 127#       发表于 2022-2-11 11:43
+
+有大佬科普下这游戏剧情吗？隔壁nga居然吵了几百楼<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+[https://bbs.nga.cn/read.php?tid=30615672](https://bbs.nga.cn/read.php?tid=30615672)
+
+*****
+
+####  ff2077  
+##### 128#       发表于 2022-2-11 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54637795&amp;ptid=2051670" target="_blank">svmkty 发表于 2022-2-11 11:43</a>
+有大佬科普下这游戏剧情吗？隔壁nga居然吵了几百楼
+
+https://bbs.nga.cn/read.php?tid=30615672
+
+ ...</blockquote>
+云一遍泥潭指定up的视频就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【【游戏通鉴Vol.13】这款二十五年前的「八方旅人」更酷？SQUARE隐之名作《时空勇士》（LIVE A LIVE）回顾-哔哩哔哩】 https://b23.tv/y4HLbAD
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
