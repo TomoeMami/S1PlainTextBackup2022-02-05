@@ -811,3 +811,12 @@ Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockq
 
 另外才发现女主cv也是津田美波（为什么要说也<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  SEGA  
+##### 83#       发表于 2022-2-11 10:56
+
+玩过的觉得怎么样？SRPG的游戏现在本来就不多，出了肯定会买。
+
