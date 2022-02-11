@@ -10893,3 +10893,14 @@ bd基本没可能吧…社长倒是挺看重鲤鱼的，今天上座率怎么样
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 5410#       发表于 2022-2-12 06:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54649275&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-12 04:44</a>
+晚上睡不着就把拉板的鲤鱼串看了一遍，日本那边也是基本好评（或者不喜欢的人也不会进这个串，日本人毕竟ky ...</blockquote>
+应该是有恶介，不过staff居然没阻止
+
