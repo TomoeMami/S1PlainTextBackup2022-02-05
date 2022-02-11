@@ -1224,3 +1224,14 @@ eden组已看腻，请下一波新人赶紧来
 
 ATM失灵太绝了
 
+
+
+*****
+
+####  真飞鸟i  
+##### 10608#       发表于 2022-2-11 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹en男真的太火了，身边事，刚坐公交回家的时候扫了眼发现隔壁女生在看推，很少见就仔细看了下结果发现是在看vox的推。我们这边二次元浓度算是很低了，以前看见过的二次元就只有阴阳师和原神。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

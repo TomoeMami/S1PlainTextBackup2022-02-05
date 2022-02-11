@@ -9975,3 +9975,173 @@ rnm，加钱！
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ayangsu  
+##### 5324#       发表于 2022-2-11 18:01
+
+ 本帖最后由 ayangsu 于 2022-2-11 18:02 编辑 
+
+鲤鱼有点累了，该补水了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 5325#       发表于 2022-2-11 18:01
+
+ 本帖最后由 仟音一心 于 2022-2-11 18:03 编辑 
+
+我鲤鱼百万生命之上
+
+A6D7E027-3102-4619-874A-0025AE70B430.jpeg
+(217.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/180305dha9ggkg3gw7ga4a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E00EA336-C90B-4F2A-8452-D060A835D549.jpeg
+(282.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/180305gkft2quq55fcmq6z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+58F6935C-D9AD-4082-A046-5EE7B6099A7E.jpeg
+(159.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/180305dh427x440pwz40xx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+41EF3F18-40E1-4132-8900-BBB7B469EE24.jpeg
+(277.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/180305re5j4m6er2e6u66p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+049BF9BD-1BB2-4156-B07E-F13F40FAF84D.png
+(8.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202202/11/180305o51mqcq4447d75oa.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 5326#       发表于 2022-2-11 18:03
+
+希望可以摸鱼会
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  竹筷  
+##### 5327#       发表于 2022-2-11 18:04
+
+介绍道具
+
+*****
+
+####  player3960  
+##### 5328#       发表于 2022-2-11 18:07
+
+喜欢的几首歌全唱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+鲤鱼这续航是真牛逼，这波66元我赚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑雪姫  
+##### 5329#       发表于 2022-2-11 18:08
+
+鲤鱼如果在年轻五岁真的是前途无量啊，一点也不输小百合，现在的话...就看能不能赶上这次的末班车吧。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 5330#       发表于 2022-2-11 18:08
+
+坛友们，买鲤鱼姐一专别去幻想樱和内田水厂，去那里买比较好呀！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 5331#       发表于 2022-2-11 18:08
+
+没了呀！想要安可！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 5332#       发表于 2022-2-11 18:09
+
+我专辑直接找在日友人在a店买的
+
+*****
+
+####  仟音一心  
+##### 5333#       发表于 2022-2-11 18:10
+
+最后是magic words
+
+*****
+
+####  zhangyifan33  
+##### 5334#       发表于 2022-2-11 18:12
+
+<blockquote>秋月艾莉 发表于 2022-2-11 14:09
+凡事都有个程度，人吹CD机无非也就是止于生唱音程稳表演效果稳那步，也没有人说非得要表演者唱得等于CD就 ...</blockquote>
+我觉得朋友你有点儿误解我想表达的意思了，其实我不是也说了理解cd机的说法更多是基于稳的角度的夸赞。但是我感觉这种情况下你就单纯夸人稳比较好，用cd机这个说法很别扭在于，如果说观众追求的就是在现场听一个cd版，那现场表演在唱和听的层面还有什么意义，真人在上面动作表情做到位舞跳好，完后声音直接放cd版就行了。我是觉得对于真唱的追求是不止于说是一种仪式性的对于演唱者诚意的追求，它本身也是有审美层面的意义的。我举一个例子,混音中有一个概念叫dynamic动态，可以简单理解成最大音量和最小音量的比值，流行音乐制作时都会进行比较大的动态压缩处理，为了让你在类似公交街上这些嘈杂环境里也能稳定的听到一致稳定的声音。然而现场版尽管也有调音师控制音量，但大部分时候还是会比cd版动态更大(比较负面的情况就是声音严重的忽大忽小)，对一些歌曲这种更大的音量对比可能反而是更能体现作品感情和表达内容。你可能觉得用cd机评价我只是考虑音准节奏稳定的角度也没想别的这么多，但是我是比较怕这种说法传的多了就把还原cd效果当作一个现场表演最高的追求。至于pay那个其实你把冈山两天的版本和cd版包括之后的演唱会版本对比一下就知道了，这个说实话是真没啥好汴京的……
+
+当然我觉得我值得反思的是确实我除了ll以外不说日本偶像，jpop我都没接触过多少，ll实际抛开企划声优个人我也是不接触的。我确实是把很多古典/严肃音乐的逻辑和习惯带到二偶里了，并不是特别合适。
+
+我觉得写那么一大篇，哪怕尽量客观也是难免会有些个人观点输出的，求同存异嘛，也说了不指点圈内习惯，看个二偶确实没必要搞那么严肃。
+
+*****
+
+####  cybernetics31  
+##### 5335#       发表于 2022-2-11 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54643356&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-2-11 18:08</a>
+坛友们，买鲤鱼姐一专别去幻想樱和内田水厂，去那里买比较好呀！
+
+—— 来自 OPPO PDKM00, Android 11上的  ...</blockquote>
+a店，g店都行，走转运
+
+*****
+
+####  仟音一心  
+##### 5336#       发表于 2022-2-11 18:15
+
+encore!
+
+*****
+
+####  iuhehc  
+##### 5337#       发表于 2022-2-11 18:20
+
+要绷不住了
+
