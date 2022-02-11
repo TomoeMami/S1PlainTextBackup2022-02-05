@@ -15341,3 +15341,14 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 啊，扔了张点数拿的呼符，巴姐二宝了……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧皇吗 羡慕
 
+
+
+*****
+
+####  newfaceryo  
+##### 86983#       发表于 2022-2-11 20:52
+
+龙有未来视的话那阿尔比昂本体是怎么回事
+
+眼光太短或者腿太短，两者总归得有一个
+
