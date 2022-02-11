@@ -11146,3 +11146,22 @@ syl，苔箱也开始玩主播女孩重度依赖了还行
 
 什么时候完全组长化，好日子就来了
 
+
+
+*****
+
+####  病態極端  
+##### 8769#       发表于 2022-2-11 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54637985&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-2-11 11:55</a>
+
+什么时候完全组长化，好日子就来了</blockquote>
+那你去看組長啊
+
+*****
+
+####  T_Hb  
+##### 8770#       发表于 2022-2-11 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
