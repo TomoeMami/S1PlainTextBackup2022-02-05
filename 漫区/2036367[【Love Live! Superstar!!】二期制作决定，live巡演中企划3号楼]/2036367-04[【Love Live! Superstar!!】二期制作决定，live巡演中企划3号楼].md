@@ -10446,3 +10446,76 @@ B站的app怎么看自己的票根</blockquote>
 
 <img src="http://wx3.sinaimg.cn/mw1024/7b537b1bgy1gz9twdee7lj21bo0iqq8a.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 5372#       发表于 2022-2-11 20:27
+
+ 本帖最后由 普之舜舜 于 2022-2-11 20:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没付费就想白嫖，想的美，66人民币都拿不出来，还不如不看
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 5373#       发表于 2022-2-11 20:30
+
+今天还在推上看到个5000求票的，GUN阿
+
+*****
+
+####  黑雪姫  
+##### 5374#       发表于 2022-2-11 20:30
+
+b站锁ip吧 日本人除了到现场外只能白嫖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不知道为什么只有国内b站搞线上，国外没弄？
+
+*****
+
+####  stygian  
+##### 5375#       发表于 2022-2-11 20:34
+
+问就是老乡福利，反正之后mon台那边有录播，非中国ip自己想办法吧
+
+翻了下拉板鱼串，都是好评，除了二楼最后有几个厄介外挺完美的
+
+*****
+
+####  llllife  
+##### 5376#       发表于 2022-2-11 20:35
+
+<blockquote>黑雪姫 发表于 2022-2-11 20:30
+b站锁ip吧 日本人除了到现场外只能白嫖
+
+不知道为什么只有国内b站搞线上，国外没弄？ ...</blockquote>
+只有买票的时候锁，看的时候竟然可以直连
+
+*****
+
+####  型月重工  
+##### 5377#       发表于 2022-2-11 20:35
+
+ 本帖最后由 型月重工 于 2022-2-11 20:36 编辑 
+
+国外要搞线上定价多少钱? 反正肯定不是66RMB,定太高肯定又是一波节奏
+
+*****
+
+####  stygian  
+##### 5378#       发表于 2022-2-11 20:39
+
+<img src="https://img.saraba1st.com/forum/202202/11/203903wnrqm0kzmqzr7eaz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-11 20:39 上传
+
+宫岛淳子去现场看了
+

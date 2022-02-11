@@ -867,3 +867,26 @@ Se 还强制中文英配么，试玩的时候想换中文日配都不行</blockq
 
 这游戏死人没啥惩罚吗
 
+
+
+*****
+
+####  thez  
+##### 88#       发表于 2022-2-11 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54638051&amp;ptid=2051152" target="_blank">可乐杜 发表于 2022-2-11 11:59</a>
+
+现在港版游戏怎么都是360左右，是抬价还是汇率有变化啊
+
+—— 来自 Xiaomi M2102K1C, Android 12上 ...</blockquote>
+日式RPG向来实体卡都贵一些吧……
+
+*****
+
+####  战狼PTSD  
+##### 89#       发表于 2022-2-11 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打了大概三个小时，感觉就是对话真长啊。。。不喜欢这个剧情和氛围
+
+还是FFTA那种童趣奇幻好，FFT一直打不下去
+

@@ -15322,3 +15322,22 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 兰丸真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86981#       发表于 2022-2-11 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">啊，扔了张点数拿的呼符，巴姐二宝了……
+
+*****
+
+####  alucardcz  
+##### 86982#       发表于 2022-2-11 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54645597&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-2-11 20:41</a>
+
+啊，扔了张点数拿的呼符，巴姐二宝了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧皇吗 羡慕
+

@@ -11445,3 +11445,19 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 你们日综也太弱智了吧……
 
+
+
+*****
+
+####  路人庚  
+##### 8801#       发表于 2022-2-11 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真的有人觉得要来个真火箭升空吧
+
+*****
+
+####  古战场亡魂  
+##### 8802#       发表于 2022-2-11 20:38
+
+我还以为能来个水火箭呢……
+
