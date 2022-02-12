@@ -6234,3 +6234,26 @@ holo综昨天晚上讨论一晚上 隔壁看看就行 还有同接是联动带�
 
 如果能直播的话应该是直播ps5版吧，可我只买了pc版啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 8229#       发表于 2022-2-12 17:30
+
+看最新采访，夸夸以前总说“努力就会有回报”，现在说“尽人事听天命”，这就是沧桑感吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 8230#       发表于 2022-2-12 17:32
+
+这就是温度差吧
+
+*****
+
+####  erer  
+##### 8231#       发表于 2022-2-12 17:34
+
+是现实受挫后的社会人😭，不过好歹她说的是尽人事听天命，没有说随遇而安。
+

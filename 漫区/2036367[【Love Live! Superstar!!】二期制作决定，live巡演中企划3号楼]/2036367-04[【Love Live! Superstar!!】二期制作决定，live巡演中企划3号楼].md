@@ -11138,3 +11138,12 @@ QQ图片20220212120646.png
 
 <img src="https://img.saraba1st.com/forum/202202/12/163938f3y86jbp88f7vv7z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5428#       发表于 2022-2-12 17:25
+
+我永远支持星团<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
