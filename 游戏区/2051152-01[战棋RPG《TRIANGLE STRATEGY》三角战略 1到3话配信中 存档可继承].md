@@ -1753,3 +1753,12 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hui.w  
+##### 157#       发表于 2022-2-12 22:29
+
+人物完全没必要强行像素，做成FFT那样不好么
+

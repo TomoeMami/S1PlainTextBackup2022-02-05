@@ -613,3 +613,19 @@ Bolero &gt; Sweater &gt; Shirt &gt; &gt; &gt; French Maid
 
 你别说，这几身都挺耐看，我甚至已经感觉校服观感已经提升到军大衣水平了
 
+
+
+*****
+
+####  wuzu  
+##### 9076#       发表于 2022-2-12 22:09
+
+新衣服一眼以为是从幻想万花镜里蹦出来的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9077#       发表于 2022-2-12 22:19
+
+唱这个还挺合适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

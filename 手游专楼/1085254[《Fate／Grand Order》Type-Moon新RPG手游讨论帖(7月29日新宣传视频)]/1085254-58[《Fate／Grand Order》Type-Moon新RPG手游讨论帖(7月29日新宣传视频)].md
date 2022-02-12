@@ -15410,3 +15410,14 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 2.6这批人剧情怎么都这么好笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妖崔这开头笑死我了
 
+
+
+*****
+
+####  森兰丸  
+##### 86989#       发表于 2022-2-12 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">男神凭依也就算了.....又是让巴姐叫自己姐姐...又是要参加女孩子夜话
+
+这辣鸡游戏的男性神灵都是变态吗
+
