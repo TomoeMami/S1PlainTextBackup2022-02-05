@@ -1424,3 +1424,19 @@ Alice为了你我要成为牛鼠呜呜呜<img src="https://static.saraba1st.com/
 
 vup可以炒bgcp大赚特赚管人不行，但管人曝绯闻主流舆论是支持而vup就是lkd粉丝是龟男，这是怎么回事呢
 
+
+
+*****
+
+####  aptx318  
+##### 10627#       发表于 2022-2-12 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54648411&amp;ptid=1972669" target="_blank">443421870 发表于 2022-2-12 00:40</a>
+
+阿b这里花瓶可是可以公开联动秀恩爱吸血养cp粉的，润姨敢和mfmf直播联动apex嘛
+
+  -- 来自 有消息提醒的 St ...</blockquote>
+这个情况差很多，花那边原生粉丝少之前又没养gachi。你体量大了养了很多男友粉了转头bgcp营业活该爆炸。
+
+倒是同性营业方便很多，cp粉和男友/女友粉通吃。
+

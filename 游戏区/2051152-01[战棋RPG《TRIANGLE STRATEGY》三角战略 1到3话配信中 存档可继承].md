@@ -1099,3 +1099,163 @@ srpg部分还不错
 
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  hellightning  
+##### 108#       发表于 2022-2-12 10:06
+
+前三章剧情还没进入正篇吧，第一个pv就提到身边的亲信会背叛你，前天的pv也挺有信息量的，随便截了几张
+
+<img src="https://img.saraba1st.com/forum/202202/12/095547w1uh0u42vh0yy409.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(195).png</strong> (349.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+可能是未婚妻和主角决裂
+
+<img src="https://img.saraba1st.com/forum/202202/12/095740r24z42fhh4ed8ge2.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(204).png</strong> (391.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:57 上传
+
+王子继承枪圣的面具和帽子
+
+<img src="https://img.saraba1st.com/forum/202202/12/095547qznip2i2nxeigg8i.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(196).png</strong> (308.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+教皇可能会露面
+
+<img src="https://img.saraba1st.com/forum/202202/12/095547vzzxz9fknzjvz8kp.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(197).png</strong> (260.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+本尼迪克特出现在公国元帅面前，不知道被俘还是背叛
+
+<img src="https://img.saraba1st.com/forum/202202/12/095548yy049100m0sq944b.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(201).png</strong> (243.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+科迪莉亚的背叛？这里中文pv有点模糊化，英文pv明确提到了名字
+
+<img src="https://img.saraba1st.com/forum/202202/12/095548d9bc2gaobcad93i3.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(202).png</strong> (297.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+这个即将被杀的不知道是谁，外观像王女但衣着不像
+
+<img src="https://img.saraba1st.com/forum/202202/12/095549rwqxvyvidrzw20yd.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(203).png</strong> (267.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+王女在演讲（看来应该是关键人物），背后是公国的人
+
+屏幕截图(200).png
+(289.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 09:55 上传
+
+<img src="https://img.saraba1st.com/forum/202202/12/095548jnzjg6jov636o73m.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zikimi  
+##### 109#       发表于 2022-2-12 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54650372&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-2-12 10:06</a>
+
+前三章剧情还没进入正篇吧，第一个pv就提到身边的亲信会背叛你，前天的pv也挺有信息量的，随便截了几张
+
+可 ...</blockquote>
+被杀的是国王，demo1就有这个剧情
+
+*****
+
+####  先生空气  
+##### 110#       发表于 2022-2-12 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54650372&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-2-12 10:06</a>
+
+前三章剧情还没进入正篇吧，第一个pv就提到身边的亲信会背叛你，前天的pv也挺有信息量的，随便截了几张
+
+可 ...</blockquote>
+倒数第二张图不是DEMO1公国打进来了，然后把大王子干掉了让皇女执政吗
+
+*****
+
+####  hellightning  
+##### 111#       发表于 2022-2-12 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54650393&amp;ptid=2051152" target="_blank">zikimi 发表于 2022-2-12 10:07</a>
+
+被杀的是国王，demo1就有这个剧情</blockquote>
+太久远没印象了，国王头发这么长吗
+
+*****
+
+####  zikimi  
+##### 112#       发表于 2022-2-12 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54650425&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-2-12 10:09</a>
+
+太久远没印象了，国王头发这么长吗</blockquote>
+跪后面哭的是王女啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hellightning| + 1|丢人了，就当没看见吧（|
+
+查看全部评分
+
+*****
+
+####  lbj5454  
+##### 113#       发表于 2022-2-12 10:14
+
+这游戏有非主线关卡刷级吗？
+
+*****
+
+####  S.T.A.L.K.E.R  
+##### 114#       发表于 2022-2-12 10:16
+
+这画风好 不是二次元媚宅风
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
