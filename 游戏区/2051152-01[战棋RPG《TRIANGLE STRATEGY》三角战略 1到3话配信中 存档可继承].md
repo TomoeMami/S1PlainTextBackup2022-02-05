@@ -1771,3 +1771,27 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双子大门的将军一脸便当样
 
+
+
+*****
+
+####  kerbad  
+##### 159#       发表于 2022-2-12 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54655989&amp;ptid=2051152" target="_blank">Bani82 发表于 2022-2-12 18:24</a>
+
+比较喜欢柚子，IO感觉太空气了
+
+其他配角上2的女性整倒是不错，但是男性阵那谁实在是太基了 ...</blockquote>
+那个人的路线甚至最终战强制出场不能当输出用还不能死，特膈应人<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bani82  
+##### 160#       发表于 2022-2-12 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54660240&amp;ptid=2051152" target="_blank">kerbad 发表于 2022-2-12 22:53</a>
+
+那个人的路线甚至最终战强制出场不能当输出用还不能死，特膈应人</blockquote>
+那个人的性专版还是不错的！
+

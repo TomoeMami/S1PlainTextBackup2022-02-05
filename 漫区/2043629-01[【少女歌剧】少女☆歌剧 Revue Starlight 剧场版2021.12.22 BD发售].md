@@ -8934,3 +8934,16 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 分三种路线随机赠送，应该是对话框+cast真人实写照片立绘做的手游风映像，上周交响九九组MC也提到拍了很多姿势的照片。不知为什么就想起了木村如龙.....
 [https://twitter.com/revuestarlig ... 5AzcxMe7JweaK3FpgyQ](https://twitter.com/revuestarlight/status/1487642499589963780?s=20&amp;t=LAz5AzcxMe7JweaK3FpgyQ)
 
+
+
+*****
+
+####  angela5d30  
+##### 672#       发表于 2022-2-12 22:54
+
+太感谢俩位了。我本来是想买一场看个乐的，可看了你们科普后特别在意特写镜头外那些小动作的编排，搞得又想多买一场，可这么一来又冒出“那不如直接套票走起？”的思绪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+才知道原来这类线上看直播&amp;回放视频的入场券也会有特典这一说，我完全不懂这类东西，感觉好复杂<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 來自 Xiaomi M2012K10C, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
