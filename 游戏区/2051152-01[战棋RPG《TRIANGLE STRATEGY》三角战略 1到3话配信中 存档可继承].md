@@ -1076,3 +1076,15 @@ srpg部分还不错
 
 剧情打瞌睡。。。就怕成品是一个强化版佣兵烈焰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  先生空气  
+##### 106#       发表于 2022-2-12 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54648610&amp;ptid=2051152" target="_blank">henryqxg 发表于 2022-2-12 01:05</a>
+
+剧情打瞌睡。。。就怕成品是一个强化版佣兵烈焰</blockquote>
+有一说一，还是比佣兵烈焰强的（，佣兵烈焰我连前三关都打不下去
+
