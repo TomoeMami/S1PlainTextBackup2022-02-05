@@ -1813,3 +1813,14 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 
 从demo看，剧情水平如何啊。
 
+
+
+*****
+
+####  xingbell  
+##### 163#       发表于 2022-2-13 07:38
+
+感觉地图不是很大，可能剧情也不会太长
+
+—— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
