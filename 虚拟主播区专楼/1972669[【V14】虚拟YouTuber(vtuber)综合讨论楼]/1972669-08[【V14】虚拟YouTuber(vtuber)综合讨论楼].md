@@ -1503,3 +1503,14 @@ Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了
 
 难得想夸奖ytb推荐机制！
 
+
+
+*****
+
+####  IDIDIDID  
+##### 10634#       发表于 2022-2-12 23:19
+
+[https://twitter.com/moricalliope/status/1492317218163462144](https://twitter.com/moricalliope/status/1492317218163462144)
+
+不是第一次互动了
+
