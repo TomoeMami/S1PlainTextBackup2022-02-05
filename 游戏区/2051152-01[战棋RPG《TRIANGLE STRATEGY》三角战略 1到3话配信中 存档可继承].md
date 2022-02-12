@@ -1729,3 +1729,27 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 
 最好能有管家3级加防御的技能、侍女3级重伤加治疗量的被动，不然容易被boss的技能秒
 
+
+
+*****
+
+####  windtrack  
+##### 155#       发表于 2022-2-12 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54656345&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-2-12 19:00</a>
+
+卧槽，第二章敌方boss一刀爆了男主58，配个夹击直接把满血男主抬走了，这数值设定怎么看都不对劲吧 ...</blockquote>
+第二章明显是叫你用盾卫的嘲讽以及管家的坚如犀，杂鱼全拉进角落，主角专心给BOSS打延迟剑不难过
+
+主要是第一章要分配好资源，最后最好围住弓妹不杀，然后让管家和侍女俩无限刷BUFF加血吃经验到3
+
+*****
+
+####  NaYo丶  
+##### 156#       发表于 2022-2-12 20:41
+
+王女这立绘不如像素小人
+感觉这作立绘还挺烂很多不如小人太脏了线条
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
