@@ -1483,3 +1483,12 @@ vup可以炒bgcp大赚特赚管人不行，但管人曝绯闻主流舆论是支�
 
 什么关系都是真的，只有主播对粉丝是假的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 10632#       发表于 2022-2-12 19:22
+
+Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了，纯纯的负作用，这队不该这个成绩的
+
