@@ -11866,3 +11866,908 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 有点紧张，决定去留！
 
+
+
+*****
+
+####  yywzjsw  
+##### 8850#       发表于 2022-2-12 21:04
+
+（
+
+ 本帖最后由 yywzjsw 于 2022-2-12 21:05 编辑 
+
+会用什么办法拖时间呢，上次是玩别人送的l2d、这次会啥（是不是就这一张fanart<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  时间在我手中  
+##### 8851#       发表于 2022-2-12 21:05
+
+这次用别人的图（）
+
+*****
+
+####  2111X  
+##### 8852#       发表于 2022-2-12 21:05
+
+一眼肥，玩的就是写实
+
+*****
+
+####  clvan_  
+##### 8853#       发表于 2022-2-12 21:05
+
+这次用双簧
+
+*****
+
+####  路人庚  
+##### 8854#       发表于 2022-2-12 21:06
+
+粉粉粉粉粉
+
+*****
+
+####  T_Hb  
+##### 8855#       发表于 2022-2-12 21:06
+
+大 大 大 大 大
+
+*****
+
+####  时雨rain  
+##### 8856#       发表于 2022-2-12 21:07
+
+希望是地雷系😊
+
+*****
+
+####  Mr.shelter  
+##### 8857#       发表于 2022-2-12 21:07
+
+ 本帖最后由 Mr.shelter 于 2022-2-12 21:09 编辑 
+
+整不出活就快点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">急急急
+
+别叫了臭女人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8858#       发表于 2022-2-12 21:08
+
+能不能把麦克风收起来
+
+*****
+
+####  yywzjsw  
+##### 8859#       发表于 2022-2-12 21:08
+
+难道先家用3d搞一播？
+
+*****
+
+####  rosevalley46  
+##### 8860#       发表于 2022-2-12 21:09
+
+发大病中
+
+*****
+
+####  T_Hb  
+##### 8861#       发表于 2022-2-12 21:09
+
+又把那🐏拿出来了
+
+*****
+
+####  疏影横斜水清浅  
+##### 8862#       发表于 2022-2-12 21:09
+
+妹啊别叫了直接出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  斗斗一号  
+##### 8863#       发表于 2022-2-12 21:09
+
+又来
+
+*****
+
+####  时间在我手中  
+##### 8864#       发表于 2022-2-12 21:09
+
+**遛🐵羊，羊党快死
+
+*****
+
+####  Klience  
+##### 8865#       发表于 2022-2-12 21:09
+
+咩你个死人头
+
+*****
+
+####  2014720  
+##### 8866#       发表于 2022-2-12 21:09
+
+😅
+
+*****
+
+####  yywzjsw  
+##### 8867#       发表于 2022-2-12 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 8868#       发表于 2022-2-12 21:09
+
+<img src="https://img.saraba1st.com/forum/202202/12/210953n7q0d00ht1rr2404.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:09 上传
+
+*****
+
+####  T_Hb  
+##### 8869#       发表于 2022-2-12 21:10
+
+时间倒流了，又开始念台词了😓就不能找人给你想两个活吗
+
+*****
+
+####  clvan_  
+##### 8870#       发表于 2022-2-12 21:11
+
+不愧是你
+
+*****
+
+####  2014720  
+##### 8871#       发表于 2022-2-12 21:11
+
+<img src="https://p.sda1.dev/4/d1ef718eb714919e9d4ed359539be97f/-2a61f8362764c591.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.shelter  
+##### 8872#       发表于 2022-2-12 21:11
+
+盲猜又是
+
+*****
+
+####  yywzjsw  
+##### 8873#       发表于 2022-2-12 21:12
+
+meu<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8874#       发表于 2022-2-12 21:12
+
+没活了能不能直接拿出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8875#       发表于 2022-2-12 21:12
+
+我就知道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 8876#       发表于 2022-2-12 21:12
+
+不行咬打火机吧
+
+*****
+
+####  时间在我手中  
+##### 8877#       发表于 2022-2-12 21:12
+
+再遛叔叔我真的要生气了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.shelter  
+##### 8878#       发表于 2022-2-12 21:12
+
+真的要玩的话我其实觉得犬犬那个皮最好活<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 8879#       发表于 2022-2-12 21:12
+
+唉，毕竟没啥人给你麻画fanart，要不然不是随便拖时间<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斗斗一号  
+##### 8880#       发表于 2022-2-12 21:12
+
+没有新活整了
+
+
+
+*****
+
+####  璃絵和花瑠  
+##### 8881#       发表于 2022-2-12 21:13
+
+没活了可以咬打火机，不然就麻利点下锅<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 8882#       发表于 2022-2-12 21:13
+
+老皮也能拿出来玩玩
+
+*****
+
+####  T_Hb  
+##### 8883#       发表于 2022-2-12 21:14
+
+这短袜
+
+我的评价是一般，好朴素
+
+*****
+
+####  yywzjsw  
+##### 8884#       发表于 2022-2-12 21:14
+
+艹学院服
+
+*****
+
+####  笋狐  
+##### 8885#       发表于 2022-2-12 21:14
+
+这集我是不是看过啊，程序都是一样样的
+
+*****
+
+####  やト  
+##### 8886#       发表于 2022-2-12 21:14
+
+<img src="https://img.saraba1st.com/forum/202202/12/211453ugsk2phsz2xk1xnp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:14 上传
+
+ 算校服？
+
+*****
+
+####  疏影横斜水清浅  
+##### 8887#       发表于 2022-2-12 21:15
+
+校服。。。一般啊
+
+*****
+
+####  古战场亡魂  
+##### 8888#       发表于 2022-2-12 21:15
+
+什么明星学生妹
+
+*****
+
+####  rosevalley46  
+##### 8889#       发表于 2022-2-12 21:15
+
+我收回我之前的话,这不是露出度低,这是包的严严实实啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8890#       发表于 2022-2-12 21:15
+
+说说感想吧
+
+*****
+
+####  2014720  
+##### 8891#       发表于 2022-2-12 21:15
+
+<img src="https://p.sda1.dev/4/0e31eb3d874bbdaf29ff27dafd549abd/IMG_CMP_122346399.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 8892#       发表于 2022-2-12 21:15
+
+不是，这也太快了吧？20分钟都没有<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freeze_雪风  
+##### 8893#       发表于 2022-2-12 21:15
+
+太正式了，不能冲，差评<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8894#       发表于 2022-2-12 21:15
+
+感觉。。。。还不如军大衣
+
+*****
+
+####  璃絵和花瑠  
+##### 8895#       发表于 2022-2-12 21:15
+
+……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Mr.shelter  
+##### 8896#       发表于 2022-2-12 21:15
+
+卧槽，我知道这个是什么味儿了，是黄油里面立派的大小姐或者学生会长的样子啊混蛋<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斗斗一号  
+##### 8897#       发表于 2022-2-12 21:15
+
+感觉这身没啥细节，但还能看吧，没之前那套吸引眼球
+
+*****
+
+####  やト  
+##### 8898#       发表于 2022-2-12 21:15
+
+<img src="https://img.saraba1st.com/forum/202202/12/211548hulruixbbvp9pwp5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:15 上传
+
+ 以后估计少看到全身
+
+*****
+
+####  古战场亡魂  
+##### 8899#       发表于 2022-2-12 21:15
+
+难得露腿了，不知道配件多不多
+
+*****
+
+####  gongge666  
+##### 8900#       发表于 2022-2-12 21:16
+
+这个胸部倒是好大
+
+*****
+
+####  KL25001  
+##### 8901#       发表于 2022-2-12 21:16
+
+还不错，这个乳帘可以细品
+
+*****
+
+####  掉头学姐  
+##### 8902#       发表于 2022-2-12 21:16
+
+普通土妹普通土妹普通土妹普通土妹
+
+*****
+
+####  ESAKA!!!!  
+##### 8903#       发表于 2022-2-12 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54598337&amp;ptid=2018830" target="_blank">ESAKA!!!! 发表于 2022-2-9 00:31</a>
+怎么感觉是jk装</blockquote>
+我就知道！好耶！
+
+*****
+
+####  zc1996zc  
+##### 8904#       发表于 2022-2-12 21:16
+
+感觉太平庸了
+
+*****
+
+####  2014720  
+##### 8905#       发表于 2022-2-12 21:16
+
+这套作为常服还不错，希望不要玩玩就丢了
+
+*****
+
+####  十九号大侠  
+##### 8906#       发表于 2022-2-12 21:16
+
+感觉比女仆看上去成熟点啊
+
+*****
+
+####  yywzjsw  
+##### 8907#       发表于 2022-2-12 21:16
+
+能不能拖外套，还有换换发型<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  疏影横斜水清浅  
+##### 8908#       发表于 2022-2-12 21:16
+
+有点朴素但可动性很强 小表情看着还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘栗No.007  
+##### 8909#       发表于 2022-2-12 21:16
+
+gal里的大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8910#       发表于 2022-2-12 21:17
+
+瞳色换一下就是篝之雾枝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 8911#       发表于 2022-2-12 21:17
+
+这也还好，但是这学生服确实满大街都是，品鉴的太多了
+
+*****
+
+####  clvan_  
+##### 8912#       发表于 2022-2-12 21:17
+
+还可以吧
+
+*****
+
+####  Mr.shelter  
+##### 8913#       发表于 2022-2-12 21:17
+
+其实我觉得蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 8914#       发表于 2022-2-12 21:17
+
+适合短发，大概
+
+太花也不好我只能说，也许确实不惊艳就是了
+
+*****
+
+####  斗斗一号  
+##### 8915#       发表于 2022-2-12 21:17
+
+短发可爱啊
+
+*****
+
+####  十九号大侠  
+##### 8916#       发表于 2022-2-12 21:17
+
+有点普通哦
+
+*****
+
+####  古战场亡魂  
+##### 8917#       发表于 2022-2-12 21:17
+
+短发我觉得好了
+
+*****
+
+####  やト  
+##### 8918#       发表于 2022-2-12 21:18
+
+<img src="https://img.saraba1st.com/forum/202202/12/211757zy49xs4x5x2w7slr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:17 上传
+
+ 短发ver
+
+*****
+
+####  yywzjsw  
+##### 8919#       发表于 2022-2-12 21:18
+
+短发不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草牛  
+##### 8920#       发表于 2022-2-12 21:18
+
+短发有点烧
+
+*****
+
+####  rosevalley46  
+##### 8921#       发表于 2022-2-12 21:18
+
+咋说呢,作为一个替换的衣服还行的,但一想到这衣服是这模型第一个新衣服而且据说排了好久的队就感觉还差点<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 8922#       发表于 2022-2-12 21:18
+
+短发好看，你麻是真的喜欢短发
+
+*****
+
+####  2014720  
+##### 8923#       发表于 2022-2-12 21:18
+
+按你们意思就是前后三套皮都是短发最好
+
+确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，live2d真做不出长发的感觉
+
+*****
+
+####  T_Hb  
+##### 8924#       发表于 2022-2-12 21:18
+
+一想到下一件还要排一年就有点崩溃
+
+*****
+
+####  上坂蓮華  
+##### 8925#       发表于 2022-2-12 21:18
+
+什么超级变换形态
+
+*****
+
+####  freeze_雪风  
+##### 8926#       发表于 2022-2-12 21:19
+
+能把衣服脱了不，热<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onlv星骸  
+##### 8927#       发表于 2022-2-12 21:19
+
+喜欢这个大双马尾
+
+*****
+
+####  时间在我手中  
+##### 8928#       发表于 2022-2-12 21:19
+
+长发有点意思
+
+*****
+
+####  T_Hb  
+##### 8929#       发表于 2022-2-12 21:19
+
+哦，还有个这样的发型，还可以
+
+*****
+
+####  斗斗一号  
+##### 8930#       发表于 2022-2-12 21:19
+
+这下真的大小姐了
+
+*****
+
+####  路人庚  
+##### 8931#       发表于 2022-2-12 21:19
+
+散发！散发！散发！
+
+*****
+
+####  yywzjsw  
+##### 8932#       发表于 2022-2-12 21:20
+
+艹这，什么大小姐发型<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8933#       发表于 2022-2-12 21:20
+
+哦 这散发可以 感觉更像galgame里的角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  疏影横斜水清浅  
+##### 8934#       发表于 2022-2-12 21:20
+
+长发也不错啊 我好了
+
+*****
+
+####  古战场亡魂  
+##### 8935#       发表于 2022-2-12 21:20
+
+发型可太tm重要了
+
+*****
+
+####  十九号大侠  
+##### 8936#       发表于 2022-2-12 21:20
+
+女仆是不是以后就会很少用了
+
+*****
+
+####  十九号大侠  
+##### 8937#       发表于 2022-2-12 21:20
+
+他应该很想当大小姐吧
+
+*****
+
+####  rosevalley46  
+##### 8938#       发表于 2022-2-12 21:20
+
+这发型很好看
+
+*****
+
+####  やト  
+##### 8939#       发表于 2022-2-12 21:20
+
+<img src="https://img.saraba1st.com/forum/202202/12/212031c0c0exd8b5otozwx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:20 上传
+
+*****
+
+####  T_Hb  
+##### 8940#       发表于 2022-2-12 21:20
+
+能不能把长裙脱了
+
+
+
+*****
+
+####  往世雷书  
+##### 8941#       发表于 2022-2-12 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54658532&amp;ptid=2018830" target="_blank">freeze_雪风 发表于 2022-2-12 21:19</a>
+能把衣服脱了不，热</blockquote>
+这大腿的露出度已经是历史新高了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  2014720  
+##### 8942#       发表于 2022-2-12 21:21
+
+<img src="https://p.sda1.dev/4/422ebb36742c2a9a6d2ccaec91d39f17/-36b6239037e62dcf.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  藤原银  
+##### 8943#       发表于 2022-2-12 21:21
+
+可爱可爱可爱可爱可爱可爱可爱measuki
+
+*****
+
+####  Mr.shelter  
+##### 8944#       发表于 2022-2-12 21:21
+
+长发长发<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8945#       发表于 2022-2-12 21:22
+
+手能不能动啊
+
+*****
+
+####  T_Hb  
+##### 8946#       发表于 2022-2-12 21:22
+
+哈哈哈哈，大小眼
+
+*****
+
+####  斗斗一号  
+##### 8947#       发表于 2022-2-12 21:22
+
+是不是戴了眼镜，wink失败了
+
+*****
+
+####  2111X  
+##### 8948#       发表于 2022-2-12 21:22
+
+手和肩膀显得姿势有点不自在，缺个pose
+
+*****
+
+####  rosevalley46  
+##### 8949#       发表于 2022-2-12 21:22
+
+这个近视角镜头多来点<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+本来就是一流机师天天当个gif用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 8950#       发表于 2022-2-12 21:23
+
+散发<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 能不能整点大姐姐声音出来啊咩宝
+
+*****
+
+####  2111X  
+##### 8951#       发表于 2022-2-12 21:23
+
+好起来了！
+
+*****
+
+####  路人庚  
+##### 8952#       发表于 2022-2-12 21:23
+
+我超，短裙ver
+
+*****
+
+####  T_Hb  
+##### 8953#       发表于 2022-2-12 21:23
+
+哦，这个还可以
+
+*****
+
+####  时间在我手中  
+##### 8954#       发表于 2022-2-12 21:23
+
+这个毛衣很好，够骚
+
+*****
+
+####  やト  
+##### 8955#       发表于 2022-2-12 21:23
+
+<img src="https://img.saraba1st.com/forum/202202/12/212327nmky0zx90n99zox0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:23 上传
+
+*****
+
+####  病態極端  
+##### 8956#       发表于 2022-2-12 21:23
+
+謝謝你，Jimmy老師
+
+*****
+
+####  ylssb10438  
+##### 8957#       发表于 2022-2-12 21:23
+
+我超<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斗斗一号  
+##### 8958#       发表于 2022-2-12 21:23
+
+哇，等得值得了，好多配件，完全是两套衣服了
+
+*****
+
+####  T_Hb  
+##### 8959#       发表于 2022-2-12 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8960#       发表于 2022-2-12 21:23
+
+这分明是两套衣服啊
+
+*****
+
+####  古战场亡魂  
+##### 8961#       发表于 2022-2-12 21:23
+
+毛衣厉害
+
+*****
+
+####  iuhehc  
+##### 8962#       发表于 2022-2-12 21:23
+
+超短裙是吧
+
+*****
+
+####  rosevalley46  
+##### 8963#       发表于 2022-2-12 21:23
+
+毛衣,正确的
+
+*****
+
+####  Klience  
+##### 8964#       发表于 2022-2-12 21:24
+
+我懂了 这是早上翻出女校逃课跑去网吧打101的大小姐人设<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8965#       发表于 2022-2-12 21:24
+
+外套脱了，也很严实呢
+
+*****
+
+####  时间在我手中  
+##### 8966#       发表于 2022-2-12 21:24
+
+<img src="https://img.saraba1st.com/forum/202202/12/212401racatsm7t8m5uy55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:24 上传
+
+来点火腿肠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
