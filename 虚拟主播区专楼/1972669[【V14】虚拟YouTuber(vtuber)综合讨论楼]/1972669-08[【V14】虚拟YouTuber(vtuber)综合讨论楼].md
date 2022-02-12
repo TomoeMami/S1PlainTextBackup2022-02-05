@@ -1465,3 +1465,12 @@ vup可以炒bgcp大赚特赚管人不行，但管人曝绯闻主流舆论是支�
 下一次进楼应该是阿满或小白停止活动了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 妮居然也是管人痴
 
+
+
+*****
+
+####  ylssb10438  
+##### 10630#       发表于 2022-2-12 14:16
+
+如果没有养gachi营业刻意钓凯子，大多数人都是祝福真爱的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

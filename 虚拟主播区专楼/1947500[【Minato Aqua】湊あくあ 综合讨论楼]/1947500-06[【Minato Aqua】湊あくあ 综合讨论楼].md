@@ -6225,3 +6225,12 @@ holo综昨天晚上讨论一晚上 隔壁看看就行 还有同接是联动带�
 
 看推特上的说法怀疑是4人游戏没经过任天堂许可所以隐藏了
 
+
+
+*****
+
+####  ylssb10438  
+##### 8228#       发表于 2022-2-12 14:18
+
+如果能直播的话应该是直播ps5版吧，可我只买了pc版啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
