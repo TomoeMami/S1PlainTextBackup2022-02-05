@@ -11190,3 +11190,35 @@ QQ图片20220212120646.png
 
 鲤鱼姐啥时候减肥，比伴舞都圆好多
 
+
+
+*****
+
+####  仟音一心  
+##### 5434#       发表于 2022-2-12 21:29
+
+Lantis EXPO
+
+北京时间今夜23:00
+
+2月的主持人由 Liyuu来担当
+
+2月9日发售
+
+1st专辑"Fo(u)r YuU"的话题
+
+还有中国情人节的话题和巧克力…
+
+在这边收听↓↓
+
+radiko.jp/share/?sid=FMT&amp;t=20220213000000…
+
+B9A9130B-A54D-46AB-AA8B-278E5772D784.jpeg
+(640.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202202/12/212956tvn9my81dmm94vnb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

@@ -1,0 +1,672 @@
+
+
+*****
+
+####  elven119  
+##### 1#       楼主       发表于 2022-1-31 16:46
+
+ 本帖最后由 elven119 于 2022-2-10 16:53 编辑 
+
+等了好久，终于要上线了，预感会火一波，先放预热贴
+
+官网：[https://heaven-burns-red.com/](https://heaven-burns-red.com/)
+
+key社＋WFS飞机社（时空猫开发组）
+
+人设：ゆーげん
+
+剧本：你们最爱的<strong>麻枝准</strong>想了5年写出来的
+
+类型RPG，但是玩法很特殊，内测视频云了下，一部分系统和时空猫很像，也是可以自由探索的RPG
+
+B站PV：[https://www.bilibili.com/video/BV1gL411s77u?share_source=copy_web](https://www.bilibili.com/video/BV1gL411s77u?share_source=copy_web)
+
+讨论群：672944773
+
+<img src="https://img.saraba1st.com/forum/202202/07/113715fh6wz1ke2hi45uee.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31a.png</strong> (302.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113714dh4uww4xb4auua1a.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31b.png</strong> (312.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113714fofwzq9eohmxcmyp.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31c.png</strong> (345.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113714q0zy49iijjl0mzzl.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_30g.png</strong> (305.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113713j0a0w88wt8w0n287.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31d.png</strong> (287.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113712rbuz0guo9bif9zbj.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31e.png</strong> (261.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113712rl0sj48spwqig4zg.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31f.png</strong> (312.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/113712nssde2e3hkhpde83.png" referrerpolicy="no-referrer">
+
+<strong>wppc_hbr_31x.png</strong> (293.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:37 上传
+
+7.jpg
+(208.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/112217cdxz5o5mi5nlzgld.jpg" referrerpolicy="no-referrer">
+
+6.jpg
+(228.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/112223ut8ljlu7m27tjggl.jpg" referrerpolicy="no-referrer">
+
+5.jpg
+(263.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/112229qbe64sj4jljjk027.jpg" referrerpolicy="no-referrer">
+
+4.jpg
+(270.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/112231wqavhw0yhm4q1zw4.jpg" referrerpolicy="no-referrer">
+
+3.jpg
+(248.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-7 11:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/07/112234fzhdsc6vz66djbvb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  魔法使い2019  
+##### 2#       发表于 2022-1-31 16:48
+
+想 了 5 年 写 出 来 的
+
+*****
+
+####  红叶  
+##### 3#       发表于 2022-1-31 16:56
+
+歌不错 可为什么内容像十多年前的 外星人 最终兵器 妹子 他妹尼 马木洛 关键词一个没少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  elven119  
+##### 4#         楼主| 发表于 2022-1-31 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54496835&amp;ptid=2050204" target="_blank">红叶 发表于 2022-1-31 16:56</a>
+
+歌不错 可为什么内容像十多年前的 外星人 最终兵器 妹子 他妹尼 马木洛 关键词一个没少
+
+—— 来自  ...</blockquote>
+那你要去问扣头皮想了5年剧本的麻枝准咯
+
+*****
+
+####  moonlit  
+##### 5#       发表于 2022-2-2 11:51
+
+ 本帖最后由 moonlit 于 2022-2-3 20:06 编辑 
+
+云了几话b站的测试服汉化，漫才真的欢乐。设定上有种帽子世界那样的虚拟世界的感觉，但是手游写出一切是虚拟世界不就写死了…不对，pcr也是虚拟世界。
+
+*****
+
+####  elven119  
+##### 6#         楼主| 发表于 2022-2-2 17:35
+
+关于剧情讨论，因为b站大量内测视频，有没必要在上线前先反白？大家说说
+
+*****
+
+####  elven119  
+##### 7#         楼主| 发表于 2022-2-3 07:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+今晚生放送，要上线了！！
+
+*****
+
+####  一杯淡定红茶  
+##### 8#       发表于 2022-2-3 08:19
+
+期待
+
+*****
+
+####  elven119  
+##### 9#         楼主| 发表于 2022-2-3 08:36
+
+[https://www.bilibili.com/video/BV1B44y1h7A9?share_source=copy_web](https://www.bilibili.com/video/BV1B44y1h7A9?share_source=copy_web)
+
+B站一位UP主做的内测评测，不放心游戏品质的可以先看看，后面还有内测剧情翻译，想看剧情的可以提前看
+
+*****
+
+####  elven119  
+##### 10#         楼主| 发表于 2022-2-3 19:22
+
+ 本帖最后由 elven119 于 2022-2-4 10:34 编辑 
+
+最终pv公布，2月10日上线！！！！！！！！！！！！！！！
+[https://www.bilibili.com/video/BV14u411d76r?share_source=copy_web](https://www.bilibili.com/video/BV14u411d76r?share_source=copy_web)
+
+QQ截图20220203202247.png
+(116.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-3 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202202/03/192307qz7ym5yzjb7i84ml.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katern  
+##### 11#       发表于 2022-2-6 20:58
+
+看了眼没有妖女，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kyoto  
+##### 12#       发表于 2022-2-6 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打棒球？
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 13#       发表于 2022-2-7 10:48
+
+这画风有点莫名的色色的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  elven119  
+##### 14#         楼主| 发表于 2022-2-7 11:13
+
+顶楼更新讨论群
+
+*****
+
+####  elven119  
+##### 15#         楼主| 发表于 2022-2-9 10:50
+
+可以预载了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenzhi11  
+##### 16#       发表于 2022-2-9 14:36
+
+看过内测一些剧情 剧情麻子味挺浓整蛊桥段挺多。
+
+*****
+
+####  meailove  
+##### 17#       发表于 2022-2-9 16:05
+
+看过b站up烤的内测部分的剧情了，先说一下总结：1、游戏全女性，讨厌百合的人可以直接绕道走了 2、前2章故事内容主要介绍世界观和人物，主角月歌可以看作一个会说骚话披着美少女皮的大叔，和同队的另一个妹子组成相声组合。我觉得日常对话还是比较有趣的，不过这点要看个人感受。3、内测剧情到第二章中部，主角队（31A部队设定上这届最强）和31B部队准备联合作战，内测剧情结束的时候刚好是主角拐走了31B的队长组成了乐队，而根据最近放出的PV来看这点可能会有刀，不过结果会不会死人目前也不知道（其实第一章剧情介绍31C部队的时候也有一个小刀）4、剧情方面我是很满意的，不过手游说到底还是要看游戏性，我个人其实是不看好这种回合制rpg手游的，立绘我觉得挺好看的某几个角色很有特色我很喜欢，不过建模的话肯定是比不上目前手游天花板马娘的。5、麻子的人气还是蛮高的，我前不久看了下官推竟然已经20w人关注了，还是蛮惊讶的
+
+*****
+
+####  meailove  
+##### 18#       发表于 2022-2-9 16:06
+
+顺便提一句音乐确实不错，在下载数据的时候一直循环before i rise 竟然一直听不腻，不知道什么时候出专辑
+
+*****
+
+####  格雷殿下  
+##### 19#       发表于 2022-2-9 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">看了叔叔的视频，感觉育成好复杂
+
+*****
+
+####  404489039  
+##### 20#       发表于 2022-2-9 22:31
+
+黑丝渲染还行 蝗了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  elven119  
+##### 21#         楼主| 发表于 2022-2-10 11:11
+
+开服了！！
+
+*****
+
+####  bladescepter  
+##### 22#       发表于 2022-2-10 12:04
+
+这系统不是换皮浪漫沙加手游吗
+
+*****
+
+####  Meiien  
+##### 23#       发表于 2022-2-10 12:20
+
+新的浪漫沙加吗，有没有融合艹火车的系统啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ID找不到了  
+##### 24#       发表于 2022-2-10 12:38
+
+有节奏榜，首抽推荐吗，内测大佬们？
+
+*****
+
+####  ネコカイザー  
+##### 25#       发表于 2022-2-10 13:00
+
+唔，试了一下，完全不是我的菜。告辞。
+
+*****
+
+####  sql710  
+##### 26#       发表于 2022-2-10 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54620002&amp;ptid=2050204" target="_blank">ID找不到了 发表于 2022-2-10 12:38</a>
+
+有节奏榜，首抽推荐吗，内测大佬们？</blockquote>
+[https://game8.jp/heavenburnsred/425645](https://game8.jp/heavenburnsred/425645)
+
+随便找的一个节奏榜
+
+*****
+
+####  elven119  
+##### 27#         楼主| 发表于 2022-2-10 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54619192&amp;ptid=2050204" target="_blank">bladescepter 发表于 2022-2-10 12:04</a>
+
+这系统不是换皮浪漫沙加手游吗</blockquote>
+浪漫沙加我记得我玩的时候是关卡制无限刷刷刷游戏啊，现在改成时空猫一样的手操走迷宫RPG了？马上下回来试试
+
+*****
+
+####  bladescepter  
+##### 28#       发表于 2022-2-10 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54621318&amp;ptid=2050204" target="_blank">elven119 发表于 2022-2-10 13:44</a>
+
+浪漫沙加我记得我玩的时候是关卡制无限刷刷刷游戏啊，现在改成时空猫一样的手操走迷宫RPG了？马上下回来 ...</blockquote>
+浪漫沙加Re;univerSe
+
+也是抽同一角色的不同style的
+
+*****
+
+####  吃货红毛  
+##### 29#       发表于 2022-2-10 14:13
+
+台词还挺搞笑的 麻味 女主有够巨魔
+
+*****
+
+####  elven119  
+##### 30#         楼主| 发表于 2022-2-10 14:32
+
+女主老巨魔了，笑死人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  什么？！  
+##### 31#       发表于 2022-2-10 14:36
+
+有没有人试过和泉“......"100回之后有没有特殊成就<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  什么？！  
+##### 32#       发表于 2022-2-10 15:20
+
+和泉，跟这帮人在一块真是辛苦你了啊......（指吐槽
+
+*****
+
+####  牧羊  
+##### 33#       发表于 2022-2-10 15:56
+
+抽到了老虎... 但是老虎没有互动语音？
+
+*****
+
+####  xmakoto  
+##### 34#       发表于 2022-2-10 17:13
+
+这自动周回省电模式会自己息屏……
+
+*****
+
+####  寇马可  
+##### 35#       发表于 2022-2-10 18:48
+
+.
+
+想了5年该有多难产…
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  meailove  
+##### 36#       发表于 2022-2-10 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54626222&amp;ptid=2050204" target="_blank">寇马可 发表于 2022-2-10 18:48</a>
+
+想了5年该有多难产…</blockquote>
+中间有住院啊
+
+*****
+
+####  bluna  
+##### 37#       发表于 2022-2-10 23:45
+
+这游戏还已经测试过了，设计逻辑还是那么僵化。搞了属性克制，战斗前不显示敌人属性，也不能马上换队或重组。路好长，就是来看日剧跑的。
+
+*****
+
+####  exalbion01  
+##### 38#       发表于 2022-2-11 00:08
+
+是不是这游戏本质当加了抽卡和战斗的gal看会比较好？
+
+*****
+
+####  bluna  
+##### 39#       发表于 2022-2-11 08:42
+
+挂了一晚上机，升了12级…
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 40#       发表于 2022-2-11 10:11
+
+这游戏有pvp吗
+
+看了下叠卡突破效果还蛮强力的
+
+3破送强力被动
+
+每回合自动会dp，自动眩晕敌人都有
+
+如果有pvp就比较bt了
+
+*****
+
+####  elven119  
+##### 41#         楼主| 发表于 2022-2-11 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54636354&amp;ptid=2050204" target="_blank">DRAGONBLEAPIECE 发表于 2022-2-11 10:11</a>
+
+这游戏有pvp吗
+
+看了下叠卡突破效果还蛮强力的
+
+3破送强力被动</blockquote>
+没有pvp，没有任何社交元素，连好友系统都没有
+
+*****
+
+####  完全武装希耶尔  
+##### 42#       发表于 2022-2-11 10:30
+
+骚话挺多，半个单机，gameplay完全不行……
+
+*****
+
+####  心之光  
+##### 43#       发表于 2022-2-11 13:07
+
+眼镜妹吐槽太用力，感觉很累<img src="https://static.saraba1st.com/image/smiley/device2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leitingkai  
+##### 44#       发表于 2022-2-11 16:10
+
+ 本帖最后由 leitingkai 于 2022-2-11 18:29 编辑 
+
+感觉31A的同伴晚上过了个人剧情（就算是使用体力看的个人剧情）后 在后面的主线还会玩个人剧情时的梗
+
+比如和国见的“才没有在交往”
+
+和逢川的“撞角色属性”
+
+还是说就算没有一起约过主线也会出现这两段吐槽？
+
+看主线还以为女主喜好的是可爱型的女生 结果对只见了第三次面的前辈直接告白 只要是女人谁都可以 迫真女皮大叔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yygundam  
+##### 45#       发表于 2022-2-12 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54625007&amp;ptid=2050204" target="_blank">xmakoto 发表于 2022-2-10 17:13</a>
+
+这自动周回省电模式会自己息屏……</blockquote>
+自动周回省电挂上之后你退游戏都行，没关系的。
+
+*****
+
+####  Tucsria  
+##### 46#       发表于 2022-2-12 02:04
+
+ 本帖最后由 Tucsria 于 2022-2-12 12:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">稍微打了一点个人剧情，你们每个人都一定要 超 大 声 讲 话 吗！哦，是主角太巨魔了，那没事了（）这个cut in风格太欢乐了（異議あり！ ）
+
+主线刚打到地下城，遇到个稀有怪，没想到两回合跑了。对其所有伤害都是1，可能多段伤害、异常或者预留充能槽的额外回合比较好打吧，好在意会掉落什么奖励<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+编辑，打倒了稀有怪，原来只是经验和讨伐点比较多
+
+*****
+
+####  zeroed  
+##### 47#       发表于 2022-2-12 03:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">只能说果然是麻子风格，虽然是女主，干的还是麻子款男主的事
+
+*****
+
+####  roamer  
+##### 48#       发表于 2022-2-12 07:58
+
+麻子版土鸡莉莉？一直以为是bg战士呢，笑点还挺密集
+
+*****
+
+####  elven119  
+##### 49#         楼主| 发表于 2022-2-12 08:07
+
+<img src="https://img.saraba1st.com/forum/202202/12/080656ph9nhe6l65kn66ln.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220212090606.png</strong> (148.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 08:06 上传
+
+开服2天的流水，这成绩很不错了
+
+*****
+
+####  posion  
+##### 50#       发表于 2022-2-12 11:23
+
+还在刷初始，想问下教程抽排出的SSR是不是每个时间段固定的？同一时间怎么刷都只出那只太怪了
+
+*****
+
+####  zyyion  
+##### 51#       发表于 2022-2-12 13:41
+
+玩到第二章 画面和演出都超乎预料的好 个人感觉是目前为止日式手游最佳一档
+
+话说从去年开始日本手游的质量进化很明显啊 反观国内因为版号的原因又进入寒冬期了哎
+
+*****
+
+####  一之江瑞江  
+##### 52#       发表于 2022-2-12 13:42
+
+怎么这3%出率都这么难刷 是我太非了..
+
+*****
+
+####  サクラ  
+##### 53#       发表于 2022-2-12 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我也还在刷初始 非洲人的泪水
+
+*****
+
+####  navarra  
+##### 54#       发表于 2022-2-12 14:54
+
+女主这也太巨魔了……
+
+—— 来自 samsung SM-G9880, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Kagam1  
+##### 55#       发表于 2022-2-12 15:41
+
+开场对话文本挺逗的，文笔功力是有的，声优演出也在线。
+不过后面一进战斗教程就劝退了，接受不了如此邦硬的演出。
+据说也是全放置周回的形式，这种形式在dmm玩过几款，里面不乏有内容有想法的游戏，但每天没日没夜挂机最终把热情消耗殆尽，基本都没有让我坚持过一个月。
+除非在持续运营上能一直给出吸引人的内容，不然不太看好
+
+*****
+
+####  chenzhi11  
+##### 56#       发表于 2022-2-12 16:12
+
+ 本帖最后由 chenzhi11 于 2022-2-12 16:15 编辑 
+
+第一章结束就有8首歌 太强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 提取码: eazn
+
+放度盘了想要的可以来拿。
+
+*****
+
+####  elven119  
+##### 57#         楼主| 发表于 2022-2-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654292&amp;ptid=2050204" target="_blank">Kagam1 发表于 2022-2-12 15:41</a>
+
+开场对话文本挺逗的，文笔功力是有的，声优演出也在线。
+
+不过后面一进战斗教程就劝退了，接受不了如此邦硬 ...</blockquote>
+并不是放置周回，和时空猫一样rpg迷宫。那个放置周回，就是晚上你睡觉的时候用的。而且和其他dmm那种傻屌周回要一直开着不一样，这游戏你激活以后就可以关手机甚至后台杀掉进程都可以。第二天登录以后领奖励就行
+
+*****
+
+####  elven119  
+##### 58#         楼主| 发表于 2022-2-12 16:32
+
+战斗演出，个人觉得吊打国内也好日本也好，99%回合制游戏了。挺不错的了。还有1%，我想了想也想不出来有什么比这个好，谁举个例子？
+
+*****
+
+####  liyropen  
+##### 59#       发表于 2022-2-12 18:36
+
+战斗演出我就对同类武器是一样的普攻动作有点意见，斩队三个镰刀一连过去跟三胞胎似的
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
+*****
+
+####  meailove  
+##### 60#       发表于 2022-2-12 20:07
+
+wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更想收一份
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  Marro  
+##### 61#       发表于 2022-2-12 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54657273&amp;ptid=2050204" target="_blank">meailove 发表于 2022-2-12 20:07</a>
+
+wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更想收一份
+
+  -- 来自 有消息提醒的 Stage1官方 A ...</blockquote>
+会的，时空猫出了很多了
+
