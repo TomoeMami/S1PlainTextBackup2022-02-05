@@ -15392,3 +15392,12 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 眼光太短或者腿太短，两者总归得有一个 ...</blockquote>
 可能是拖延症<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 86987#       发表于 2022-2-12 11:55
+
+登录30石出了巴姐了，只可惜和高文相关的礼装没有，只能挂高文的情人节礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
