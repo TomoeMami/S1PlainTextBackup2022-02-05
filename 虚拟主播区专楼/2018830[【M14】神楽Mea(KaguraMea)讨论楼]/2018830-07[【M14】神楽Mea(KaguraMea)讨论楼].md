@@ -424,3 +424,192 @@ Jimmy，我是你的儿，你是我的爹！<img src="https://static.saraba1st.c
 
 开了40的直播间
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9052#       发表于 2022-2-12 21:44
+
+就这一身衣服已经能混进galgame了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 9053#       发表于 2022-2-12 21:44
+
+待机间开了
+
+*****
+
+####  T_Hb  
+##### 9054#       发表于 2022-2-12 21:44
+
+好好好，能不能是夏服，球球了
+
+*****
+
+####  yywzjsw  
+##### 9055#       发表于 2022-2-12 21:45
+
+刚刚的bgm就很gal
+
+*****
+
+####  古战场亡魂  
+##### 9056#       发表于 2022-2-12 21:45
+
+这么多发型基本上性癖全打击了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  freeze_雪风  
+##### 9057#       发表于 2022-2-12 21:46
+
+yysy，黑衣服不行，<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|[f:009]|
+| 2014720|-1|😡👊|
+
+查看全部评分
+
+*****
+
+####  2014720  
+##### 9058#       发表于 2022-2-12 21:47
+
+你麻又别有最新型号的高达不用了
+
+*****
+
+####  T_Hb  
+##### 9059#       发表于 2022-2-12 21:47
+
+那个太普通了，在我这里夏服＞针织衫＞军大衣＞校服
+
+*****
+
+####  yywzjsw  
+##### 9060#       发表于 2022-2-12 21:47
+
+我好像还猜对了，回家的路那种风格 制服呢。如果大衣这个还能挂上就好了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  2014720  
+##### 9061#       发表于 2022-2-12 21:48
+
+懂不懂什么叫常服啊你们<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9062#       发表于 2022-2-12 21:49
+
+能不能唱歌的时候把夏服掏出来摇啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 9063#       发表于 2022-2-12 21:49
+
+主要问题是其他配件还是少了点，比如书包，比如阳伞，反正还有啥其他东西吧，能加的还是挺多的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 9064#       发表于 2022-2-12 21:50
+
+以后别穿那军服女仆装了，看腻了，天天穿毛衣不好吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yywzjsw  
+##### 9065#       发表于 2022-2-12 21:52
+
+夏服穿多了，是不是就能接受泳装了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 9066#       发表于 2022-2-12 21:52
+
+好看 咩可爱 <img src="https://p.sda1.dev/4/a9ad3c12c508a8978f73e232d807dd55/-5ff0c47936b94bdd.jpg" referrerpolicy="no-referrer">给张欢乐图
+
+*****
+
+####  T_Hb  
+##### 9067#       发表于 2022-2-12 21:52
+
+下一件就是泳装大水袋<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 9068#       发表于 2022-2-12 21:53
+
+梦里有泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LIPP  
+##### 9069#       发表于 2022-2-12 21:54
+
+三年减一点，只要9年就能看到南半球啦！
+
+*****
+
+####  往世雷书  
+##### 9070#       发表于 2022-2-12 21:56
+
+出道九年她都26了，老女人谁看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  T_Hb  
+##### 9071#       发表于 2022-2-12 21:57
+
+别尬黑，周期现在是1年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病態極端  
+##### 9072#       发表于 2022-2-12 21:57
+
+Bolero &gt; Sweater &gt; Shirt &gt; &gt; &gt; French Maid
+
+*****
+
+####  古战场亡魂  
+##### 9073#       发表于 2022-2-12 22:00
+
+你这话筒是不是也该穿个毛衣啊？？？
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 9074#       发表于 2022-2-12 22:02
+
+原曲不采用
+
+*****
+
+####  T_Hb  
+##### 9075#       发表于 2022-2-12 22:03
+
+你别说，这几身都挺耐看，我甚至已经感觉校服观感已经提升到军大衣水平了
+
