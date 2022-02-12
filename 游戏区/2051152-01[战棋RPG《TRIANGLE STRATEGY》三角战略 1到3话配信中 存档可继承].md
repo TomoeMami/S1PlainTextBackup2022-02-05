@@ -1414,3 +1414,90 @@ srpg部分还不错
 
 刚打了试玩第一关，希望不是刷刷刷游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Bani82  
+##### 129#       发表于 2022-2-12 15:25
+
+战斗部分其实还可以，但是死人没惩罚就让难度几乎完全不存在了
+
+不过我玩的是N，不知道H会不会强一点，不过这游戏可以本身就能反复刷
+
+另外这游戏好像没有自动战斗功能有点麻烦，一些刷刷刷和必定赢的残局还要手动
+
+顺便战场上的掉落物似乎必须自己上去拣，胜利后没捡的不会自动收取
+
+*****
+
+####  TANA  
+##### 130#       发表于 2022-2-12 15:27
+
+之前第一个试玩版玩了后感觉地图乱得很，HD2D在SLG上感觉表现一般，格子常常都会数不清楚和看错
+
+*****
+
+####  战狼PTSD  
+##### 131#       发表于 2022-2-12 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654108&amp;ptid=2051152" target="_blank">Bani82 发表于 2022-2-12 15:25</a>
+
+战斗部分其实还可以，但是死人没惩罚就让难度几乎完全不存在了
+
+不过我玩的是N，不知道H会不会强一点，不过 ...</blockquote>
+这年头都没几个还坚持死人有惩罚的SRPG了吧，当年火纹圣魔光石没通关就是因为死了人，怎么SL都打不过，气的不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 132#       发表于 2022-2-12 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654124&amp;ptid=2051152" target="_blank">TANA 发表于 2022-2-12 15:27</a>
+
+之前第一个试玩版玩了后感觉地图乱得很，HD2D在SLG上感觉表现一般，格子常常都会数不清楚和看错 ...</blockquote>
+移轴效果太严重了
+
+*****
+
+####  windtrack  
+##### 133#       发表于 2022-2-12 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654174&amp;ptid=2051152" target="_blank">战狼PTSD 发表于 2022-2-12 15:32</a>
+
+这年头都没几个还坚持死人有惩罚的SRPG了吧，当年火纹圣魔光石没通关就是因为死了人，怎么SL都打不过，气 ...</blockquote>
+主要是死人没惩罚+自由战斗随便刷导致剧情战毫无压力，影响不到资源获取，所以剧情战完全可以摆烂，没有任何战略上的压力
+
+如果后期有一些关卡有条件攻略的话可能会好一些吧
+
+*****
+
+####  windtrack  
+##### 134#       发表于 2022-2-12 15:36
+
+ 本帖最后由 windtrack 于 2022-2-12 15:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652816&amp;ptid=2051152" target="_blank">LamdaHT 发表于 2022-2-12 13:19</a>
+
+所以说啊，你要求一个多路线游戏单周目做到单路线游戏的关卡数只看demo1，不同路线的关卡都是完全 ...</blockquote>
+我的意思就是希望主轴做饱满，三角系统影响的分支尽量少就好
+
+比如主线30 分支关卡10这种感觉
+
+千万别弄成三角系统影响主轴，然后一周目主线压缩的很短
+
+比如主线20 分支关卡20
+
+*****
+
+####  战狼PTSD  
+##### 135#       发表于 2022-2-12 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654217&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-12 15:35</a>
+
+主要是死人没惩罚+自由战斗随便刷导致剧情战毫无压力，影响不到资源获取，所以剧情战完全可以摆烂，没有 ...</blockquote>
+除了加难度和设定特定条件通关解锁TE外我也想不到有什么能平衡刷刷刷和主线难度的方法
+
+像是SD高达G世纪就彻底摆烂了，上来你打个后面章节就能拿到无敌机子，然后再从头打剧情
+
+要么像SD高达那样剧情战固定NPC，与自己培养的角色分开，要么像XCOM一样人只是消耗品。刷刷刷的意义就是降低难度避免培养错了到后期陷入死局，只能自我挑战加大难度和追求低等级速通
+
