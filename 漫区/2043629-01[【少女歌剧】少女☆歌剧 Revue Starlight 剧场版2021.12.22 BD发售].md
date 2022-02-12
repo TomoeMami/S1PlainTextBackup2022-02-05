@@ -8902,3 +8902,19 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 — from Xiaomi MI 8 Lite, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  nh_zzz  
+##### 670#       发表于 2022-2-12 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54646480&amp;ptid=2043629" target="_blank">angela5d30 发表于 2022-2-11 21:54</a>
+好的，谢谢你那么详尽的替我解惑。
+那我趁这俩天考虑下要买哪场吧</blockquote>
+音质出问题会修回放的，但是回放时间不会有相应延长，比如青岚的mmy日替跟踪镜头，可以看回放的时间就比其他人少了半天。
+而且这次海外票价格和日区是有微妙的差别的，如果是需要购买两场的话最好对比一下再决定买哪边的票。
+关于特典，实物特典的话只有日区的含特通票有（只发日本），手游特典码（估计是体力）应该是购买就送
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
