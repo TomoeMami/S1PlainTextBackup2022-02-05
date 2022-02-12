@@ -1451,3 +1451,17 @@ vup可以炒bgcp大赚特赚管人不行，但管人曝绯闻主流舆论是支�
 
 润姨这事我觉着还是个职业道德问题，有点像当年AKB总选公布结婚的那个吧
 
+
+
+*****
+
+####  沈淮  
+##### 10629#       发表于 2022-2-12 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53811403&amp;ptid=1972669" target="_blank">walfeds 发表于 2021-12-4 22:37</a>
+
+揭棺而起炸回v综了就让我永远跟视频势一起死在过去吧
+
+下一次进楼应该是阿满或小白停止活动了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 妮居然也是管人痴
+

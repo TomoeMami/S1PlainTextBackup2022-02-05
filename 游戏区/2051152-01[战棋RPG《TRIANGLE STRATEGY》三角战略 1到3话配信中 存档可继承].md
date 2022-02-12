@@ -1353,3 +1353,15 @@ srpg部分还不错
 
 隐藏staff名字是为了防挖角？
 
+
+
+*****
+
+####  leachiman  
+##### 123#         楼主| 发表于 2022-2-12 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652784&amp;ptid=2051152" target="_blank">拉姆扎 发表于 2022-2-12 13:16</a>
+
+体验版打完了，感觉选择给了三条，按惯例肯定还有第四条线路？走的盐城路线，后期肯定是各种黑幕揭露，给了 ...</blockquote>
+战功可以去酒馆第一关，围着敌军那个治疗师背击夹击一直刷
+

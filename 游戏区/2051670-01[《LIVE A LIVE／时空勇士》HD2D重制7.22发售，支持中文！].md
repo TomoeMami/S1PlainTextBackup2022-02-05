@@ -1492,3 +1492,26 @@ FF6是正统史诗，这个类似于创意中篇小故事集合。因为当初�
 
 我最喜欢太空篇那个小机器人，可爱啊
 
+
+
+*****
+
+####  henryqxg  
+##### 147#       发表于 2022-2-12 13:36
+
+[https://www.bilibili.com/video/BV1cK4y1h77g](https://www.bilibili.com/video/BV1cK4y1h77g)
+
+找到了2019 LIVE A LIVE A LIVE的片段（没拼错），其实这个重制在2019年就开始企划了吧
+
+*****
+
+####  电磁炮233  
+##### 148#       发表于 2022-2-12 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54653027&amp;ptid=2051670" target="_blank">henryqxg 发表于 2022-2-12 13:36</a>
+
+https://www.bilibili.com/video/BV1cK4y1h77g
+
+找到了2019 LIVE A LIVE A LIVE的片段（没拼错），其实这个 ...</blockquote>
+采访里时田说了是19年开的企划，因为疫情才花了这么长时间
+
