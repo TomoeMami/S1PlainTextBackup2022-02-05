@@ -1553,3 +1553,37 @@ Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了
 
 不知道，我只想知道她以后还给不给FAKE TYPE.画PV<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 10640#       发表于 2022-2-13 00:07
+
+<blockquote>ぶいすぽっ！【公式】  @Vspo77
+
+【🎉胡桃のあ直筆サイン入りポストカード販売決定🎉】
+
+胡桃のあ(@n0ah_kurumi)の誕生日を記念し直筆サイン入りポストカード限定販売が決定!!
+
+▷販売開始
+
+2月13日(日) 12:00～
+
+▷担当絵師
+
+さいね様 (@sainexxx)
+
+▷商品ページ
+[https://lupinusvg.booth.pm/items/3639809](https://lupinusvg.booth.pm/items/3639809)
+
+▷メンバーシップ枠購入情報はこちら👇</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202202/13/000706wp6xv0rmlzallh0q.jpg" referrerpolicy="no-referrer">
+
+<strong>FLTnsREaUAAzsPN.jpg</strong> (265.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-13 00:07 上传
+
