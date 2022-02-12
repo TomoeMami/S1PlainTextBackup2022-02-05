@@ -1649,3 +1649,17 @@ OGS或者第二次OG也行
 
 L和R不能转圈视角太恶心了，摇杆转视角转到吐
 
+
+
+*****
+
+####  Bani82  
+##### 147#       发表于 2022-2-12 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54655579&amp;ptid=2051152" target="_blank">cloudymc007 发表于 2022-2-12 17:48</a>
+
+难道没人像我一样喜欢能刷刷刷的SRPG么
+
+皇骑2和FFT我都是直接刷爆，然后享受各种秒杀的快感</blockquote>
+刷刷刷的话其实我更偏向RPG自动战斗完事，都秒杀了还要走格子太麻烦了
+
