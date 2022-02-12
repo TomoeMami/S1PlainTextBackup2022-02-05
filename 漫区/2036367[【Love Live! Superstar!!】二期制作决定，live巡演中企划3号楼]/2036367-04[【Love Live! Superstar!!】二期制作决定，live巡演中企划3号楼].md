@@ -10974,3 +10974,14 @@ bd基本没可能吧…社长倒是挺看重鲤鱼的，今天上座率怎么样
 
 拼盘演唱会是不是没有配信只有现场？
 
+
+
+*****
+
+####  长日留痕  
+##### 5416#       发表于 2022-2-12 11:24
+
+nako小天使<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
