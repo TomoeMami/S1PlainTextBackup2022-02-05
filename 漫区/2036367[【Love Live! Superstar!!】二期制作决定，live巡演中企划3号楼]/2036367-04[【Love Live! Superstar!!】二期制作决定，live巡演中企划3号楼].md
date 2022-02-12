@@ -11056,3 +11056,49 @@ QQ图片20220212120646.png
 
 买了虹4th第二天 350rmb 比跨年贵了1200了
 
+
+
+*****
+
+####  player3960  
+##### 5423#       发表于 2022-2-12 16:07
+
+果然星团都去了！好耶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5424#       发表于 2022-2-12 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">真好啊真好啊都去了
+
+*****
+
+####  stygian  
+##### 5425#       发表于 2022-2-12 16:07
+
+去年有go to的补贴今年没有，就贵了
+
+*****
+
+####  优妮可  
+##### 5426#       发表于 2022-2-12 16:14
+
+<img src="https://img.saraba1st.com/forum/202202/12/161431qarz7zkgraeqm2u6.jpg" referrerpolicy="no-referrer">
+
+<strong>20220212_161242.jpg</strong> (263.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202202/12/161431wj8yy8p1nwpvbpom.jpg" referrerpolicy="no-referrer">
+
+<strong>20220212_161240.jpg</strong> (309.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-12 16:14 上传
+
