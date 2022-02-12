@@ -11754,3 +11754,19 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 等会儿就爆完了，还能等到歌回？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makourisu-2  
+##### 8836#       发表于 2022-2-12 20:10
+
+新皮会是什么样的呢？不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TomDu  
+##### 8837#       发表于 2022-2-12 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
