@@ -1598,3 +1598,54 @@ OGS或者第二次OG也行
 
 2的话3DS增加的是独立篇章，所以两个篇章长度还行，可以自由搭配。
 
+
+
+*****
+
+####  cloudymc007  
+##### 142#       发表于 2022-2-12 17:48
+
+难道没人像我一样喜欢能刷刷刷的SRPG么<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+皇骑2和FFT我都是直接刷爆，然后享受各种秒杀的快感
+
+*****
+
+####  kerbad  
+##### 143#       发表于 2022-2-12 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654747&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-2-12 16:25</a>
+
+恶魔幸存者(X）
+
+恶魔幸存者2（勾）</blockquote>
+1代我还能为了看不同路线的剧情打多周目，2两个篇章我都是挑个想看的路线打一周目就完了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hhgjf  
+##### 144#       发表于 2022-2-12 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652778&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-2-12 13:16</a>
+
+我大胆猜测剧情：老爸知道自己活不久了，担心死后被国王算计，就私下安排管家和公国签了密约，引公国军闪击 ...</blockquote>
+基友好像经常和猪脚提未婚妻，不是“你美丽的未婚妻”就是“你要多关心你未婚妻”，要是有“被基友牛头人”线那想想好像也挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  睡不醒的虾米  
+##### 145#       发表于 2022-2-12 18:00
+
+<blockquote>hellightning 发表于 2022-2-12 10:06
+前三章剧情还没进入正篇吧，第一个pv就提到身边的亲信会背叛你，前天的pv也挺有信息量的，随便截了几张
+
+可 ...</blockquote>
+自从被风花雪月的PV骗了后再也不相信PV所展现的剧情了。
+
+*****
+
+####  satan023  
+##### 146#       发表于 2022-2-12 18:02
+
+L和R不能转圈视角太恶心了，摇杆转视角转到吐
+
