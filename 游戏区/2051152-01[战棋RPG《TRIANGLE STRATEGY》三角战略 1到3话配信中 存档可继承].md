@@ -1288,3 +1288,68 @@ srpg部分还不错
 
 我现在就是怕这些剧情为了迎合三角系统，全部是大小分支，游戏整体剧情短，然后每次靠分支打出不一样的剧情，这感觉就很烦。如果能保证一周目有30关左右的剧情量，还是可以的。
 
+
+
+*****
+
+####  LamdaHT  
+##### 117#       发表于 2022-2-12 13:12
+
+ 本帖最后由 LamdaHT 于 2022-2-12 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652282&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-12 12:36</a>
+
+从试玩的札记来看暗线挺多的，比如铁国和王国有继承权的争议，铁国总帅因为也有王国血统所以在盐铁大战前 ...</blockquote>
+封印之剑一共好像就20多章吧，一周目30关左右的剧情量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你也是真敢想，抱这个期待那我敢说注定落空
+
+*****
+
+####  windtrack  
+##### 118#       发表于 2022-2-12 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652728&amp;ptid=2051152" target="_blank">LamdaHT 发表于 2022-2-12 13:12</a>
+
+封印之剑一共好像就20多章吧，一周目30关左右的剧情量你也是真敢想，抱这个期待那我敢说注定落空 ...</blockquote>
+封印那是GBA有容量限制
+
+苍炎晓女都是30关左右，三房20章左右+上外传也快30了还被嫌短
+
+*****
+
+####  leachiman  
+##### 119#         楼主| 发表于 2022-2-12 13:16
+
+我大胆猜测剧情：老爸知道自己活不久了，担心死后被国王算计，就私下安排管家和公国签了密约，引公国军闪击王都，瓜分王国。打完摊牌，王子崩溃了，搞半天内鬼就是主角家，负气出走自己去复仇最后被俘。公主也傻了，本以为嫁了个好人家，原来又当了政治棋子。
+
+*****
+
+####  拉姆扎  
+##### 120#       发表于 2022-2-12 13:16
+
+体验版打完了，感觉选择给了三条，按惯例肯定还有第四条线路？走的盐城路线，后期肯定是各种黑幕揭露，给了范围提示，战旗就超简单了，还需要硬刷战场分数就离谱，1-3打完不够换到任何特技，强迫去酒馆刷？目前看来自由度不高还需要各处摸鱼翻箱子对话，否则投票对话选项书籍不解锁，就目前slg没得选，等正式版了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  LamdaHT  
+##### 121#       发表于 2022-2-12 13:19
+
+ 本帖最后由 LamdaHT 于 2022-2-12 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652774&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-12 13:15</a>
+
+封印那是GBA有容量限制
+
+苍炎晓女都是30关左右，三房20章左右+上外传也快30了还被嫌短 ...</blockquote>
+所以说啊，你要求一个多路线游戏单周目做到单路线游戏的关卡数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只看demo1，不同路线的关卡都是完全不一样的，也不是风花雪月那种复制粘贴，怎么可能做到，要达到你想的情况这游戏起码得做50多个关卡
+
+*****
+
+####  henryqxg  
+##### 122#       发表于 2022-2-12 13:23
+
+话说这次剧本作家名字都不公布了啊，这是社内自己解决了么
+
+隐藏staff名字是为了防挖角？
+
