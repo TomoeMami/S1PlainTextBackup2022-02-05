@@ -1550,3 +1550,15 @@ OGS或者第二次OG也行
 
 但是个人而言，恶魔幸存者也是二周目开始相当无聊的一个游戏
 
+
+
+*****
+
+####  Guildenstern  
+##### 139#       发表于 2022-2-12 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654174&amp;ptid=2051152" target="_blank">战狼PTSD 发表于 2022-2-12 15:32</a>
+
+这年头都没几个还坚持死人有惩罚的SRPG了吧，当年火纹圣魔光石没通关就是因为死了人，怎么SL都打不过，气 ...</blockquote>
+永久离队只是死人惩罚中的一种。其他还有过关评价降低、过关奖励减少、下一关不能出场等等。本作似乎是没有任何惩罚。皇骑2死人若干回合内没被救的话死亡数加一，死亡次数到3会永久死亡。
+

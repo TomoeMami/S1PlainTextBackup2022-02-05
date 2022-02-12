@@ -8918,3 +8918,19 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  unnilennium  
+##### 671#       发表于 2022-2-12 16:35
+
+ 本帖最后由 unnilennium 于 2022-2-12 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54653678&amp;ptid=2043629" target="_blank">nh_zzz 发表于 2022-2-12 14:38</a>
+
+音质出问题会修回放的，但是回放时间不会有相应延长，比如青岚的mmy日替跟踪镜头，可以看回放的时间就比其 ...</blockquote>
+和线下的舞台入场特典是一样的东西。剧情是手游舞台这条线的同时，另一边圣翔侧发生的故事。
+
+分三种路线随机赠送，应该是对话框+cast真人实写照片立绘做的手游风映像，上周交响九九组MC也提到拍了很多姿势的照片。不知为什么就想起了木村如龙.....
+[https://twitter.com/revuestarlig ... 5AzcxMe7JweaK3FpgyQ](https://twitter.com/revuestarlight/status/1487642499589963780?s=20&amp;t=LAz5AzcxMe7JweaK3FpgyQ)
+
