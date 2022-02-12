@@ -11945,3 +11945,16 @@ image.jpg
 
 还能放24个
 
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 56448#       发表于 2022-2-12 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54653911&amp;ptid=98922" target="_blank">klzxs 发表于 2022-2-12 15:05</a>
+26个字母的room才用了两个 
+
+还能放24个</blockquote>
+前面有了k（e）room，r（a）room，至少再有个s（ong）room吧
+
