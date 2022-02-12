@@ -15401,3 +15401,12 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 登录30石出了巴姐了，只可惜和高文相关的礼装没有，只能挂高文的情人节礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  v22325  
+##### 86988#       发表于 2022-2-12 12:08
+
+2.6这批人剧情怎么都这么好笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妖崔这开头笑死我了
+
