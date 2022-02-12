@@ -11786,3 +11786,83 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 急不急啊？我要被急死了
 
+
+
+*****
+
+####  Mr.shelter  
+##### 8840#       发表于 2022-2-12 20:52
+
+ 本帖最后由 Mr.shelter 于 2022-2-12 20:56 编辑 
+
+能不能不要粉红可爱啊这个风格我真的接受不能<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+希望来点女友系
+
+好紧张好紧张
+
+*****
+
+####  2111X  
+##### 8841#       发表于 2022-2-12 20:53
+
+发色不换就是成功！
+
+*****
+
+####  斗斗一号  
+##### 8842#       发表于 2022-2-12 20:56
+
+希望有新的特色
+
+*****
+
+####  freeze_雪风  
+##### 8843#       发表于 2022-2-12 20:59
+
+决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8844#       发表于 2022-2-12 20:59
+
+急急急急急<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+来啦来啦
+
+*****
+
+####  zc1996zc  
+##### 8845#       发表于 2022-2-12 20:59
+
+希望是涩谷系辣妹
+
+*****
+
+####  clvan_  
+##### 8846#       发表于 2022-2-12 21:00
+
+来了来了
+
+*****
+
+####  yywzjsw  
+##### 8847#       发表于 2022-2-12 21:02
+
+好兴奋的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8848#       发表于 2022-2-12 21:03
+
+能不能把你的麦克风收起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 8849#       发表于 2022-2-12 21:04
+
+有点紧张，决定去留！
+
