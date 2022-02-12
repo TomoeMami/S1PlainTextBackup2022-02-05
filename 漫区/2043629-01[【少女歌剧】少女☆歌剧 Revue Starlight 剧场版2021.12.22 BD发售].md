@@ -8947,3 +8947,24 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 —— 來自 Xiaomi M2012K10C, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  unnilennium  
+##### 673#       发表于 2022-2-12 23:41
+
+ 本帖最后由 unnilennium 于 2022-2-12 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54660258&amp;ptid=2043629" target="_blank">angela5d30 发表于 2022-2-12 22:54</a>
+
+太感谢俩位了。我本来是想买一场看个乐的，可看了你们科普后特别在意特写镜头外那些小动作的编排，搞得又想 ...</blockquote>
+特典都是行销手段<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+670L贴的第二张图。你如果想要买<strong>实物特典</strong>的配信（視聴券＋グッズ的那个，グッズ就是实物特典）
+
+那购票平台e+的日本国内版只能用日本信用卡的结付、注册账号需要日本电话验证，可能要你找驻日朋友或者某宝代录。
+
+实体之后邮寄给你，那还需要一个日本地址收货+邮寄手续费。算下来不一定比e+海外版的手续费便宜。
+
+买的时候多比较一下特典内容和总体费用。另外e+海外版记得可以用马云付款来着
+
