@@ -1515,3 +1515,14 @@ https://www.bilibili.com/video/BV1cK4y1h77g
 找到了2019 LIVE A LIVE A LIVE的片段（没拼错），其实这个 ...</blockquote>
 采访里时田说了是19年开的企划，因为疫情才花了这么长时间
 
+
+
+*****
+
+####  nanonya2  
+##### 149#       发表于 2022-2-12 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54634650&amp;ptid=2051670" target="_blank">萨拉丁 发表于 2022-2-11 05:07</a>
+光直面会PV和PV1就看得热泪盈眶了。真的谢谢时田的不放弃，而且找的声优都很对路。牛仔叔的明夫，老师是给 ...</blockquote>
+剧透这种东西，对于没玩过的人来说很多时候属于不点出来就不会注意的，到玩的时候可能都忘了
+

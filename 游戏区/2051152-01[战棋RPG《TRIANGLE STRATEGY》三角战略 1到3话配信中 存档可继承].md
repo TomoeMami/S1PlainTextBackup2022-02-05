@@ -1365,3 +1365,32 @@ srpg部分还不错
 体验版打完了，感觉选择给了三条，按惯例肯定还有第四条线路？走的盐城路线，后期肯定是各种黑幕揭露，给了 ...</blockquote>
 战功可以去酒馆第一关，围着敌军那个治疗师背击夹击一直刷
 
+
+
+*****
+
+####  leachiman  
+##### 124#         楼主| 发表于 2022-2-12 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54652816&amp;ptid=2051152" target="_blank">LamdaHT 发表于 2022-2-12 13:19</a>
+
+所以说啊，你要求一个多路线游戏单周目做到单路线游戏的关卡数只看demo1，不同路线的关卡都是完全 ...</blockquote>
+预告片里光是酒馆训练战从3级到20级就有12关
+
+*****
+
+####  Petilil  
+##### 125#       发表于 2022-2-12 13:48
+
+有个问题，选项位置对应的信念路线是固定的么
+
+*****
+
+####  leachiman  
+##### 126#         楼主| 发表于 2022-2-12 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54653167&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-2-12 13:48</a>
+
+有个问题，选项位置对应的信念路线是固定的么</blockquote>
+不固定
+
