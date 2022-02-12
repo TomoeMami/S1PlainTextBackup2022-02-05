@@ -1599,3 +1599,15 @@ Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了
 妮居然也是管人痴</blockquote>
 ?已经没有纯度了，路人水平罢了
 
+
+
+*****
+
+####  沈淮  
+##### 10642#       发表于 2022-2-13 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54662460&amp;ptid=1972669" target="_blank">walfeds 发表于 2022-2-13 01:07</a>
+
+?已经没有纯度了，路人水平罢了</blockquote>
+一般路过管人观众是吧
+
