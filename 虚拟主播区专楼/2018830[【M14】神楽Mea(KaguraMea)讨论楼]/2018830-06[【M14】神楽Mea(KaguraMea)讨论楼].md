@@ -11632,3 +11632,33 @@ Hinted at during our previous stream, find out more about the Virtual Cinderella
 
 我都看昏迷又醒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 8822#       发表于 2022-2-12 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">期待新衣
+
+*****
+
+####  yywzjsw  
+##### 8823#       发表于 2022-2-12 11:22
+
+昨晚睡得早，不过lol、、、（今晚会不会睡过
+
+*****
+
+####  T_Hb  
+##### 8824#       发表于 2022-2-12 11:23
+
+2点钟起的，打到11点
+
+*****
+
+####  Mr.shelter  
+##### 8825#       发表于 2022-2-12 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
