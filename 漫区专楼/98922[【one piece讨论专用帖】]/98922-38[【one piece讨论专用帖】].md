@@ -11927,3 +11927,21 @@ image.jpg
 
 没看仔细，编辑了
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 56446#       发表于 2022-2-12 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">说好的最后一次的大招呢。大招一套接着一套。如果大妈还不倒下，大招还继续会有
+
+*****
+
+####  klzxs  
+##### 56447#       发表于 2022-2-12 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">26个字母的room才用了两个 
+
+还能放24个
+
