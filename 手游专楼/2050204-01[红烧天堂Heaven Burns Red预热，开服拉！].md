@@ -700,3 +700,24 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  sin.yugi  
+##### 65#       发表于 2022-2-13 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54664922&amp;ptid=2050204" target="_blank">barca 发表于 2022-2-12 21:56</a>
+
+毕竟有伊甸的经验，这开服系统的完成度还行
+
+看大叔心女主调戏其他妹子也挺好玩，初始刷了一下午，刷了个6个 ...</blockquote>
+一个下午六个ssr是什么欧王。。。我连3个ssr的号都刷不到
+
+*****
+
+####  elven119  
+##### 66#         楼主| 发表于 2022-2-13 11:14
+
+明天开活动了。呜呜呜呜，又要刀我的ぶんちゃん了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">麻子你行行好，不要抓着往死里刀啊
+
