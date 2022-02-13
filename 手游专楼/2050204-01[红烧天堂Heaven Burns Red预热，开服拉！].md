@@ -765,3 +765,32 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 全选择支的攻略，照着这个跑就行了
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 71#       发表于 2022-2-13 16:15
+
+强化画面有个转生按钮
+
+点进去需要90级才能转生
+
+并且转生一共有20次
+
+也就是每个角色满级是90*20，1800级吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  elven119  
+##### 72#         楼主| 发表于 2022-2-13 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54668710&amp;ptid=2050204" target="_blank">DRAGONBLEAPIECE 发表于 2022-2-13 16:15</a>
+
+强化画面有个转生按钮
+
+点进去需要90级才能转生
+
+并且转生一共有20次</blockquote>
+这玩意儿不是前期的东西，后面经验书有直升90的书，估计很后面的东西了。直升90的书多了转个20次也就几分钟的事吧
+
