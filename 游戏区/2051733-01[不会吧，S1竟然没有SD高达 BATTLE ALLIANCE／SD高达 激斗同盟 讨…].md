@@ -721,3 +721,15 @@ DLC，季票，豪华版，限定版
 
    只想玩aoz，从来都没在单机act游戏里玩过aoz的机子，sd也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  法拉  
+##### 79#       发表于 2022-2-13 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54633590&amp;ptid=2051733" target="_blank">bgmilk 发表于 2022-2-11 01:14</a>
+
+只想玩aoz，从来都没在单机act游戏里玩过aoz的机子，sd也行啊</blockquote>
+高破就有啊，玩高破3全部用tr1的零件组一台就好了
+

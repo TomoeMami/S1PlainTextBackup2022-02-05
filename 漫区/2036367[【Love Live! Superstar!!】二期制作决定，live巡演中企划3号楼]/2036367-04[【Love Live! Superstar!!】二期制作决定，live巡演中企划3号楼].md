@@ -11761,3 +11761,14 @@ DFDDD63B-FA3B-4554-9E80-09A23088EF98.jpeg
 .</blockquote>
 pay和nagi这两人整活得像上刑那样笑死人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5463#       发表于 2022-2-13 22:25
+
+这就是鱼眼中的pay<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

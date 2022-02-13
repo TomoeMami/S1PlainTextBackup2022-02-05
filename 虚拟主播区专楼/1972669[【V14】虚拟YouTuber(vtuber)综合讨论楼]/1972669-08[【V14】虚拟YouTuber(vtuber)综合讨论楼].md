@@ -1683,3 +1683,24 @@ ui
 
 看了眼管厕集美们对罗浮猫怨气很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10650#       发表于 2022-2-13 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗浮猫这个企划的确傻逼
+
+
+
+*****
+
+####  lor  
+##### 10651#       发表于 2022-2-13 22:43
+
+确实傻逼，四个人为主的主题很久不想点进去了，街头调查反而还好看点<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+但是看数据对轻度观众效果还真不错<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
