@@ -679,3 +679,12 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">终于推完第一章了，战斗很拖拉，A级人物连技能都不给，因为耐性关系HP还能破坏力叠，但是初始SS没破DP太难了
 
+
+
+*****
+
+####  rsa1zc  
+##### 63#       发表于 2022-2-13 09:42
+
+剧情太逗了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">昨天大半夜憋笑憋得好辛苦
+
