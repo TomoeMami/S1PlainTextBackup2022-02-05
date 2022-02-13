@@ -670,3 +670,12 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
   -- 来自 有消息提醒的 Stage1官方 A ...</blockquote>
 会的，时空猫出了很多了
 
+
+
+*****
+
+####  飞姆托  
+##### 62#       发表于 2022-2-13 07:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">终于推完第一章了，战斗很拖拉，A级人物连技能都不给，因为耐性关系HP还能破坏力叠，但是初始SS没破DP太难了
+
