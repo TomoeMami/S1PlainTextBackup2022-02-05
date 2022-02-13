@@ -1096,3 +1096,286 @@ A杖 PA是真不怕无敌斩，正常PA熟手只要把对面夜魔切了剩下�
 
 不知道为什么就是很喜欢这种5块劣质电流麦的质感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一品堂官  
+##### 138#       发表于 2022-2-14 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674511&amp;ptid=2051998" target="_blank">端木恋心 发表于 2022-2-14 00:45</a>
+
+你这就是标准dota思维。
+
+和我们这种管人痴的思维是不一样的。</blockquote>
+你们的思维最主要的一条就是：明知道是假的，还奉若神明。
+
+*****
+
+####  wuyan午言  
+##### 139#       发表于 2022-2-14 00:48
+
+玩辅助就真眼雾拉满，玩大哥身上总有粉，不管是啥局势因此经济基本上都是红的。行为分得有20000分的dota玩家，但是多少是有点卑微的。但也有出装僵化，英雄池不够深，对游戏理解不够全面的情况——当然什么都吊的话就不是4330而应该去打ti了。
+
+*****
+
+####  憧憬鲨  
+##### 140#       发表于 2022-2-14 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674520&amp;ptid=2051998" target="_blank">Asukalangley33 发表于 2022-2-14 00:46</a>
+dodo的PA理解应该还停留在GOX出装的时代
+
+前期刷野 中期切入用模糊都很生疏，明显是没怎么玩过最近的PA
+
+A ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">前段时间好像用PA打出过一把家珍吧，不过那把我没看
+她的人设不是中单吗，到底打过中没啊
+
+*****
+
+####  Fstt  
+##### 141#       发表于 2022-2-14 00:49
+
+那么问题来了，PA钻野是二技能收益高还是大招收益高呢？
+
+*****
+
+####  gongge666  
+##### 142#       发表于 2022-2-14 00:50
+
+她好像根本不知道A杖可以吃，队友都叫她吃了她也没去吃，经常出装备也很怪。但你说她是云玩家或者新手吧也不是，给人感觉是从dota转过来
+
+*****
+
+####  Opisthoteuthis  
+##### 143#       发表于 2022-2-14 00:51
+
+人设是中单欢迎大家来看zdgy，直播间随意增压<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 144#       发表于 2022-2-14 00:51
+
+本鱼卵感觉玩pa就是和对面出金箍棒的时间赛跑，大后期pa真的不算厉害<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 145#       发表于 2022-2-14 00:51
+
+<blockquote>gongge666 发表于 2022-2-14 00:50
+她好像根本不知道A杖可以吃，队友都叫她吃了她也没去吃，经常出装备也很怪。但你说她是云玩家或者新手吧也 ...</blockquote>
+还不用快捷施法，虽然我也不用，真的可能是dota陪玩转dota2主播
+
+*****
+
+####  端木恋心  
+##### 146#       发表于 2022-2-14 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674552&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 00:49</a>
+
+前段时间好像用PA打出过一把家珍吧，不过那把我没看
+
+她的人设不是中单吗，到底打过中没啊 ...</blockquote>
+打过啊。中路把对面打烂了。但是中期有点迷茫，就是dodo的经典习惯去帮助队友，团队拉满。结果自己穷了。
+
+*****
+
+####  端木恋心  
+##### 147#       发表于 2022-2-14 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674571&amp;ptid=2051998" target="_blank">Opisthoteuthis 发表于 2022-2-14 00:51</a>
+
+人设是中单欢迎大家来看zdgy，直播间随意增压</blockquote>
+版主是巨魔啊。他会乐弹幕的
+
+*****
+
+####  憧憬鲨  
+##### 148#       发表于 2022-2-14 00:53
+
+要从远古鱼塘里面刨个女陪玩也太难了吧，当这游戏的陪玩真能赚到钱吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我感觉要么是当陪玩，要么是抱着哪条大腿成长起来的，直播带不了外置大脑就显得有点蠢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然也有可能万古原住民的平均水平差不多就这样……
+
+*****
+
+####  银翼的维罗西  
+##### 149#       发表于 2022-2-14 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674441&amp;ptid=2051998" target="_blank">Asukalangley33 发表于 2022-2-14 00:40</a>
+
+一开始那个相位就给队友涡轮增压
+
+最后那波打之前吃A带刷新真的乱宰，毕竟PA A杖R无限单防无敌斩，输出环境 ...</blockquote>
+打不过，到了50分钟没一点机会的，剑圣转都能转死PA的，后面还能有小斩
+
+但这把确实是dodo的锅，因为对面也是个零控阵容，PA其实只要前期苟住20分钟左右鳖出暗灭强势期随便提对面两酱油的，她理解就一直不行，一直打的本能刀塔
+
+*****
+
+####  反方向的波  
+##### 150#       发表于 2022-2-14 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万古是这样的，哪怕是同一个人都可以有的时候打的很屌，脑抽的时候打得跟卫士一样
+
+
+
+*****
+
+####  Asukalangley33  
+##### 151#       发表于 2022-2-14 00:56
+
+想到一种可能性
+
+当dodo学会在直播时瘤起来的时候，是不是摆烂也学会了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在属于是偶像包袱放不下，不好意思甩锅，不好意思毒瘤
+
+但是路人局打1,2,4，真的瘤一点更容易赢
+
+*****
+
+####  憧憬鲨  
+##### 152#       发表于 2022-2-14 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我至今记得版主碰到的那位陨星锤doom代言人
+所以doom到底为什么要出陨星锤啊
+
+*****
+
+####  端木恋心  
+##### 153#       发表于 2022-2-14 00:58
+
+比如古堡龙姬。直播一年的她已经油了。
+
+首播营业音拉满。能打3局到9点半。现在动不动就2局跑路。
+
+*****
+
+####  lpsquirrel  
+##### 154#       发表于 2022-2-14 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674596&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 00:53</a>
+要从远古鱼塘里面刨个女陪玩也太难了吧，当这游戏的陪玩真能赚到钱吗
+我感觉要么是当陪玩，要么是抱 ...</blockquote>
+她解说比赛的那天不是把她师傅叫出来了吗，7000分的辅助来着
+估计眼和粉就是公式化出装，毕竟这样不会怎么被喷
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Asukalangley33  
+##### 155#       发表于 2022-2-14 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674627&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 00:56</a>
+
+我至今记得版主碰到的那位陨星锤doom代言人
+
+所以doom到底为什么要出陨星锤啊 ...</blockquote>
+我同学打过陨星锤帕克
+
+我问他这是跟哪个弱智学的，他告诉我是个B站的路人主播
+
+*****
+
+####  憧憬鲨  
+##### 156#       发表于 2022-2-14 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674644&amp;ptid=2051998" target="_blank">Asukalangley33 发表于 2022-2-14 00:58</a>
+我同学打过陨星锤帕克
+
+我问他这是跟哪个弱智学的，他告诉我是个B站的路人主播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
+所以好用吗
+
+*****
+
+####  憧憬鲨  
+##### 157#       发表于 2022-2-14 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674641&amp;ptid=2051998" target="_blank">lpsquirrel 发表于 2022-2-14 00:58</a>
+她解说比赛的那天不是把她师傅叫出来了吗，7000分的辅助来着
+估计眼和粉就是公式化出装，毕竟这样不会怎 ...</blockquote>
+她解说比赛我就瞟了两眼，有版主我就没开别的台
+
+*****
+
+####  lpsquirrel  
+##### 158#       发表于 2022-2-14 01:00
+
+铁头哥哥已经掉到超凡三了，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  反方向的波  
+##### 159#       发表于 2022-2-14 01:00
+
+陨星锤卜是gox攻略指定出装？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 160#       发表于 2022-2-14 01:00
+
+陨星锤我就记得当初吧主gox什么英雄都推荐出。出完这个出大炮吧。成为两件套。
+
+这个梗都好久了吧。
+
+*****
+
+####  mkii量产型  
+##### 161#       发表于 2022-2-14 01:01
+
+ 本帖最后由 mkii量产型 于 2022-2-14 01:02 编辑 
+<blockquote>端木恋心 发表于 2022-2-14 00:58
+比如古堡龙姬。直播一年的她已经油了。
+
+首播营业音拉满。能打3局到9点半。现在动不动就2局跑路。 ...</blockquote>
+也有可能笨逼已经转正了，人设上上三姐妹其实是领导和实习生，妮妮那边《鸡煲已经躺在床上了》不知道为啥这么好笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 162#       发表于 2022-2-14 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674430&amp;ptid=2051998" target="_blank">mkii量产型 发表于 2022-2-14 00:39</a>
+
+妮妮锐评dotaer直男，还是csgo玩家有人情味</blockquote>
+是这样的，我CS白银一水平，怎么摆烂都没被喷过，经常其乐融融边死边吹水，刀塔玩家真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 163#       发表于 2022-2-14 01:03
+
+比起陨星锤还是2020年的那个小人书值得怀念，太屌了这才是几乎人人都能出的东西<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，可惜地图资源不够分
+
+*****
+
+####  憧憬鲨  
+##### 164#       发表于 2022-2-14 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是黯灭头和tiny争宠的真相是吧
+Gox不是喜欢给辅助推荐陨星锤吗
+
+*****
+
+####  Asukalangley33  
+##### 165#       发表于 2022-2-14 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674652&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 00:59</a>
+
+……
+
+所以好用吗</blockquote>
+那把我大哥SF乱杀
+
+他基本局外人吧，但是他就拿他那2，30个助攻，以及自己技能全交杀对面酱油的“名场面”嗯吹自己作用大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+搞的后来还玩了个什么√吧散失风行，头都被对面QOP打飞了
+

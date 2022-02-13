@@ -778,3 +778,31 @@ NBGI移植一下多卖一次不好吗
 
 讲道理大师难度正常打也可以过 不会打搜狗打木桩来不及 基本零容错的样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  二丁目拓也  
+##### 84#         楼主| 发表于 2022-2-14 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674158&amp;ptid=2051733" target="_blank">laputahao 发表于 2022-2-14 00:15</a>
+
+不都人均开着外挂挂机吗...
+
+—— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+的确
+
+后面官服我都是长期蓝肉
+
+*****
+
+####  二丁目拓也  
+##### 85#         楼主| 发表于 2022-2-14 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674386&amp;ptid=2051733" target="_blank">恶意满满 发表于 2022-2-14 00:34</a>
+
+讲道理大师难度正常打也可以过 不会打搜狗打木桩来不及 基本零容错的样子 ...</blockquote>
+有些卡搜狗反而火力不足
+
+大师的危机时间限制就真的。。。只能卡过了
+
