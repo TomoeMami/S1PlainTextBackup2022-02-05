@@ -1847,3 +1847,38 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 剧情非常细腻，故事娓娓道来。每章有多一半都在讲故事，而且是真的在讲，不是为了服务关卡的剧情。人物、 ...</blockquote>
 有点想重新入switch了，oled版，想玩的就是3月这个，5月sp3，9月xb3，年底旷野2。
 
+
+
+*****
+
+####  nagitoY  
+##### 166#       发表于 2022-2-13 10:27
+
+第二章hard难度打不过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">黑皮一刀下来57伤害，敌方剑士砍公主一刀33。这游戏不像火纹有反击，没有强力角色打后手反击的战术。试了几次开局阵型，无论往前走还是原地抱团都是几回合就开始死人。看了下别人的打法，开局全员贴着地图边缘站位，从而博取生存空间，只能用以退为进的走位方法吗？这种站位也打不出夹击和背伤的优势伤害。
+
+不过话说回来这类游戏高难模式刚开局都是最难的，角色职业技能没点出来没有什么操作空间，只能依赖走位和硬抗。
+
+*****
+
+####  nagitoY  
+##### 167#       发表于 2022-2-13 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54657367&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-2-12 20:13</a>
+
+第二关纯平地就是站位教学，守角落就好了，背击夹击全不吃
+
+最好能有管家3级加防御的技能、侍女3级重伤加治 ...</blockquote>
+那就是开局就要规划好，在第一关尽量把经验给管家和侍女？我hard难度初见打完第一关后除了骑士全员2级，3级的技能全都没解锁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leachiman  
+##### 168#         楼主| 发表于 2022-2-13 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54664703&amp;ptid=2051152" target="_blank">nagitoY 发表于 2022-2-13 10:30</a>
+
+那就是开局就要规划好，在第一关尽量把经验给管家和侍女？我hard难度初见打完第一关后除了骑士全员2级，3 ...</blockquote>
+你觉得打得不满意或者打不过的时候，其实还有个很无赖的方法是 
+
+呼出菜单，选撤退，回到战斗开始的时候，但是你打的经验和战功还在
+
