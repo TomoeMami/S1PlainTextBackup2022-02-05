@@ -6341,3 +6341,45 @@ Apex还能播啥啊想不出来，在奥林匹斯再上一次大师吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随机抽取幸运观众直播带上大师，我可以报名🐶
 
+
+
+*****
+
+####  面具13  
+##### 8241#       发表于 2022-2-13 23:42
+
+apex夸宝还能玩的东西有：casual的双锤骷髅海挑战（全英雄），组队上大师（能上钻3的队友就行），赛季初组队冲大师（冲猎杀挑战，找不到常年猎杀的队友的话没戏），提前上大师然后猎排（需要常年大师的队友），普通的单排大师（再来一次大概观众也还没完全腻），社内的apex基础教学联动（还可以分对方能力开初级班和中级班，休闲模式共享屏幕当教练），apex训练场单挑凸待。
+
+明天不会有人自己买巧克力假装是夸宝做的吧，不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 8242#       发表于 2022-2-13 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54671523&amp;ptid=1947500" target="_blank">离魂仙 发表于 2022-2-13 20:38</a>
+
+这人怎么老是搜切片看，危机感吗
+
+【天音かなた/湊あくあ】懷疑歌詞分配另有所指的PP天使
+
+辟谣：并没有借歌 ...</blockquote>
+日本人没有泡热水对身体好的文化，国内本身也是50年代才开始的，具体我记得2，3年前外野有贴科普。
+
+*****
+
+####  バーチャルS1er  
+##### 8243#       发表于 2022-2-13 23:49
+
+按照大夸最爱的装B网文套路该参加比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8244#       发表于 2022-2-13 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54673803&amp;ptid=1947500" target="_blank">バーチャルS1er 发表于 2022-2-13 23:49</a>
+
+按照大夸最爱的装B网文套路该参加比赛了</blockquote>
+有没有办法让她找队友，卡在第一步了怎么办，虚拟自闭症怎么一年了还没好？
+
