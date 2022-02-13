@@ -1652,3 +1652,14 @@ Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了
 
 （PS.这不是老叶第一个团体冠军，他只是没有个人赛冠军）
 
+
+
+*****
+
+####  Porsche  
+##### 10647#       发表于 2022-2-13 20:31
+
+ui
+
+[https://youtu.be/Ehe4Kvtqlio](https://youtu.be/Ehe4Kvtqlio)
+

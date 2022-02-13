@@ -712,3 +712,31 @@ do鳖3号位怎么和我一样，我和do鳖贴贴<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这为啥要往上走
 
+
+
+*****
+
+####  usoda  
+##### 92#       发表于 2022-2-13 20:32
+
+点进冠夹直播间永远是三红<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 93#       发表于 2022-2-13 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54671439&amp;ptid=2051998" target="_blank">usoda 发表于 2022-2-13 20:32</a>
+
+点进冠夹直播间永远是三红</blockquote>
+别造谣KDA绿了
+
+*****
+
+####  端木恋心  
+##### 94#       发表于 2022-2-13 20:39
+
+ 本帖最后由 端木恋心 于 2022-2-13 20:41 编辑 
+
+这一波血压上来了 刚说完这一波拉满了
+
