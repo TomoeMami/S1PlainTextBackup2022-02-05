@@ -1632,3 +1632,23 @@ Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了
 キャリーまんこ本性作怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 上届四番粹拿个omen混混还成，这届二番粹还主动要玩烟位用astra属于妥妥的战犯
 
+
+
+*****
+
+####  qwera3469  
+##### 10645#       发表于 2022-2-13 19:10
+
+老叶终于也拿了个冠军了
+
+*****
+
+####  alcoholic1000  
+##### 10646#       发表于 2022-2-13 19:14
+
+昨天打的还算可以，今天属于躺赢了
+
+快说谢谢四位大爹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+（PS.这不是老叶第一个团体冠军，他只是没有个人赛冠军）
+
