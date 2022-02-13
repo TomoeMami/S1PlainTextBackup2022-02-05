@@ -11260,3 +11260,30 @@ B47D40BE-7657-4B49-BBCE-56FD2EE23A92.jpeg
 
 说起来昨晚又看了一遍，总觉得佩和NAKO是坐在一楼前排，每次拍到前排总是在最下方看到两个长头发女性，看衣服也很像
 
+
+
+*****
+
+####  ayangsu  
+##### 5437#       发表于 2022-2-13 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54665927&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-13 12:16</a>
+鲤鱼这事后FC GOODS一开，我就喝杯牛奶的功夫发声挂件就切了，只能让人录好声音发我了
+
+说起来昨晚 ...</blockquote>
+这玩意限购，几个代购群一片哀嚎<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 5438#       发表于 2022-2-13 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54666105&amp;ptid=2036367" target="_blank">ayangsu 发表于 2022-2-13 12:31</a>
+
+这玩意限购，几个代购群一片哀嚎
+
+—— 来自 S1Fun</blockquote>
+我自己也是FC会员，明明都加进购物车了，点出去加别的东西再进就显示切了，妈的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
