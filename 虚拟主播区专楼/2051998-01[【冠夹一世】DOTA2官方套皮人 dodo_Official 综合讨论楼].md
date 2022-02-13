@@ -1518,3 +1518,108 @@ yysy冠夹业务不熟练刀打得太多了，都播了一个月了还不去找�
 所以是陪玩太卷都要培训贯口了还是播音主持毕业太卷了没饭吃，形象不好的只能去做陪玩，顺便说一句，妮妮 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不可能是是资深德云社女孩的业余爱好呢
 
+
+
+*****
+
+####  憧憬鲨  
+##### 181#       发表于 2022-2-14 01:24
+
+龙姬现在人气是真下去了，感觉基本打不过tinydodo
+
+*****
+
+####  端木恋心  
+##### 182#       发表于 2022-2-14 01:25
+
+没点过陪玩。我的固有印象一般陪玩不应该是毒瘤一点的吗？
+
+dodo挺团队的抱大腿感觉可能性大一点。
+
+*****
+
+####  mkii量产型  
+##### 183#       发表于 2022-2-14 01:27
+
+【永 do 卖 艺【直播切片】-哔哩哔哩】 [https://b23.tv/xK3rhJu](https://b23.tv/xK3rhJu) 
+
+话说这个电音还真是带感
+
+*****
+
+####  tengshuo980  
+##### 184#       发表于 2022-2-14 01:29
+
+有没有可能是风暴英雄转dota2
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lpsquirrel  
+##### 185#       发表于 2022-2-14 01:32
+
+陪玩首先是要把老板保舒服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  端木恋心  
+##### 186#       发表于 2022-2-14 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674897&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 01:24</a>
+
+龙姬现在人气是真下去了，感觉基本打不过tinydodo</blockquote>
+男人是喜新厌旧的。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过龙姬csgo打的还可以。tiny的csgo感觉就是临时培训出来的。
+
+所以还是会去看的龙姬的很有意思。就是龙姬最近半年真的摆烂啊啊啊啊啊
+
+*****
+
+####  憧憬鲨  
+##### 187#       发表于 2022-2-14 01:33
+
+我也没点过陪玩，但是想了一下我如果点陪玩可能会希望陪玩一直和我一起玩而不是分头打钱吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者至少打钱的那个人是我，分头的那个人是陪玩
+
+*****
+
+####  比比巴巴波  
+##### 188#       发表于 2022-2-14 01:40
+
+说真的，刀塔直播这块观众看游戏可能多过女主播，滤镜再强血压还是会高，不如冲一阵天梯开一会小号捕鱼
+
+*****
+
+####  mkii量产型  
+##### 189#       发表于 2022-2-14 01:41
+
+<blockquote>憧憬鲨 发表于 2022-2-14 01:33
+我也没点过陪玩，但是想了一下我如果点陪玩可能会希望陪玩一直和我一起玩而不是分头打钱吧
+
+或者至少 ...</blockquote>
+我观摩过过线下陪玩业务，有一次去杭州出差，第二天最早一班火车再去北京，我懒得订酒店就找了东站附近的网吧打do，然后我进的包厢就有“一对”陪玩，一男一女，女的陪老板说话，男的戴口罩操作。今晚这两人的打炮前就靠老板付了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 憧憬鲨| + 1|破论坛，我不想知道这些！|
+
+查看全部评分
+
+*****
+
+####  憧憬鲨  
+##### 190#       发表于 2022-2-14 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">捕鱼败人品，更容易被喷吧
+老老实实当个老油耻，普通人打个万古也不丢人嘛
+
