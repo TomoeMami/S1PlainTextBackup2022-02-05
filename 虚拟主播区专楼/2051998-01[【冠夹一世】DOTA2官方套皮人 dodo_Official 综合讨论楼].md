@@ -866,3 +866,233 @@ do鳖骗弹幕有一手的<img src="https://static.saraba1st.com/image/smiley/fa
 
 翻了捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  端木恋心  
+##### 111#       发表于 2022-2-14 00:27
+
+压力太大绷不住了，要哭了
+
+*****
+
+####  Opisthoteuthis  
+##### 112#       发表于 2022-2-14 00:29
+
+这个屠夫看似指导，实则超级涡轮增压<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Opisthoteuthis  
+##### 113#       发表于 2022-2-14 00:33
+
+还是寄了，我们几乎要赢了不是吗
+
+*****
+
+####  absaki  
+##### 114#       发表于 2022-2-14 00:33
+
+血压看高了，7000块是留着下把用吗
+
+*****
+
+####  一般通过宅宅  
+##### 115#       发表于 2022-2-14 00:34
+
+打太久昏头了
+
+*****
+
+####  憧憬鲨  
+##### 116#       发表于 2022-2-14 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这把确实压力太大了
+上一波推出去之前就该把A吃了，哪怕摸个疯脸出来呢
+
+*****
+
+####  露·露卡  
+##### 117#       发表于 2022-2-14 00:34
+
+do子打哭了
+
+*****
+
+####  wuyan午言  
+##### 118#       发表于 2022-2-14 00:34
+
+一个正常玩家私下玩的话应该会都处理得比这把pa好。可是这是在直播压力太大了。
+
+*****
+
+####  憧憬鲨  
+##### 119#       发表于 2022-2-14 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">只能说直播给人的压力确实大，黯灭头需要尽快早点学会老油耻们那套厚脸皮的直播态度
+
+*****
+
+####  端木恋心  
+##### 120#       发表于 2022-2-14 00:36
+
+压力太大了。她最后已经变形了。最后一直在看钱能不能买。根本不知道剩下多少钱，就看能不能买。
+
+
+
+*****
+
+####  一般通过宅宅  
+##### 121#       发表于 2022-2-14 00:37
+
+播了七个小时确实不容易
+
+*****
+
+####  银翼的维罗西  
+##### 122#       发表于 2022-2-14 00:37
+
+有一说一，剑圣这英雄45分钟之前打不过他，后面很难打得过他，大后期三段无敌输出环境太好了，这把PA要分身撒旦还稍微能苟一苟，dodo本来理解就不行，高压局是不可能领会到这个出装的
+
+*****
+
+####  Opisthoteuthis  
+##### 123#       发表于 2022-2-14 00:38
+
+只能说压力太大了，事与愿违
+
+*****
+
+####  mkii量产型  
+##### 124#       发表于 2022-2-14 00:39
+
+妮妮锐评dotaer直男，还是csgo玩家有人情味
+
+*****
+
+####  憧憬鲨  
+##### 125#       发表于 2022-2-14 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">她之前打钢背的时候也在反复看买活
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">但是这收着哭腔念睡前故事也太懂直播了
+
+*****
+
+####  Fstt  
+##### 126#       发表于 2022-2-14 00:39
+
+只能说刀思林各个都是压力怪了
+
+*****
+
+####  Asukalangley33  
+##### 127#       发表于 2022-2-14 00:40
+
+一开始那个相位就给队友涡轮增压
+
+最后那波打之前吃A带刷新真的乱宰，毕竟PA A杖R无限单防无敌斩，输出环境不错
+
+但是dodo估计是想不到这一步，她最后基本就只看买活钱了，其他啥都不看
+
+属于是变形了
+
+*****
+
+####  tengshuo980  
+##### 128#       发表于 2022-2-14 00:41
+
+感觉最后做出大晕还是挺好打的，只能说后期被人支配了，没有自己想法了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lpsquirrel  
+##### 129#       发表于 2022-2-14 00:42
+
+毕竟6个多小时，确实也累了
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  一品堂官  
+##### 130#       发表于 2022-2-14 00:42
+
+压力还不是自己给的。线上吊儿郎当后期能不吃屎么？
+
+阵容不好对线压力大就线上混经验到5级，钻野狂战bkb黯灭出山，一定要在1塔附近see不是找压力么。
+
+这滚雪球的资源游戏不会有人不知道吧？
+
+*****
+
+####  憧憬鲨  
+##### 131#       发表于 2022-2-14 00:44
+
+ 本帖最后由 憧憬鲨 于 2022-2-14 00:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">无敌斩是真的很赖皮
+黯灭头打dota2的思路感觉一直挺卑微的，喜欢打得很团队，说不定真是陪玩出身要照顾老板
+
+最后还有女同性恋营业环节是吧
+
+*****
+
+####  Opisthoteuthis  
+##### 132#       发表于 2022-2-14 00:45
+
+换成yyf至少要被喷1个星期，只能说皮套确实有点魔力
+
+*****
+
+####  勾陈一  
+##### 133#       发表于 2022-2-14 00:45
+
+dodo<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  端木恋心  
+##### 134#       发表于 2022-2-14 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674466&amp;ptid=2051998" target="_blank">一品堂官 发表于 2022-2-14 00:42</a>
+
+压力还不是自己给的。线上吊儿郎当后期能不吃屎么？
+
+阵容不好对线压力大就线上混经验到5级，钻野狂战bkb黯 ...</blockquote>
+你这就是标准dota思维。
+
+和我们这种管人痴的思维是不一样的。
+
+*****
+
+####  端木恋心  
+##### 135#       发表于 2022-2-14 00:46
+
+女同营业多来点就好这口
+
+*****
+
+####  Asukalangley33  
+##### 136#       发表于 2022-2-14 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674488&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 00:44</a>
+
+无敌斩是真的很赖皮
+
+黯灭头打dota2的思路感觉一直挺卑微的，喜欢打得很团队，说不定真是陪玩出身要 ...</blockquote>
+dodo的PA理解应该还停留在GOX出装的时代
+
+前期刷野 中期切入用模糊都很生疏，明显是没怎么玩过最近的PA
+
+A杖 PA是真不怕无敌斩，正常PA熟手只要把对面夜魔切了剩下就是乱杀
+
+*****
+
+####  一般通过宅宅  
+##### 137#       发表于 2022-2-14 00:47
+
+不知道为什么就是很喜欢这种5块劣质电流麦的质感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
