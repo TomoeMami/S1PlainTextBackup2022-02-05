@@ -1726,3 +1726,22 @@ ui
 
 还是大家一起炒作元宇宙
 
+
+
+*****
+
+####  ゴロー  
+##### 10654#       发表于 2022-2-14 01:53
+
+nrk这队打神界比本战还好玩
+
+*****
+
+####  free  
+##### 10655#       发表于 2022-2-14 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674823&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-2-14 01:16</a>
+
+副站长：彩虹两个月后上市，木口年底上市</blockquote>
+这哪来的消息...<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

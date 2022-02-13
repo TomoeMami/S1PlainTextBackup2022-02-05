@@ -1623,3 +1623,21 @@ dodo挺团队的抱大腿感觉可能性大一点。
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">捕鱼败人品，更容易被喷吧
 老老实实当个老油耻，普通人打个万古也不丢人嘛
 
+
+
+*****
+
+####  一品堂官  
+##### 191#       发表于 2022-2-14 02:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">每天平均输2把  只要16天就能到3610了 下个月可能可以重温一下保永生小鱼
+
+*****
+
+####  比格沃斯高兴  
+##### 192#       发表于 2022-2-14 03:46
+
+来了来了
+
+—— 来自 HONOR ELZ-AN10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
