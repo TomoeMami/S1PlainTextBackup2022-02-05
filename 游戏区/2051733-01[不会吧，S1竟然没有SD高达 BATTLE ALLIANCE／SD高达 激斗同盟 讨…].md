@@ -745,3 +745,27 @@ DLC，季票，豪华版，限定版
 高破就有啊，玩高破3全部用tr1的零件组一台就好了</blockquote>
    草，高破那种连变形都做不到的好意思叫自己是TR系列么！！！<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  laputahao  
+##### 81#       发表于 2022-2-14 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54629325&amp;ptid=2051733" target="_blank">二丁目拓也 发表于 2022-2-10 21:56</a>
+确实，不是刷图纸谁玩啊</blockquote>
+不都人均开着外挂挂机吗...
+
+—— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  keytomylife  
+##### 82#       发表于 2022-2-14 00:25
+
+就机能来说SWITCH能跑EXVS吧
+
+NBGI移植一下多卖一次不好吗
+
+连DBFZ都上了
+
