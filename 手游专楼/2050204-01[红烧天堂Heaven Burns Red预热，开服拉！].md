@@ -688,3 +688,15 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 剧情太逗了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">昨天大半夜憋笑憋得好辛苦
 
+
+
+*****
+
+####  barca  
+##### 64#       发表于 2022-2-13 10:56
+
+毕竟有伊甸的经验，这开服系统的完成度还行
+看大叔心女主调戏其他妹子也挺好玩，初始刷了一下午，刷了个6个ss的号开局了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
