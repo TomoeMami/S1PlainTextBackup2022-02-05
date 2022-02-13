@@ -11475,3 +11475,33 @@ B47D40BE-7657-4B49-BBCE-56FD2EE23A92.jpeg
 
 超次元结束后该宣传一专和2nd了吧？也就一个月左右的时间，后续活动居然一点动静都没有了吗？
 
+
+
+*****
+
+####  优妮可  
+##### 5453#       发表于 2022-2-13 19:29
+
+抖音发了五个试听
+
+*****
+
+####  优妮可  
+##### 5454#       发表于 2022-2-13 19:35
+
+<img src="https://img.saraba1st.com/forum/202202/13/193506z7cgpuzcxr7hacux.jpg" referrerpolicy="no-referrer">
+
+<strong>20220213_193118.jpg</strong> (711.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-13 19:35 上传
+
+<img src="https://img.saraba1st.com/forum/202202/13/193506hntr21ghru9mndrg.jpg" referrerpolicy="no-referrer">
+
+<strong>20220213_193120.jpg</strong> (692.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-13 19:35 上传
+
