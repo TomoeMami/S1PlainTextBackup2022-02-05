@@ -11287,3 +11287,15 @@ B47D40BE-7657-4B49-BBCE-56FD2EE23A92.jpeg
 —— 来自 S1Fun</blockquote>
 我自己也是FC会员，明明都加进购物车了，点出去加别的东西再进就显示切了，妈的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 5439#       发表于 2022-2-13 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54666202&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-13 12:38</a>
+
+我自己也是FC会员，明明都加进购物车了，点出去加别的东西再进就显示切了，妈的 ...</blockquote>
+老哥，今天超次元Liella大概几时出场？
+

@@ -1912,3 +1912,12 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 呼出菜单，选撤退，回到战斗开始的时候 ...</blockquote>
 那就很没意思了啊，出个练级的副本都比这样撤退刷经验好
 
+
+
+*****
+
+####  渺小小  
+##### 172#       发表于 2022-2-13 13:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">该死！有点想预购了······
+
