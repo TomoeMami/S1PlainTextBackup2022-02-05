@@ -1941,3 +1941,43 @@ L和R不能转圈视角太恶心了，摇杆转视角转到吐
 
 这个有啥隐藏要素吗，看别的up玩，冰法和侍女之间有两句对话，我玩的时候没有，是差啥吗
 
+
+
+*****
+
+####  jbjack1215  
+##### 175#       发表于 2022-2-13 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54657851&amp;ptid=2051152" target="_blank">NaYo丶 发表于 2022-2-12 20:41</a>
+
+王女这立绘不如像素小人
+
+感觉这作立绘还挺烂很多不如小人太脏了线条</blockquote>
+不知道为什么八方开始就不请吉田明彦
+
+*****
+
+####  战狼PTSD  
+##### 176#       发表于 2022-2-13 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54664758&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-2-13 10:36</a>
+
+你觉得打得不满意或者打不过的时候，其实还有个很无赖的方法是 
+
+呼出菜单，选撤退，回到战斗开始的时候 ...</blockquote>
+。。。。这个怎么感觉有点低级啊，这就能反复刷级了？
+
+*****
+
+####  战狼PTSD  
+##### 177#       发表于 2022-2-13 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54655579&amp;ptid=2051152" target="_blank">cloudymc007 发表于 2022-2-12 17:48</a>
+
+难道没人像我一样喜欢能刷刷刷的SRPG么
+
+皇骑2和FFT我都是直接刷爆，然后享受各种秒杀的快感</blockquote>
+SD高达和魔界战记玩那么多年下来吐了
+
+火纹三房我就玩的很舒服，不刻意练级就有点难度
+

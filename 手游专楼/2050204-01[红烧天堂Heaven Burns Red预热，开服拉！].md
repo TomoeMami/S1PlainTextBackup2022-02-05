@@ -837,3 +837,15 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这屌游戏初始是直接接口刷的，85一个4ss的号，希望不会被枪毙
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 78#       发表于 2022-2-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54672457&amp;ptid=2050204" target="_blank">BrainDead 发表于 2022-2-13 21:59</a>
+
+洗澡BGM里面的人声“shower~shower~”好魔性啊</blockquote>
+是的 简直**<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
