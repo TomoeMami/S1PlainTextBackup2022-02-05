@@ -818,3 +818,12 @@ Bolero &gt; Sweater &gt; Shirt &gt; &gt; &gt; French Maid
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9099#       发表于 2022-2-13 18:44
+
+能tm的开播打7个小时lol，你问她累不累，不是晚上有新衣服她能再打7小时……
+

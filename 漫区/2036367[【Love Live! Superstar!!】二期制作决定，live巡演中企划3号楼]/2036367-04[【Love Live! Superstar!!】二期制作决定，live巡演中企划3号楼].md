@@ -11466,3 +11466,12 @@ B47D40BE-7657-4B49-BBCE-56FD2EE23A92.jpeg
 
 刚看OP还想赞一下导播拍了大腿特写，后面一股喝醉酒那样乱切镜头搞什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5452#       发表于 2022-2-13 19:04
+
+超次元结束后该宣传一专和2nd了吧？也就一个月左右的时间，后续活动居然一点动静都没有了吗？
+
