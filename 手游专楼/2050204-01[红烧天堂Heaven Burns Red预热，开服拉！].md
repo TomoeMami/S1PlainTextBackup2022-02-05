@@ -819,3 +819,12 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 云了两章，77好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BrainDead  
+##### 76#       发表于 2022-2-13 21:59
+
+洗澡BGM里面的人声“shower~shower~”好魔性啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
