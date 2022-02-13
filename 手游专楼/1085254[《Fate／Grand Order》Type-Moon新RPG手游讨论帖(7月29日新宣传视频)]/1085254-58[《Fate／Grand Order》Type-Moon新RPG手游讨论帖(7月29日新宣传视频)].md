@@ -15430,3 +15430,14 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 这次活动全程用双暗狐打，一面buff满还无指定性技能，然后三宝具砸下去，流畅的很，蓝卡队在333上都要没有优势了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像这种低血量333本，双暗狐就是乱杀
 
+
+
+*****
+
+####  johnkamsar  
+##### 86991#       发表于 2022-2-13 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54664497&amp;ptid=1085254" target="_blank">zakki 发表于 2022-2-13 10:04</a>
+这次活动全程用双暗狐打，一面buff满还无指定性技能，然后三宝具砸下去，流畅的很，蓝卡队在333上都要没有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">然而没光狐的表示完全不懂你所说的情况
+
