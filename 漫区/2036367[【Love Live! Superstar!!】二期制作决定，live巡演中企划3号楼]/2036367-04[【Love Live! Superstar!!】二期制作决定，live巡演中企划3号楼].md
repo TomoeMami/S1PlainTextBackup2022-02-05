@@ -11249,3 +11249,14 @@ B47D40BE-7657-4B49-BBCE-56FD2EE23A92.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/12/221346sn7uba8t287tfvbv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5436#       发表于 2022-2-13 12:16
+
+鲤鱼这事后FC GOODS一开，我就喝杯牛奶的功夫发声挂件就切了，只能让人录好声音发我了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+说起来昨晚又看了一遍，总觉得佩和NAKO是坐在一楼前排，每次拍到前排总是在最下方看到两个长头发女性，看衣服也很像
+
