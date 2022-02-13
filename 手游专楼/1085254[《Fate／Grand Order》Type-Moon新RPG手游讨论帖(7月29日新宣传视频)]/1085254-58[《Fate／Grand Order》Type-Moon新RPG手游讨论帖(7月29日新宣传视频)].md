@@ -15421,3 +15421,12 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 这辣鸡游戏的男性神灵都是变态吗
 
+
+
+*****
+
+####  zakki  
+##### 86990#       发表于 2022-2-13 10:04
+
+这次活动全程用双暗狐打，一面buff满还无指定性技能，然后三宝具砸下去，流畅的很，蓝卡队在333上都要没有优势了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像这种低血量333本，双暗狐就是乱杀
+
