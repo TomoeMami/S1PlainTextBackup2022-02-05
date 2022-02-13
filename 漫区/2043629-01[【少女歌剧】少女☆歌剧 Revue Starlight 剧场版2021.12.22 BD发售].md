@@ -8978,3 +8978,21 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 <img src="https://p.sda1.dev/4/4de98505395e5eef1ce32a54dc467a3d/IMG_CMP_97502107.jpeg" referrerpolicy="no-referrer">
 也算是赶上观影会了……
 
+
+
+*****
+
+####  nh_zzz  
+##### 675#       发表于 2022-2-13 14:19
+
+ 本帖最后由 nh_zzz 于 2022-2-13 14:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54661126&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-2-12 23:41</a>
+特典都是行销手段
+
+670L贴的第二张图。你如果想要买实物特典的配信（視聴券＋グッズ的那个，グッズ ...</blockquote>
+就单千秋乐算，日区eplus是5000+220手续费，便利店支付（除日区卡外）再加220
+海外不用注册，但是地区要选非国区。实付5400，收支付宝或者信用卡
+
+另外说一下，其实两边都是直连看的比较流畅
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
