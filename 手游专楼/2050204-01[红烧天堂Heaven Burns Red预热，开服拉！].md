@@ -803,3 +803,19 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">对白嫖来说最大的问题是前面没石头抽的不多，如果抽的都是靠后的那几个人，前面章节能交流的角色都没解锁，那只能去选6维了
 
+
+
+*****
+
+####  叶雾  
+##### 74#       发表于 2022-2-13 21:43
+
+下载之后，游戏里的两个多G死活下不动。。
+
+*****
+
+####  roamer  
+##### 75#       发表于 2022-2-13 21:43
+
+云了两章，77好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

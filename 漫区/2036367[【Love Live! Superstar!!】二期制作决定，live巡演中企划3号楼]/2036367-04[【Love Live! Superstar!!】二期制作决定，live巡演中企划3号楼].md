@@ -11749,3 +11749,15 @@ DFDDD63B-FA3B-4554-9E80-09A23088EF98.jpeg
 
 什么叫团内唯一指定摄影师啊（战术后仰）
 
+
+
+*****
+
+####  starring  
+##### 5462#       发表于 2022-2-13 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54671798&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-2-13 21:02</a>
+
+.</blockquote>
+pay和nagi这两人整活得像上刑那样笑死人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
