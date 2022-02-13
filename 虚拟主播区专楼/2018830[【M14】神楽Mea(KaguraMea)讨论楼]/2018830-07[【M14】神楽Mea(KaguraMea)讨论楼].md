@@ -789,3 +789,12 @@ Bolero &gt; Sweater &gt; Shirt &gt; &gt; &gt; French Maid
 
 虽然我也挺想看你麻反应的，但你麻上次播非联动新游戏都什么时候的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9096#       发表于 2022-2-13 18:03
+
+新衣服都换了，不会今年也是lol，唱歌切换着到年底吧。要走出舒适圈啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

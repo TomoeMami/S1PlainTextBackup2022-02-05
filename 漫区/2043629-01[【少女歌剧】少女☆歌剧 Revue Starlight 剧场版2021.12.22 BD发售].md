@@ -8996,3 +8996,19 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 另外说一下，其实两边都是直连看的比较流畅
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  rosental  
+##### 676#       发表于 2022-2-13 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54630959&amp;ptid=2043629" target="_blank">nh_zzz 发表于 2022-2-10 23:25</a>
+
+会日文的可以留意一下这个，考究合集
+
+劇場版スタァライトの考察合同誌企画を立ち上げました！
+
+#舞台創造科3 ...</blockquote>
+芝，这怕不真是歌学家的狂欢
+
