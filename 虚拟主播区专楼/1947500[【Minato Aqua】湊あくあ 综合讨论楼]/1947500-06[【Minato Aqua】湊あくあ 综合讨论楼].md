@@ -6393,3 +6393,12 @@ apex夸宝还能玩的东西有：casual的双锤骷髅海挑战（全英雄）�
 nene不是想来但是被嫌弃了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 另外感觉联动玩玩一两次还行，长期联动的话容易踩雷。谁谁拖后腿谁谁卖队友，都是雷，粉丝的闲话比谁都多
 
+
+
+*****
+
+####  星の守  
+##### 8246#       发表于 2022-2-14 01:05
+
+nene那是想自己玩不是想来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

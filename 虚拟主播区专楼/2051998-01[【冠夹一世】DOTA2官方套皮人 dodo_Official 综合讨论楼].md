@@ -1379,3 +1379,142 @@ Gox不是喜欢给辅助推荐陨星锤吗
 
 搞的后来还玩了个什么√吧散失风行，头都被对面QOP打飞了
 
+
+
+*****
+
+####  赤星ビスコ  
+##### 166#       发表于 2022-2-14 01:07
+
+说不定是是玩过dota1的老人后转其他游戏，然后被拉过来玩dota2
+
+*****
+
+####  银翼的维罗西  
+##### 167#       发表于 2022-2-14 01:10
+
+ 本帖最后由 银翼的维罗西 于 2022-2-14 01:11 编辑 
+
+我直播看的不多，看得几把感觉dodo应该是撸狗出身，因为他操作反应快，技能释放也准确，又特别喜欢抱团，交技能不动脑子，非常像脸滚键盘的撸狗风格<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 168#       发表于 2022-2-14 01:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">按后面的证词应该不是不知道A可以吃，是猪脑瓦特了以为自己还有买活cd想留买活
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">喜欢留买活而不是更装备也挺卑微的
+
+*****
+
+####  反方向的波  
+##### 169#       发表于 2022-2-14 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">yysy冠夹业务不熟练刀打得太多了，都播了一个月了还不去找点嗯混技巧
+
+*****
+
+####  憧憬鲨  
+##### 170#       发表于 2022-2-14 01:12
+
+别，就想看刀塔
+
+*****
+
+####  端木恋心  
+##### 171#       发表于 2022-2-14 01:12
+
+所以算不算是恶堕啊。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">如果之前是陪玩就更有意思了。
+
+不过9000分的实习生救一下啊。
+
+*****
+
+####  月亮与五块钱  
+##### 172#       发表于 2022-2-14 01:13
+
+ 本帖最后由 月亮与五块钱 于 2022-2-14 01:15 编辑 
+
+Do憋在nga的专楼，是我看过的管人专楼里唯一好几页在对喷游戏内容的，还一帧一帧的复盘，把老子看的一愣一愣的，管人痴最严重的的尼歌论坛尚且这样，只能说deadgame活该没新玩家。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 173#       发表于 2022-2-14 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674787&amp;ptid=2051998" target="_blank">反方向的波 发表于 2022-2-14 01:11</a>
+yysy冠夹业务不熟练刀打得太多了，都播了一个月了还不去找点嗯混技巧 ...</blockquote>
+刀也可以搞很多花样啊不一定非要打到脑死亡，比如什么比赛解说 水友录像直喷 阿版你说是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 174#       发表于 2022-2-14 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不复盘游戏内容干嘛，总不能讨论半天最后讲的那个小红帽吧
+
+*****
+
+####  lpsquirrel  
+##### 175#       发表于 2022-2-14 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674805&amp;ptid=2051998" target="_blank">反方向的波 发表于 2022-2-14 01:13</a>
+刀也可以搞很多花样啊不一定非要打到脑死亡，比如什么比赛解说 水友录像直喷 阿版你说是吧 ...</blockquote>
+上次dodo解说英特尔杯决赛观感属实不是特别好
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  mkii量产型  
+##### 176#       发表于 2022-2-14 01:17
+
+8.3万粉把热度榜冲到第一，你们刀斯林为啥屁话这么多，没女朋友吗
+
+*****
+
+####  Asukalangley33  
+##### 177#       发表于 2022-2-14 01:17
+
+这里说一下，我觉得她肯定不会是DOTA1转过来的
+
+或者说就算玩过DOTA1，也是轻度玩家，没事打打OMG IMBA的那种
+
+真打过DOTA1后期，度过一段时间空窗再转DOTA2的，毒瘤和混是刻在本能里的，K头、闷头刷野、自闭DOTA那是肌肉反应
+
+真演不出现在这样的团队打法
+
+如果DODO能抵抗DNA里的毒瘤冲动扮演一个团队选手，那我可以称她为世界第一“虚拟”主播，属于是把RP玩穿了
+
+*****
+
+####  憧憬鲨  
+##### 178#       发表于 2022-2-14 01:18
+
+ 本帖最后由 憧憬鲨 于 2022-2-14 01:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我还是觉得陪玩或者抱着大腿出身的比较靠谱
+想了一下，至少大哥应该不是抱大腿学上来的，拿辅助保新人大哥第一件事应该就是想办法把人赶进野区单机刷
+
+*****
+
+####  mkii量产型  
+##### 179#       发表于 2022-2-14 01:21
+
+ 本帖最后由 mkii量产型 于 2022-2-14 01:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674846&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 01:18</a>
+
+我还是觉得陪玩或者抱着大腿出身的比较靠谱</blockquote>
+所以是陪玩太卷都要培训贯口了还是播音主持毕业太卷了没饭吃，形象不好的只能去做陪玩，顺便说一句，妮妮也会，也不知道完美哪里挖来这三个活宝
+
+*****
+
+####  憧憬鲨  
+##### 180#       发表于 2022-2-14 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674867&amp;ptid=2051998" target="_blank">mkii量产型 发表于 2022-2-14 01:21</a>
+所以是陪玩太卷都要培训贯口了还是播音主持毕业太卷了没饭吃，形象不好的只能去做陪玩，顺便说一句，妮妮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不可能是是资深德云社女孩的业余爱好呢
+
