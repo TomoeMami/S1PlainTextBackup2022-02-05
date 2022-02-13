@@ -1745,3 +1745,14 @@ nrk这队打神界比本战还好玩
 副站长：彩虹两个月后上市，木口年底上市</blockquote>
 这哪来的消息...<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 10656#       发表于 2022-2-14 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54675240&amp;ptid=1972669" target="_blank">free 发表于 2022-2-14 02:13</a>
+这哪来的消息...</blockquote>
+副站长啊
+
