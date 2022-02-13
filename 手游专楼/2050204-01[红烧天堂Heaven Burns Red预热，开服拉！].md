@@ -721,3 +721,17 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 
 明天开活动了。呜呜呜呜，又要刀我的ぶんちゃん了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">麻子你行行好，不要抓着往死里刀啊
 
+
+
+*****
+
+####  barca  
+##### 67#       发表于 2022-2-13 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54665055&amp;ptid=2050204" target="_blank">sin.yugi 发表于 2022-2-13 11:07</a>
+一个下午六个ssr是什么欧王。。。我连3个ssr的号都刷不到</blockquote>
+我是初始ss必得不是想要的以及十连券没ss就直接删档重开，能节省不少时间。
+本来看节奏榜，如果能同时抽到tama舰长和眼镜基友，即使只有两张ssr我也接受，奈何基友一直抽不到。后来三属性ssr都来了那还要啥自行车，只能放弃对角色的爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
