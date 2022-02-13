@@ -1478,3 +1478,14 @@ TLDR: No, people who actually give a shit about Hololive and aren't just seanigg
 
 不太看死神，不是很懂；就我看下来死神确实多少对某些事情过于认真，以至于经常会让联动或者平时闲聊的气氛变得很怪异，所以后面就不怎么看她播了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1636#       发表于 2022-2-14 06:16
+
+[https://youtu.be/vjBZzYN3aAs](https://youtu.be/vjBZzYN3aAs)
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+死神nkkn发音有时候还没有Ame标准2333
+
