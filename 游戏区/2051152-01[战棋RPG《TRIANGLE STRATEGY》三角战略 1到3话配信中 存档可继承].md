@@ -1981,3 +1981,21 @@ SD高达和魔界战记玩那么多年下来吐了
 
 火纹三房我就玩的很舒服，不刻意练级就有点难度
 
+
+
+*****
+
+####  jbjack1215  
+##### 178#       发表于 2022-2-13 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54665832&amp;ptid=2051152" target="_blank">nagitoY 发表于 2022-2-13 12:08</a>
+
+那就很没意思了啊，出个练级的副本都比这样撤退刷经验好</blockquote>
+哈哈 同感
+
+感觉这次游戏性要翻车
+
+不论八方还是BD2有哪些问题，游戏性都是在线的
+
+这作目前来看系统很单薄
+
