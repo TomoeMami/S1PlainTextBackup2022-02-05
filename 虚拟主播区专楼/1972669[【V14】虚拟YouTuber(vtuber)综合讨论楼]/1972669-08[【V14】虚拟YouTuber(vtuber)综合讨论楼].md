@@ -1620,3 +1620,15 @@ Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了
 
 <blockquote>DIY LUXIEM VALENTINE'S CARDS feat. [@mika](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=1607) Melatika【NIJISANJI ID】 【NIJISANJI EN | Nina Kosaka】</blockquote>
 
+
+
+*****
+
+####  winda  
+##### 10644#       发表于 2022-2-13 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54656589&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-2-12 19:22</a>
+Nrk为啥Cr瓦罗一直打的辅助位啊，堪比g2让nexa打辅助的操作了，纯纯的负作用，这队不该这个成绩的 ...</blockquote>
+キャリーまんこ本性作怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+上届四番粹拿个omen混混还成，这届二番粹还主动要玩烟位用astra属于妥妥的战犯
+
