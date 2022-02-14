@@ -9173,3 +9173,15 @@ md我一下子还以为真进去了。。
 
 除非那个吊毛骗我，给我发的不是步非烟的
 
+
+
+*****
+
+####  rgauss  
+##### 5468#       发表于 2022-2-14 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686088&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-14 20:10</a>
+
+花了好几十块钱买的呢，真的不像，b站有的视频是挑那种有点像的发出来的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不是啊，那是某个人弄的炒作，那段音声其实就前面有点像而已
+

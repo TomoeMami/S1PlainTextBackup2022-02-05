@@ -11956,3 +11956,30 @@ b63ca99936c293427bee2f63e366b821e2500979.png@518w.webp
 
 2022-2-14 19:58 上传
 
+
+
+*****
+
+####  cat1230  
+##### 5481#       发表于 2022-2-14 20:32
+
+鲤鱼有空了不知道会不会回B站搞个直播。
+
+突然想起个唱那天直播间的收的礼上的舰换下来的收入是算鲤鱼个人还是公司啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 5482#       发表于 2022-2-14 20:36
+
+Nagi
+
+QQ图片20220214203559.jpg
+(135.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-14 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202202/14/203608mpym48x8pxpi4z8z.jpg" referrerpolicy="no-referrer">
+
