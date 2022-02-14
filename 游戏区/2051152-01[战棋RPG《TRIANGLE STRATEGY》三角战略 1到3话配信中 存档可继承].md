@@ -2060,3 +2060,18 @@ FFT FFTA这种 无惩罚刷刷刷是因为玩家要跨职业练技能，本身�
 
 —— 来自 meizu 16s, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  eyesradar  
+##### 184#       发表于 2022-2-14 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54673442&amp;ptid=2051152" target="_blank">jbjack1215 发表于 2022-2-13 23:24</a>
+哈哈 同感
+
+感觉这次游戏性要翻车
+
+不论八方还是BD2有哪些问题，游戏性都是在线的</blockquote>
+不要人云亦云…不需要这么练 有专门刷级的练习战 大本营说话就行 
+
