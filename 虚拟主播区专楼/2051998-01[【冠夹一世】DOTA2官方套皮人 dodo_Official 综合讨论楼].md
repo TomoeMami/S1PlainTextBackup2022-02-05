@@ -1705,3 +1705,12 @@ dodo挺团队的抱大腿感觉可能性大一点。
 
 顺便一提死了三个队友是因为脱了鞋想买撒旦赶不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陶矢  
+##### 200#         楼主| 发表于 2022-2-14 10:53
+
+虽然直播第一天就知道打dota迟早有破防的一天，但是我以为不是喷队友就是被队友喷，来了手内疚的哭哭我是妹想到，听说还干到B站热度榜第一，do憋玩弄人心可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

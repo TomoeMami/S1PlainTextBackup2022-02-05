@@ -2324,3 +2324,42 @@ TP部分除了取代技能cd还看不出哪里不同
 
 天平投票一个都没说服成功，就安娜跟着我投还是因为主人的任务<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windtrack  
+##### 208#       发表于 2022-2-14 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677804&amp;ptid=2051152" target="_blank">xgazer 发表于 2022-2-14 10:42</a>
+
+天平投票一个都没说服成功，就安娜跟着我投还是因为主人的任务</blockquote>
+投票说服大部分要靠第二章战斗之前PARTY的时候和NPC说话取得的情报，这样原本锁着的选项就可以选了 
+
+*****
+
+####  xgazer  
+##### 209#       发表于 2022-2-14 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677847&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-14 10:44</a>
+投票说服大部分要靠第二章战斗之前PARTY的时候和NPC说话取得的情报，这样原本锁着的选项就可以选了  ...</blockquote>
+我选的都是解锁的选项，估计和之前对话选择有关。
+
+*****
+
+####  Bani82  
+##### 210#       发表于 2022-2-14 10:56
+
+我这边只有盾叔没有同意
+
+
+
+*****
+
+####  Petilil  
+##### 211#       发表于 2022-2-14 10:57
+
+<blockquote>feizong 发表于 2022-2-14 10:35
+三房的剧情真是一言难尽，PV的时候还是拉满的，后面实际玩了简直拉垮，几年后的剧情都什么玩意 ...</blockquote>
+那最好降低对这游戏的期待，我很怀疑浅野组现在找的编剧能不能写明白正剧剧本
+

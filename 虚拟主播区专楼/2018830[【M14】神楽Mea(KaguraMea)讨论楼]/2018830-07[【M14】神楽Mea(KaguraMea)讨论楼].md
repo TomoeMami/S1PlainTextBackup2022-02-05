@@ -970,3 +970,21 @@ Bolero &gt; Sweater &gt; Shirt &gt; &gt; &gt; French Maid
 
 阿咩好像又通宵了
 
+
+
+*****
+
+####  呓亘  
+##### 9117#       发表于 2022-2-14 10:49
+
+情人节就发个图？去年还知道搞个3D小动画
+
+*****
+
+####  椎名mahuyo  
+##### 9118#       发表于 2022-2-14 11:01
+
+结果去vcp发了一个
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
