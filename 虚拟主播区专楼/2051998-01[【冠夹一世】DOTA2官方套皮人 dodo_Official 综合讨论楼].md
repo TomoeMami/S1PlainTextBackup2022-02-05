@@ -1788,3 +1788,12 @@ dodo挺团队的抱大腿感觉可能性大一点。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">今天还在打dota的老哥肯定能把do鳖干的碎碎的！
 
+
+
+*****
+
+####  usoda  
+##### 209#       发表于 2022-2-14 17:43
+
+很快就要和郑翔一个分数了吗<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
