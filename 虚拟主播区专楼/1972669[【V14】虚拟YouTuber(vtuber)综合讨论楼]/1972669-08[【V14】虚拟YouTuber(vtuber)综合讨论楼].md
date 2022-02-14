@@ -2201,3 +2201,13 @@ King恋愛相談，阿叶聊アンスレ
 
 这下你虹要费尽心思给虹en搭3d棚了，不开live怎么收米呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shpdw  
+##### 10693#       发表于 2022-2-15 01:13
+
+#るしあ大好きだよ【朗読】
+[https://www.nicovideo.jp/watch/sm40036522](https://www.nicovideo.jp/watch/sm40036522)
+
