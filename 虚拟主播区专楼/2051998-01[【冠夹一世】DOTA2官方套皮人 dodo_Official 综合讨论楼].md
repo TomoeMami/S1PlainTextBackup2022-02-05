@@ -2210,3 +2210,58 @@ dodo的风行记得打过一次。上一次打的一般。看看修炼成果。
 
 好呀好呀，情人节都在看管人呀<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  憧憬鲨  
+##### 265#       发表于 2022-2-14 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">今晚不打了吗？
+
+*****
+
+####  端木恋心  
+##### 266#       发表于 2022-2-14 22:29
+
+那肯定看管人啊。不看管人干什么呢。
+
+dodo已经知道自己打几盘会累了，所以打几盘休息挺好的。
+
+*****
+
+####  端木恋心  
+##### 267#       发表于 2022-2-14 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54688543&amp;ptid=2051998" target="_blank">憧憬鲨 发表于 2022-2-14 22:29</a>
+
+今晚不打了吗？</blockquote>
+不打了，说了休息一下。
+
+昨天的前车之鉴休息也很好。
+
+*****
+
+####  憧憬鲨  
+##### 268#       发表于 2022-2-14 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，不打还赖那么久，听版主ktv去了
+
+*****
+
+####  mkii量产型  
+##### 269#       发表于 2022-2-14 22:43
+
+<blockquote>憧憬鲨 发表于 2022-2-14 22:36
+妈的，不打还赖那么久，听版主ktv去了</blockquote>
+我一直想问版主是哪个
+
+*****
+
+####  人別離苦  
+##### 270#       发表于 2022-2-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54688812&amp;ptid=2051998" target="_blank">mkii量产型 发表于 2022-2-14 22:43</a>
+我一直想问版主是哪个</blockquote>
+隔壁Zdgy <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
