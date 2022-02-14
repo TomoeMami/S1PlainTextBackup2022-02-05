@@ -849,3 +849,12 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 洗澡BGM里面的人声“shower~shower~”好魔性啊</blockquote>
 是的 简直**<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 79#       发表于 2022-2-14 10:34
+
+活动还是有时间限制的啊，没有完全走时空猫那种常驻模式，稍微得赶赶进度了。话说这个养成系统还是有点没搞明白，s卡的技能开了以后是可以给SS卡用，那A和S那些被动属性呢？如果也通用那就真和时空猫一样5星以下没人权了，毕竟属性差不少一星半点了。
+

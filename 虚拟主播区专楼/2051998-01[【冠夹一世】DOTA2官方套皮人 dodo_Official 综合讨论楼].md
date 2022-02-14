@@ -1691,3 +1691,17 @@ dodo挺团队的抱大腿感觉可能性大一点。
 
 我超, 昨天有哭哭夹子吗? 有没有路灯啊, 很急很急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  憧憬鲨  
+##### 199#       发表于 2022-2-14 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677088&amp;ptid=2051998" target="_blank">paulownia302 发表于 2022-2-14 09:52</a>
+我超, 昨天有哭哭夹子吗? 有没有路灯啊, 很急很急</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">最后一把脑浆pa，三十分钟狂战bkb
+队友死了三个没买活跑去吃赏金符被当场逮捕葬送比赛
+
+顺便一提死了三个队友是因为脱了鞋想买撒旦赶不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

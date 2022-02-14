@@ -2831,3 +2831,18 @@ Eu_wywsUUAI9jfm.jpg
 
 所以这么多年漫画作者到底干嘛去了？
 
+
+
+*****
+
+####  gpx234mqx  
+##### 204#       发表于 2022-2-14 10:33
+
+ 本帖最后由 gpx234mqx 于 2022-2-14 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677443&amp;ptid=2050560" target="_blank">一三五七九 发表于 2022-2-14 10:16</a>
+
+所以这么多年漫画作者到底干嘛去了？</blockquote>
+去年还在忙啊，裸1复刻版重新排版加Re：Bastard的人物设定重画79页全彩
+
+上面我发的设定图就是前年画的
+

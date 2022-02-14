@@ -2294,3 +2294,33 @@ TP部分除了取代技能cd还看不出哪里不同
 
 这作还真没八方改革得那么惊艳
 
+
+
+*****
+
+####  Petilil  
+##### 205#       发表于 2022-2-14 10:31
+
+<blockquote>windtrack 发表于 2022-2-14 10:06
+剧情我就觉得很智障，一国公主嫁到另一国大臣家半路被野盗打劫就算还说得过去的话
+
+那看盐国那段剧 ...</blockquote>
+这关打完直接让我对剧本的期待从小冰火级别降低到了小三房级别
+
+*****
+
+####  feizong  
+##### 206#       发表于 2022-2-14 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677649&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-2-14 10:31</a>
+
+这关打完直接让我对剧本的期待从小冰火级别降低到了小三房级别</blockquote>
+三房的剧情真是一言难尽，PV的时候还是拉满的，后面实际玩了简直拉垮，几年后的剧情都什么玩意
+
+*****
+
+####  xgazer  
+##### 207#       发表于 2022-2-14 10:42
+
+天平投票一个都没说服成功，就安娜跟着我投还是因为主人的任务<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
