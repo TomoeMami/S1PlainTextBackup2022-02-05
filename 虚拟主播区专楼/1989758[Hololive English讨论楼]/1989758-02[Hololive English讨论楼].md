@@ -1498,3 +1498,15 @@ TLDR: No, people who actually give a shit about Hololive and aren't just seanigg
 
 mumei真有趣
 
+
+
+*****
+
+####  被子十三  
+##### 1638#       发表于 2022-2-14 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54648238&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2022-2-12 00:26</a>
+估计没人关心，不过前几天这贴总结挺好的</blockquote>
+确实是不错的文章
+Oshi和(You)s分别是什么意思？有点跟不上英文圈的专有名词
+

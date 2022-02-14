@@ -4709,3 +4709,22 @@ apex...我的apex...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你黑屁绫总 又被绫总看到了（
 
+
+
+*****
+
+####  绿色子龙  
+##### 13966#       发表于 2022-2-14 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 播了播了，还是情人节
+
+*****
+
+####  FCCHua  
+##### 13967#       发表于 2022-2-14 21:53
+
+ 本帖最后由 FCCHua 于 2022-2-14 21:56 编辑 
+
+居然是fg，最近在valo cr杯二/三次会看了太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl 和之前玩一个样，吃瘪就完事<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
