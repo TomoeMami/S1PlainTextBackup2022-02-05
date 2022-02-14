@@ -2406,3 +2406,15 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 
 选的差不多其实全员都可以说服去盐国
 
+
+
+*****
+
+####  nagitoY  
+##### 216#       发表于 2022-2-14 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677710&amp;ptid=2051152" target="_blank">feizong 发表于 2022-2-14 10:35</a>
+
+三房的剧情真是一言难尽，PV的时候还是拉满的，后面实际玩了简直拉垮，几年后的剧情都什么玩意 ...</blockquote>
+三房的四条线都有各种各样的问题，很多地方只能靠玩家自己脑补来解释。估计是原计划做出来的话体量就太大了，砍了不少内容。
+
