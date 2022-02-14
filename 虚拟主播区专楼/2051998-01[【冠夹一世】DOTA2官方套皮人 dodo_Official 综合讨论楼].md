@@ -1736,3 +1736,26 @@ dodo挺团队的抱大腿感觉可能性大一点。
 
 像极了以前n连跪后上头的我，一般都是下探几百分后才会停
 
+
+
+*****
+
+####  usoda  
+##### 203#       发表于 2022-2-14 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">dodo情人节也要干天梯 我哭了 你们呢
+
+*****
+
+####  东英零  
+##### 204#       发表于 2022-2-14 14:41
+
+情人节直播的好女孩，gachi了
+
+*****
+
+####  弈秋  
+##### 205#       发表于 2022-2-14 14:43
+
+情人节的天梯可都是十几年的麒麟臂的老东西了，今天上分颇为不智<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">
+
