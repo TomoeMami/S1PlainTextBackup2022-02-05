@@ -2810,3 +2810,15 @@ Eu_wywsUUAI9jfm.jpg
 
 扩张版到03了？现在感觉完全找不到<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  深蓝巫妖  
+##### 202#       发表于 2022-2-14 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54530010&amp;ptid=2050560" target="_blank">猪的报恩 发表于 2022-02-03 12:34:15</a>
+目前最新的27话你可以去感受一下，比本子还本子。</blockquote>啊，还有最新的？不是万年不更新了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

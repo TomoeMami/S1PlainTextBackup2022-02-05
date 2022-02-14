@@ -1809,3 +1809,15 @@ nrk这队打神界比本战还好玩
 昨天半夜乐府直播的时候说的</blockquote>
 他又说了一遍阿……他是不是还说holo找了国内的大公司做换皮手游啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  谷恒条野  
+##### 10661#       发表于 2022-2-14 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54676513&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-2-14 09:04</a>
+
+他又说了一遍阿……他是不是还说holo找了国内的大公司做换皮手游啦</blockquote>
+对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

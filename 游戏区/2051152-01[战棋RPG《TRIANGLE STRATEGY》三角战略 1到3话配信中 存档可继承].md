@@ -2096,3 +2096,37 @@ FFT FFTA这种 无惩罚刷刷刷是因为玩家要跨职业练技能，本身�
 
 找个接近的例子的话，大概是幻世录那个模式...
 
+
+
+*****
+
+####  awy47  
+##### 187#       发表于 2022-2-14 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54628475&amp;ptid=2051152" target="_blank">thez 发表于 2022-2-10 21:09</a>
+
+铁国线能收个弓箭手，盐国能收啥？</blockquote>
+冰法
+
+*****
+
+####  lbj5454  
+##### 188#       发表于 2022-2-14 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54676234&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-14 08:39</a>
+
+不仅没有跨职业技能搭配，连本职业技能搭配都没有，技能完全和等级挂钩。而且人物职业都是固定的。
+
+找个 ...</blockquote>
+那不是很好，老SRPG就是这种醍醐味
+
+*****
+
+####  windtrack  
+##### 189#       发表于 2022-2-14 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54676661&amp;ptid=2051152" target="_blank">lbj5454 发表于 2022-2-14 09:17</a>
+
+那不是很好，老SRPG就是这种醍醐味</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">但问题是死人没惩罚+自由战斗随便刷，资源没有限制，又缺少老派SRPG那种严格筛选己方资源分配的严肃性 
+
