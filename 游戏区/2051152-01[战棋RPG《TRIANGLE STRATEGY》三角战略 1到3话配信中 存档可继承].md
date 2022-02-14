@@ -2179,3 +2179,118 @@ RPG 部分也就是逛逛地图搜刮蚊子腿民脂民膏，可能后面会塞�
 
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  windtrack  
+##### 195#       发表于 2022-2-14 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">剧情我就觉得很智障，一国公主嫁到另一国大臣家半路被野盗打劫就算还说得过去的话
+
+那看盐国那段剧情简直毫无政治逻辑...
+
+盐国大臣带主角参观医法院，特别警告研究栋不得参观
+
+赶上研究人员叛变，主角居然自己申请帮着平叛（大哥别国内部事务你一个亲善大使自己申请干涉？）
+
+然后盐国大臣居然就同意了？？？（刚才还不让人参观研究栋，这会核心研究员叛变你居然同意让外国人平叛，先不说丢人不丢人 ，不怕泄密？）
+
+最扯淡的是打完之后另一个核心研究员就以出国研习的名以加入主角方跟主角走了 （盐国你们这科研保密意识也...） 
+
+*****
+
+####  feizong  
+##### 196#       发表于 2022-2-14 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677170&amp;ptid=2051152" target="_blank">roamer 发表于 2022-2-14 09:58</a>
+
+只有我觉得演出不错，台词在线，人物饱满吗. 我看这小人对话很棒啊</blockquote>
++1，我对这个故事剧情目前还是很有玩下去的兴趣
+
+*****
+
+####  Bani82  
+##### 197#       发表于 2022-2-14 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677223&amp;ptid=2051152" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2022-2-14 10:02</a>
+已经预感到到时候会和风花雪月一样每场战斗结束都会有一堆人要去对话一堆垃圾去捡，直接跳过总怕错过什么， ...</blockquote>
+地图小太多了
+
+*****
+
+####  feizong  
+##### 198#       发表于 2022-2-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677223&amp;ptid=2051152" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2022-2-14 10:02</a>
+
+已经预感到到时候会和风花雪月一样每场战斗结束都会有一堆人要去对话一堆垃圾去捡，直接跳过总怕错过什么， ...</blockquote>
+好在场景比较小，而且每关应该都不大一样。不像风花雪月，就一个大地图逛吐了
+
+*****
+
+####  Bani82  
+##### 199#       发表于 2022-2-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677030&amp;ptid=2051152" target="_blank">feizong 发表于 2022-2-14 09:48</a>
+我特别喜欢这种老SRPG的醍醐味，火纹从能够自由换职业后都玩的不是很有味。剧情比较长目前从前三话看问题也 ...</blockquote>
+老srpg我也喜欢，但是不用考虑资源和随便死人又能刷，这个以前不同
+
+*****
+
+####  feizong  
+##### 200#       发表于 2022-2-14 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677313&amp;ptid=2051152" target="_blank">Bani82 发表于 2022-2-14 10:07</a>
+
+老srpg我也喜欢，但是不用考虑资源和随便死人又能刷，这个以前不同</blockquote>
+是的，这点确实又少了一点味。现在要妥协市场以及轻度玩家，这些也是没办法的事。要是困难难度增加一些惩罚就好了，可能以后会出更高难度
+
+*****
+
+####  feizong  
+##### 201#       发表于 2022-2-14 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677295&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-14 10:06</a>
+
+剧情我就觉得很智障，一国公主嫁到另一国大臣家半路被野盗打劫就算还说得过去的话
+
+那看盐国那段剧 ...</blockquote>
+第三关这么扯吗，我才打到第二关，感觉还好。看来剧情还是谨慎乐观<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jbjack1215  
+##### 202#       发表于 2022-2-14 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54675938&amp;ptid=2051152" target="_blank">eyesradar 发表于 2022-2-14 07:56</a>
+不要人云亦云…不需要这么练 有专门刷级的练习战 大本营说话就行</blockquote>
+留言那时我已经玩完公国线了
+
+说他目前系统单薄是因为其他方面
+无论撤退刷、模拟战刷都不影响结论
+
+TP部分除了取代技能cd还看不出哪里不同
+战场目前核心也就只是夹击而已
+
+*****
+
+####  托格  
+##### 203#       发表于 2022-2-14 10:19
+
+个人感觉剧情演出还凑合，可能是语音挺饱满增加了故事感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+场景虽然精细，但是配上晃动的植物和反光的水面，加上很小的字，我真玩的眼睛疼……又有点怀念皇骑那配色古朴看着舒服的画面了
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  jbjack1215  
+##### 204#       发表于 2022-2-14 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677030&amp;ptid=2051152" target="_blank">feizong 发表于 2022-2-14 09:48</a>
+我特别喜欢这种老SRPG的醍醐味，火纹从能够自由换职业后都玩的不是很有味。剧情比较长目前从前三话看问题也 ...</blockquote>
+八方导入顺序轴后是勇默系统的一大进化
+
+这作还真没八方改革得那么惊艳
+
