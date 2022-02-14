@@ -2067,3 +2067,86 @@ dodo的风行记得打过一次。上一次打的一般。看看修炼成果。
 
 坏了，引到新粉了
 
+
+
+*****
+
+####  端木恋心  
+##### 246#       发表于 2022-2-14 20:49
+
+心疼鸡煲
+
+*****
+
+####  憧憬鲨  
+##### 247#       发表于 2022-2-14 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">出电锤爽啊，是我就出电锤然后假装逛街把野全部打掉
+
+*****
+
+####  憧憬鲨  
+##### 248#       发表于 2022-2-14 20:52
+
+小松鼠这一套确实好看啊，有点像怪猎的泡狐龙套
+
+*****
+
+####  反方向的波  
+##### 249#       发表于 2022-2-14 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">该拧绳喽
+
+*****
+
+####  端木恋心  
+##### 250#       发表于 2022-2-14 20:59
+
+味道对了
+
+*****
+
+####  lpsquirrel  
+##### 251#       发表于 2022-2-14 20:59
+
+一进去就在劝架，太难了
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  憧憬鲨  
+##### 252#       发表于 2022-2-14 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这才是刀塔！
+
+*****
+
+####  反方向的波  
+##### 253#       发表于 2022-2-14 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这熊战是个菜逼，但这med2级就去打野显然也不是有脑子的人，这下公平4v4了
+
+*****
+
+####  ltay222  
+##### 254#       发表于 2022-2-14 21:01
+
+这才是我想要的DOTA！
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  憧憬鲨  
+##### 255#       发表于 2022-2-14 21:02
+
+这波可以啊草，跑得好冷静
+
+*****
+
+####  pwzzy  
+##### 256#       发表于 2022-2-14 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">有趣，这就是我想要的dota！
+
