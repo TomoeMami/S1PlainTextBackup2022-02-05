@@ -2088,3 +2088,16 @@ king怎么情人节掏女体的
 
 上市？解散拆了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 10688#       发表于 2022-2-14 23:28
+
+ 本帖最后由 空集 于 2022-2-14 23:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54688951&amp;ptid=1972669" target="_blank">shpdw 发表于 2022-2-14 22:51</a>
+
+又污染到ゲハ了。你虹还在那blessing打算送终了，你杏直接一脚油门踹进nico生末期。把你虹败剩下的那一点舆 ...</blockquote>
+C老哥又在这说谁也看不懂的谜语了，懒得和你多烦， 支棱不起来在这甩锅，密麻麻石蜡。科普下此人之前的号为c字开头一串字母  ，后在别的版因发言被封改为此号，自两年前在v综第一条发言开始就是这个谜语人发言加一股子莫名的老害尸臭加上一击脱离，我寻思管人这种没几年破历史的东西也有喜欢这种味说话的人啊，贴吧式直球辱骂可能才是最好的应对，要不是实在没人看s1此人句句是典。
+

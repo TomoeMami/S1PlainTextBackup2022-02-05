@@ -1510,3 +1510,16 @@ mumei真有趣
 确实是不错的文章
 Oshi和(You)s分别是什么意思？有点跟不上英文圈的专有名词
 
+
+
+*****
+
+####  PureIllusion  
+##### 1639#       发表于 2022-2-14 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54688007&amp;ptid=1989758" target="_blank">被子十三 发表于 2022-2-14 22:02</a>
+确实是不错的文章
+Oshi和(You)s分别是什么意思？有点跟不上英文圈的专有名词 ...</blockquote>
+oshi就是推し。
+4chan上发的帖被别人回复后，在帖号后会显示(You)，那句就是指放烂饵骗回复的。
+
