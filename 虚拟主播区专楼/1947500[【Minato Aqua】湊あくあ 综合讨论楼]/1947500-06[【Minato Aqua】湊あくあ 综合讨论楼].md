@@ -6402,3 +6402,33 @@ nene不是想来但是被嫌弃了么<img src="https://static.saraba1st.com/imag
 
 nene那是想自己玩不是想来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新磕娘  
+##### 8247#       发表于 2022-2-14 18:05
+
+那个vtb的apex比赛看了一眼，没戏，每支队伍得均衡段位参赛，阿夸已经大师了，要组队只能带俩白金段位的，还是算了吧，依稀记得当年参加pubg比赛，带着几个”gamer“东躲西藏当给别人背景板的画面
+
+*****
+
+####  andeloz  
+##### 8248#       发表于 2022-2-14 18:12
+
+这滤镜下巧克力真的不像那个什么吗🤮
+
+*****
+
+####  面具13  
+##### 8249#       发表于 2022-2-14 18:16
+
+奶油面包拳都没得看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  藤原银  
+##### 8250#       发表于 2022-2-14 18:18
+
+大夸apex扮猪吃老虎吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

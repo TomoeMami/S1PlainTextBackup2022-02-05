@@ -1939,3 +1939,14 @@ yuya好色哦
 我觉得从维阿也不可信啊，虹上市为什么还要通知维阿</blockquote>
 B站注资过彩虹，这个还是能知道的
 
+
+
+*****
+
+####  黑之和  
+##### 10674#       发表于 2022-2-14 18:20
+
+憋了一年的live终于要来了
+旅行的终点，故事，将回溯到那一刻
+开完就解散是吧<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
