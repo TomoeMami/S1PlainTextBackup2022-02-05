@@ -1920,3 +1920,22 @@ yuya好色哦
 
 发一下发一下
 
+
+
+*****
+
+####  黑之和  
+##### 10672#       发表于 2022-2-14 17:57
+
+遮了单眼的那个嘛，含金量不如之前的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 10673#       发表于 2022-2-14 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54681062&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-2-14 14:19</a>
+
+我觉得从维阿也不可信啊，虹上市为什么还要通知维阿</blockquote>
+B站注资过彩虹，这个还是能知道的
+

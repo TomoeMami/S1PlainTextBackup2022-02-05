@@ -806,3 +806,18 @@ NBGI移植一下多卖一次不好吗
 
 大师的危机时间限制就真的。。。只能卡过了
 
+
+
+*****
+
+####  恶意满满  
+##### 86#       发表于 2022-2-14 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674608&amp;ptid=2051733" target="_blank">二丁目拓也 发表于 2022-2-14 00:54</a>
+有些卡搜狗反而火力不足
+
+大师的危机时间限制就真的。。。只能卡过了</blockquote>
+时间危机就是检验输出能力 舍二保一
+
+—— 来自 OPPO PFUM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
