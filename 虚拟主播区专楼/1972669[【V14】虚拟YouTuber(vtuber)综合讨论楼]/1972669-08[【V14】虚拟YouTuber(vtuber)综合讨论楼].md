@@ -1785,3 +1785,27 @@ nrk这队打神界比本战还好玩
 我听说这个消息有人说是乐府说的，还有点半信半疑。现在看来已经是半公开的消息了。
 彩虹二月份来不及来个大活动利好吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  谷恒条野  
+##### 10659#       发表于 2022-2-14 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54676030&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-2-14 08:11</a>
+
+哪个副站长……阿b的还是谁。
+
+我听说这个消息有人说是乐府说的，还有点半信半疑。现在看来已经是半公开的 ...</blockquote>
+昨天半夜乐府直播的时候说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 10660#       发表于 2022-2-14 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54676452&amp;ptid=1972669" target="_blank">谷恒条野 发表于 2022-2-14 08:59</a>
+
+昨天半夜乐府直播的时候说的</blockquote>
+他又说了一遍阿……他是不是还说holo找了国内的大公司做换皮手游啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
