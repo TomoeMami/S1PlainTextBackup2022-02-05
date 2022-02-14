@@ -9049,3 +9049,20 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 刚仔细想了想，既然实体特典是有偿的，如果要选实体特典，本身费用就比普通票贵了，额外邮费他虽然也不便宜但特典总价更贵一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nh_zzz  
+##### 678#       发表于 2022-2-14 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54670864&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-2-13 19:43</a>
+重新看了一下官网票务。这次的配信票分三种类型（手游特典码没有明说海外不带，应该买票都送）
+
+1.配信各场 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+其实纠结手续费是因为青岚和#3两次海外价格计算不是同一个思路，一开始要给税，不用给之后手续费又贵了
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

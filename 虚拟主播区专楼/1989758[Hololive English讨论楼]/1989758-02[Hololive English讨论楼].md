@@ -1489,3 +1489,12 @@ TLDR: No, people who actually give a shit about Hololive and aren't just seanigg
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 死神nkkn发音有时候还没有Ame标准2333
 
+
+
+*****
+
+####  reiuy  
+##### 1637#       发表于 2022-2-14 08:21
+
+mumei真有趣
+

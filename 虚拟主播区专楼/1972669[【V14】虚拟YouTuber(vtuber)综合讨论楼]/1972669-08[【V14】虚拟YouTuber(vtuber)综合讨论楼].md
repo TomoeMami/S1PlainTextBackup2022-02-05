@@ -1772,3 +1772,16 @@ nrk这队打神界比本战还好玩
 </blockquote>
 你当这是索尼微软么
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10658#       发表于 2022-2-14 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54675849&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-2-14 07:37</a>
+副站长啊</blockquote>
+哪个副站长……阿b的还是谁。
+我听说这个消息有人说是乐府说的，还有点半信半疑。现在看来已经是半公开的消息了。
+彩虹二月份来不及来个大活动利好吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
