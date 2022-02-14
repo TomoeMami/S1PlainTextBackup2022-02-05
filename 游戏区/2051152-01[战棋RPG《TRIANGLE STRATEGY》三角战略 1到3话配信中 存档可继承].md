@@ -2418,3 +2418,23 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 三房的剧情真是一言难尽，PV的时候还是拉满的，后面实际玩了简直拉垮，几年后的剧情都什么玩意 ...</blockquote>
 三房的四条线都有各种各样的问题，很多地方只能靠玩家自己脑补来解释。估计是原计划做出来的话体量就太大了，砍了不少内容。
 
+
+
+*****
+
+####  X轴正向速度  
+##### 217#       发表于 2022-2-14 14:53
+
+表面上投票听取大家意见，实际上我早就想怎么样了，我要把你们全说服<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hellightning  
+##### 218#       发表于 2022-2-14 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54681606&amp;ptid=2051152" target="_blank">X轴正向速度 发表于 2022-2-14 14:53</a>
+表面上投票听取大家意见，实际上我早就想怎么样了，我要把你们全说服 ...</blockquote>
+既然有这个系统，后面应该有信念不对就无法成功说服的选项，甚至可能搞个“去音乐会”出来。要不然也太low了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
