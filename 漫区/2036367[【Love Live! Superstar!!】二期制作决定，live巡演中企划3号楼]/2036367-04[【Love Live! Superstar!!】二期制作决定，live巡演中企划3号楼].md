@@ -11992,3 +11992,24 @@ QQ图片20220214203559.jpg
 
 结果是有空去拔了智齿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 5484#       发表于 2022-2-14 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686716&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-14 20:49</a>
+
+结果是有空去拔了智齿</blockquote>
+被这条动态的第一热评笑死
+
+抽了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蚌埠住
+
+*****
+
+####  lj205  
+##### 5485#       发表于 2022-2-14 21:14
+
+居然还得瑟没感觉，等麻药劲过了看她乐的起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

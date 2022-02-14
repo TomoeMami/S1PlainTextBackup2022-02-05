@@ -9185,3 +9185,12 @@ md我一下子还以为真进去了。。
 花了好几十块钱买的呢，真的不像，b站有的视频是挑那种有点像的发出来的。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不是啊，那是某个人弄的炒作，那段音声其实就前面有点像而已
 
+
+
+*****
+
+####  rgauss  
+##### 5469#       发表于 2022-2-14 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">自己唱笑了
+

@@ -2864,3 +2864,15 @@ Eu_wywsUUAI9jfm.jpg
 
 Nei应该是本作中颜值最高的女性，洋子作为情敌都不得不承认雷帝可真美。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 207#       发表于 2022-2-14 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686742&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-14 20:51</a>
+
+Nei应该是本作中颜值最高的女性，洋子作为情敌都不得不承认雷帝可真美。</blockquote>
+不算天使恶魔的话的确是的
+

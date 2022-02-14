@@ -2150,3 +2150,47 @@ dodo的风行记得打过一次。上一次打的一般。看看修炼成果。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">有趣，这就是我想要的dota！
 
+
+
+*****
+
+####  端木恋心  
+##### 257#       发表于 2022-2-14 21:09
+
+要回到4330的家了
+
+*****
+
+####  反方向的波  
+##### 258#       发表于 2022-2-14 21:11
+
+万古菜逼这么多的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 259#       发表于 2022-2-14 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吹风和捆交重了，我看着好难受啊
+
+*****
+
+####  憧憬鲨  
+##### 260#       发表于 2022-2-14 21:15
+
+这把估计要偿还了
+
+*****
+
+####  mkii量产型  
+##### 261#       发表于 2022-2-14 21:18
+
+这是我熟悉的dota
+
+*****
+
+####  mkii量产型  
+##### 262#       发表于 2022-2-14 21:18
+
+这是我熟悉的dota
+
