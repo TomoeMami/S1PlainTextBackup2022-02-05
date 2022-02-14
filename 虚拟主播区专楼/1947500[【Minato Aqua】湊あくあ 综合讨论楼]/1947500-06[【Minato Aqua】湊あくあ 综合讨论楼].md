@@ -6432,3 +6432,64 @@ nene那是想自己玩不是想来<img src="https://static.saraba1st.com/image/s
 
 大夸apex扮猪吃老虎吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8251#       发表于 2022-2-14 18:23
+
+画面外搓搅拌器还带喘气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8252#       发表于 2022-2-14 18:23
+
+我好像看见一小截指头？并没有水色💅，这不是人设欺诈吗！
+
+*****
+
+####  面具13  
+##### 8253#       发表于 2022-2-14 18:30
+
+加那么多糖吗。。
+
+*****
+
+####  大厨麦当牛  
+##### 8254#       发表于 2022-2-14 18:33
+
+刚来，请问这是制作塑胶炸弹的直播间吗？
+
+*****
+
+####  面具13  
+##### 8255#       发表于 2022-2-14 18:34
+
+开摄像头就是给我们看一锅水和一碗稀特吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 8256#       发表于 2022-2-14 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54684411&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-2-14 18:05</a>
+
+那个vtb的apex比赛看了一眼，没戏，每支队伍得均衡段位参赛，阿夸已经大师了，要组队只能带俩白金段位的， ...</blockquote>
+看了下最协已经确定队长的19人里面已经有9个大师/猎杀了，这些人都不用打了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8257#       发表于 2022-2-14 18:38
+
+什么鬼颜色，夸宝不要在直播间窜稀
+
+*****
+
+####  面具13  
+##### 8258#       发表于 2022-2-14 18:40
+
+完了，要变成不能吃的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

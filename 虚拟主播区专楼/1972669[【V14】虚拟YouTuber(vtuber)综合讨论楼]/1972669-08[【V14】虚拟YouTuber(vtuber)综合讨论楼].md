@@ -1950,3 +1950,12 @@ B站注资过彩虹，这个还是能知道的
 旅行的终点，故事，将回溯到那一刻
 开完就解散是吧<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10675#       发表于 2022-2-14 18:43
+
+新冠开始蔓延到hololive了，有潜伏期的，不知道多少人中招
+
