@@ -899,3 +899,17 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 照这样的计算方式，像女主这样ss卡也有两张的岂不是有双份的属性加成？按飞机社尿性，以后肯定会有各2.0 ...</blockquote>
 实际上你仔细看看，属性加成只有最后2个技能有，其他都是专用的
 
+
+
+*****
+
+####  leitingkai  
+##### 84#       发表于 2022-2-14 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54678197&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2022-2-14 11:07</a>
+
+照这样的计算方式，像女主这样ss卡也有两张的岂不是有双份的属性加成？按飞机社尿性，以后肯定会有各2.0 ...</blockquote>
+这个系统的原生 浪漫沙加手游里就有很多需要抽两张甚至三张ss（而且主要是限定）才能用的强力角色
+
+但这不是为了属性加成（浪漫沙加手游里属性加成是不共享的），而是因为核心技能基本都拆分在了不同的角色里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
