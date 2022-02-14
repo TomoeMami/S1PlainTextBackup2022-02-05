@@ -1821,3 +1821,28 @@ nrk这队打神界比本战还好玩
 他又说了一遍阿……他是不是还说holo找了国内的大公司做换皮手游啦</blockquote>
 对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10662#       发表于 2022-2-14 09:36
+
+不是，乐府咋知道的日本公司上市计划……别是口嗨预测吧
+
+*****
+
+####  Suny08  
+##### 10663#       发表于 2022-2-14 09:41
+
+估计维阿哪个大嘴巴又漏消息了吧
+
+*****
+
+####  与天争锋_LZ  
+##### 10664#       发表于 2022-2-14 09:42
+
+b站上市的时候没买还挺后悔的（毕竟高点很高），不知道这个能买吗
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
