@@ -942,3 +942,15 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 发现有的角色有类似时空猫的zone技能啊，是不是初始该刷这种角色啊
 
+
+
+*****
+
+####  Marro  
+##### 88#       发表于 2022-2-14 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686707&amp;ptid=2050204" target="_blank">Meiien 发表于 2022-2-14 20:48</a>
+
+发现有的角色有类似时空猫的zone技能啊，是不是初始该刷这种角色啊</blockquote>
+就现在这种缺斤少两的情况还是照着国见或者占卜这种大众辅助抽吧
+
