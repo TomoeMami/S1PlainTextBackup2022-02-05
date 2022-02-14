@@ -1984,3 +1984,40 @@ do憋的大哥最多3000分水平，打4000分的局很拖后腿
 
 今晚收大米了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她开心得像个孩纸
 
+
+
+*****
+
+####  caupollen  
+##### 235#       发表于 2022-2-14 20:04
+
+输了能收大米，赢了也能收大米，dodo一直赢
+
+*****
+
+####  lyjssj  
+##### 236#       发表于 2022-2-14 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家门口被打了0换5还能翻盘的吗，我都关掉网页了
+
+*****
+
+####  usoda  
+##### 237#       发表于 2022-2-14 20:09
+
+一姐看到黑鸟直接两眼一黑
+
+*****
+
+####  端木恋心  
+##### 238#       发表于 2022-2-14 20:11
+
+dodo的风行记得打过一次。上一次打的一般。看看修炼成果。
+
+*****
+
+####  pwzzy  
+##### 239#       发表于 2022-2-14 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">do鳖修炼个屁，每次出装和加点都和正常人不一样，怕不是下播就狠狠药翻永恒娘大do特do
+

@@ -9118,3 +9118,58 @@ md我一下子还以为真进去了。。
 
 白子这脑瓜子里都是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 5463#       发表于 2022-2-14 20:06
+
+我把步非烟的音声听了一大半，好像其实不是文静？B站有的人挑出来的都是几条比较像的，但是步非烟好像没那么多气泡音？
+
+*****
+
+####  rgauss  
+##### 5464#       发表于 2022-2-14 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686006&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-14 20:06</a>
+
+我把步非烟的音声听了一大半，好像其实不是文静？B站有的人挑出来的都是几条比较像的，但是步非烟好像没那 ...</blockquote>
+其实根本不像，硬要说切西亚更像
+
+*****
+
+####  灰色的狐狸  
+##### 5465#       发表于 2022-2-14 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686006&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-14 20:06</a>
+
+我把步非烟的音声听了一大半，好像其实不是文静？B站有的人挑出来的都是几条比较像的，但是步非烟好像没那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然不是啊
+
+应该不是吧。。。
+
+*****
+
+####  sjbssd  
+##### 5466#       发表于 2022-2-14 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686040&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-2-14 20:08</a>
+
+其实根本不像，硬要说切西亚更像</blockquote>
+步非烟的声音更润点，真的不像
+
+*****
+
+####  sjbssd  
+##### 5467#       发表于 2022-2-14 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54686045&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-2-14 20:08</a>
+
+当然不是啊
+
+应该不是吧。。。</blockquote>
+花了好几十块钱买的呢，真的不像，b站有的视频是挑那种有点像的发出来的。
+
+除非那个吊毛骗我，给我发的不是步非烟的
+
