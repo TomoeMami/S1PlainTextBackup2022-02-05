@@ -2438,3 +2438,16 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  allenz3  
+##### 219#       发表于 2022-2-14 15:10
+
+玩法上不觉得有啥问题，有曹操传原版水平可以了，又不是非要自由培养自由转职才叫战棋，凹点、刷级才能玩、关卡太难必须靠SL拼概率之类的设定早该扔掉了
+
+就这两个demo的剧情实在不能评价，上一个公认经典剧情好的JRPG已经是多少年前了...
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

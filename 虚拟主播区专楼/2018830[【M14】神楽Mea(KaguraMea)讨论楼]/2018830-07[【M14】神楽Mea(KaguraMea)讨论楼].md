@@ -1031,3 +1031,33 @@ VCP那个拜年视频至今没看一眼<img src="https://static.saraba1st.com/im
 
 vcp出道看了一半就再也没看过vcp相关了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 9124#       发表于 2022-2-14 15:16
+
+今天有没有饭撒
+
+*****
+
+####  时间在我手中  
+##### 9125#       发表于 2022-2-14 15:17
+
+fan service已经发过图了（）
+
+*****
+
+####  T_Hb  
+##### 9126#       发表于 2022-2-14 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不承认
+
+*****
+
+####  上坂蓮華  
+##### 9127#       发表于 2022-2-14 15:20
+
+今天才听了翻唱的P丸那首大统领。一度无法区分
+
