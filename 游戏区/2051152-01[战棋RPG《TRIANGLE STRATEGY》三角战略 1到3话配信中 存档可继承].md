@@ -2075,3 +2075,24 @@ FFT FFTA这种 无惩罚刷刷刷是因为玩家要跨职业练技能，本身�
 不论八方还是BD2有哪些问题，游戏性都是在线的</blockquote>
 不要人云亦云…不需要这么练 有专门刷级的练习战 大本营说话就行 
 
+
+
+*****
+
+####  alex2092  
+##### 185#       发表于 2022-2-14 08:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">没有FFT那种跨职业技能搭配之类的吗
+
+*****
+
+####  windtrack  
+##### 186#       发表于 2022-2-14 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54676152&amp;ptid=2051152" target="_blank">alex2092 发表于 2022-2-14 08:27</a>
+
+没有FFT那种跨职业技能搭配之类的吗</blockquote>
+不仅没有跨职业技能搭配，连本职业技能搭配都没有，技能完全和等级挂钩。而且人物职业都是固定的。
+
+找个接近的例子的话，大概是幻世录那个模式...
+
