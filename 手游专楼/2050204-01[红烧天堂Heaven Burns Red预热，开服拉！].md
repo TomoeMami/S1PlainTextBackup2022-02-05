@@ -913,3 +913,12 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 但这不是为了属性加成（浪漫沙加手游里属性加成是不共享的），而是因为核心技能基本都拆分在了不同的角色里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 85#       发表于 2022-2-14 13:36
+
+是的，仔细一看大部分属性加成都是专用的，为了蚊子腿点a卡和s卡至少不是前期需要考虑的事情了，s卡开个技能就完事了。不过飞机社这手浪漫沙加抄得真是精髓，结合自家时空猫的独有技能绑定style的系统真是骗氪无极限啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
