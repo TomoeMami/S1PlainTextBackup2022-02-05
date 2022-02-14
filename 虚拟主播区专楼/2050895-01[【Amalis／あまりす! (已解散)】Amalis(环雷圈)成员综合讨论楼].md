@@ -1123,3 +1123,12 @@ PS：油管开的是10点，推特预告的却写的是8点。
 
 这次小作文证明了琥珀的中文短语还好，句子一长读得就真的不太顺利了。
 
+
+
+*****
+
+####  人別離苦  
+##### 111#       发表于 2022-2-14 22:24
+
+玲， 我要创造一个有你的世界<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

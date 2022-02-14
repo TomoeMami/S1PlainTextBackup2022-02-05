@@ -4728,3 +4728,19 @@ apex...我的apex...
 居然是fg，最近在valo cr杯二/三次会看了太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 syl 和之前玩一个样，吃瘪就完事<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  因为你不会  
+##### 13968#       发表于 2022-2-14 22:05
+
+绫总这不是敷衍，嗯？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">几点了你再想想
+
+*****
+
+####  Fami水  
+##### 13969#       发表于 2022-2-14 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">还是看的出有点进步的 进步的不多
+
