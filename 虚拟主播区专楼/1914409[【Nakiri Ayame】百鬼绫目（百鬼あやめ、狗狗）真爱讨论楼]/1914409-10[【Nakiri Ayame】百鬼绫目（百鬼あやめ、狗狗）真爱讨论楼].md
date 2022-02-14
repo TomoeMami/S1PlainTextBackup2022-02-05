@@ -4744,3 +4744,12 @@ syl 和之前玩一个样，吃瘪就完事<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">还是看的出有点进步的 进步的不多
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 13970#       发表于 2022-2-14 22:53
+
+藏画面有啥用，过气fg这时候能排什么人心理要有点数啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

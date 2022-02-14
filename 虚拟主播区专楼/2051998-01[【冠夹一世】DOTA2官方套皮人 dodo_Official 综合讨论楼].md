@@ -2265,3 +2265,14 @@ dodo已经知道自己打几盘会累了，所以打几盘休息挺好的。
 我一直想问版主是哪个</blockquote>
 隔壁Zdgy <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mkii量产型  
+##### 271#       发表于 2022-2-14 22:48
+
+<blockquote>人別離苦 发表于 2022-2-14 22:45
+隔壁Zdgy</blockquote>
+艹，男人，右上角
+

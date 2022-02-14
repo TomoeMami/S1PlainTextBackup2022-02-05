@@ -9238,3 +9238,52 @@ md我一下子还以为真进去了。。
 
 唉，打工人太惨了。
 
+
+
+*****
+
+####  rgauss  
+##### 5474#       发表于 2022-2-14 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 白子下播都是叫下班的啊 然后挂个ed界面跟大家聊半天
+艾队找的时候根本没a吧，剩下四个都是被骗进来的，也不知道a的
+
+*****
+
+####  小憨1  
+##### 5475#       发表于 2022-2-14 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54688280&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-14 22:17</a>
+小丫头还是不专业，结束的时候居然说下班，太出戏了，多想想吧，毕竟是饭碗，要带入角色，不要把什么东西都 ...</blockquote>
+你这是否信息差的有点太多了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 5476#       发表于 2022-2-14 22:51
+
+其实那新进来的4个人可能文静还有点想法，其他三个真的被骗进来的，所以只有文静千里走单骑去了
+
+特别还有个没毕业的co宝，12月份生日会都是毕业论文
+
+*****
+
+####  snarc1  
+##### 5477#       发表于 2022-2-14 22:52
+
+emmmm……足球也不是只有巴塞罗那
+
+*****
+
+####  snarc1  
+##### 5478#       发表于 2022-2-14 22:52
+
+emmmm……足球也不是只有巴塞罗那
+
+*****
+
+####  灰色的狐狸  
+##### 5479#       发表于 2022-2-14 22:54
+
+问题是V的体量远不如足球啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
