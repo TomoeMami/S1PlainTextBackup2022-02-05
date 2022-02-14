@@ -15441,3 +15441,14 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 这次活动全程用双暗狐打，一面buff满还无指定性技能，然后三宝具砸下去，流畅的很，蓝卡队在333上都要没有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">然而没光狐的表示完全不懂你所说的情况
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86992#       发表于 2022-2-14 19:32
+
+还要拖一天<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

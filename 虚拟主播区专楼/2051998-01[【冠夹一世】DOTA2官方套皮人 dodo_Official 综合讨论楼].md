@@ -1882,3 +1882,47 @@ dodo来了
 
 吃doom了，还好没死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  端木恋心  
+##### 221#       发表于 2022-2-14 19:24
+
+dodo今天吃doom喽
+
+*****
+
+####  反方向的波  
+##### 222#       发表于 2022-2-14 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我才反应过来对面阵容真的好蠢，夹夹刚才在三角区刷微信步数都死不了
+
+*****
+
+####  憧憬鲨  
+##### 223#       发表于 2022-2-14 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也太贪了，没必要这么打吧
+
+*****
+
+####  Litccc  
+##### 224#       发表于 2022-2-14 19:40
+
+情人节dodo居然还在播，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  健康猹  
+##### 225#       发表于 2022-2-14 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">这都能不走的吗，太团队了
+
+*****
+
+####  端木恋心  
+##### 226#       发表于 2022-2-14 19:42
+
+感觉G了。对面三核起来了。
+

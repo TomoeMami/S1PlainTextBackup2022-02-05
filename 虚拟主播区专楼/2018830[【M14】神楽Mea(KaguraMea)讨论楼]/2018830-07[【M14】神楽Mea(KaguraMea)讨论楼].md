@@ -1106,3 +1106,29 @@ fan service已经发过图了（）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2014720  
+##### 9133#       发表于 2022-2-14 19:36
+
+<img src="https://p.sda1.dev/5/d9c5da81117aed408c8209ac568cc27c/IMG_CMP_46272860.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9134#       发表于 2022-2-14 19:39
+
+ 本帖最后由 T_Hb 于 2022-2-14 19:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">终于要拿东西出来了吗<blockquote>#AFAStationTV Usher in the New Year with emcees @ZEA Cornelia【NIJISANJI ID】, @Estelle Fly, and @Goofy Feline for the January 2022 edition of AFA Station TV Anime &amp; Music Online Show!
+
+The lovely Sora Amamiya is our Artiste of the Month, plus check out an exclusive message from Ryokuoushoku Shakai and Virtual Cinderella Project members Kagura Mea, Hanazono Serena, and Hiseki Erio!
+
+Learn about amazing upcoming events such as “LisAni!LIVE 2022”, “Sword Art Online -EX-CHRONICLE- Online Edition”, and “Attack on Titan: The Exhibition” — and more! Subscribe &amp; Set a Reminder now!
+
+▶ [https://bit.ly/ASTVJan22](https://bit.ly/ASTVJan22)
+
+📆 20th January 8:00 PM SGT / 20:00 (GMT+8)</blockquote>
+
