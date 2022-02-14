@@ -870,3 +870,32 @@ wfs以前的手游会出ost吗，除了氪金了必得，要是能出ost我更�
 活动还是有时间限制的啊，没有完全走时空猫那种常驻模式，稍微得赶赶进度了。话说这个养成系统还是有点没搞 ...</blockquote>
 A，S卡的被动属性没写专属的都是加成到角色本身的
 
+
+
+*****
+
+####  xiongxingyu  
+##### 81#       发表于 2022-2-14 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54678037&amp;ptid=2050204" target="_blank">elven119 发表于 2022-2-14 10:57</a>
+
+A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote>
+照这样的计算方式，像女主这样ss卡也有两张的岂不是有双份的属性加成？按飞机社尿性，以后肯定会有各2.0、3.0的换皮卡，主卡ss提供专用技能，剩下的各种a、s、ss堆属性，这个养成系统简直深不可测啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  elven119  
+##### 82#         楼主| 发表于 2022-2-14 11:07
+
+活动送满破s忍者妹，可以遇见以后大家的队伍都会逐渐替换成以满破s为主力的队伍？目前就是不知道满破s和0破ss属性差距有没有，是满破s属性高还是0破高
+
+*****
+
+####  elven119  
+##### 83#         楼主| 发表于 2022-2-14 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54678197&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2022-2-14 11:07</a>
+
+照这样的计算方式，像女主这样ss卡也有两张的岂不是有双份的属性加成？按飞机社尿性，以后肯定会有各2.0 ...</blockquote>
+实际上你仔细看看，属性加成只有最后2个技能有，其他都是专用的
+
