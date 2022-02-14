@@ -6599,3 +6599,22 @@ towa？真的不熟、现有最有可能只有西西队了<img src="https://stat
 
 说个笑话，情人节开摄像头做巧克力只收了20w的米<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 8272#       发表于 2022-2-14 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54685580&amp;ptid=1947500" target="_blank">面具13 发表于 2022-2-14 19:37</a>
+
+说个笑话，情人节开摄像头做巧克力只收了20w的米</blockquote>
+标题不写根本不知道是在做什么。
+
+*****
+
+####  梅斯之围  
+##### 8273#       发表于 2022-2-14 19:42
+
+想看巧克力但是点进直播间只看到巧克力做得像那啥一样还恰好碰上饭点的石油佬默默收起了准备打出去的钱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
