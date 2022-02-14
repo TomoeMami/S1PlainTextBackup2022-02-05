@@ -6493,3 +6493,62 @@ nene那是想自己玩不是想来<img src="https://static.saraba1st.com/image/s
 
 完了，要变成不能吃的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新磕娘  
+##### 8259#       发表于 2022-2-14 18:43
+
+apex其他队沟通上起码都没问题，但阿夸就...不如换个黑屁的说法，跟阿夸组队，对她队友来说是种折磨
+
+*****
+
+####  面具13  
+##### 8260#       发表于 2022-2-14 18:44
+
+最协夸宝大概率会算9分，跟towa等7分钻3选手以上的就组不了队了，加一个5分钻4和4分白金，是最佳搭配了。
+
+*****
+
+####  新磕娘  
+##### 8261#       发表于 2022-2-14 18:44
+
+md，刚刚找片子看，居然翻到两个阿夸cos的艾薇
+
+*****
+
+####  面具13  
+##### 8262#       发表于 2022-2-14 18:46
+
+夸宝组队可以不开麦，用ping组织攻防。s12好像又优化了提示，碎甲之类的都不用自己喊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 8263#       发表于 2022-2-14 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54684838&amp;ptid=1947500" target="_blank">面具13 发表于 2022-2-14 18:44</a>
+
+最协夸宝大概率会算9分，跟towa等7分钻3选手以上的就组不了队了，加一个5分钻4和4分白金，是最佳搭配了。 ...</blockquote>
+towa？真的不熟、现有最有可能只有西西队了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8264#       发表于 2022-2-14 18:54
+
+ 本帖最后由 离魂仙 于 2022-2-14 18:59 编辑 
+
+“手指才不胖”
+什么经典重制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+烤红薯是吧
+
+*****
+
+####  越动天下  
+##### 8265#       发表于 2022-2-14 18:57
+
+这😱😱😱
+
