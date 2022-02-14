@@ -1768,3 +1768,14 @@ dodo挺团队的抱大腿感觉可能性大一点。
 
 没事的，dodo说不定今晚上大分呢
 
+
+
+*****
+
+####  lpsquirrel  
+##### 207#       发表于 2022-2-14 16:33
+
+又变成大型粉丝见面会了要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
