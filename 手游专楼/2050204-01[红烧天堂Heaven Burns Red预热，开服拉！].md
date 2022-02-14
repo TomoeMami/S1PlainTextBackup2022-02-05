@@ -954,3 +954,14 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 发现有的角色有类似时空猫的zone技能啊，是不是初始该刷这种角色啊</blockquote>
 就现在这种缺斤少两的情况还是照着国见或者占卜这种大众辅助抽吧
 
+
+
+*****
+
+####  角龙大剑  
+##### 89#       发表于 2022-2-15 00:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">我就应该选SS break开局，现在就一个S的突break，碰到突耐性的就只能硬刮
+
+不过晚上抽到舰长好点了，双buff一上一刀连盾带怪全秒了
+
