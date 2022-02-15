@@ -1039,3 +1039,16 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 得，慢慢推主线去了，这边活动就先打C凑合了。
 
+
+
+*****
+
+####  barca  
+##### 97#       发表于 2022-2-15 18:22
+
+原本以为是个养老舔卡游戏，看来我还是太天真了
+为啥不学时空猫啊，活动偏搞期间限定
+按我的节奏等到队伍养成能打过s级boss估计活动也快结束了
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

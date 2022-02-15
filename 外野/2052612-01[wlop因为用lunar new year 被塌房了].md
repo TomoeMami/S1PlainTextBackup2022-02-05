@@ -1511,3 +1511,47 @@ Chinese lunar new year(Korea)
 讲道理外面LNY和CNY其实都用了挺久了，一直没啥大风浪，还是因为最近韩国人加到力度出警CNY才导致国 ...</blockquote>
 像韩国人一点就丢人一点
 
+
+
+*****
+
+####  沈淮  
+##### 147#       发表于 2022-2-15 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小时候学的就是Chinese new  year
+
+*****
+
+####  AIDSL  
+##### 148#       发表于 2022-2-15 18:09
+
+还有个重灾区，不过不是棒子偷而是版本茫茫多
+
+24节气，很多都要4个以上的英文版本。
+
+*****
+
+####  drgbsheep  
+##### 149#       发表于 2022-2-15 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691661&amp;ptid=2052612" target="_blank">ftqwer1 发表于 2022-2-15 08:16</a>
+
+人家用lunar就是为了把春节开除出中国文化里。我们不用怎么叫跟着人家走？我们也用才叫跟着人家走好么？ ...</blockquote>
+抢过来啊，棒子说开除就开除啊。哪有主动让话语权的玩法？
+
+*****
+
+####  偶卖糕的  
+##### 150#       发表于 2022-2-15 18:16
+
+撸呐牛爷
+
+
+
+*****
+
+####  eraso  
+##### 151#       发表于 2022-2-15 18:26
+
+一律用汉字春节就好了，又不是不会汉字，搞不懂为什么要写英文
+
