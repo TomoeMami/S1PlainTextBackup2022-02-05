@@ -2373,3 +2373,12 @@ dodo已经知道自己打几盘会累了，所以打几盘休息挺好的。
 
 妮妮直播间老头这么多的吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rosevalley46  
+##### 283#       发表于 2022-2-15 20:44
+
+永恒应该是三姐妹里gachi最多的
+

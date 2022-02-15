@@ -2309,3 +2309,26 @@ chima这情人节家用3d歌会中间去调整什么东西的时候抱怨性地�
 情人节唱甜歌，说稍微静音一下，朝后面低吼了一声（可能是故意不静音，被迫营业憋不住了，呼应了标题里的 ...</blockquote>
 绿帽民差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 10704#       发表于 2022-2-15 20:55
+
+奈罗花和千桑APEX祭组队打，组队名单还是运营安排的，撕逼没怎么撕起来还吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 10705#       发表于 2022-2-15 21:02
+
+开播前人脸认证功能上线公告
+[https://link.bilibili.com/p/eden/news#/newsdetail?id=2582](https://link.bilibili.com/p/eden/news#/newsdetail?id=2582) <blockquote>亲爱的用户你好：
+
+为保证开播实名认证且开播人与认证一致，哔哩哔哩直播即将上线开播前人脸认证功能，后续逐步在各个分区开放。
+
+感谢您一直以来的理解与支持~</blockquote>
+
+这不好，很不虚拟
+
