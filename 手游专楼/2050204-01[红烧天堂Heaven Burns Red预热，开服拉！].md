@@ -989,3 +989,15 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人夸夸这次活动的剧情吗，前面救人那里还觉得有点生硬，结果到读信那段直接没蚌住
 
+
+
+*****
+
+####  elven119  
+##### 92#         楼主| 发表于 2022-2-15 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54692088&amp;ptid=2050204" target="_blank">勇者倒下了 发表于 2022-2-15 09:08</a>
+
+没人夸夸这次活动的剧情吗，前面救人那里还觉得有点生硬，结果到读信那段直接没蚌住 ...</blockquote>
+这活动不是麻子写的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

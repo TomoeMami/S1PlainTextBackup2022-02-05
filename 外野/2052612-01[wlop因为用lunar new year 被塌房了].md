@@ -801,3 +801,100 @@ P.S.，我中考英语满分，高考英语146，初中背完四级词汇来着�
 谁能想到这词还能变味了[f:06 ...</blockquote>
 你小学确定不是spring Festival？
 
+
+
+*****
+
+####  leystage  
+##### 87#       发表于 2022-2-15 10:44
+
+<blockquote>leystage 发表于 2022-2-15 10:39
+魔都不是人教版，应该是上教版和牛津英语两种？
+
+快二十年前的事情了，记不太清，而且不同学校也不一样。 ...</blockquote>
+刚才随手搜了下，好像很多教材上都是 Spring Festival。也许 Lunar New Year 不是教材而是考卷文章之类的课外材料里的？不记得了。
+
+总之如上面所说，主要是表达以前没见过有人为这个争吵…
+
+我平时自己写邮件写自动回复都用 Chinese New Year 来着
+
+*****
+
+####  通记  
+##### 88#       发表于 2022-2-15 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693218&amp;ptid=2052612" target="_blank">奇遇2000 发表于 2022-2-15 10:34</a>
+
+我读书少，有个问题：历法不就是为了追踪季节吗，当然跟太阳关系很大啊，有纯看月亮的历法吗……纯看月亮那 ...</blockquote>
+伊 斯兰历
+
+*****
+
+####  beeandf  
+##### 89#       发表于 2022-2-15 10:47
+
+<blockquote>引用第82楼leystage于2022-02-15 10:39发表的  :
+
+引用:ftqwer1 发表于 2022-2-15 08:17lunar new year到底是啥版本......</blockquote>
+
+韩国人吵这个有什么摸不着头脑的，不就是“去Chinese化”呗……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  罗马还能再战  
+##### 90#       发表于 2022-2-15 10:48
+
+我早就不用Lunar New Year了.
+
+坚持用Spring Festival Holiday.
+
+
+
+*****
+
+####  罗马还能再战  
+##### 91#       发表于 2022-2-15 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54690972&amp;ptid=2052612" target="_blank">少年阳光未知他 发表于 2022-2-15 01:59</a>
+
+文盲来也
+
+Lunar New Year Message from H.E. Wang Yi </blockquote>
+[http://www.china-embassy.org/eng ... 220212_10641857.htm](http://www.china-embassy.org/eng/dshd/202202/t20220212_10641857.htm)
+
+[http://www.china-embassy.org/eng ... 220209_10640408.htm](http://www.china-embassy.org/eng/dshd/202202/t20220209_10640408.htm)
+
+[http://www.china-embassy.org/eng ... 220131_10637799.htm](http://www.china-embassy.org/eng/dshd/202201/t20220131_10637799.htm)
+
+*****
+
+####  伊欧玟  
+##### 92#       发表于 2022-2-15 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693203&amp;ptid=2052612" target="_blank">Rincewind 发表于 2022-2-15 10:33</a>
+
+我今年跟国外网友打招呼都是Spring Festival。
+
+不至于跨步到Chun Jie吧
+
+毕竟翻译这个东西无论中外重点是让 ...</blockquote>
+不用担心老外不明白，人家各国语言名词直接拿来用得溜着呢，而且我感觉很多东亚共有的东西最近几年用日文名词的越来越多。再说中文里很多舶来词也是音译，咖啡沙发吉他有人听不懂吗？
+
+*****
+
+####  acg_gyanc  
+##### 93#       发表于 2022-2-15 10:58
+
+我小时候学的也是spring festival，认真说的话第一次知道lunar new year还是今年……
+
+*****
+
+####  煌焰  
+##### 94#       发表于 2022-2-15 11:02
+
+主要还是官方没有给出一个标准译名
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
