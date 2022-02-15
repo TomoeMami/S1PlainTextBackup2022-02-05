@@ -12940,3 +12940,34 @@ ok，发了私信了
 
 <img src="https://img.saraba1st.com/forum/202202/15/224947irer969plyelh1bb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5550#       发表于 2022-2-15 23:04
+
+一专3004，国内可能有1000张吧（几个代购淘宝数据加起来都800了），可能占三分之一。之前那个emi活动，海外售票有40%（国内估计占30%），广播说连工作人员都吃惊了，很少见的情况。鲤鱼能调动的国内粉丝对于她的事业发展还是一个挺可观的数字的，相较于其他人的确是个优势
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  黑雪姫  
+##### 5551#       发表于 2022-2-15 23:07
+
+ 本帖最后由 黑雪姫 于 2022-2-15 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54703856&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-15 23:04</a>
+
+一专3004，国内可能有1000张吧（几个代购淘宝数据加起来都800了），可能占三分之一。之前那个emi活动，海外 ...</blockquote>
+但是国内大多数人没有买CD的习惯和文化，而且日本CD也不好引进到国内。 这两点硬伤不解决只能走代购这种偏旁肯定是掀不起多大风浪。至少在实体碟销量这方面国内帮不了多少。
+
+*****
+
+####  lj205  
+##### 5552#       发表于 2022-2-15 23:12
+
+这只是初动呢，等各家把因为缺货还没发货的单子都发完了再说吧，实在太受缺货影响
+
