@@ -1418,3 +1418,24 @@ g点不是固定的, 多开发开发总会有的, 目标是随便戳哪里都会
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  oznark  
+##### 139#       发表于 2022-2-15 16:09
+
+农历是阴阳历不是阴历，天坛的天也不代表heaven，现在绝大多数针对我们传统文化“约定俗成”的英文翻译都是早期外国人（主要是宗教人士）根据他们自己理解进行的臆测
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  halflifes  
+##### 140#       发表于 2022-2-15 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691086&amp;ptid=2052612" target="_blank">❃✽✾✶✻✼ 发表于 2022-2-15 02:39</a>
+
+别说他了   清华博士这么用也是文盲</blockquote>
+清华的博士不会连这个都用错吧？怎么考上的？
+
