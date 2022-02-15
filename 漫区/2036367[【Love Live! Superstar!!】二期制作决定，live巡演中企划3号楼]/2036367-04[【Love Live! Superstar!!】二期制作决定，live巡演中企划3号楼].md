@@ -12536,3 +12536,14 @@ ok，发了私信了
 
 <img src="https://img.saraba1st.com/forum/202202/15/113510rlorq6fl9p4kpowq.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 5518#       发表于 2022-2-15 11:48
+
+估计初动3000左右吧，又是专辑，还无tie，这成绩已经很可以了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

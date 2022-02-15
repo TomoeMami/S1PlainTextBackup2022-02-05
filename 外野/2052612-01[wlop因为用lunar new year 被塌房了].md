@@ -1134,3 +1134,58 @@ Chinese lunar new year看着像spring festival的注释<img src="https://static.
 
 只学过spring festival和happy new year , lunar new year还是因为棒子那边吵才知道。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qq350295  
+##### 115#       发表于 2022-2-15 11:47
+
+小时候学的是spring Festival .现在这么乱，不如叫Chinese lunar new year得了，你韩国感觉自己也过春节但又不是Chinese lunar new year 的，那叫Korea lunar new year得了。简化的话就我们叫Chinese new year，韩国叫Korea new year得了。我们再简化，叫Chunjie得了。汉语拼音和国际英标差得有点远，老外看到Chunjie 估计不会读，不利于推广了。春是tswen这样？节是dzye这样？
+
+*****
+
+####  这就是奇迹  
+##### 116#       发表于 2022-2-15 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694402&amp;ptid=2052612" target="_blank">qq350295 发表于 2022-2-15 11:47</a>
+小时候学的是spring Festival .现在这么乱，不如叫Chinese lunar new year得了，你韩国感觉自己也过春节但 ...</blockquote>
+需要照顾老外会不会读吗？
+
+*****
+
+####  dclara1  
+##### 117#       发表于 2022-2-15 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54692059&amp;ptid=2052612" target="_blank">sangw 发表于 2022-2-15 09:06</a>
+
+小时候都是 Spring Festival
+
+不过我现在都说 Happy Chinese Day</blockquote>
+chinese day是什么新奇说法，这才是除了你以外没别人这么说的吧
+
+*****
+
+####  魔铁潜水艇  
+##### 118#       发表于 2022-2-15 11:51
+
+都不知道这个人是谁…………
+
+怎么说呢，虽然画师这个群体里面有一搓人确实很离谱，但还是疑罪从无。
+
+人就画个画也不一定整天关注互联网所有的雷点，不要搞得跟猎巫似的扩大化。
+
+当然如果有其他事迹证据另说。
+
+*****
+
+####  少年阳光未知他  
+##### 119#       发表于 2022-2-15 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693575&amp;ptid=2052612" target="_blank">罗马还能再战 发表于 2022-2-15 10:55</a>
+
+http://www.china-embassy.org/eng/dshd/202202/t20220212_10641857.htm
+
+http://www.china-embassy.org/ ...</blockquote>
+你这只能说明都会用 不能说明不文盲
+
