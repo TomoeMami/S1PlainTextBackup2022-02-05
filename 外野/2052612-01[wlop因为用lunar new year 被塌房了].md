@@ -1787,3 +1787,30 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 感觉北方老百姓一般都叫“阴历”，很少有说“农历”的。
 
+
+
+*****
+
+####  伏羲茶  
+##### 174#       发表于 2022-2-15 21:27
+
+广州85后，我清楚记得94、95年小学学英语时都是用Chinese new year，什么lunar都是这几年开始见到，以前一直以为lunar new year是YSL教的新年，我专门问在美国的亲戚朋友，他们说很多国家都过spring festival春节，但Chinese new year就专指我们中国的农历春节，很多鬼佬去唐人街过春节都知道要喊Chinese new year，其他说法通通都是故意去中国化
+
+*****
+
+####  古留  
+##### 175#       发表于 2022-2-15 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691397&amp;ptid=2052612" target="_blank">frosta 发表于 2022-2-15 06:43</a>
+
+从小学的就是lunar new year，来美国了以后唐人街见到的也都是lunar new year
+
+谁能想到这词还能变味了[f:06 ...</blockquote>
+因为抢占话语权，而且它的重要性不亚于冷热兵器战争
+
+等你发现文化元素都是人家的时候
+
+那你阿妈到时候也就是自愿的了
+
+比如说奥斯维辛就是英勇的美军将士解放的
+

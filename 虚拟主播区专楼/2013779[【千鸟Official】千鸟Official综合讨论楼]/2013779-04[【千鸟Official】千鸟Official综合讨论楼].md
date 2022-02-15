@@ -9341,3 +9341,14 @@ emmmm……足球也不是只有巴塞罗那
 
 合着之前抽奖真的是说送主播啊 乐<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GAKOTO  
+##### 5486#         楼主| 发表于 2022-2-15 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54701673&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-15 20:14</a>
+怎么回事，今天有什么大喜事吗，在楼下放炮仗</blockquote>
+元宵节
+

@@ -73,3 +73,29 @@ t3对面人，摩根全开
 t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然后 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是大佬么 轻松地用出了我一个都没有的阵容
 
+
+
+*****
+
+####  alucardcz  
+##### 87007#       发表于 2022-2-15 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54701178&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-15 19:31</a>
+
+这就是大佬么 轻松地用出了我一个都没有的阵容</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是有王姐
+
+*****
+
+####  DARKGRAY  
+##### 87008#       发表于 2022-2-15 21:38
+
+妖兰问题不大，血牛还刚好都是人属性，就是练衣服没满破礼装就只能换人充了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 87009#       发表于 2022-2-15 21:38
+
+首次风怒<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
