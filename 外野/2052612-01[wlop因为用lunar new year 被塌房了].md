@@ -1707,3 +1707,26 @@ Chinese lunar new year(Korea)
 chinese day是什么新奇说法，这才是除了你以外没别人这么说的吧</blockquote>
 手误手误 手机打错了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vuder  
+##### 167#       发表于 2022-2-15 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691397&amp;ptid=2052612" target="_blank">frosta 发表于 2022-2-15 06:43</a>
+
+从小学的就是lunar new year，来美国了以后唐人街见到的也都是lunar new year
+
+谁能想到这词还能变味了[f:06 ...</blockquote>
+小时候课本都是spring festival啊
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 168#       发表于 2022-2-15 19:51
+
+棒子全国上下一条心地不要脸，我们这里还有这么多大度的人，这怎么抢得过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2339,3 +2339,12 @@ dodo已经知道自己打几盘会累了，所以打几盘休息挺好的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">3d就算是自己的场地应该也挺费钱的，毕竟自己不用也可以出租给别人。鸡煲每次3d模型都会更新，csgo国服项目组对皮套人还挺重视的
 
+
+
+*****
+
+####  mkii量产型  
+##### 279#       发表于 2022-2-15 19:59
+
+话说CSGO国服那个项目组都挺巨魔的，B站官号全都是精神病才做的出的视频
+
