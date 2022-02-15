@@ -1479,3 +1479,23 @@ Chinese lunar new year(Korea)
 
 韩国人跳出来拉了泡屎说这是我的就拱手让人吗，什么鬼逻辑。
 
+
+
+*****
+
+####  fmonion  
+##### 144#       发表于 2022-2-15 16:44
+
+所以你们能不能去出警韩国人。。。
+
+这是管不了洋大人，管不了你么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  popeou  
+##### 145#       发表于 2022-2-15 16:46
+
+偷国牛批
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
