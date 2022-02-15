@@ -1010,3 +1010,21 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这活动有点坑啊，记忆迷宫40层才能打S难度，S难度那个票的掉率也很低，经验听说也不行
 
+
+
+*****
+
+####  lzmmzlzm  
+##### 94#       发表于 2022-2-15 14:25
+
+今天被墙了吗，直连不上去
+
+*****
+
+####  猫咪澎澎  
+##### 95#       发表于 2022-2-15 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54696381&amp;ptid=2050204" target="_blank">角龙大剑 发表于 2022-2-15 14:02</a>
+ 这活动有点坑啊，记忆迷宫40层才能打S难度，S难度那个票的掉率也很低，经验听说也不行 ...</blockquote>
+确实很坑
+
