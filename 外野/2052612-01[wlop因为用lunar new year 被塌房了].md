@@ -898,3 +898,239 @@ Lunar New Year Message from H.E. Wang Yi </blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  popchong  
+##### 95#       发表于 2022-2-15 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693696&amp;ptid=2052612" target="_blank">煌焰 发表于 2022-2-15 11:02</a>
+
+主要还是官方没有给出一个标准译名
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">官方一直有XX无小事的路径依赖，宁可吃点亏也要息事宁人结与国之欢心，但是从毛衣战某个长老说出“我把你们想的太好了”之后，感觉官方一部分人的思路有转变，但路径依赖的还是大多数，说到底是对上负责的构架中下层背不起锅所以只能自束手脚
+
+*****
+
+####  enrin  
+##### 96#       发表于 2022-2-15 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693301&amp;ptid=2052612" target="_blank">leystage 发表于 2022-02-15 10:39:09</a>
+魔都不是人教版，应该是上教版和牛津英语两种？
+
+快二十年前的事情了，记不太清，而且不同学校也不一样。 ...</blockquote>韩国人十年前就开始争了，本质就是给春节在国际上去中国化
+国内属于近两年才反应过来
+
+这事根本就不是什么两国争论，而是韩国人到处出警中国新年的叫法不许人用。国内网民原本对于lunar new year是无所谓的态度，现在反对也是被动防御
+
+所以就算是lunar new year，也应该叫Chinese lunar new year
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  camille911  
+##### 97#       发表于 2022-2-15 11:14
+
+去他妈的。就叫chun jie完事
+
+*****
+
+####  最低人间肥宅  
+##### 98#       发表于 2022-2-15 11:17
+
+春节就得了
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  東京地方検察庁  
+##### 99#       发表于 2022-2-15 11:19
+
+ 本帖最后由 東京地方検察庁 于 2022-2-15 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693203&amp;ptid=2052612" target="_blank">Rincewind 发表于 2022-2-15 10:33</a>
+
+我今年跟国外网友打招呼都是Spring Festival。
+
+不至于跨步到Chun Jie吧
+
+毕竟翻译这个东西无论中外重点是让 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接音译的就叫生造听不懂的专有名词，那英语里70%的词是生造专有名词。lunar就不是，英语借自法语，festival也是。只有这个词组里只有spring是日耳曼底层。
+
+上个中国白酒翻译贴里，居然有人认为伏特加、威士忌、白兰地英文单词就是英语了，笑死，其实那是俄语、苏格兰语、荷兰语直接音译，直接叫baijiu才是和前面一样。
+
+亚拉巴马州、阿肯色州全都是印地语直接音译
+
+夏威夷州 ，wiki，也是夏威夷语直接音译
+
+阿拉斯加州，阿留申语直接音译
+
+没听过美国人听不懂啊，真要说tea也是音译
+
+全天下就汉语音译不得，非要chinese XX，不然诚惶诚恐害怕听不懂是不是台看不起英语人群的智商
+
+*****
+
+####  Bhagavan  
+##### 100#       发表于 2022-2-15 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691099&amp;ptid=2052612" target="_blank">帕林马哲理 发表于 2022-2-15 02:43</a>
+
+没办法，文化与外交领域内鬼就是这么多，现在至少是有人会说出来了。北美华人以“Chink”自称的都不少呢。 ...</blockquote>
+王毅都能被你打成内鬼了
+
+我是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 101#       发表于 2022-2-15 11:24
+
+音译这事很简单，寇可往，吾亦可往。
+
+凭什么围棋叫go，仙鹤叫Grus japonensis
+
+<img src="https://img.saraba1st.com/forum/202202/15/112328iytk9atqx7ia9oym.jpg" referrerpolicy="no-referrer">
+
+<strong>94cad1c8a786c917faad4c80c23d70cf3ac757d8.jpg</strong> (44.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-15 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202202/15/112328rxb9l7zl9e93pd8l.jpg" referrerpolicy="no-referrer">
+
+<strong>src=http _shp.qpic.cn_qqvideo_ori_0_a3028adbub8_496_280_0&amp;amp;refer=http _shp.qpic.c.jpg</strong> (27.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-15 11:23 上传
+
+
+
+*****
+
+####  语文j教师  
+##### 102#       发表于 2022-2-15 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691425&amp;ptid=2052612" target="_blank">钱君 发表于 2022-2-15 06:59</a>
+就跟着棒子跑，什么人啊</blockquote>
+棒子只是觉得chinese碍眼。你要不嫌麻烦就chinese lunar new year 就两全了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Jooohnny  
+##### 103#       发表于 2022-2-15 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693301&amp;ptid=2052612" target="_blank">leystage 发表于 2022-2-15 10:39</a>
+
+魔都不是人教版，应该是上教版和牛津英语两种？
+
+快二十年前的事情了，记不太清，而且不同学校也不一样。 ...</blockquote>
+人教和新概念里应该是完全没出过Lunar这个词的，大概是沪国专用教材吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这也是地区割裂的一种
+
+*****
+
+####  Jooohnny  
+##### 104#       发表于 2022-2-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694021&amp;ptid=2052612" target="_blank">popchong 发表于 2022-2-15 11:24</a>
+
+音译这事很简单，寇可往，吾亦可往。
+
+凭什么围棋叫go，仙鹤叫Grus japonensis。米哈游都比楼里不少汴京老哥 ...</blockquote>
+这里就不得不提安徽特产的树种黄山松了，拉丁学名Pinus **ensis Hayata，定了个日本人起的台湾松。
+
+*****
+
+####  语文j教师  
+##### 105#       发表于 2022-2-15 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693619&amp;ptid=2052612" target="_blank">伊欧玟 发表于 2022-2-15 10:57</a>
+不用担心老外不明白，人家各国语言名词直接拿来用得溜着呢，而且我感觉很多东亚共有的东西最近几年用日文 ...</blockquote>
+音译基本都是懒政。
+与其说懂不懂，倒不如说纠正过来的沉没成本太高
+就好像中文里熊猫这个词
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zawakyandoru  
+##### 106#       发表于 2022-2-15 11:32
+
+给我看魔怔了
+
+*****
+
+####  钱君  
+##### 107#       发表于 2022-2-15 11:32
+
+<blockquote>语文j教师 发表于 2022-2-15 11:24
+棒子只是觉得chinese碍眼。你要不嫌麻烦就chinese lunar new year 就两全了
+
+—— 来自 S1Fun ...</blockquote>
+chinese lunar new year今年冬奥官方不就已经在用了，算是一个信号吧。
+
+*****
+
+####  帕林马哲理  
+##### 108#       发表于 2022-2-15 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693958&amp;ptid=2052612" target="_blank">Bhagavan 发表于 2022-2-15 04:20</a>
+王毅都能被你打成内鬼了
+
+我是没想到</blockquote>
+反正我一向跟不上总路线的摇摆，但是看到跳出来的殖人屏蔽了还是做得到的。
+
+*****
+
+####  szqasd  
+##### 109#       发表于 2022-2-15 11:35
+
+一步到位，ChunJie得了，以后汉语专用词全给我拼拼音。
+
+*****
+
+####  这就是奇迹  
+##### 110#       发表于 2022-2-15 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693936&amp;ptid=2052612" target="_blank">東京地方検察庁 发表于 2022-2-15 11:19</a>
+直接音译的就叫生造听不懂的专有名词，那英语里70%的词是生造专有名词。lunar就不是纯英语，是借自 ...</blockquote>
+别说，说就给你扣「莫名其妙的民族主义」的帽子
+
+*****
+
+####  KENN  
+##### 111#       发表于 2022-2-15 11:36
+
+wlop主要还是赚国外的钱吧，他的画技虽然比不过专业的，但是作为商业插画来说挺成功的，毕竟很受鬼佬的欢迎
+
+*****
+
+####  鏡鑑星影  
+##### 112#       发表于 2022-2-15 11:40
+
+Chinese lunar new year看着像spring festival的注释<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  卓尔之影  
+##### 113#       发表于 2022-2-15 11:45
+
+支1224225那这词的演变都忘了 还有什么好纠结的
+
+*****
+
+####  奇迹的魔法少女  
+##### 114#       发表于 2022-2-15 11:46
+
+只学过spring festival和happy new year , lunar new year还是因为棒子那边吵才知道。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
