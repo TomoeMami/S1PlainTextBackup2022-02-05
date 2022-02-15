@@ -1052,3 +1052,14 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  poor  
+##### 98#       发表于 2022-2-15 21:55
+
+一打开就退出怎么回事？需要挂梯跟谷歌商店吗？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

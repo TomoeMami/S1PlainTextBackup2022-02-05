@@ -99,3 +99,63 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 首次风怒<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈露尼娅  
+##### 87010#       发表于 2022-2-15 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先声明我不玩fgo,但是除了游戏本体所有fate相关我都有了解
+
+这里算是月球人大本营吧？我能问问为啥感觉好多人都对沙条爱歌这个角色有很大意见？虽然都说樱井玛丽苏崩人设，但是当年苍银看完我对爱歌真的是好感度拉满，不就是献祭亲妹，要的就是病娇这个味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+结果这两天闲得无聊搜帖子，一堆人像是爱歌鲨了他们家人一样恨到死，这还算是普遍现象，我突然感觉是不是我有问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 87011#       发表于 2022-2-15 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700882&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-15 19:08</a>
+
+王姐一样秒吧？ 只不过少张红第1回合翻车概率高亿点点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">你在说啥....我双A狐加摩根带满破宝石第一面一炮就能打出20多万伤害....翻车不存在的
+
+*****
+
+####  qixinno2  
+##### 87012#       发表于 2022-2-15 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54702553&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-15 21:29</a>
+
+你不是有王姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我没有五宝 约等于没有
+
+*****
+
+####  alucardcz  
+##### 87013#       发表于 2022-2-15 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54702871&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-2-15 21:52</a>
+
+你在说啥....我双A狐加摩根带满破宝石第一面一炮就能打出20多万伤害....翻车不存在的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧洲人5宝的力量吗 居然和我狂娜1宝的伤害一样！
+
+*****
+
+####  exiaexa  
+##### 87014#       发表于 2022-2-15 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54702812&amp;ptid=1085254" target="_blank">哈露尼娅 发表于 2022-2-15 21:48</a>
+
+首先声明我不玩fgo,但是除了游戏本体所有fate相关我都有了解
+
+这里算是月球人大本营吧？我能问问为 ...</blockquote>
+首先，这只是个海豹楼
+
+其次，你最好确定一下他们是讨厌爱歌还是单纯的讨厌樱井，现在的讨论环境里，只要樱井PTSD发作了吃饺子噎到都是樱井的锅
+
+最后，爱歌到底是不是樱井的锅还要打个问号，菌哥哥当年的屁股鬼知道怎么擦的，不打问号到时候又有人跟你吐槽
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

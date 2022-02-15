@@ -9352,3 +9352,27 @@ emmmm……足球也不是只有巴塞罗那
 怎么回事，今天有什么大喜事吗，在楼下放炮仗</blockquote>
 元宵节
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5487#       发表于 2022-2-15 21:40
+
+ 本帖最后由 灰色的狐狸 于 2022-2-15 22:00 编辑 
+
+？颁奖文静已经过了吗？？
+
+草怎么连皮都没有，我还听着co然后静音看那边就等什么出来
+
+回去听了一下，油得一批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丢了五块钱  
+##### 5488#       发表于 2022-2-15 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54698827&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2022-2-15 16:42</a>
+尽力了，一代文静取得</blockquote>
+盼4归
+
