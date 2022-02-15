@@ -2298,3 +2298,14 @@ chima这情人节家用3d歌会中间去调整什么东西的时候抱怨性地�
 估计动捕掉了悲鸣一声吧，看她模型都卡了</blockquote>
 情人节唱甜歌，说稍微静音一下，朝后面低吼了一声（可能是故意不静音，被迫营业憋不住了，呼应了标题里的🤢）
 
+
+
+*****
+
+####  absaki  
+##### 10703#       发表于 2022-2-15 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54696538&amp;ptid=1972669" target="_blank">烤冷面加蛋 发表于 2022-2-15 14:11</a>
+情人节唱甜歌，说稍微静音一下，朝后面低吼了一声（可能是故意不静音，被迫营业憋不住了，呼应了标题里的 ...</blockquote>
+绿帽民差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+

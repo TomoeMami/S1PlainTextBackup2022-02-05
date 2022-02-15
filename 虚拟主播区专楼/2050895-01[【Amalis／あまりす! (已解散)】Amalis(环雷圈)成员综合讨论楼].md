@@ -1201,3 +1201,30 @@ PS：油管开的是10点，推特预告的却写的是8点。
 お知らせ</blockquote>
 安达儿这个切片tag是真的离谱，啥都蹭
 
+
+
+*****
+
+####  Scardy  
+##### 119#       发表于 2022-2-15 15:04
+
+毕竟玲子中文很多，切片好切
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vneet  
+##### 120#       发表于 2022-2-15 15:10
+
+中文是有个好处，甚至不用做字幕也没问题。
+
+
+
+*****
+
+####  harry3  
+##### 121#       发表于 2022-2-15 15:13
+
+会中文的v都这么喜欢训粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
