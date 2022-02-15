@@ -1669,3 +1669,41 @@ Chinese lunar new year(Korea)
 </blockquote>
 话说如何他们真的是为了最终普及 Korea Lunar New Year，想了想，我好像完全不在意…？
 
+
+
+*****
+
+####  mamamiya  
+##### 163#       发表于 2022-2-15 19:33
+
+农历不是阴历用什么lunar，我九几年学的就是Spring Festival，这两年才听说lny
+
+*****
+
+####  灰色门牌  
+##### 164#       发表于 2022-2-15 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54701117&amp;ptid=2052612" target="_blank">leystage 发表于 2022-2-15 19:26</a>
+话说如何他们真的是为了最终普及 Korea Lunar New Year，想了想，我好像完全不在意…？ ...</blockquote>
+然后他们说吃饺子舞狮子放鞭炮等等都是韩国习俗的时候你再看看你在不在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要是你还是不在意的话…那就不在意吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 165#       发表于 2022-2-15 19:37
+
+ 本帖最后由 popchong 于 2022-2-15 19:40 编辑 
+
+很多人脑袋转不过来那就举个极端点的例子，忧郁乌龟new year，强制劳动new year，雪山🦁new year甚至潮汕客家new year也是你们可以接受的吗？😂 这些在美国可是都能细分的
+
+*****
+
+####  sangw  
+##### 166#       发表于 2022-2-15 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694444&amp;ptid=2052612" target="_blank">dclara1 发表于 2022-2-15 11:50</a>
+
+chinese day是什么新奇说法，这才是除了你以外没别人这么说的吧</blockquote>
+手误手误 手机打错了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
