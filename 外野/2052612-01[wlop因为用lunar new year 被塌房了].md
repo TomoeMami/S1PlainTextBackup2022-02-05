@@ -1009,3 +1009,128 @@ Lunar New Year Message from H.E. Wang Yi </blockquote>
 
 2022-2-15 11:23 上传
 
+
+
+*****
+
+####  语文j教师  
+##### 102#       发表于 2022-2-15 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691425&amp;ptid=2052612" target="_blank">钱君 发表于 2022-2-15 06:59</a>
+就跟着棒子跑，什么人啊</blockquote>
+棒子只是觉得chinese碍眼。你要不嫌麻烦就chinese lunar new year 就两全了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Jooohnny  
+##### 103#       发表于 2022-2-15 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693301&amp;ptid=2052612" target="_blank">leystage 发表于 2022-2-15 10:39</a>
+
+魔都不是人教版，应该是上教版和牛津英语两种？
+
+快二十年前的事情了，记不太清，而且不同学校也不一样。 ...</blockquote>
+人教和新概念里应该是完全没出过Lunar这个词的，大概是沪国专用教材吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这也是地区割裂的一种
+
+*****
+
+####  Jooohnny  
+##### 104#       发表于 2022-2-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694021&amp;ptid=2052612" target="_blank">popchong 发表于 2022-2-15 11:24</a>
+
+音译这事很简单，寇可往，吾亦可往。
+
+凭什么围棋叫go，仙鹤叫Grus japonensis。米哈游都比楼里不少汴京老哥 ...</blockquote>
+这里就不得不提安徽特产的树种黄山松了，拉丁学名Pinus **ensis Hayata，定了个日本人起的台湾松。
+
+*****
+
+####  语文j教师  
+##### 105#       发表于 2022-2-15 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693619&amp;ptid=2052612" target="_blank">伊欧玟 发表于 2022-2-15 10:57</a>
+不用担心老外不明白，人家各国语言名词直接拿来用得溜着呢，而且我感觉很多东亚共有的东西最近几年用日文 ...</blockquote>
+音译基本都是懒政。
+与其说懂不懂，倒不如说纠正过来的沉没成本太高
+就好像中文里熊猫这个词
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zawakyandoru  
+##### 106#       发表于 2022-2-15 11:32
+
+给我看魔怔了
+
+*****
+
+####  钱君  
+##### 107#       发表于 2022-2-15 11:32
+
+<blockquote>语文j教师 发表于 2022-2-15 11:24
+棒子只是觉得chinese碍眼。你要不嫌麻烦就chinese lunar new year 就两全了
+
+—— 来自 S1Fun ...</blockquote>
+chinese lunar new year今年冬奥官方不就已经在用了，算是一个信号吧。
+
+*****
+
+####  帕林马哲理  
+##### 108#       发表于 2022-2-15 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693958&amp;ptid=2052612" target="_blank">Bhagavan 发表于 2022-2-15 04:20</a>
+王毅都能被你打成内鬼了
+
+我是没想到</blockquote>
+反正我一向跟不上总路线的摇摆，但是看到跳出来的殖人屏蔽了还是做得到的。
+
+*****
+
+####  szqasd  
+##### 109#       发表于 2022-2-15 11:35
+
+一步到位，ChunJie得了，以后汉语专用词全给我拼拼音。
+
+*****
+
+####  这就是奇迹  
+##### 110#       发表于 2022-2-15 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693936&amp;ptid=2052612" target="_blank">東京地方検察庁 发表于 2022-2-15 11:19</a>
+直接音译的就叫生造听不懂的专有名词，那英语里70%的词是生造专有名词。lunar就不是纯英语，是借自 ...</blockquote>
+别说，说就给你扣「莫名其妙的民族主义」的帽子
+
+*****
+
+####  KENN  
+##### 111#       发表于 2022-2-15 11:36
+
+wlop主要还是赚国外的钱吧，他的画技虽然比不过专业的，但是作为商业插画来说挺成功的，毕竟很受鬼佬的欢迎
+
+*****
+
+####  鏡鑑星影  
+##### 112#       发表于 2022-2-15 11:40
+
+Chinese lunar new year看着像spring festival的注释<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  卓尔之影  
+##### 113#       发表于 2022-2-15 11:45
+
+支1224225那这词的演变都忘了 还有什么好纠结的
+
+*****
+
+####  奇迹的魔法少女  
+##### 114#       发表于 2022-2-15 11:46
+
+只学过spring festival和happy new year , lunar new year还是因为棒子那边吵才知道。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
