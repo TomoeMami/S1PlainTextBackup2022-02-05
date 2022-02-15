@@ -1330,3 +1330,22 @@ vcp团综多好啊，现在长杂谈这么稀有，不挑了
 
 以后my melody还唱不唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 9157#       发表于 2022-2-15 23:36
+
+虽然影响大概并不大不过还是发一下（微相关）
+
+<img src="https://img.saraba1st.com/forum/202202/15/233631ht8aj0vuapzu80y2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7C839F04-E41B-4E5D-B2C8-0B3E330B6D88.jpeg</strong> (54.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-15 23:36 上传
+
+（开播前刷脸还行
+
