@@ -623,3 +623,52 @@ https://www.seu.edu.cn/english/2015/0302/c237a116454/page.htm
 
 ----发送自 [Xiaomi Redmi Note 8 Pro,Android 10](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  llions  
+##### 68#       发表于 2022-2-15 10:06
+
+当年学的英语教材还是Spring Festvial<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [samsung SM-N9600,Android 10](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Papercup  
+##### 69#       发表于 2022-2-15 10:11
+
+没必要这么计较吧<img src="https://p.sda1.dev/5/6c69324ca1dd940ce6584c24858ffbbc/IMG_20220215_101108.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  xuzy0919  
+##### 70#       发表于 2022-2-15 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">教材学的是spring festival，说明我已经老了么
+
+*****
+
+####  scorbian  
+##### 71#       发表于 2022-2-15 10:15
+
+要不以后努努力直接改用Chunjie吧，这才是终极形态<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 72#       发表于 2022-2-15 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54692921&amp;ptid=2052612" target="_blank">scorbian 发表于 2022-2-15 10:15</a>
+
+要不以后努努力直接改用Chunjie吧，这才是终极形态</blockquote>
+这个好，支持了
+
+*****
+
+####  MaskedBlade  
+##### 73#       发表于 2022-2-15 10:19
+
+有没有和我一样用的教科书叫spring festival的
+
