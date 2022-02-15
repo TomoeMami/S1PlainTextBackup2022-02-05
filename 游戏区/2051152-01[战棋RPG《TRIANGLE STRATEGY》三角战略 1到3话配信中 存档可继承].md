@@ -2490,3 +2490,35 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 
 还是不合适，就不勉强玩了
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 223#       发表于 2022-2-15 09:56
+
+这种边边角角里藏书的系统真是要不得，随时怕漏了，又没办法回去拿吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+选最简单的模式打起来还是挺好的，就缺个自动战斗的功能了。
+
+反正感觉大头也是看剧情。
+
+*****
+
+####  LamdaHT  
+##### 224#       发表于 2022-2-15 10:01
+
+按这个组以往的作品，说不定每条路线收集的线索都能继承到下一周目，特定线索拿齐了能开启TE
+
+*****
+
+####  Bani82  
+##### 225#       发表于 2022-2-15 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54689896&amp;ptid=2051152" target="_blank">Meltina 发表于 2022-2-14 23:52</a>
+感觉节奏太慢了
+
+首先是剧情，对话这么多，小人演出又慢，就算狂按也快不了多少，比如小人冒那个省略号，看 ...</blockquote>
+杂兵的话主力输出平a三下，技能2下差不多
+主角第三个技能，王子，安娜，王女输出都不错
+

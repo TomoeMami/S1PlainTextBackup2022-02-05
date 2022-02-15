@@ -610,3 +610,16 @@ Chinese New Year
 被出警后今年改用LNY <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 （跨国公司）
 
+
+
+*****
+
+####  ulir  
+##### 67#       发表于 2022-2-15 10:01
+
+用lunar是有的，随便搜了一下看到这个，不知道能不能打开，当然现在韩国人啥的作妖所以严格用Chinese new year很正常，但非要说之前完全没有这个用法就有点尴尬，泥潭以前还有人信誓旦旦说壮话也是捏造的呢
+
+https://www.seu.edu.cn/english/2015/0302/c237a116454/page.htm
+
+----发送自 [Xiaomi Redmi Note 8 Pro,Android 10](http://stage1.5j4m.com/?1.37)
+
