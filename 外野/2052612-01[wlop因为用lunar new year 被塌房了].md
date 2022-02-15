@@ -1324,3 +1324,28 @@ http://www.china-embassy.org/ ...</blockquote>
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  名字不乱取  
+##### 131#       发表于 2022-2-15 13:12
+
+ 本帖最后由 名字不乱取 于 2022-2-15 13:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694048&amp;ptid=2052612" target="_blank">Jooohnny 发表于 2022-2-15 11:25</a>
+
+人教和新概念里应该是完全没出过Lunar这个词的，大概是沪国专用教材吧这也是地区割裂的一种 ...</blockquote>
+<img src="https://www.hteacher.net/book/yingyu/b3/images/8.jpg" referrerpolicy="no-referrer">
+
+人教版两者都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人教版高中英语 必修三 U1部分
+
+*****
+
+####  jimmy_nyc  
+##### 132#       发表于 2022-2-15 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691086&amp;ptid=2052612" target="_blank">❃✽✾✶✻✼ 发表于 2022-2-14 13:39</a>
+
+别说他了   清华博士这么用也是文盲</blockquote>
+big胆！
+
