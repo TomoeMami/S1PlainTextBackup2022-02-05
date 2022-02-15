@@ -672,3 +672,132 @@ https://www.seu.edu.cn/english/2015/0302/c237a116454/page.htm
 
 有没有和我一样用的教科书叫spring festival的
 
+
+
+*****
+
+####  yuandi0120  
+##### 74#       发表于 2022-2-15 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54692921&amp;ptid=2052612" target="_blank">scorbian 发表于 2022-2-15 10:15</a>
+要不以后努努力直接改用Chunjie吧，这才是终极形态</blockquote>
+不够终极，“春节”才是应该要达到的目标，必须要用字母已经是在别人的规矩里打转了
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  fmonion  
+##### 75#       发表于 2022-2-15 10:28
+
+努力学习，为了中文取代英文成为国际语言的伟大理想而奋斗！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kyoto  
+##### 76#       发表于 2022-2-15 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加个速，为什么要用英语啊？
+
+*****
+
+####  聪少  
+##### 77#       发表于 2022-2-15 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54692097&amp;ptid=2052612" target="_blank">a37356205 发表于 2022-2-15 09:10</a>
+Spring Festival也不好，该叫Chun Jie</blockquote>
+这个无所谓 无非是音译还是意译
+
+*****
+
+####  扎夫特议长  
+##### 78#       发表于 2022-2-15 10:29
+
+舆论阵地你不占领，偷国人就占领
+
+*****
+
+####  出轨的三头龙  
+##### 79#       发表于 2022-2-15 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巴赫：shiinnyankuailo，hunyandachi
+
+*****
+
+####  Rincewind  
+##### 80#       发表于 2022-2-15 10:33
+
+我今年跟国外网友打招呼都是Spring Festival。
+不至于跨步到Chun Jie吧
+毕竟翻译这个东西无论中外重点是让讲目标语言的人了解词义……生造听不懂的专有名词反而就远离这个目标了。
+
+—— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  奇遇2000  
+##### 81#       发表于 2022-2-15 10:34
+
+我读书少，有个问题：历法不就是为了追踪季节吗，当然跟太阳关系很大啊，有纯看月亮的历法吗……纯看月亮那还有“年”的概念吗？
+
+*****
+
+####  杜微  
+##### 82#       发表于 2022-2-15 10:34
+
+ 本帖最后由 杜微 于 2022-2-15 10:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54693112&amp;ptid=2052612" target="_blank">yuandi0120 发表于 2022-2-15 10:26</a>
+
+不够终极，“春节”才是应该要达到的目标，必须要用字母已经是在别人的规矩里打转了
+
+—— 来自 HUAWEI V ...</blockquote>
+
+可春节这个叫法本来就是民国时期为了让农历新年给公历新年让路，把元旦这个叫法拿给公历新年，才推成主流的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leystage  
+##### 83#       发表于 2022-2-15 10:39
+
+<blockquote>ftqwer1 发表于 2022-2-15 08:17
+lunar new year到底是啥版本的教科书？人教版不是spring festival么？</blockquote>
+魔都不是人教版，应该是上教版和牛津英语两种？
+
+快二十年前的事情了，记不太清，而且不同学校也不一样。包括语文当时还分 H 版 S 版什么的，不同的人身边统计学可能也不一样。
+
+我自己的印象是 Spring Festival 也常见，Lunar New Year 至少读书的时候就见过，是教材还是考卷的阅读理解不记得了，反正当年完全没有现在这种争论，大家以为就是两种都可以的说法。
+
+其实我主要还是觉得，无论韩国人还是我们，这两年开始吵这个争这个，是一件有点摸不着头脑的事情。比如，外交部的人写英文字幕也没想到这是个问题，对吧…
+
+P.S.，我中考英语满分，高考英语146，初中背完四级词汇来着，阅读量应该在当年同龄人还算高，所以英语方面的问题不算是完全张口瞎说吧
+
+*****
+
+####  wgoenitz  
+##### 84#       发表于 2022-2-15 10:41
+
+什么狗屁新年本来就已经是篡改了，中国历来都叫春节的，新年也是国外的叫法。现在还把中国去掉改lunar就更恶心人了。
+
+建议直接用拼音chun jie
+
+*****
+
+####  革萌  
+##### 85#       发表于 2022-2-15 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54690907&amp;ptid=2052612" target="_blank">ayarinwen 发表于 2022-2-15 01:47</a>
+
+我还百度了一下wlop是啥玩意</blockquote>
+难道不是我老婆的缩写？
+
+*****
+
+####  acejoe  
+##### 86#       发表于 2022-2-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691397&amp;ptid=2052612" target="_blank">frosta 发表于 2022-2-15 06:43</a>
+从小学的就是lunar new year，来美国了以后唐人街见到的也都是lunar new year
+
+谁能想到这词还能变味了[f:06 ...</blockquote>
+你小学确定不是spring Festival？
+
