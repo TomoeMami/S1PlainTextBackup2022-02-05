@@ -1081,3 +1081,15 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 刚打完第一章，这带vo的战斗bgm也未免太多了吧，还是说第二章就没有新的了？
 
+
+
+*****
+
+####  elven119  
+##### 101#         楼主| 发表于 2022-2-16 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54705013&amp;ptid=2050204" target="_blank">exalbion01 发表于 2022-2-16 00:44</a>
+
+刚打完第一章，这带vo的战斗bgm也未免太多了吧，还是说第二章就没有新的了？ ...</blockquote>
+有，还不少
+
