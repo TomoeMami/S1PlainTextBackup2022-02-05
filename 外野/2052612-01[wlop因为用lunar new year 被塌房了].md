@@ -1398,3 +1398,23 @@ Chunjie 不好念，Chinese lunar new year略长，不加人工推广，我觉�
 外交部可能太正式了，但类似一个官方意见的东西还是有作用的吧。就像小时候我还是叫叮当猫，机器猫的，现 ...</blockquote>
 机器猫毕竟有版权方，有创作者，出处明确
 
+
+
+*****
+
+####  白左  
+##### 137#       发表于 2022-2-15 15:47
+
+g点不是固定的, 多开发开发总会有的, 目标是随便戳哪里都会高潮
+
+*****
+
+####  东方饺子王  
+##### 138#       发表于 2022-2-15 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲道理外面LNY和CNY其实都用了挺久了，一直没啥大风浪，还是因为最近韩国人加到力度出警CNY才导致国内大部分人注意到这点，遂同样开始出警LNY
+
+楼上说的挺对的，韩国人在文化自信上的G点确实比咱们多多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
