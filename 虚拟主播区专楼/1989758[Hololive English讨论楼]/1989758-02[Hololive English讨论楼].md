@@ -1532,3 +1532,12 @@ oshi就是推し。
 
 Gura news：走后门要到了一张Aqua的签名卡
 
+
+
+*****
+
+####  shimmy1996  
+##### 1641#       发表于 2022-2-15 08:34
+
+Ame had a vegetarian phase<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
