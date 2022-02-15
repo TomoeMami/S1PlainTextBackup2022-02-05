@@ -1541,3 +1541,12 @@ Gura news：走后门要到了一张Aqua的签名卡
 
 Ame had a vegetarian phase<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  影山银  
+##### 1642#       发表于 2022-2-15 08:56
+
+gura和fauna的奥术魔刃<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
