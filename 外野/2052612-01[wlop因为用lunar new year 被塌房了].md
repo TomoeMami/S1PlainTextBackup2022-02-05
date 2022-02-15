@@ -1283,3 +1283,44 @@ http://www.china-embassy.org/ ...</blockquote>
 需要照顾老外会不会读吗？</blockquote>
 不需要，就提一句可能的情况。类似huawei很多地区h不发音的就念成哇为了，Xiaomi 估计很多老外也倒在xiao上面。huawei，Xiaomi 没有替代品，所以没啥问题，总不能叫人改名字。但Chunjie还有spring festival ，lunar new year ，Chinese new  year ，Chinese lunar new year 做竞争产品，所以不加人工推广，估计是竞争不过那几个意译的。估计要外交部发表声明，以后统一用这个才行。tswen什么的，是自己半吊子乱说的，算抛砖引玉，想了解下怎么拼会让一个英语国家的人看到后在瞎猜的情况下接近本来发音。英语的拼写发音和拉丁语感觉差得也蛮大的，音标这东西或者说拼音，也是一个国家一个版本，互相不兼容，国际统一的那个叫啥来着的又太复杂了。而且英语有拼写和发音又不完全统一的情况，是真的垃圾！
 
+
+
+*****
+
+####  女神アイギス  
+##### 128#       发表于 2022-2-15 12:48
+
+<blockquote>qq350295 发表于 2022-2-15 12:34
+不需要，就提一句可能的情况。类似huawei很多地区h不发音的就念成哇为了，Xiaomi 估计很多老外也倒在xiao ...</blockquote>
+外交部发个声明又能怎样？会友邦惊诧？
+
+我们小孩看个机器猫都能被人家说请叫哆啦A梦，译名这种东西还真不是那么严肃的事情
+
+*****
+
+####  phorcys02  
+##### 129#       发表于 2022-2-15 12:51
+
+ 本帖最后由 phorcys02 于 2022-2-15 12:53 编辑 
+
+我小时候学的是chinese new year +  lunar new year，现在小朋友学的是 sprint festival
+
+早年大家其实各种都用，lunar new year用的也不少
+
+但是 傻逼韩国人一搞， lunar new year 就用不得了
+
+谁用谁踩雷...
+
+*****
+
+####  飞侠小黑  
+##### 130#       发表于 2022-2-15 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691397&amp;ptid=2052612" target="_blank">frosta 发表于 2022-2-15 06:43</a>
+从小学的就是lunar new year，来美国了以后唐人街见到的也都是lunar new year
+
+谁能想到这词还能变味了[f:06 ...</blockquote>
+因为宇宙大国的存在，请大家坚持使用Chinese new year
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
