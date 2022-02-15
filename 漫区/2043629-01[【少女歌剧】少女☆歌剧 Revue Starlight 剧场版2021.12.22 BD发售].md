@@ -9150,3 +9150,14 @@ side story
 
 2022-2-14 20:13 上传
 
+
+
+*****
+
+####  MASKA-1  
+##### 681#       发表于 2022-2-15 21:15
+
+你b不会要上手游吧（图来自战吧）<img src="https://p.sda1.dev/5/f115408fe50fb4dfe897ca82bd30a31f/4DE0FF12C4FB229457623180B9D95ED0.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

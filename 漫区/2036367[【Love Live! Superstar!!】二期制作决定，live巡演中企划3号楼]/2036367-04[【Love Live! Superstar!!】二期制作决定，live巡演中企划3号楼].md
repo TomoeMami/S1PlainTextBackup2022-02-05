@@ -12823,3 +12823,32 @@ ok，发了私信了
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 5543#       发表于 2022-2-15 21:17
+
+有些人真是难伺候，没开之前人云亦云一天卖不了几张，开了以后又说加中华炮才低空飞过实际卖的不怎么好，反正怎样都不对
+
+*****
+
+####  nufawneafg  
+##### 5544#       发表于 2022-2-15 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54702384&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-15 21:17</a>
+有些人真是难伺候，没开之前人云亦云一天卖不了几张，开了以后又说加中华炮才低空飞过实际卖的不怎么好，反 ...</blockquote>
+略略略，樱花妹还享受不到中华炮呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+就是卖的不错怎么着，有本事给o榜去信给每张cd加定位芯片，出了日本自动减销量，这不是你们追求的“本质”嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+真把日本乐坛当神坛了还
+
+*****
+
+####  iuhehc  
+##### 5545#       发表于 2022-2-15 21:25
+
+水色星期天好甜啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
