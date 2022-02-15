@@ -13033,3 +13033,16 @@ ok，发了私信了
 都是不踢不动的主，这么活跃甚至还有点不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 说不定是临时工呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5559#       发表于 2022-2-16 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54704664&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-16 00:09</a>
+说起来，今天哔哩哔哩番剧这个号发了星2nd的宣传图，底下万代官号还留言说太好看了。这个号只会发动画资源 ...</blockquote>
+个人感觉转播星live可能性不太好说。
+如果LL官方已经默认国内用之前线上eplus之类的平台可以观看live，那么B站如果转播且票价一样的话，个人感觉LL官方未必能赚原来线上平台那么多。如果价格调低的话，国内购买力，LL官方能赚多少也不好说。
+总之我觉得假如B站转播线上live对LL官方来说吃力不讨好，那么可能性就不高了。
+
