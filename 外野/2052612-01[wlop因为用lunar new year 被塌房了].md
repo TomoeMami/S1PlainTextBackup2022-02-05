@@ -1387,3 +1387,14 @@ Chunjie 不好念，Chinese lunar new year略长，不加人工推广，我觉�
 这是一种巧合吗？</blockquote>
 这些人平时还特别爱劝别人要有文化自信，怎么会事呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Q版胖子  
+##### 136#       发表于 2022-2-15 15:41
+
+<blockquote>qq350295 发表于 2022-2-15 13:30
+外交部可能太正式了，但类似一个官方意见的东西还是有作用的吧。就像小时候我还是叫叮当猫，机器猫的，现 ...</blockquote>
+机器猫毕竟有版权方，有创作者，出处明确
+
