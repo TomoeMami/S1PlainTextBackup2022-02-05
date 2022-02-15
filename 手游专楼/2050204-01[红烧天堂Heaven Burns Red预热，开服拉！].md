@@ -1001,3 +1001,12 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 没人夸夸这次活动的剧情吗，前面救人那里还觉得有点生硬，结果到读信那段直接没蚌住 ...</blockquote>
 这活动不是麻子写的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  角龙大剑  
+##### 93#       发表于 2022-2-15 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这活动有点坑啊，记忆迷宫40层才能打S难度，S难度那个票的掉率也很低，经验听说也不行
+
