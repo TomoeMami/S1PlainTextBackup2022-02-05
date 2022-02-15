@@ -1499,3 +1499,15 @@ Chinese lunar new year(Korea)
 
 —— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ❃✽✾✶✻✼  
+##### 146#       发表于 2022-2-15 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54698109&amp;ptid=2052612" target="_blank">东方饺子王 发表于 2022-2-15 15:58</a>
+
+讲道理外面LNY和CNY其实都用了挺久了，一直没啥大风浪，还是因为最近韩国人加到力度出警CNY才导致国 ...</blockquote>
+像韩国人一点就丢人一点
+
