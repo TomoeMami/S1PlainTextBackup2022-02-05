@@ -15505,3 +15505,28 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 狂娜双狐秒了（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没狂娜滚了
 
+
+
+*****
+
+####  الطائر  
+##### 86999#       发表于 2022-2-15 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700507&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-15 18:32</a>
+
+有没有平民点的90+本阵容啊</blockquote>
+哈贝喵双C呆
+
+*****
+
+####  alucardcz  
+##### 87000#       发表于 2022-2-15 19:08
+
+ 本帖最后由 alucardcz 于 2022-2-15 19:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700853&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-15 19:05</a>
+
+我没狂娜滚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐一样秒吧？ 只不过少张红第1回合翻车概率高亿点点
+
+但是现在不都是在练新换人衣服   后备放个奥师傅第1回合没红卡直接3炮算了
+

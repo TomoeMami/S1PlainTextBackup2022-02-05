@@ -1622,3 +1622,50 @@ Chinese lunar new year(Korea)
 抢过来啊，棒子说开除就开除啊。哪有主动让话语权的玩法？</blockquote>
 这事的大前提是美国从奥巴马时期开始拉偏架，他以前的总统要么是不庆祝，要么是说happy chinese new year，他那届因为顾忌安南猴和棒子开始改成lunar，从那时候起lny这个词就存在去中国化的政治倾向了，只不过国内当时对zzzq等概念还不敏感，国际形势也没这么剑拔弩张，到了今年放假之前围绕lny基本就是对骂状态，冬奥会开幕醒目打出cny就已经定调了，棒子猴子你好，不要忘了我是你爹。至于这个画师，吃一堑长一智就好了，恰饭就要嗅觉灵敏
 
+
+
+*****
+
+####  楪蘭楓  
+##### 158#       发表于 2022-2-15 19:04
+
+小时候就是spring festival，再听说过Chinese new year，lny也就今年比较瞩目，原来完全没注意<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G9910, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Pinchbeck  
+##### 159#       发表于 2022-2-15 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700522&amp;ptid=2052612" target="_blank">d-scher 发表于 2022-2-15 18:33</a>
+有病吧，这事我站wlop ，从小学的就是lunar，就因为被棒子文化挪用了就要妥协另改说法？这不是典型的劣币驱 ...</blockquote>
+很好理解，像悲伤蛙不也是因为被挪用作仇恨符号，导致在很多地方禁用吗
+
+*****
+
+####  eidos  
+##### 160#       发表于 2022-2-15 19:08
+
+<blockquote>popchong 发表于 2022-2-15 19:01
+这事的大前提是美国从奥巴马时期开始拉偏架，他以前的总统要么是不庆祝，要么是说happy chinese new year ...</blockquote>
+老布什，克林顿，小布什都用的lunar new year
+
+*****
+
+####  phyc  
+##### 161#       发表于 2022-2-15 19:19
+
+怎么说指的都是中国新年，我要我认为，不是你认为。韩国认为，韩国是什么？
+
+*****
+
+####  leystage  
+##### 162#       发表于 2022-2-15 19:26
+
+<blockquote>最近卡池有毒吧 发表于 2022-2-15 18:42
+就是想去中国，把Chinese去了，换成lunar，再宣传几年，努力达成korean lunar new year。
+
+</blockquote>
+话说如何他们真的是为了最终普及 Korea Lunar New Year，想了想，我好像完全不在意…？
+
