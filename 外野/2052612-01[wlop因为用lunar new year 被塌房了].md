@@ -1189,3 +1189,43 @@ http://www.china-embassy.org/eng/dshd/202202/t20220212_10641857.htm
 http://www.china-embassy.org/ ...</blockquote>
 你这只能说明都会用 不能说明不文盲
 
+
+
+*****
+
+####  dllplayer  
+##### 120#       发表于 2022-2-15 12:11
+
+<blockquote>引用第44楼憧憬鲨于2022-02-15 08:32发表的  :
+
+人教版应该就有Lunar new year</blockquote>
+@憧憬鲨
+
+李雷韩梅梅还是少年的版本肯定没有
+说有的报个年代和版本呗
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  火箭布雷器  
+##### 121#       发表于 2022-2-15 12:11
+
+突然发现这楼里支持LNY的也特别支持雄狮。
+
+这是一种巧合吗？
+
+*****
+
+####  dclara1  
+##### 122#       发表于 2022-2-15 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694710&amp;ptid=2052612" target="_blank">火箭布雷器 发表于 2022-2-15 12:11</a>
+
+突然发现这楼里支持LNY的也特别支持雄狮。
+
+这是一种巧合吗？</blockquote>
+没印象外交部有给雄狮背书啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
