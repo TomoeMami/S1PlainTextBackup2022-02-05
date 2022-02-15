@@ -1730,3 +1730,20 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  憧憬鲨  
+##### 169#       发表于 2022-2-15 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694708&amp;ptid=2052612" target="_blank">dllplayer 发表于 2022-2-15 12:11</a>
+
+@憧憬鲨
+
+李雷韩梅梅还是少年的版本肯定没有
+
+说有的报个年代和版本呗</blockquote>
+研究了一下，人教版高一必修三第二页的Spring Festivals那一段里面用了这个说法，“and families celebrate the Lunar New Year together”
+[https://ha.huatu.com/zt/dzkb/yingyu/b3/page8.html](https://ha.huatu.com/zt/dzkb/yingyu/b3/page8.html) 手上没这版课本，我是在这个网址上查到的
+

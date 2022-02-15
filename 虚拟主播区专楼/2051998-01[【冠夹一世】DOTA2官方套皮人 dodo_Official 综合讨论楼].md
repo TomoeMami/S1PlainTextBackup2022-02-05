@@ -2348,3 +2348,12 @@ dodo已经知道自己打几盘会累了，所以打几盘休息挺好的。
 
 话说CSGO国服那个项目组都挺巨魔的，B站官号全都是精神病才做的出的视频
 
+
+
+*****
+
+####  mkii量产型  
+##### 280#       发表于 2022-2-15 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得妮妮大概率是上海精灵，可能还是本地人
+
