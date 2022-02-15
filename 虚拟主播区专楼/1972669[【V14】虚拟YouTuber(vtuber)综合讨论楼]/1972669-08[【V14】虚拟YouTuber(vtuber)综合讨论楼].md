@@ -2287,3 +2287,14 @@ chima这情人节家用3d歌会中间去调整什么东西的时候抱怨性地�
 霸权社动画 不过只是老爱会出场 讲管人学校的</blockquote>
 有链接或者名字嘛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烤冷面加蛋  
+##### 10702#       发表于 2022-2-15 14:11
+
+<blockquote>absaki 发表于 2022-2-15 07:54
+估计动捕掉了悲鸣一声吧，看她模型都卡了</blockquote>
+情人节唱甜歌，说稍微静音一下，朝后面低吼了一声（可能是故意不静音，被迫营业憋不住了，呼应了标题里的🤢）
+
