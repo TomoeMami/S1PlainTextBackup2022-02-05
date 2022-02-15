@@ -1555,3 +1555,43 @@ Chinese lunar new year(Korea)
 
 一律用汉字春节就好了，又不是不会汉字，搞不懂为什么要写英文
 
+
+
+*****
+
+####  d-scher  
+##### 152#       发表于 2022-2-15 18:33
+
+有病吧，这事我站wlop ，从小学的就是lunar，就因为被棒子文化挪用了就要妥协另改说法？这不是典型的劣币驱逐良币？
+
+*****
+
+####  最近卡池有毒吧  
+##### 153#       发表于 2022-2-15 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我这种冲浪得比较少的，都知道今年对lunar和Chinese new year争论很大，这微博画家真的不知道?
+
+—— 来自 HUAWEI TRT-AL00A, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  脚本水平  
+##### 154#       发表于 2022-2-15 18:38
+
+棒子说lny是自己的你们就也这么认为
+还出警用lny的中国人
+
+你们是棒子吗？
+
+*****
+
+####  最近卡池有毒吧  
+##### 155#       发表于 2022-2-15 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700522&amp;ptid=2052612" target="_blank">d-scher 发表于 2022-2-15 18:33</a>
+有病吧，这事我站wlop ，从小学的就是lunar，就因为被棒子文化挪用了就要妥协另改说法？这不是典型的劣币驱 ...</blockquote>
+就是想去中国，把Chinese去了，换成lunar，再宣传几年，努力达成korean lunar new year。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/1419e716e417f2cc1733cc8701f74d9b/IMG_CMP_127752428.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TRT-AL00A, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

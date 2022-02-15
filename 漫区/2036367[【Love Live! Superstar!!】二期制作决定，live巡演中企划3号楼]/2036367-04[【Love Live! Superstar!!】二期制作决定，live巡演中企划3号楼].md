@@ -12688,3 +12688,42 @@ ok，发了私信了
 
 可恋股大涨
 
+
+
+*****
+
+####  金持池面  
+##### 5532#       发表于 2022-2-15 18:33
+
+可恋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 5533#       发表于 2022-2-15 18:33
+
+彩蛋
+
+138EABF2-543F-4186-B1EB-B6FD2290B59F.jpeg
+(215.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-15 18:33 上传
+
+<img src="https://img.saraba1st.com/forum/202202/15/183351ajpzzdq4ggsqg66b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 5534#       发表于 2022-2-15 18:37
+
+《水色のSunday》有一句中文歌词，“希望就在眼前~”
+
+*****
+
+####  stygian  
+##### 5535#       发表于 2022-2-15 18:40
+
+水色星期天果然是宫野弦士写的，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

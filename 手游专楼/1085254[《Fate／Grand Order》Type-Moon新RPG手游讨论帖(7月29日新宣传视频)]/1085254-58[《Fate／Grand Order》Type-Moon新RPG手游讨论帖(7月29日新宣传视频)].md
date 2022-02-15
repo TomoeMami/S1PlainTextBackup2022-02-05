@@ -15452,3 +15452,20 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  exiaexa  
+##### 86993#       发表于 2022-2-15 18:30
+
+这90+开场一个C阶大怪是在强推赫菲吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86994#       发表于 2022-2-15 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有没有平民点的90+本阵容啊
+
