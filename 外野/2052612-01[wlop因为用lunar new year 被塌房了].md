@@ -1439,3 +1439,43 @@ g点不是固定的, 多开发开发总会有的, 目标是随便戳哪里都会
 别说他了   清华博士这么用也是文盲</blockquote>
 清华的博士不会连这个都用错吧？怎么考上的？
 
+
+
+*****
+
+####  战星辰  
+##### 141#       发表于 2022-2-15 16:29
+
+不是，如果韩国人说lunar new year是他们的话，那中国人过春节就非要说我过lny，lny就是中国的，是不是会让韩国人比换成chunjie或者chinese lny，chinese ny之类的更气的跳脚啊？
+
+建议想南征北战的坛友不如直接写：
+lunar new year（Originated in China）
+
+—— 来自 Xiaomi MIX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  名字不乱取  
+##### 142#       发表于 2022-2-15 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54698604&amp;ptid=2052612" target="_blank">战星辰 发表于 2022-2-15 16:29</a>
+
+不是，如果韩国人说lunar new year是他们的话，那中国人过春节就非要说我过lny，lny就是中国的，是不是会让 ...</blockquote>
+Chinese lunar new year
+
+Chinese lunar new year(Vietnam)
+
+Chinese lunar new year(Korea)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Licheus  
+##### 143#       发表于 2022-2-15 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54698604&amp;ptid=2052612" target="_blank">战星辰 发表于 2022-2-15 16:29</a>
+不是，如果韩国人说lunar new year是他们的话，那中国人过春节就非要说我过lny，lny就是中国的，是不是会让 ...</blockquote>
+韩国人说lny是韩国的=＞开始出警所有用lny的中国人，因为“lny是韩国的”
+
+韩国人跳出来拉了泡屎说这是我的就拱手让人吗，什么鬼逻辑。
+
