@@ -2376,3 +2376,28 @@ https://link.bilibili.com/p/eden/news#/newsdetail?id=2582</blockquote>
 https://link.bilibili.com/p/eden/news#/newsdetail?id=2582</blockquote>
 等一个运营卖黑产B站管人中之人颜出合集
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 10710#       发表于 2022-2-16 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54703501&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-2-15 22:35</a>
+
+↑搜索 Saruei gets banned from China 即可了解更多相关资讯</blockquote>
+还以为是个进驻阿B的管人呢，没进驻的就别提了，又管不到
+
+
+
+*****
+
+####  FCCHua  
+##### 10711#       发表于 2022-2-16 02:00
+
+ 本帖最后由 FCCHua 于 2022-2-16 02:11 编辑 
+
+补录播，hnn这下播前突然的偏头痛有点吓人，果然生病没完全康复不适合长时间直播，还是需要她指挥的apex训练赛...
+虽然下播没多久就跑去妹妹的直播窗里和她们排位了一把<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+syl 下周应该是还有一个r6s比赛要参加，目前官方还没公布，期待下人员名单
+
