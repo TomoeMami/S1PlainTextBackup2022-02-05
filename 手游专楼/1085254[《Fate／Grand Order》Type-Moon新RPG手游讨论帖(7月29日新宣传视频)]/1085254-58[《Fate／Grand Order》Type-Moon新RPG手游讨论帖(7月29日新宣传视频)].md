@@ -15469,3 +15469,39 @@ prototype就是拿旧fate重新创作的一个玩票的企划，引入了很多�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有没有平民点的90+本阵容啊
 
+
+
+*****
+
+####  sosgame67  
+##### 86995#       发表于 2022-2-15 19:02
+
+一面用新换人服+龙马基本都能搞定吧，后面两面完全没难度哎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 86996#       发表于 2022-2-15 19:02
+
+我两宝faker5绊怎么才85硬币<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86997#       发表于 2022-2-15 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700507&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-15 18:32</a>
+
+有没有平民点的90+本阵容啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜双狐秒了（
+
+*****
+
+####  qixinno2  
+##### 86998#       发表于 2022-2-15 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700838&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-15 19:04</a>
+
+狂娜双狐秒了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没狂娜滚了
+

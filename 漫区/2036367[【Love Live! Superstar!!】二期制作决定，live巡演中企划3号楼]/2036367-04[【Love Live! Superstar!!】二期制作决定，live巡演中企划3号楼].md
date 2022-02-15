@@ -12727,3 +12727,24 @@ ok，发了私信了
 
 水色星期天果然是宫野弦士写的，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  竹筷  
+##### 5536#       发表于 2022-2-15 18:43
+
+每个人的solo曲的作曲都有专属御用了？我记得配置跟上次BD特典的solo曲一样来着
+
+*****
+
+####  stygian  
+##### 5537#       发表于 2022-2-15 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54700638&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-2-15 18:43</a>
+
+每个人的solo曲的作曲都有专属御用了？我记得配置跟上次BD特典的solo曲一样来着 ...</blockquote>
+不是，只有唐可可solo继续用的宫野弦士
+
+宫野的作品我特别喜欢，能继续太高兴了，希望之后鱼的solo也能找他供曲
+

@@ -821,3 +821,17 @@ NBGI移植一下多卖一次不好吗
 
 —— 来自 OPPO PFUM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  法拉  
+##### 87#       发表于 2022-2-15 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674008&amp;ptid=2051733" target="_blank">bgmilk 发表于 2022-2-14 00:05</a>
+
+草，高破那种连变形都做不到的好意思叫自己是TR系列么！！！</blockquote>
+那除了g世纪创世你没有更好的选择了
+
+有tr系登场的动作游戏基本都不咋能变形
+
