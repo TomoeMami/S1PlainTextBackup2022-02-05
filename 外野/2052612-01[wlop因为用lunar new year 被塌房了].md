@@ -1349,3 +1349,41 @@ http://www.china-embassy.org/ ...</blockquote>
 别说他了   清华博士这么用也是文盲</blockquote>
 big胆！
 
+
+
+*****
+
+####  qq350295  
+##### 133#       发表于 2022-2-15 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54695228&amp;ptid=2052612" target="_blank">女神アイギス 发表于 2022-2-15 12:48</a>
+
+外交部发个声明又能怎样？会友邦惊诧？
+
+我们小孩看个机器猫都能被人家说请叫哆啦A梦，译名这种东西还真不 ...</blockquote>
+外交部可能太正式了，但类似一个官方意见的东西还是有作用的吧。就像小时候我还是叫叮当猫，机器猫的，现在都统一叫哆啦A梦了，这里有官方意见的作用。就我个人而言，三个字的叮当猫，小叮当，机器猫，都比四个字的哆啦A梦方便。没人来统一的话，我可能就不会选择哆啦A梦了。
+
+像最后的生还者这个译名，虽然正确，但不好压缩呀，不如错误的美国末日简短，而且美末念出来也不会和别的词产生歧义。而最后的生还者如果压缩成最生，就感觉想到醉生（梦死），就挺别扭的。
+
+Chunjie 不好念，Chinese lunar new year略长，不加人工推广，我觉得战斗力不如Chinese new year 和lunar new year 
+
+*****
+
+####  这就是奇迹  
+##### 134#       发表于 2022-2-15 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54691416&amp;ptid=2052612" target="_blank">钱君 发表于 2022-2-15 06:55</a>
+把lunar开除出中籍到底是哪边的天才想出来的解决办法。</blockquote>
+理客中差不多得了，你要说lunar nrw year毫无价值色彩你用我用大家用那你这套歪理还能成立，问题是现在棒子就是在挥舞这个词一拳往你Chinese面门上打，还搁这劝人大度呢？
+
+*****
+
+####  这就是奇迹  
+##### 135#       发表于 2022-2-15 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694710&amp;ptid=2052612" target="_blank">火箭布雷器 发表于 2022-2-15 12:11</a>
+突然发现这楼里支持LNY的也特别支持雄狮。
+
+这是一种巧合吗？</blockquote>
+这些人平时还特别爱劝别人要有文化自信，怎么会事呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
