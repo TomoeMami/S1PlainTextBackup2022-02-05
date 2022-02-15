@@ -2353,3 +2353,12 @@ https://link.bilibili.com/p/eden/news#/newsdetail?id=2582</blockquote>
 
 最近在b站比较火的那个法国v，saruei，也陷入了rh风波。
 
+
+
+*****
+
+####  NBXX  
+##### 10708#       发表于 2022-2-15 22:35
+
+↑搜索 Saruei gets banned from China 即可了解更多相关资讯
+

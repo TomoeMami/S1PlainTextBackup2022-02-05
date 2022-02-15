@@ -1826,3 +1826,22 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  leica  
+##### 177#       发表于 2022-2-15 22:31
+
+我更习惯springfestival。。。。。。。。。。。。。从小学到大的教材上是这么写的。。。。。。。。。。。。。。
+
+*****
+
+####  圣白菜  
+##### 178#       发表于 2022-2-15 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54703057&amp;ptid=2052612" target="_blank">尤里安 发表于 2022-2-15 22:07</a>
+中国春节一直传统译法不就是lunar new year?
+哪个傻逼把这个词送给棒子了？</blockquote>
+支 那以前还没有贬义呢，为什么大家现在不喜欢呢，带有政治要素变味了呗，Lunar New Year也一样
+
