@@ -1229,3 +1229,57 @@ http://www.china-embassy.org/ ...</blockquote>
 这是一种巧合吗？</blockquote>
 没印象外交部有给雄狮背书啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dllplayer  
+##### 123#       发表于 2022-2-15 12:25
+
+终极形式不是春节么
+根本不用拉丁字母系列
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  革萌  
+##### 124#       发表于 2022-2-15 12:28
+
+中国政府制定的历法不能叫chinese也是离了大谱
+
+*****
+
+####  ftqwer1  
+##### 125#       发表于 2022-2-15 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694456&amp;ptid=2052612" target="_blank">魔铁潜水艇 发表于 2022-2-15 11:51</a>
+都不知道这个人是谁…………
+
+怎么说呢，虽然画师这个群体里面有一搓人确实很离谱，但还是疑罪从无。
+
+人就画 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">再加上欧美那媒体拉的偏架，怕不是再过个20年中国人过春节要被韩国人说你文化挪用了。
+
+*****
+
+####  怂啊  
+##### 126#         楼主| 发表于 2022-2-15 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54694456&amp;ptid=2052612" target="_blank">魔铁潜水艇 发表于 2022-2-15 11:51</a>
+都不知道这个人是谁…………
+
+怎么说呢，虽然画师这个群体里面有一搓人确实很离谱，但还是疑罪从无。
+
+人就画 ...</blockquote>
+就这意思，我天天冲浪也不知道有这个争议，wlop这个还是被抖音推送才知道
+
+*****
+
+####  qq350295  
+##### 127#       发表于 2022-2-15 12:34
+
+<blockquote>这就是奇迹 发表于 2022-2-15 11:48
+需要照顾老外会不会读吗？</blockquote>
+不需要，就提一句可能的情况。类似huawei很多地区h不发音的就念成哇为了，Xiaomi 估计很多老外也倒在xiao上面。huawei，Xiaomi 没有替代品，所以没啥问题，总不能叫人改名字。但Chunjie还有spring festival ，lunar new year ，Chinese new  year ，Chinese lunar new year 做竞争产品，所以不加人工推广，估计是竞争不过那几个意译的。估计要外交部发表声明，以后统一用这个才行。tswen什么的，是自己半吊子乱说的，算抛砖引玉，想了解下怎么拼会让一个英语国家的人看到后在瞎猜的情况下接近本来发音。英语的拼写发音和拉丁语感觉差得也蛮大的，音标这东西或者说拼音，也是一个国家一个版本，互相不兼容，国际统一的那个叫啥来着的又太复杂了。而且英语有拼写和发音又不完全统一的情况，是真的垃圾！
+
