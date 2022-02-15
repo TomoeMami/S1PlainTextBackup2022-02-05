@@ -13011,3 +13011,25 @@ ok，发了私信了
 
 感觉鲤鱼都快忘记可可的声线了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5557#       发表于 2022-2-16 00:09
+
+说起来，今天哔哩哔哩番剧这个号发了星2nd的宣传图，底下万代官号还留言说太好看了。这个号只会发动画资源，动画制作决定，二期决定的这种新闻。我简单检索了一下，虹水的live好像没发过，其他企划我就不清楚了，不知道为啥突然发这个。星live线上可能性微存？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nufawneafg  
+##### 5558#       发表于 2022-2-16 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54704664&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-16 00:09</a>
+说起来，今天哔哩哔哩番剧这个号发了星2nd的宣传图，底下万代官号还留言说太好看了。这个号只会发动画资源 ...</blockquote>
+不好说，希望吧
+都是不踢不动的主，这么活跃甚至还有点不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说不定是临时工呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

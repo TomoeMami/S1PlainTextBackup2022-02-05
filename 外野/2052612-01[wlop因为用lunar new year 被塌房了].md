@@ -1845,3 +1845,14 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 哪个傻逼把这个词送给棒子了？</blockquote>
 支 那以前还没有贬义呢，为什么大家现在不喜欢呢，带有政治要素变味了呗，Lunar New Year也一样
 
+
+
+*****
+
+####  约瑟夫海顿  
+##### 179#       发表于 2022-2-16 00:18
+
+这出警出得莫名其妙，让我想起出警端午快乐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
