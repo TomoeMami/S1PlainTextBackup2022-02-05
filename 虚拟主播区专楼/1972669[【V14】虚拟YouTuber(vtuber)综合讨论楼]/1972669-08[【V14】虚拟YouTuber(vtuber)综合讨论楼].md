@@ -2332,3 +2332,24 @@ chima这情人节家用3d歌会中间去调整什么东西的时候抱怨性地�
 
 这不好，很不虚拟
 
+
+
+*****
+
+####  Vneet  
+##### 10706#       发表于 2022-2-15 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54702212&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-2-15 21:02</a>
+
+开播前人脸认证功能上线公告
+
+https://link.bilibili.com/p/eden/news#/newsdetail?id=2582</blockquote>
+岂不是不能代播了=。=还有那些境外的代办号怎么办
+
+*****
+
+####  asdhai  
+##### 10707#       发表于 2022-2-15 22:21
+
+最近在b站比较火的那个法国v，saruei，也陷入了rh风波。
+

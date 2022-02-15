@@ -1063,3 +1063,12 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  叶雾  
+##### 99#       发表于 2022-2-15 22:26
+
+用手机版uu，下载倒是挺快，进去之后无限loading
+

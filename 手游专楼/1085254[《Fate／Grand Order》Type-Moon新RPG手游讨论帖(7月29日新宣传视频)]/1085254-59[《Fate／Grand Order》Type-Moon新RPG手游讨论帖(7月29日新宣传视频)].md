@@ -159,3 +159,46 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 最后，爱歌到底是不是樱井的锅还要打个问号，菌哥哥当年的屁股鬼知道怎么擦的，不打问号到时候又有人跟你吐槽
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈露尼娅  
+##### 87015#       发表于 2022-2-15 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54703003&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-2-15 22:02</a>
+
+首先，这只是个海豹楼
+
+其次，你最好确定一下他们是讨厌爱歌还是单纯的讨厌樱井，现在的讨论环境里，只要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">大部分人车爱歌的时候基本都是直接车本人，樱井都是顺带一提。
+
+我不太理解樱井ptsd是怎么来的，从骗子社的那几个游戏到fgo本体，我对樱井的剧本大部分都是挺满意的。
+
+对苍银的角色评价，我一向认为旧剑是个拔吊无情的渣男，但凡这家伙做点人事别学早期真嗣逃避都不搞成这个结果<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+但既然出版了，那肯定就是菌哥哥首肯了，我不知道菌哥哥当年代入哪个角色<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 87016#       发表于 2022-2-15 22:19
+
+ 本帖最后由 exiaexa 于 2022-2-15 22:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54703117&amp;ptid=1085254" target="_blank">哈露尼娅 发表于 2022-2-15 22:10</a>
+
+大部分人车爱歌的时候基本都是直接车本人，樱井都是顺带一提。
+
+我不太理解樱井ptsd是怎么来的， ...</blockquote>
+你只要知道FGO长得好看的男人都是有女粉的就行了，所以扯上爱歌和旧剑都会变得贼他妈精彩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然这么说，但爱歌不管从任何角度来说都是FP的首锅，这根旧剑干了啥一点关系都没有
+
+因为苍银是一个看起来贼他妈长，实际上跟本篇一样时间线短得让你震惊的故事
+
+读者看起来的旧剑：看不紧爱歌，天天到处摸鱼，天天当忧郁王子，早砍了爱歌屁事儿没有
+
+实际上的旧剑：刚落地没多久就去干了一架，根本搞不懂爱歌在干啥，脑子里大概是啥玩意儿啊，咋回事儿啊，爱歌人呢，怎么就666了啊，你咋连你妹都丢进去了啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
