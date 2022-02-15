@@ -980,3 +980,12 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  勇者倒下了  
+##### 91#       发表于 2022-2-15 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人夸夸这次活动的剧情吗，前面救人那里还觉得有点生硬，结果到读信那段直接没蚌住
+
