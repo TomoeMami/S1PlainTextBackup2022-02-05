@@ -1865,3 +1865,15 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 就我一个人小时候学的是过Spring Festival吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acejoe  
+##### 181#       发表于 2022-2-16 01:43
+
+这就是之前眯眯眼之争，有些人觉得只要国人都搞眯眯眼妆，眯眯眼就不是歧视性妆了。
+只要国人也都说LNY，新年就不是韩国人的了。
+
+我只能说，呵呵。
+
