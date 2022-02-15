@@ -599,3 +599,14 @@ Chinese New Year
 
 以前学的都是spring festival，就没这么多事
 
+
+
+*****
+
+####  yomiyomi  
+##### 66#       发表于 2022-2-15 09:44
+
+去年以前全公司都用CNY 
+被出警后今年改用LNY <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+（跨国公司）
+
