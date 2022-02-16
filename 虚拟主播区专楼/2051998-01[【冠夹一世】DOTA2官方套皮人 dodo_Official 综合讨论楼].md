@@ -2735,3 +2735,38 @@ do鳖不是天赋型啊，不会举一反三，而且之前see天梯完全对局
 
 dodo又开混了
 
+
+
+*****
+
+####  端木恋心  
+##### 326#       发表于 2022-2-16 21:36
+
+被抓住了
+
+*****
+
+####  反方向的波  
+##### 327#       发表于 2022-2-16 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">在看冬奥会，dodo今天有赢过吗
+
+*****
+
+####  端木恋心  
+##### 328#       发表于 2022-2-16 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54717524&amp;ptid=2051998" target="_blank">反方向的波 发表于 2022-2-16 21:40</a>
+
+在看冬奥会，dodo今天有赢过吗</blockquote>
+上一局老奶奶赢了
+
+*****
+
+####  反方向的波  
+##### 329#       发表于 2022-2-16 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54717537&amp;ptid=2051998" target="_blank">端木恋心 发表于 2022-2-16 21:41</a>
+上一局老奶奶赢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这也能赢，可喜可贺
+

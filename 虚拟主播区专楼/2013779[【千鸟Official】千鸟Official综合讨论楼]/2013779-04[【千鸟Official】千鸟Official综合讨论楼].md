@@ -9528,3 +9528,45 @@ syl b虚拟区节目不一直出事故的吗 ylg太多了吧 还是说京晚🤡
 
 文静在官号直播同接寄了
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 5504#       发表于 2022-2-16 21:23
+
+典中典红sc告别<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 5505#       发表于 2022-2-16 21:24
+
+官号收不到米是咋回事？谁播的归谁呗，小学数学的事情都处理不好？
+
+*****
+
+####  夜之中道崩殂  
+##### 5506#       发表于 2022-2-16 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54717273&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-16 21:24</a>
+官号收不到米是咋回事？谁播的归谁呗，小学数学的事情都处理不好？</blockquote>
+这事还沾点罗生门，文静说收不到，运营说平分，现在也没人整明白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 5507#       发表于 2022-2-16 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54717373&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2022-2-16 21:31</a>
+
+这事还沾点罗生门，文静说收不到，运营说平分，现在也没人整明白</blockquote>
+那就是玩鸡了，运营把钱画在一边，说这半归主播，结果最后不给，就放那
+
+*****
+
+####  灰色的狐狸  
+##### 5508#       发表于 2022-2-16 21:37
+
+所以说，千鸟的运营<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
