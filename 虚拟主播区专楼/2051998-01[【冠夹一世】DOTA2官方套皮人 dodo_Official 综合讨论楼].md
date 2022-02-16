@@ -2481,3 +2481,12 @@ dodo好起来了啊，b站已经开始有优质二创了 https://b23.tv/kVwOsh5
 
 dodo怎么还不直播<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  妖刀恶食  
+##### 295#       发表于 2022-2-16 11:33
+
+永恒娘口音加一些口癖确实有点像上海的，魔都算国内acg前沿了，从小接触各种游戏机掌机也不奇怪，有可能老爹就是个老ass
+
