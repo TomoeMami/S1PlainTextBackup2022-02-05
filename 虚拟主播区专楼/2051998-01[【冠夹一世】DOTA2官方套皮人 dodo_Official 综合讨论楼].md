@@ -2499,3 +2499,12 @@ dodo怎么还不直播<img src="https://static.saraba1st.com/image/smiley/face20
 
 妮妮发音有吴语特征，接触主机早推测在沿海城市，不知小霸王可以排除珠三角，又没有什么讨好型人格，这个本人形象不就呼之欲出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 297#       发表于 2022-2-16 14:44
+
+好呀好呀，一天不看管人楼，管人痴们的发言已经看不懂了呀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
