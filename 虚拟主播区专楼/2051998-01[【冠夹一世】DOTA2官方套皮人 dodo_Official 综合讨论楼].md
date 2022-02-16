@@ -2770,3 +2770,31 @@ dodo又开混了
 上一局老奶奶赢了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这也能赢，可喜可贺
 
+
+
+*****
+
+####  mkii量产型  
+##### 330#       发表于 2022-2-16 21:47
+
+今天是完美官方戒赌宣传片吗，两个小时了没看见金，谢谢你csgo国服
+
+
+
+*****
+
+####  端木恋心  
+##### 331#       发表于 2022-2-16 21:47
+
+完美只玩真实。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 332#       发表于 2022-2-16 21:48
+
+ 本帖最后由 反方向的波 于 2022-2-16 21:50 编辑 
+
+夹夹这种不打钱的天怒还出了两个挂件那这阿托斯要鳖到猴年马月<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+然后又更了一个鞋
+

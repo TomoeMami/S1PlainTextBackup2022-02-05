@@ -2467,3 +2467,21 @@ inui会限除了es开包就是晚酌畅谈es，属实听不懂<img src="https://
 inui会限除了es开包就是晚酌畅谈es，属实听不懂</blockquote>
 其实当初开她会员是因为她以前会传歌，现在不传了……
 
+
+
+*****
+
+####  poipanchao  
+##### 10718#       发表于 2022-2-16 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54705501&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-2-16 02:00</a>
+
+补录播，hnn这下播前突然的偏头痛有点吓人，果然生病没完全康复不适合长时间直播，还是需要她指挥的apex训 ...</blockquote>
+第一次去看了vspo的无スレ
+
+先是hnn为了躲cr装病，再是被kmt抛弃哭哑了继续不播
+
+感觉vspo串的两大玩具，hnn和noah
+
+syl，不过hnn又不开窗跑去妹妹那边玩了……难怪被黑……
+
