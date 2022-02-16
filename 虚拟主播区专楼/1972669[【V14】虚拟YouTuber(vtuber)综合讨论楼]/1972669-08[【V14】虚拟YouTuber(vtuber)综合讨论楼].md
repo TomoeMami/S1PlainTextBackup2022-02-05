@@ -2448,3 +2448,22 @@ https://twitter.com/KasuyaMofu/status/1493794496731320323
 
 yhm 真的是……怎么动不动就玉玉吃药的，不过叶山这个网瘾是该戒一下了，听夜见说和叶山私底下独食不少，又是打牌又是a又是smash，这身体顶不住也正常
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10716#       发表于 2022-2-16 18:25
+
+inui会限除了es开包就是晚酌畅谈es，属实听不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 10717#       发表于 2022-2-16 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54714668&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-2-16 18:25</a>
+
+inui会限除了es开包就是晚酌畅谈es，属实听不懂</blockquote>
+其实当初开她会员是因为她以前会传歌，现在不传了……
+
