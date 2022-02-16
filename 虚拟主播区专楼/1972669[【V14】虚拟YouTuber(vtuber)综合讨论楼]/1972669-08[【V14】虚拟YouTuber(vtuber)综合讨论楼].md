@@ -2485,3 +2485,32 @@ inui会限除了es开包就是晚酌畅谈es，属实听不懂</blockquote>
 
 syl，不过hnn又不开窗跑去妹妹那边玩了……难怪被黑……
 
+
+
+*****
+
+####  FCCHua  
+##### 10719#       发表于 2022-2-16 22:29
+
+ 本帖最后由 FCCHua 于 2022-2-16 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54717707&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-2-16 21:54</a>
+第一次去看了vspo的无スレ
+
+先是hnn为了躲cr装病，再是被kmt抛弃哭哑了继续不播
+
+感觉vspo串的两大玩具，hn ...</blockquote>
+只能说他们真有想象力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有没有提kmt的发烧是为了什么啊
+至于去别人窗，感觉今年只会比去年更多，不是去年年底就是今年年初提到来着，指多玩游戏少直播...所以对于我个人来说她到时候能推上提一句在哪里就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 10720#       发表于 2022-2-16 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54714698&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-2-16 18:28</a>
+
+其实当初开她会员是因为她以前会传歌，现在不传了……</blockquote>
+我入会那会儿还是有会限歌回的，印象中也有同时视听，不知道现在是什么情况了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+不过床的会员算比较值了，有些人开了会员，一条会限都没发过<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

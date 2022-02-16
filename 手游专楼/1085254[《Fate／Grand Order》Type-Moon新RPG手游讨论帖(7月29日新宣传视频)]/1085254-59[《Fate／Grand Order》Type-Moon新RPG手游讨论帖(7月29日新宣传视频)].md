@@ -275,3 +275,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">低难懒得打了 直接3令咒rush过去了
 
+
+
+*****
+
+####  khxooo  
+##### 87023#       发表于 2022-2-16 22:33
+
+嘛，没有爆破阵容，只能用村正慢慢打了。
+
