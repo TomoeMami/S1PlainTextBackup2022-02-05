@@ -284,3 +284,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 嘛，没有爆破阵容，只能用村正慢慢打了。
 
+
+
+*****
+
+####  khxooo  
+##### 87024#       发表于 2022-2-17 00:50
+
+泥潭最慢160级，等搞掂凶骨和黑灰后这游戏就毕业啦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
