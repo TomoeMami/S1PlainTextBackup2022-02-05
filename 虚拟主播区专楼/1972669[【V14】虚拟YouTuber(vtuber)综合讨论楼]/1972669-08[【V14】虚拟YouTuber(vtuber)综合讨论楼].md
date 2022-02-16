@@ -2401,3 +2401,21 @@ https://link.bilibili.com/p/eden/news#/newsdetail?id=2582</blockquote>
 虽然下播没多久就跑去妹妹的直播窗里和她们排位了一把<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 syl 下周应该是还有一个r6s比赛要参加，目前官方还没公布，期待下人员名单
 
+
+
+*****
+
+####  NBXX  
+##### 10712#       发表于 2022-2-16 13:29
+
+【VTuberの皆様へ注意喚起】
+Amazonの公開欲しいものリストを元に、電話番号を取得できる手法が存在します。
+
+セキュリティ資格保持者として、手法が自アカで再現することを確認しましたので、対策がなされるまで、欲しいものリストを非公開にすることをオススメします。
+
+https://twitter.com/KasuyaMofu/status/1493794496731320323
+
+亚马逊愿望单被爆出可以挖掘到手机号的漏洞
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

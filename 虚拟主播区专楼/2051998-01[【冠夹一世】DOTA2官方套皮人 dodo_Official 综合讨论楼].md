@@ -2490,3 +2490,12 @@ dodo怎么还不直播<img src="https://static.saraba1st.com/image/smiley/face20
 
 永恒娘口音加一些口癖确实有点像上海的，魔都算国内acg前沿了，从小接触各种游戏机掌机也不奇怪，有可能老爹就是个老ass
 
+
+
+*****
+
+####  nma  
+##### 296#       发表于 2022-2-16 13:45
+
+妮妮发音有吴语特征，接触主机早推测在沿海城市，不知小霸王可以排除珠三角，又没有什么讨好型人格，这个本人形象不就呼之欲出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
