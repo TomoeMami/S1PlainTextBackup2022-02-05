@@ -293,3 +293,24 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 泥潭最慢160级，等搞掂凶骨和黑灰后这游戏就毕业啦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87025#       发表于 2022-2-17 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54719430&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-17 00:50</a>
+
+泥潭最慢160级，等搞掂凶骨和黑灰后这游戏就毕业啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">醒醒 萌新156的一半都没到
+
+*****
+
+####  空气蛹  
+##### 87026#       发表于 2022-2-17 03:12
+
+麻了，补卡莲二宝吃保底了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
