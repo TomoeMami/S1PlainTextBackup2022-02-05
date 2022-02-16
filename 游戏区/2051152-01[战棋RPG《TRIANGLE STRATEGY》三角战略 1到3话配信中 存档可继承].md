@@ -2605,3 +2605,17 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  月下美人  
+##### 234#       发表于 2022-2-16 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654778&amp;ptid=2051152" target="_blank">Guildenstern 发表于 2022-2-12 16:28</a>
+
+永久离队只是死人惩罚中的一种。其他还有过关评价降低、过关奖励减少、下一关不能出场等等。本作似乎是没 ...</blockquote>
+SFC皇骑是直接死亡，但是战斗结束之前可以用魔法复活
+
+3回合死亡是FFT逆输入命运之轮的产物
+
