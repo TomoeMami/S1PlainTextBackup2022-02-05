@@ -13213,3 +13213,30 @@ LLSS动画代理从新创华变到和其他三团一样的木棉花了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54715113&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-16 19:03</a></blockquote>
 青山姐这么有料的吗
 
+
+
+*****
+
+####  优妮可  
+##### 5577#       发表于 2022-2-16 22:50
+
+<blockquote>ykyin09 发表于 2022-2-16 22:42
+青山姐这么有料的吗</blockquote>
+目前看来可能就鲤鱼是无料的
+
+*****
+
+####  lj205  
+##### 5578#       发表于 2022-2-16 22:50
+
+突然想起来鲤鱼冈山演出完第二天是飞到海边，当时大家都以为是拍mv ，结果后来发现不是，可能下周说的发表真是写真，内容就是在海边拍的
+
+*****
+
+####  D麦林  
+##### 5579#       发表于 2022-2-16 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54718278&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-16 22:50</a>
+目前看来可能就鲤鱼是无料的</blockquote>
+无料草
+
