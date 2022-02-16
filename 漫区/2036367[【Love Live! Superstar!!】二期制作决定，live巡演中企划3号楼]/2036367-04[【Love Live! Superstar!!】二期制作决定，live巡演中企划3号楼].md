@@ -13110,3 +13110,31 @@ ok，发了私信了
 
 海外线上购票那么方便就不要指望B站，叔叔也不是做慈善票价也得和pia、eplus一样6千多円
 
+
+
+*****
+
+####  lj205  
+##### 5567#       发表于 2022-2-16 14:10
+
+鲤鱼刚发动态说2月21日FC直播会有新发表，莫不是要发新单？
+
+*****
+
+####  Enakina  
+##### 5568#       发表于 2022-2-16 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54711285&amp;ptid=2036367" target="_blank">lj205 发表于 2022-02-16 14:10:38</a>
+鲤鱼刚发动态说2月21日FC直播会有新发表，莫不是要发新单？</blockquote>太夸张了哈，哪能这么快，不可能的。我估计可能是写真集，新杂志这种吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cat1230  
+##### 5569#       发表于 2022-2-16 14:17
+
+鲤鱼发本纸质的写真吧，电子版不得劲。最好是公布这个<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
