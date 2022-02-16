@@ -1910,3 +1910,12 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 — from OnePlus HD1900, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  zquan  
+##### 185#       发表于 2022-2-16 09:10
+
+是二十一世纪新文化运动还是二十一世纪文化大XX，几年后再回头看看。
+

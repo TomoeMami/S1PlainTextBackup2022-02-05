@@ -1093,3 +1093,14 @@ A，S卡的被动属性没写专属的都是加成到角色本身的</blockquote
 刚打完第一章，这带vo的战斗bgm也未免太多了吧，还是说第二章就没有新的了？ ...</blockquote>
 有，还不少
 
+
+
+*****
+
+####  杂灰  
+##### 102#       发表于 2022-2-16 09:23
+
+uu无限loading怎么解决
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
