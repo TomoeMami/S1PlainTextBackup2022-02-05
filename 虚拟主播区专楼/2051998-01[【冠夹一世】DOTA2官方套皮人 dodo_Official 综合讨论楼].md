@@ -2508,3 +2508,12 @@ dodo怎么还不直播<img src="https://static.saraba1st.com/image/smiley/face20
 
 好呀好呀，一天不看管人楼，管人痴们的发言已经看不懂了呀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mkii量产型  
+##### 298#       发表于 2022-2-16 14:57
+
+吃肉汤团可能上海苏南浙江，沿海老二次元一开始以为是宁波，但是妮妮却认七宝汤圆就很怪，除了上海谁吃七宝汤圆啊，所以应该是上海人，但是她又不认咸豆浆，这成分就很复杂了
+

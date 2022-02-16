@@ -2522,3 +2522,12 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 杂兵的话主力输出平a三下，技能2下差不多
 主角第三个技能，王子，安娜，王女输出都不错
 
+
+
+*****
+
+####  chris1987  
+##### 226#       发表于 2022-2-16 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
