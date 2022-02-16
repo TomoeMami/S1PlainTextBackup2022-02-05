@@ -1250,3 +1250,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 这活动要先换哪些 只能打C级...
 
+
+
+*****
+
+####  yygundam  
+##### 117#       发表于 2022-2-17 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54718746&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-16 23:32</a>
+
+是点开以后右下角那个吗？那个不是整个账号注销吗？点了以后引继码还能找回原来的号吗？ ...</blockquote>
+删了账号就无了，继承码找不回来。不过刷初始而已，删了也无所谓。
+

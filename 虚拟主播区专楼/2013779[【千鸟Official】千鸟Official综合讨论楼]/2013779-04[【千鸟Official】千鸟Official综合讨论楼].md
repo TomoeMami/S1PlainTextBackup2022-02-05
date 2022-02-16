@@ -9691,3 +9691,28 @@ syl b虚拟区节目不一直出事故的吗 ylg太多了吧 还是说京晚🤡
 
 事业心遇上maybe，该不会赶上阿b被约谈，全站装扮都被取消了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小憨1  
+##### 5523#       发表于 2022-2-17 00:05
+
+装扮方面她们好像是要自己找画师，不用啊B那边的，希望角川给点力<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜之中道崩殂  
+##### 5524#       发表于 2022-2-17 00:07
+
+角川早就是尸体了，围裙之后屁画面都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 5525#       发表于 2022-2-17 00:11
+
+角川。。。还不如画同人的那味给力
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
