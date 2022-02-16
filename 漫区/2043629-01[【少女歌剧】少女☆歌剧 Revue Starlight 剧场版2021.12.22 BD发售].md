@@ -9161,3 +9161,17 @@ side story
 
 —— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ardito  
+##### 682#       发表于 2022-2-16 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54702367&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2022-2-15 21:15</a>
+
+你b不会要上手游吧（图来自战吧）
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不太可能，叔叔马娘手游都还给版号卡着
+
