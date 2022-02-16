@@ -1262,3 +1262,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 是点开以后右下角那个吗？那个不是整个账号注销吗？点了以后引继码还能找回原来的号吗？ ...</blockquote>
 删了账号就无了，继承码找不回来。不过刷初始而已，删了也无所谓。
 
+
+
+*****
+
+####  poor  
+##### 118#       发表于 2022-2-17 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54719189&amp;ptid=2050204" target="_blank">yygundam 发表于 2022-2-17 00:20</a>
+
+删了账号就无了，继承码找不回来。不过刷初始而已，删了也无所谓。</blockquote>
+好吧，这个号还可以，不过想多刷几个看看，我还是用电脑吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
