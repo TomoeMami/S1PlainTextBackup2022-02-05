@@ -2798,3 +2798,37 @@ dodo又开混了
 夹夹这种不打钱的天怒还出了两个挂件那这阿托斯要鳖到猴年马月<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 然后又更了一个鞋
 
+
+
+*****
+
+####  nma  
+##### 333#       发表于 2022-2-16 22:05
+
+csgo这嗯开箱看点是啥，似乎主播也没什么情感波动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 334#       发表于 2022-2-16 22:07
+
+完美在csgo那边宣传经费过剩么…就嗯开…
+
+*****
+
+####  mkii量产型  
+##### 335#       发表于 2022-2-16 22:16
+
+<blockquote>nma 发表于 2022-2-16 22:05
+csgo这嗯开箱看点是啥，似乎主播也没什么情感波动</blockquote>
+大概看间歇性的百合营业
+
+*****
+
+####  mkii量产型  
+##### 336#       发表于 2022-2-16 22:19
+
+<blockquote>rosevalley46 发表于 2022-2-16 22:07
+完美在csgo那边宣传经费过剩么…就嗯开…</blockquote>
+反正老板的hao
+

@@ -1191,3 +1191,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 麻枝怎么天天老惦记着他那乐队的事，人到晚年就是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  meailove  
+##### 111#       发表于 2022-2-16 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54716753&amp;ptid=2050204" target="_blank">蓝泽玲 发表于 2022-2-16 20:50</a>
+
+麻枝怎么天天老惦记着他那乐队的事，人到晚年就是这样吗</blockquote>
+因为他现在就是最喜欢音乐更甚于写作，剧本家加入自己喜欢的要素很正常吧更何况key那边音乐也占了很大部分的收入来源
+
