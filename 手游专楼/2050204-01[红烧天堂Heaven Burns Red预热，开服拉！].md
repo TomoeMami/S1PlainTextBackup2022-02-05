@@ -1151,3 +1151,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 感觉飞机社就是时空猫的节奏做习惯了（那边早期下地下城的门票一天2张还可以攒着，最多攒5张，其他内容你想啥时候去肝就啥时候去肝），想让你们慢慢养成慢慢推进，当个单机rpg好好看剧情。问题是他们可能忘了，时空猫的活动全是常驻的，开了以后什么时候都能去打，这边活动是限时的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 107#       发表于 2022-2-16 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54712635&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2022-2-16 15:53</a>
+感觉飞机社就是时空猫的节奏做习惯了（那边早期下地下城的门票一天2张还可以攒着，最多攒5张，其他内容你想 ...</blockquote>
+时空猫入坑好久了，节奏真是太舒服了，一直随缘推进度，当ff手机版的替代品玩，所有联动和支线都不会错过的感觉很令人安心
+
