@@ -2419,3 +2419,14 @@ https://twitter.com/KasuyaMofu/status/1493794496731320323
 
 —— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Ketestrait  
+##### 10713#       发表于 2022-2-16 15:24
+
+<img src="https://tvax2.sinaimg.cn/large/7c16af6bly1gzfdndzkldj20kj0jj7ly.jpg" referrerpolicy="no-referrer">
+
+叶山哥被往外转载会限的人给精神打击到就医吃药了，在和运营商谈是否关掉会员和FanClub，通常直播会继续进行。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
