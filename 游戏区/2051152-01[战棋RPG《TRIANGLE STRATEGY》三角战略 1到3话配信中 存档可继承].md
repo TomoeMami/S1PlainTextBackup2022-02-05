@@ -2531,3 +2531,29 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  amanohanei  
+##### 227#       发表于 2022-2-16 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677804&amp;ptid=2051152" target="_blank">xgazer 发表于 2022-2-14 10:42</a>
+
+天平投票一个都没说服成功，就安娜跟着我投还是因为主人的任务</blockquote>
+你收集线索没，直接拿解锁的去问基本就同意了，就每边有一个怎么也不改的应该。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我把他们全说服了，人员颠倒
+
+管家有几个线索没解锁不知道是我漏了还是什么原因，但是好像铁国大书库就说服了
+
+*****
+
+####  xgazer  
+##### 228#       发表于 2022-2-16 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54713511&amp;ptid=2051152" target="_blank">amanohanei 发表于 2022-2-16 16:55</a>
+你收集线索没，直接拿解锁的去问基本就同意了，就每边有一个怎么也不改的应该。
+
+我把他们全说服了 ...</blockquote>
+应该都收集了，说服时都是用额外解锁的选项，然并卵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
