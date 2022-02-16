@@ -1897,3 +1897,16 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  snailium  
+##### 184#       发表于 2022-2-16 08:58
+
+早就盼着官方赶紧把中国文化的标准翻译给定下来，“春节”就是其中之一，还有“农历”的标准译文，24节气，饺子（目前包子和饺子都叫dumplings）
+
+其实spring festival挺好的
+
+— from OnePlus HD1900, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
