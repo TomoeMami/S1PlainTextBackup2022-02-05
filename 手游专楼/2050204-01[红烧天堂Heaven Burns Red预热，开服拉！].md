@@ -1104,3 +1104,18 @@ uu无限loading怎么解决
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  飞姆托  
+##### 103#       发表于 2022-2-16 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54706913&amp;ptid=2050204" target="_blank">杂灰 发表于 2022-2-16 09:23</a>
+uu无限loading怎么解决
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+进去后退出UU直连试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
