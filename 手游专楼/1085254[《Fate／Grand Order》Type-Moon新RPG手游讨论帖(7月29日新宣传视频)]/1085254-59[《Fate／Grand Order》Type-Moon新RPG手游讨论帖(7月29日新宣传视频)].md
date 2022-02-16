@@ -266,3 +266,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 不过我记得霓虹那边有个小规模剧情投票来着，好像那边蛮吃樱井这套的，排菌皇负责的剧情后面来着，所以我向来无所谓国内什么评价，反正比不过真服务对象的反馈。当然也可能是她负责的主线太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87022#       发表于 2022-2-16 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">低难懒得打了 直接3令咒rush过去了
+
