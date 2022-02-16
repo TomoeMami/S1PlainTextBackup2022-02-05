@@ -1886,3 +1886,14 @@ chinese day是什么新奇说法，这才是除了你以外没别人这么说的
 
 越南和棒子不开心叫拆尼日新年，因为他们春节也放假。那个 四普润 春节用法用的也不多。最后搞了这个露娜阴历节的折中说法。说到底是怕得罪x国人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NaYo丶  
+##### 183#       发表于 2022-2-16 08:13
+
+村里人小学没英语课 不过初中三种都学过
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
