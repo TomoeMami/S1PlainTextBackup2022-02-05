@@ -225,3 +225,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 再之后就不知道了。因为那之后退坑了一年，基本不关注fgo社区动向了。
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87018#       发表于 2022-2-16 11:04
+
+1.5那时候甚至还以为151才是她写的呢，当然还好了。第一部2和4倒是从没翻身过<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
