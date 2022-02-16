@@ -2557,3 +2557,51 @@ demo玩下来感觉这个大家开会讨论的系统对我来说会是个雷，�
 我把他们全说服了 ...</blockquote>
 应该都收集了，说服时都是用额外解锁的选项，然并卵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  amanohanei  
+##### 229#       发表于 2022-2-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54713547&amp;ptid=2051152" target="_blank">xgazer 发表于 2022-2-16 16:57</a>
+
+应该都收集了，说服时都是用额外解锁的选项，然并卵</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这么说是信念值的问题？
+
+信念值不够导致伙伴不同意吗
+
+*****
+
+####  xgazer  
+##### 230#       发表于 2022-2-16 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54713669&amp;ptid=2051152" target="_blank">amanohanei 发表于 2022-2-16 17:04</a>
+这么说是信念值的问题？
+
+信念值不够导致伙伴不同意吗</blockquote>
+有可能？我基本都选前俩选项。还有可能解锁的选项不一定是最好的…
+
+*****
+
+####  Onelooker  
+##### 231#       发表于 2022-2-16 17:15
+
+犄角旮旯找道具是真的傻逼，多少年前的设计了
+
+*****
+
+####  lbj5454  
+##### 232#       发表于 2022-2-16 17:18
+
+已下单，不差钱
+
+*****
+
+####  南宫月汐  
+##### 233#       发表于 2022-2-16 17:21
+
+我咸鱼预定限定版的卖家被咸鱼封了，搜了一下整个咸鱼好像都搜不到三角战略限定版了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
