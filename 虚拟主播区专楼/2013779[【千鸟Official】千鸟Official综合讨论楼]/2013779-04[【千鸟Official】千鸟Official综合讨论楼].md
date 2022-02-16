@@ -9483,3 +9483,21 @@ syl b虚拟区节目不一直出事故的吗 ylg太多了吧 还是说京晚🤡
 
 有人觉得她在训粉，直接把隔壁模版搬过来套用了。
 
+
+
+*****
+
+####  faithlifer  
+##### 5499#       发表于 2022-2-16 10:56
+
+这次的节奏很大么<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  andeloz  
+##### 5500#       发表于 2022-2-16 10:59
+
+两千楼一般般吧 不过也有段时间没见到两千楼了
+
