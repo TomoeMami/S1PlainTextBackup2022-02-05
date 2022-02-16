@@ -1212,3 +1212,32 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 终于能打开了，刷初始只能重新下一遍缓存吗？
 
+
+
+*****
+
+####  Tucsria  
+##### 113#       发表于 2022-2-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54718574&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-16 23:15</a>
+
+终于能打开了，刷初始只能重新下一遍缓存吗？</blockquote>
+不用  左上角删除账号就行
+
+*****
+
+####  poor  
+##### 114#       发表于 2022-2-16 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54718709&amp;ptid=2050204" target="_blank">Tucsria 发表于 2022-2-16 23:28</a>
+
+不用  左上角删除账号就行</blockquote>
+是点开以后右下角那个吗？那个不是整个账号注销吗？点了以后引继码还能找回原来的号吗？
+
+*****
+
+####  月球列车  
+##### 115#       发表于 2022-2-16 23:32
+
+磨磨蹭蹭打完第一章了，挺好的就喜欢这种可以当单机玩还没有社交元素的游戏
+

@@ -2524,3 +2524,16 @@ syl，不过hnn又不开窗跑去妹妹那边玩了……难怪被黑……
 [https://twitter.com/rzxmq](https://twitter.com/rzxmq)
 狡兔三窟的某大佐<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10722#       发表于 2022-2-16 23:42
+
+去听了一下那个imagination 4……战姬绝唱周年版
+
+好失望……除了欧米茄姐妹版本的都没那味……
+
+一点都不像战斗番<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
