@@ -868,3 +868,12 @@ DuckStation停止开发的消息一出，的确让国内某无良模拟器的作
 
 我就喜欢原汁原味，什么着色器都不加。ra的效率非常低，按理说你就是个前端，怎么会做到那么卡的
 
+
+
+*****
+
+####  wujae  
+##### 74#       发表于 2022-2-16 12:13
+
+我就极不喜欢RA，专人专事多好。大而全反而啥都不行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
