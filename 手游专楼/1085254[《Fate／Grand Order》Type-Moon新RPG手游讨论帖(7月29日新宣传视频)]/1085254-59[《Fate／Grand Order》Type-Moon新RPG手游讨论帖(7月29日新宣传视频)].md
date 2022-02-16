@@ -234,3 +234,15 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 1.5那时候甚至还以为151才是她写的呢，当然还好了。第一部2和4倒是从没翻身过<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuarwbwe  
+##### 87019#       发表于 2022-2-16 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54708420&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-2-16 11:04</a>
+
+1.5那时候甚至还以为151才是她写的呢，当然还好了。第一部2和4倒是从没翻身过 ...</blockquote>
+其实没差，1.5主线质量最高的也就是151和153。就算151不是她还是保二争一的（不算ccc）。而且当时有水濑吸引拳师的火力，坦下了几乎所有口水。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

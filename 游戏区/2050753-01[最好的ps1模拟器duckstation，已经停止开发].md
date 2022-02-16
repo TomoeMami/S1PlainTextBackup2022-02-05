@@ -877,3 +877,12 @@ DuckStation停止开发的消息一出，的确让国内某无良模拟器的作
 
 我就极不喜欢RA，专人专事多好。大而全反而啥都不行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  超级柯南迷  
+##### 75#       发表于 2022-2-16 12:33
+
+我以为十几年前的epsxe就已经能完美模拟PS1了，还差哪里不行吗？
+
