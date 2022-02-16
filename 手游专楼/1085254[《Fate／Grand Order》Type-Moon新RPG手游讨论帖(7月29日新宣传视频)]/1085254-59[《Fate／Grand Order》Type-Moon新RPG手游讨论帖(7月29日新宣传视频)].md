@@ -246,3 +246,14 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 1.5那时候甚至还以为151才是她写的呢，当然还好了。第一部2和4倒是从没翻身过 ...</blockquote>
 其实没差，1.5主线质量最高的也就是151和153。就算151不是她还是保二争一的（不算ccc）。而且当时有水濑吸引拳师的火力，坦下了几乎所有口水。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真红眼教授  
+##### 87020#       发表于 2022-2-16 13:21
+
+最乐子的还是前段时间看见排比句复读就说是樱井烂活，结果被揭穿是他们吹的最多的三田诚写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在已经是只要和原典不符就是樱井背锅了，我看除了设定集和官方打出名字的，靠感觉猜作者只会被打脸
+
