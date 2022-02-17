@@ -836,3 +836,82 @@ NDSL 单独看也没啥毛病
 只能继续买新外壳和新屏幕，等快递到了再补后续好了
 <img src="https://p.sda1.dev/5/afd7f68cba7b577c1a997d6a4f5bc879/IMG_CMP_153011341.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  スペシャル  
+##### 68#       发表于 2022-2-17 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54428000&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-1-25 21:07</a>
+
+Supercard受害者在此
+
+这卡的问题主要有这些：
+
+1 所有rom都必须经由PC端软件转换才能拷贝进卡，没处 ...</blockquote>
+ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发生过，不知道为什么
+
+*****
+
+####  oidoid  
+##### 69#       发表于 2022-2-17 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727136&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:03</a>
+ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发生过，不知道为什么 ...</blockquote>
+所以他们后来推出de版的时候就有人怀疑过是不是故意的…
+
+*****
+
+####  スペシャル  
+##### 70#       发表于 2022-2-17 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727187&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:06</a>
+
+所以他们后来推出de版的时候就有人怀疑过是不是故意的…</blockquote>
+所以说，这个问题是个通病，无解的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oidoid  
+##### 71#       发表于 2022-2-17 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727237&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:09</a>
+所以说，这个问题是个通病，无解的吗</blockquote>
+毕竟没有证据…目前来看就只有买ezode解决一切，除非你需要dsl的小卡设计
+
+*****
+
+####  スペシャル  
+##### 72#       发表于 2022-2-17 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727281&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:12</a>
+
+毕竟没有证据…目前来看就只有买ezode解决一切，除非你需要dsl的小卡设计</blockquote>
+我就是寨机 psv 3dl 这些折腾了一圈特别买的dsl为了相对好一点的效果玩gba、、、、
+
+之前还搞了一个品相很好的sp，但是实机效果现在看不下去了，耳机还要转接，，，，
+
+*****
+
+####  oidoid  
+##### 73#       发表于 2022-2-17 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54485338&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-1-30 16:11</a>
+我大概知道你买的哪一家的了……
+
+如果买了他们家的话，大概率你得自己另外折腾一下十字键的导电胶 ...</blockquote>
+反正买都买了，这里也不是贴吧
+老哥明示下吧，这家的按键的问题是啥，要怎么修？
+
+*****
+
+####  oidoid  
+##### 74#       发表于 2022-2-17 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727342&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:16</a>
+我就是寨机 psv 3dl 这些折腾了一圈特别买的dsl为了相对好一点的效果玩gba、、、、
+
+之前还搞了一个品相很 ...</blockquote>
+dsl的按键布局还是差一点感觉，加上我以前的ez3in1 sram可能坏了，不然我也不折腾gba
+
