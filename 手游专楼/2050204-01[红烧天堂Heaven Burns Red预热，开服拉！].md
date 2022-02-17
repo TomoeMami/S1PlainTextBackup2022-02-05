@@ -1308,3 +1308,12 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 打完新手教程部分觉得和泉非常吵，麻子这几年写吐槽角是不是都挺没分寸对别人每句话都要吐槽观感上 ...</blockquote>
 刚开始玩的时候也是觉得有点用力过猛了，玩到后面和泉不吐槽反倒不习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞姆托  
+##### 122#       发表于 2022-2-17 10:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这50级以上，挂9小时才5万经验升2级，我不敢想90级怎么升
+
