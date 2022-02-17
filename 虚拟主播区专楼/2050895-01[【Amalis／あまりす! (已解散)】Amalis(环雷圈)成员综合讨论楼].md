@@ -1305,3 +1305,20 @@ PS：油管开的是10点，推特预告的却写的是8点。
 
 b站直播以后要刷脸了，中之人大暴露(对b站内部)，这些境外直播者该怎么验证，以及一些用境内身份代理(例如字幕组)直播间的又该怎么处理。就看鼠鼠要怎么玩，玩不好的话，v区不论境内境外都是大打击。
 
+
+
+*****
+
+####  谷恒条野  
+##### 129#       发表于 2022-2-17 15:21
+
+<img src="https://img.saraba1st.com/forum/202202/17/151736dkvwq9c59t3p5paf.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (41.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 15:17 上传
+
+"陪酒女脏"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
