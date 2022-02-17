@@ -1048,3 +1048,35 @@ NDSL按键布局贼不顺手，像我高强度搞火纹，来回读档，真是�
 
 话说ndsl和GBAsp按键手感有区别吗
 
+
+
+*****
+
+####  ercai1  
+##### 86#       发表于 2022-2-17 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727136&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:03</a>
+
+ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发生过，不知道为什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个问题一直存在到了EZODE，而且问的人也很多，所以他们已经在官网上的用户指南里公布过解决方法了：
+
+1 删掉这几个游戏的存档
+
+2 把存档模式改成“SRAM”，进游戏生成存档文件后，什么都不干就退出
+
+3 再次进入游戏前把存档模式改回“自动”，之后就可以正常存档了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ercai1  
+##### 87#       发表于 2022-2-17 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727371&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:18</a>
+
+反正买都买了，这里也不是贴吧
+
+老哥明示下吧，这家的按键的问题是啥，要怎么修？ ...</blockquote>
+他们用的导电胶非常的难按到底。所以用力不够的时候会断触，切换方向的时候有大概率按不到斜方向
+
+更换导电胶是一个方法。另一个方法就是在十字键的四个方向下面垫点儿东西来减少一点点键程，但这会让手感变硬，看你自己喜好吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

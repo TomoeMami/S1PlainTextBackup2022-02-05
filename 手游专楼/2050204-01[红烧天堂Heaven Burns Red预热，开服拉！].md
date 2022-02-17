@@ -1329,3 +1329,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 这50级以上，挂9小时才5万经验升2级，我不敢想90级怎么升</blockquote>
 影子bosslv8，一场31万<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  islxyqwe  
+##### 124#       发表于 2022-2-17 18:20
+
+感觉要变强是不是打首饰比练级重要点，一套首饰全队可用，而且5星比2星多几十点属性相当于十几级了
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
