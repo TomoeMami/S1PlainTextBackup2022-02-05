@@ -327,3 +327,15 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 更直接3回合秒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87028#       发表于 2022-2-17 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54719430&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-2-17 00:50</a>
+
+泥潭最慢160级，等搞掂凶骨和黑灰后这游戏就毕业啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然160级了，你刷得真勤快
+
