@@ -1161,3 +1161,61 @@ NDSL虽然是导电胶，但是键程也比较短，而且按键相对GBA来说�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 92#         楼主| 发表于 2022-2-17 18:43
+
+<img src="https://img.saraba1st.com/forum/202202/17/184217eh5w5m22f85p2q5f.jpg" referrerpolicy="no-referrer">
+
+<strong>d693c063-cd41-426a-8738-fb477e7d2f63.jpg</strong> (230.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 18:42 上传
+
+<img src="https://img.saraba1st.com/forum/202202/17/184217mi7i7d0afkilili7.jpg" referrerpolicy="no-referrer">
+
+<strong>157e58fc-a67a-4886-a49b-995bf0705096.jpg</strong> (149.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 18:42 上传
+
+<img src="https://img.saraba1st.com/forum/202202/17/184217axxa7hpfnah1f2n7.jpg" referrerpolicy="no-referrer">
+
+<strong>e8c2137c-c405-40aa-9944-897bdde19058.jpg</strong> (160.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 18:42 上传
+
+最近又搞了gb和gbp，gbp还没改。总得来说感谢科技进步。不过我sp不打算改ips了，打算看看能不能收个ags101屏就算完工。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oidoid  
+##### 93#       发表于 2022-2-17 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54729290&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-17 18:40</a>
+
+其实我感觉现在taobao流通那些基本都是一样的供应商，要我说不如买几个gba尸体机 以后留着换肩键，一些其 ...</blockquote>
+现在不可能，最近GBA二手价格虚高得厉害
+
+*****
+
+####  koemi  
+##### 94#       发表于 2022-2-17 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728062&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-17 17:08</a>
+
+我感觉不太行
+
+略显生涩和硬</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那还是算了 这个是最影响体验的
+

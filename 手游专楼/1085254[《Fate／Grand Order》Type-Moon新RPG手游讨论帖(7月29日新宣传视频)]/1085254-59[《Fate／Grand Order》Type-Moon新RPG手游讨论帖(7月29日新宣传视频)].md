@@ -314,3 +314,16 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87027#       发表于 2022-2-17 19:02
+
+高难对面反击也没啥用啊
+
+直接麻了，睡眠啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+更直接3回合秒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
