@@ -1358,3 +1358,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 赶着人打完第二章 感觉第三章不远了.
 
+
+
+*****
+
+####  蛇头  
+##### 127#       发表于 2022-2-18 01:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉就是好看但不好玩
+
+—— 来自 Google Pixel 6, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
