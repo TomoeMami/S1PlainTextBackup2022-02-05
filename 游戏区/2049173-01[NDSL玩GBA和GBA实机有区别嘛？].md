@@ -1027,3 +1027,24 @@ NDSL按键布局贼不顺手，像我高强度搞火纹，来回读档，真是�
 略显生涩和硬</blockquote>
 新的导电胶就这样的，这玩意放久了手感会变
 
+
+
+*****
+
+####  zris  
+##### 84#         楼主| 发表于 2022-2-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728112&amp;ptid=2049173" target="_blank">战狼PTSD 发表于 2022-2-17 17:11</a>
+
+新的导电胶就这样的，这玩意放久了手感会变</blockquote>
+虽然初版掌握GBA手感好，但是SP那个按键手感又比GBA好
+
+难绷<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 85#       发表于 2022-2-17 17:41
+
+话说ndsl和GBAsp按键手感有区别吗
+

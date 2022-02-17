@@ -2694,3 +2694,29 @@ SFC皇骑是直接死亡，但是战斗结束之前可以用魔法复活
 只是因为开头设定有点像所以才拿三房来作对比而已，两边制作根本没关系 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  llysander  
+##### 241#       发表于 2022-2-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54654778&amp;ptid=2051152" target="_blank">Guildenstern 发表于 2022-2-12 16:28</a>
+
+永久离队只是死人惩罚中的一种。其他还有过关评价降低、过关奖励减少、下一关不能出场等等。本作似乎是没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 那是老屁股屈服了，命运之轮里逆输入了fft的躺地等倒数
+
+老to就是嗷呜一声人直接没了，中期可以拿复活但这里有个坑，如果一开始培养的奶妈不是L就转 不 了 ，不能用复活，当年被坑得气得跳脚（有些小通道正面干的数值上就有可能没法不死人 
+
+*****
+
+####  llysander  
+##### 242#       发表于 2022-2-17 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54675169&amp;ptid=2051152" target="_blank">Bani82 发表于 2022-2-14 02:01</a>
+
+其实就是SRPG，S还是R的问题
+
+但是这游戏从试玩来看S上很一般，除非自己限定一堆规则（H难度、不死人、掉落 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">说起p4g其实坏在技能卡系统了，p4g中期一段很有bd养成取舍纠结内味， 保哪几个技能，从哪个养起来的素材对着合成表，才能合进那个完成体最终又是别的材料，套娃。 
+
