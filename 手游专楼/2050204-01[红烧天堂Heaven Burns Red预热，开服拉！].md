@@ -1285,3 +1285,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 你要快还是得手动在普通无限体力剧情本里面晃，挂机收益出奇低，练级堪比八方抓猫还是不能逃跑那种-_-
 
+
+
+*****
+
+####  杂灰  
+##### 120#       发表于 2022-2-17 09:16
+
+打完新手教程部分觉得和泉非常吵，麻子这几年写吐槽角是不是都挺没分寸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对别人每句话都要吐槽观感上有点拖沓了，用力过猛的感觉
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
