@@ -2763,3 +2763,20 @@ KR还是留了一手
 
 虹EN对决KR，我去直播间刷NA kekw会被封吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10743#       发表于 2022-2-17 23:18
+
+这阵容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202202/17/231808hx7t77v27om2z54v.png" referrerpolicy="no-referrer">
+
+<strong>KRで1番LOLが上手いロハ、名声が足りず国際デビューかな？.png.png</strong> (80.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 23:18 上传
+
