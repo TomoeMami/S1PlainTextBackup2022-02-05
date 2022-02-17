@@ -2605,3 +2605,56 @@ NIJISANJI (ID, KR)は4月上旬に国内「にじさんじ」へ統合します�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">维阿什么时候被切割啊，好日子还在后头呢
 
+
+
+*****
+
+####  空集  
+##### 10729#       发表于 2022-2-17 17:08
+
+感觉似乎也不会影响各种大会 虽然合并了但是实质还是内部分部吧。
+
+不过似乎已经有ID在表示要学日语了
+
+*****
+
+####  IDIDIDID  
+##### 10730#       发表于 2022-2-17 17:09
+
+就是不招人了+砍成本（虽然本来就没啥开销）
+
+*****
+
+####  硫黄  
+##### 10731#       发表于 2022-2-17 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学了日语加上纯正血统加成，该反攻总部了
+
+*****
+
+####  alcoholic1000  
+##### 10732#       发表于 2022-2-17 17:16
+
+具体信息可能要等今晚上ID和KR的liver开播才能知道，过去一年来虽然微小但KR的T台和ID&amp;EN联动让两部门都获得了一定发展，比不上MAHA5和이세계 아이돌这种本地龙头，但对比之前来讲已经算喜人...
+
+猜测是与上场准备相关吧
+
+不过我们唯一可以知道的是本社的LOL水平将急剧提升<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/17/171435taii11iknaf6m6as.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>League of Legends  NIJISANJI KR vs NIJISANJI EN.jpeg</strong> (394.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 17:14 上传
+
+今晚22点EN vs KR，学习大韩最后的放水技巧
+
+*****
+
+####  Longinus_  
+##### 10733#       发表于 2022-2-17 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">带上猫鸟整蛊冠军 kr要怎么放水比分才能不难看
+

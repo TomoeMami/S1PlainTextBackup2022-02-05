@@ -994,3 +994,36 @@ NDSL按键布局贼不顺手，像我高强度搞火纹，来回读档，真是�
 
 当然这个现象也不是绝对····
 
+
+
+*****
+
+####  koemi  
+##### 81#       发表于 2022-2-17 17:02
+
+有点想把老GBA翻新了 那些替用的导电胶和按键手感如何啊
+
+*****
+
+####  zris  
+##### 82#         楼主| 发表于 2022-2-17 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727977&amp;ptid=2049173" target="_blank">koemi 发表于 2022-2-17 17:02</a>
+
+有点想把老GBA翻新了 那些替用的导电胶和按键手感如何啊</blockquote>
+我感觉不太行
+
+略显生涩和硬<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 83#       发表于 2022-2-17 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728062&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-17 17:08</a>
+
+我感觉不太行
+
+略显生涩和硬</blockquote>
+新的导电胶就这样的，这玩意放久了手感会变
+
