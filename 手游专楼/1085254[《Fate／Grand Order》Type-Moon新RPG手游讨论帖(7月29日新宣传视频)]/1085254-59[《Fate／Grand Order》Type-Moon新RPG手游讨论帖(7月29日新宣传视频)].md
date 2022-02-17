@@ -339,3 +339,27 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 泥潭最慢160级，等搞掂凶骨和黑灰后这游戏就毕业啦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然160级了，你刷得真勤快
 
+
+
+*****
+
+####  新吾  
+##### 87029#       发表于 2022-2-17 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54703117&amp;ptid=1085254" target="_blank">哈露尼娅 发表于 2022-2-15 22:10</a>
+
+大部分人车爱歌的时候基本都是直接车本人，樱井都是顺带一提。
+
+我不太理解樱井ptsd是怎么来的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单纯就是：
+
+旧剑跟凛香是官方cp
+
+爱歌是人间恶，也就是玩家的敌人
+
+废狗设定旧剑貌似在追杀爱歌
+
+爱歌脑子好像不太正常
+
+光是这几条就已经看出官方想赋予她一个反派大恶人形象了，顺着官方思路走几年，负面情绪放大就是现在的爱歌风评了
+
