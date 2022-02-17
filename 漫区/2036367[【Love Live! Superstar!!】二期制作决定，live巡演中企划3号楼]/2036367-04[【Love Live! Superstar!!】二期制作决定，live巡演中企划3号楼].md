@@ -13321,3 +13321,29 @@ QQ图片20220217001748.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼生放里头笑起来就一股憨样
 不过holy pig是真的猪，nako个人活动一点都没…………………
 
+
+
+*****
+
+####  nufawneafg  
+##### 5587#       发表于 2022-2-17 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54720652&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-17 08:44</a>
+显然不是真的校服啊
+
+看了nagi的写真，我觉得对比鲤鱼的写真，nagi就是很会笑，包括打铁也是，就是那种笑容 ...</blockquote>
+其实相比较于有意的偶像包袱我都更觉得是下意识的习惯或性格问题了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+翻以前cos的时候的照片都很少有小百合和青山这样特别阳光自信有感染力的笑容，就算笑起来也是不太聪明的样子
+偶像包袱还能抛弃，性格不好改，毕竟也是问出过智慧之问的女人<img src="https://p.sda1.dev/5/fd0677ed7f03c4ba751c85380425b34a/Screenshot_20220217_094149.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5588#       发表于 2022-2-17 09:56
+
+好吧。其实因为那张脸却是憨憨性格才吸引我的，要是也是日本营业笑我反而还不会推她<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+岬那边说是还没个人活动，说不定在酝酿个大的呢
+
+都有个人活动挺好的，大家都有饭吃，就是希望不要看到比来比去的，但这根本没可能，毕竟这也是饭偶像的一个环节
+
