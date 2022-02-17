@@ -1317,3 +1317,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这50级以上，挂9小时才5万经验升2级，我不敢想90级怎么升
 
+
+
+*****
+
+####  elven119  
+##### 123#         楼主| 发表于 2022-2-17 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54721752&amp;ptid=2050204" target="_blank">飞姆托 发表于 2022-2-17 10:11</a>
+
+这50级以上，挂9小时才5万经验升2级，我不敢想90级怎么升</blockquote>
+影子bosslv8，一场31万<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
