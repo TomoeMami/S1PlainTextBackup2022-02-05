@@ -1340,3 +1340,12 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  rsa1zc  
+##### 125#       发表于 2022-2-17 22:17
+
+生放结束给了十几张票+500钻，月底前打通第二章送3k钻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

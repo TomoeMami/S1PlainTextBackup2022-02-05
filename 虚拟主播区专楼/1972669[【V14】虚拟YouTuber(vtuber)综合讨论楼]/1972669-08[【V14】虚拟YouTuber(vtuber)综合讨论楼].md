@@ -2754,3 +2754,12 @@ KR还是留了一手
 
 有没有懂哥说说这奖项含金量如何
 
+
+
+*****
+
+####  lhawp  
+##### 10742#       发表于 2022-2-17 22:16
+
+虹EN对决KR，我去直播间刷NA kekw会被封吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
