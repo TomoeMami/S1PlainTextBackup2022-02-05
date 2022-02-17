@@ -1296,3 +1296,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  勇者倒下了  
+##### 121#       发表于 2022-2-17 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54721014&amp;ptid=2050204" target="_blank">杂灰 发表于 2022-2-17 09:16</a>
+
+打完新手教程部分觉得和泉非常吵，麻子这几年写吐槽角是不是都挺没分寸对别人每句话都要吐槽观感上 ...</blockquote>
+刚开始玩的时候也是觉得有点用力过猛了，玩到后面和泉不吐槽反倒不习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
