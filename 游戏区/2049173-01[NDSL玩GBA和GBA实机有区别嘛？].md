@@ -1219,3 +1219,16 @@ NDSL虽然是导电胶，但是键程也比较短，而且按键相对GBA来说�
 略显生涩和硬</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">那还是算了 这个是最影响体验的
 
+
+
+*****
+
+####  スペシャル  
+##### 95#       发表于 2022-2-17 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54729038&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-2-17 18:19</a>
+这个问题一直存在到了EZODE，而且问的人也很多，所以他们已经在官网上的用户指南里公布过解决方法 ...</blockquote>
+太感谢了😄 我去试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
