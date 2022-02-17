@@ -1349,3 +1349,12 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 生放结束给了十几张票+500钻，月底前打通第二章送3k钻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenzhi11  
+##### 126#       发表于 2022-2-17 22:48
+
+赶着人打完第二章 感觉第三章不远了.
+
