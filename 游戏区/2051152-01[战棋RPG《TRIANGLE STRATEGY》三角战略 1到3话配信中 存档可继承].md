@@ -2682,3 +2682,15 @@ SFC皇骑是直接死亡，但是战斗结束之前可以用魔法复活
 三关每关都要死一个人，第一次死的时候吓死了，以为跟火纹一样死了就救不了，后来发觉死了一点惩罚 ...</blockquote>
 只是因为开头设定有点像所以才拿三房来作对比而已，两边制作根本没关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chris1987  
+##### 240#       发表于 2022-2-17 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54726398&amp;ptid=2051152" target="_blank">繭 发表于 2022-2-17 15:16</a>
+
+只是因为开头设定有点像所以才拿三房来作对比而已，两边制作根本没关系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

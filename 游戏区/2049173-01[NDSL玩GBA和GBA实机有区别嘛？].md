@@ -814,3 +814,183 @@ NDSL 单独看也没啥毛病
 
 幻想以后和儿子交换小畜生，用20年前的队伍吊打他。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oidoid  
+##### 67#       发表于 2022-2-17 15:50
+
+ 本帖最后由 oidoid 于 2022-2-17 15:53 编辑 
+
+<img src="https://p.sda1.dev/5/ae88918321486ac0e567e89a412ba530/IMG_CMP_61437683.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/eeb7f85b34c47ed5a3aa918b9ff1a60c/IMG_CMP_102853317.jpeg" referrerpolicy="no-referrer">
+把这贴在几个群发了下，于是有个好心群友把自己已经吃灰的旧机免费送我折腾了
+一开始没点亮我还以为是保险烧了，这种贴片玩意我不会修啊…然后发现在拨动的时候有一瞬间会亮绿灯
+得，开关内部氧化了吧
+<img src="https://p.sda1.dev/5/109502fef514a1cefea1ed440b7bd02f/IMG_CMP_27633900.jpeg" referrerpolicy="no-referrer">
+去街上手机修理店本来想找师傅焊下来拆开清洁
+正好柜台上有瓶电路清洗剂，直接往缝里喷进入然后划拉了几下，好了
+（拆开清洁的方法参考贴吧这贴https://tieba.baidu.com/p/2623836003）
+本来以为外壳不用换的，老化太厉害还没了电池盖
+只能继续买新外壳和新屏幕，等快递到了再补后续好了
+<img src="https://p.sda1.dev/5/afd7f68cba7b577c1a997d6a4f5bc879/IMG_CMP_153011341.jpeg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  スペシャル  
+##### 68#       发表于 2022-2-17 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54428000&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-1-25 21:07</a>
+
+Supercard受害者在此
+
+这卡的问题主要有这些：
+
+1 所有rom都必须经由PC端软件转换才能拷贝进卡，没处 ...</blockquote>
+ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发生过，不知道为什么
+
+*****
+
+####  oidoid  
+##### 69#       发表于 2022-2-17 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727136&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:03</a>
+ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发生过，不知道为什么 ...</blockquote>
+所以他们后来推出de版的时候就有人怀疑过是不是故意的…
+
+*****
+
+####  スペシャル  
+##### 70#       发表于 2022-2-17 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727187&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:06</a>
+
+所以他们后来推出de版的时候就有人怀疑过是不是故意的…</blockquote>
+所以说，这个问题是个通病，无解的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oidoid  
+##### 71#       发表于 2022-2-17 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727237&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:09</a>
+所以说，这个问题是个通病，无解的吗</blockquote>
+毕竟没有证据…目前来看就只有买ezode解决一切，除非你需要dsl的小卡设计
+
+*****
+
+####  スペシャル  
+##### 72#       发表于 2022-2-17 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727281&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:12</a>
+
+毕竟没有证据…目前来看就只有买ezode解决一切，除非你需要dsl的小卡设计</blockquote>
+我就是寨机 psv 3dl 这些折腾了一圈特别买的dsl为了相对好一点的效果玩gba、、、、
+
+之前还搞了一个品相很好的sp，但是实机效果现在看不下去了，耳机还要转接，，，，
+
+*****
+
+####  oidoid  
+##### 73#       发表于 2022-2-17 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54485338&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-1-30 16:11</a>
+我大概知道你买的哪一家的了……
+
+如果买了他们家的话，大概率你得自己另外折腾一下十字键的导电胶 ...</blockquote>
+反正买都买了，这里也不是贴吧
+老哥明示下吧，这家的按键的问题是啥，要怎么修？
+
+*****
+
+####  oidoid  
+##### 74#       发表于 2022-2-17 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727342&amp;ptid=2049173" target="_blank">スペシャル 发表于 2022-2-17 16:16</a>
+我就是寨机 psv 3dl 这些折腾了一圈特别买的dsl为了相对好一点的效果玩gba、、、、
+
+之前还搞了一个品相很 ...</blockquote>
+dsl的按键布局还是差一点感觉，加上我以前的ez3in1 sram可能坏了，不然我也不折腾gba
+
+
+
+*****
+
+####  スペシャル  
+##### 75#       发表于 2022-2-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727401&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:20</a>
+
+dsl的按键布局还是差一点感觉，加上我以前的ez3in1 sram可能坏了，不然我也不折腾gba ...</blockquote>
+嗯，手感可能老的饭盒机好些，就是屏幕发色太惨淡了，感觉上也就比sp好些
+
+*****
+
+####  zris  
+##### 76#         楼主| 发表于 2022-2-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727371&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:18</a>
+
+反正买都买了，这里也不是贴吧
+
+老哥明示下吧，这家的按键的问题是啥，要怎么修？ ...</blockquote>
+我这几天测试下来，咋说呢，十字键感觉有点断触，但是不是很严重。大力一点就问题了
+
+我后来又买了一个普亮的SP，sp按键手感要好很多
+
+我感觉主要是导电胶有问题，你试试原装和舞馆家的区别
+
+*****
+
+####  zris  
+##### 77#         楼主| 发表于 2022-2-17 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说起来
+
+我自己用SC lite配NDSL已经没啥不满的了
+
+我换GBA玩，除了手感，还有个问题就是狗比SC LITE热键 呼出菜单是  L + R + select/start+ a/b<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+NDSL按键布局贼不顺手，像我高强度搞火纹，来回读档，真是玩尼玛···
+
+*****
+
+####  zris  
+##### 78#         楼主| 发表于 2022-2-17 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54726954&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 15:50</a>
+
+把这贴在几个群发了下，于是有个好心群友把自己已经吃灰的旧机免费送我折腾了
+
+一开始没点亮我还以为是保 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">你那几个群，还缺群友嘛
+
+*****
+
+####  oidoid  
+##### 79#       发表于 2022-2-17 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727512&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-17 16:28</a>
+我这几天测试下来，咋说呢，十字键感觉有点断触，但是不是很严重。大力一点就问题了
+
+我后来又买了一个普 ...</blockquote>
+<img src="https://p.sda1.dev/5/8f02b3b3473cc81e580cf8c2ce124e9c/IMG_CMP_20002869.jpeg" referrerpolicy="no-referrer">
+我也很想留下原来的导电胶的…但拆开的时候才发现A键位置已经要断了
+
+*****
+
+####  zris  
+##### 80#         楼主| 发表于 2022-2-17 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727585&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:34</a>
+
+我也很想留下原来的导电胶的…但拆开的时候才发现A键位置已经要断了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这
+
+先留着吧
+
+当然这个现象也不是绝对····
+

@@ -2537,3 +2537,48 @@ syl，不过hnn又不开窗跑去妹妹那边玩了……难怪被黑……
 
 一点都不像战斗番<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 10723#       发表于 2022-2-17 16:28
+
+[https://twitter.com/ANYCOLOR_Inc/status/1494220109422145546](https://twitter.com/ANYCOLOR_Inc/status/1494220109422145546)
+
+【NJISANJI ID・NIJISANJI KRに関する当社からのご報告】
+
+NIJISANJI (ID, KR)は4月上旬に国内「にじさんじ」へ統合します。 それに伴い、3月中旬を目途にYouTube公式チャンネル、Twitter他SNSの更新を停止します。
+
+詳細について▽
+[https://anycolor.co.jp/news/ox9j5ekzl](https://anycolor.co.jp/news/ox9j5ekzl)
+
+<img src="https://img.saraba1st.com/forum/202202/17/162803oa44qzq40anwua7e.jpg" referrerpolicy="no-referrer">
+
+<strong>统合.jpg</strong> (144.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-17 16:28 上传
+
+*****
+
+####  winda  
+##### 10724#       发表于 2022-2-17 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">上一个想统合成en的in已经没了
+这次是借统合的名义停止招新人么
+
+*****
+
+####  qq845629713  
+##### 10725#       发表于 2022-2-17 16:39
+
+<blockquote>この統合に伴い、ホームページ上でも「NIJISANJI ID」、「NIJISANJI KR」所属のライバーは「にじさんじ/NIJISANJI」ライバーとして表記することとなります。
+
+配信言語等の今後の方針は、タレント毎に個別に決定し活動する予定です。
+
+何卒ご理解と応援のほど宜しくお願いいたします。</blockquote>
+
+难怪kr里挺多liver都打算4月毕业，
+
