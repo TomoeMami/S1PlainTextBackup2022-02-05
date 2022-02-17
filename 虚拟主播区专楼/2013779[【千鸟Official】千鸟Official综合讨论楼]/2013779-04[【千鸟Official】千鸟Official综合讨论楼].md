@@ -9756,3 +9756,33 @@ nga和贴吧都快吵完了 而停尸间还是如此安静 令人安心
 
 停尸间人少有人少的好处，最起码大部分的观点输出比较中肯。nga和频道全肯定的人太多了，贴吧烂炒的太多，评论区就属于群魔乱舞，都不如鸟综看的安心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 5530#       发表于 2022-2-17 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54730604&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-2-17 20:30</a>
+
+又干嘛了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就前天文静直播骂啊 就烂炒 滥发散
+
+nga现在好像还在讨论
+
+*****
+
+####  灰色的狐狸  
+##### 5531#       发表于 2022-2-17 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54731136&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-2-17 21:17</a>
+
+就前天文静直播骂啊 就烂炒 滥发散
+
+nga现在好像还在讨论</blockquote>
+那事鸟综不都讨论完了么
+
+大家都知道怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+nga和贴吧怎么精力这么旺盛
+
