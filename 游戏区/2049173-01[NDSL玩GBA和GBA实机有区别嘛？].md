@@ -1232,3 +1232,23 @@ NDSL虽然是导电胶，但是键程也比较短，而且按键相对GBA来说�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ercai1  
+##### 96#       发表于 2022-2-17 20:45
+
+看着楼主一开始只是想用NDSL玩玩GBA、现在却把GB和GBC的背光都改好了，我觉得这楼可以直接转型成<strong>古旧掌机折腾专楼</strong>了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zris  
+##### 97#         楼主| 发表于 2022-2-17 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54730754&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-2-17 20:45</a>
+看着楼主一开始只是想用NDSL玩玩GBA、现在却把GB和GBC的背光都改好了，我觉得这楼可以直接转型成古旧掌机折 ...</blockquote>
+有这个想法，等gbasp改完了就改成折腾专楼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
