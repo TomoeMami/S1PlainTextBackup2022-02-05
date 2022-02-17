@@ -814,3 +814,25 @@ NDSL 单独看也没啥毛病
 
 幻想以后和儿子交换小畜生，用20年前的队伍吊打他。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oidoid  
+##### 67#       发表于 2022-2-17 15:50
+
+ 本帖最后由 oidoid 于 2022-2-17 15:53 编辑 
+
+<img src="https://p.sda1.dev/5/ae88918321486ac0e567e89a412ba530/IMG_CMP_61437683.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/eeb7f85b34c47ed5a3aa918b9ff1a60c/IMG_CMP_102853317.jpeg" referrerpolicy="no-referrer">
+把这贴在几个群发了下，于是有个好心群友把自己已经吃灰的旧机免费送我折腾了
+一开始没点亮我还以为是保险烧了，这种贴片玩意我不会修啊…然后发现在拨动的时候有一瞬间会亮绿灯
+得，开关内部氧化了吧
+<img src="https://p.sda1.dev/5/109502fef514a1cefea1ed440b7bd02f/IMG_CMP_27633900.jpeg" referrerpolicy="no-referrer">
+去街上手机修理店本来想找师傅焊下来拆开清洁
+正好柜台上有瓶电路清洗剂，直接往缝里喷进入然后划拉了几下，好了
+（拆开清洁的方法参考贴吧这贴https://tieba.baidu.com/p/2623836003）
+本来以为外壳不用换的，老化太厉害还没了电池盖
+只能继续买新外壳和新屏幕，等快递到了再补后续好了
+<img src="https://p.sda1.dev/5/afd7f68cba7b577c1a997d6a4f5bc879/IMG_CMP_153011341.jpeg" referrerpolicy="no-referrer">
+
