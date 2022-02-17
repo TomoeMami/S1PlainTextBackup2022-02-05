@@ -1080,3 +1080,84 @@ ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发�
 
 更换导电胶是一个方法。另一个方法就是在十字键的四个方向下面垫点儿东西来减少一点点键程，但这会让手感变硬，看你自己喜好吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CamphorLife  
+##### 88#       发表于 2022-2-17 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728555&amp;ptid=2049173" target="_blank">戏言学者 发表于 2022-2-17 17:41</a>
+
+话说ndsl和GBAsp按键手感有区别吗</blockquote>
+有，NDSL是导电胶，手感是软弹的，更接近GBA横机和手柄（当然小了好几号）。
+
+GBASP、NDSi是微动，比较硬脆，JC也是这种
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 戏言学者| + 1||
+
+查看全部评分
+
+*****
+
+####  oidoid  
+##### 89#       发表于 2022-2-17 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728555&amp;ptid=2049173" target="_blank">戏言学者 发表于 2022-2-17 17:41</a>
+
+话说ndsl和GBAsp按键手感有区别吗</blockquote>
+补充一下，GBASP的键程相对来说比较短
+
+虽然微动硬脆但没那种能“大力按下去”的手感
+
+NDSL虽然是导电胶，但是键程也比较短，而且按键相对GBA来说小了一圈，也有一定程度的手感影响。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 戏言学者| + 1||
+
+查看全部评分
+
+*****
+
+####  oidoid  
+##### 90#       发表于 2022-2-17 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54729097&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-2-17 18:24</a>
+
+他们用的导电胶非常的难按到底。所以用力不够的时候会断触，切换方向的时候有大概率按不到斜方向
+
+更换导 ...</blockquote>
+反正这货也不贵，多买几份也不心疼，有手感值得推荐的么？
+
+（话说这话要是在贴吧说八九不离十会被打成店家广告了233）
+
+
+
+*****
+
+####  zris  
+##### 91#         楼主| 发表于 2022-2-17 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54729259&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 18:37</a>
+反正这货也不贵，多买几份也不心疼，有手感值得推荐的么？
+
+（话说这话要是在贴吧说八九不离十会被打成店 ...</blockquote>
+其实我感觉现在taobao流通那些基本都是一样的供应商，要我说不如买几个gba尸体机 以后留着换肩键，一些其他零碎零件啥的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
