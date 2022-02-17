@@ -2717,3 +2717,23 @@ KR还是留了一手
 
 估计是彩虹里面裁了一批staff所以合并了吧
 
+
+
+*****
+
+####  asdhai  
+##### 10739#       发表于 2022-2-17 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728379&amp;ptid=1972669" target="_blank">滑稽Captain 发表于 2022-2-17 17:29</a>
+
+你综是不是好久没有楼友发sc/同接数据榜单了，伸个手</blockquote>
+我发这里了。
+[http://tieba.baidu.com/p/7710889 ... 0E9A08E1C95BEC808D5](http://tieba.baidu.com/p/7710889946?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.19.1.0&amp;st=1645096571&amp;is_video=false&amp;unique=C3F55EB5ED8990E9A08E1C95BEC808D5)
+
+*****
+
+####  FCCHua  
+##### 10740#       发表于 2022-2-17 19:25
+
+希望虹海外3d的进度能快点吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
