@@ -2667,3 +2667,19 @@ NIJISANJI (ID, KR)は4月上旬に国内「にじさんじ」へ統合します�
 
 你综是不是好久没有楼友发sc/同接数据榜单了，伸个手
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10735#       发表于 2022-2-17 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728211&amp;ptid=1972669" target="_blank">Longinus_ 发表于 2022-2-17 17:18</a>
+
+带上猫鸟整蛊冠军 kr要怎么放水比分才能不难看</blockquote>
+把猫鸟鬼交换到KR，再把Nari和Roha换过来可破<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+怎么Siu和Chiho没来，印象中他俩打得也很不错
+
+KR还是留了一手
+
