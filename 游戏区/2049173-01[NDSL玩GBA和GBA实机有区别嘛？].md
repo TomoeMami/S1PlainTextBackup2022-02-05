@@ -915,3 +915,82 @@ ezomega这个卡貌似有存不上档的问题，基站og和圣光魔石都发�
 之前还搞了一个品相很 ...</blockquote>
 dsl的按键布局还是差一点感觉，加上我以前的ez3in1 sram可能坏了，不然我也不折腾gba
 
+
+
+*****
+
+####  スペシャル  
+##### 75#       发表于 2022-2-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727401&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:20</a>
+
+dsl的按键布局还是差一点感觉，加上我以前的ez3in1 sram可能坏了，不然我也不折腾gba ...</blockquote>
+嗯，手感可能老的饭盒机好些，就是屏幕发色太惨淡了，感觉上也就比sp好些
+
+*****
+
+####  zris  
+##### 76#         楼主| 发表于 2022-2-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727371&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:18</a>
+
+反正买都买了，这里也不是贴吧
+
+老哥明示下吧，这家的按键的问题是啥，要怎么修？ ...</blockquote>
+我这几天测试下来，咋说呢，十字键感觉有点断触，但是不是很严重。大力一点就问题了
+
+我后来又买了一个普亮的SP，sp按键手感要好很多
+
+我感觉主要是导电胶有问题，你试试原装和舞馆家的区别
+
+*****
+
+####  zris  
+##### 77#         楼主| 发表于 2022-2-17 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说起来
+
+我自己用SC lite配NDSL已经没啥不满的了
+
+我换GBA玩，除了手感，还有个问题就是狗比SC LITE热键 呼出菜单是  L + R + select/start+ a/b<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+NDSL按键布局贼不顺手，像我高强度搞火纹，来回读档，真是玩尼玛···
+
+*****
+
+####  zris  
+##### 78#         楼主| 发表于 2022-2-17 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54726954&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 15:50</a>
+
+把这贴在几个群发了下，于是有个好心群友把自己已经吃灰的旧机免费送我折腾了
+
+一开始没点亮我还以为是保 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">你那几个群，还缺群友嘛
+
+*****
+
+####  oidoid  
+##### 79#       发表于 2022-2-17 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727512&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-17 16:28</a>
+我这几天测试下来，咋说呢，十字键感觉有点断触，但是不是很严重。大力一点就问题了
+
+我后来又买了一个普 ...</blockquote>
+<img src="https://p.sda1.dev/5/8f02b3b3473cc81e580cf8c2ce124e9c/IMG_CMP_20002869.jpeg" referrerpolicy="no-referrer">
+我也很想留下原来的导电胶的…但拆开的时候才发现A键位置已经要断了
+
+*****
+
+####  zris  
+##### 80#         楼主| 发表于 2022-2-17 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54727585&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-17 16:34</a>
+
+我也很想留下原来的导电胶的…但拆开的时候才发现A键位置已经要断了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这
+
+先留着吧
+
+当然这个现象也不是绝对····
+
