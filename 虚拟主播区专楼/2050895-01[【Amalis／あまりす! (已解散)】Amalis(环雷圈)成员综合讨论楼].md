@@ -1445,3 +1445,16 @@ koni的BID
 
 鱼自己就会粤语好像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GJ05  
+##### 143#       发表于 2022-2-18 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54739295&amp;ptid=2050895" target="_blank">harry3 发表于 2022-2-18 13:23</a>
+看家庭的吧，马来中文烂的香蕉人不也很多。而且vtb本身就算是边缘社区了，边缘人有的是。 ...</blockquote>
+主要，玲子中文说的相当烂，一看就没有中文语言环境而且平时不用，马来语就会打个招呼，实际就会说个英语。马来西亚华人中文差，而且还不会马来语的应该不多，除非从小接受英文教育
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
