@@ -1034,3 +1034,29 @@ N64的化，推荐用这个模拟器m64p：[https://github.com/m64p/m64p/release
 
 这里面就用上了ParaLLEl插件。
 
+
+
+*****
+
+####  kimmmmmm  
+##### 87#       发表于 2022-2-18 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54742915&amp;ptid=2050753" target="_blank">violettor 发表于 2022-2-18 17:54</a>
+请问下这是什么游戏呀</blockquote>
+格兰蒂亚1，有switch官方中文版
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kimmmmmm  
+##### 88#       发表于 2022-2-18 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54744302&amp;ptid=2050753" target="_blank">droople 发表于 2022-2-18 20:02</a>
+@reegun
+
+你回我之前看看他是你这个玩法吗！！！！</blockquote>
+像上面模拟crt的滤镜玩老主机其实很一般的，因为现在的显示器一般都是平的，搞个crt太麻烦了。ra滤镜玩掌机游戏的时候才是效果奇佳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

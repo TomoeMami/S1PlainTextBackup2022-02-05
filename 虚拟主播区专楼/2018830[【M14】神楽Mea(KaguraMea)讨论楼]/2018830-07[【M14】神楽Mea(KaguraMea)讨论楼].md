@@ -2073,3 +2073,14 @@ afa下午3点15到4点15竟然有1个小时，总该给点东西看看了吧
 
 很明显，vcp的staff并不会看vcp的直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9230#       发表于 2022-2-18 21:00
+
+下班，在这炸麦的房间太煎熬了。
+
+这回企划也挺无聊的。
+
