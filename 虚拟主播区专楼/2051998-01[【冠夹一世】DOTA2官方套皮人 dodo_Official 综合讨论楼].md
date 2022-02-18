@@ -3003,3 +3003,30 @@ do子看比赛纯迷惑行为，没表现出对比赛有任何热情<img src="ht
 
 看dota比赛只要看着就行，弹幕自己会吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 356#       发表于 2022-2-18 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夹夹看比赛简直是书报亭上班，很难不怀疑是撸狗
+
+*****
+
+####  lpsquirrel  
+##### 357#       发表于 2022-2-18 21:18
+
+又不能明显暴露立场，说错了又要被喷，这比赛看着确实没意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  端木恋心  
+##### 358#       发表于 2022-2-18 21:20
+
+dodo打csgo了，纯纯坐牢。
+
+血压飙升
+

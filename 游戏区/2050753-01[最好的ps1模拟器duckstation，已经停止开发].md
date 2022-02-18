@@ -1060,3 +1060,15 @@ N64的化，推荐用这个模拟器m64p：[https://github.com/m64p/m64p/release
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  droople  
+##### 89#       发表于 2022-2-18 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54745281&amp;ptid=2050753" target="_blank">kimmmmmm 发表于 2022-2-18 21:08</a>
+
+像上面模拟crt的滤镜玩老主机其实很一般的，因为现在的显示器一般都是平的，搞个crt太麻烦了。ra滤镜玩掌 ...</blockquote>
+所以啊，所以你还是绕不开shader啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

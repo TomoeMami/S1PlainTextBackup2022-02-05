@@ -1468,3 +1468,19 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 抽到了ss的占卜姐和魔女妹，这俩可以练吗</blockquote>
 都是t0强度，目前影子bosslv8练级大法，这2个可以说是核心了，全队3t暴击buff的占卜，突属性大招的天然ちゃん,都是影子lv8必带的
 
+
+
+*****
+
+####  barca  
+##### 137#       发表于 2022-2-18 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54739636&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-18 13:49</a>
+送的女主SS跟和泉不能C吗？如果现在不好打活动BOSS，又不需要抽卡的话，要做什么才能变得能打？
+
+—— 来 ...</blockquote>
+这期池子up突系buffer，也是这次活动boss的对策卡，可以抽的。按照飞机社的尿性，拐的重要性不言而喻
+而且这游戏ssr不怕重复，1凸有很大的提升。在前期box不全的情况下，抽卡收益也很高，new一个A也能看个人剧情，交流强化和收集的任务也有石头可拿
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

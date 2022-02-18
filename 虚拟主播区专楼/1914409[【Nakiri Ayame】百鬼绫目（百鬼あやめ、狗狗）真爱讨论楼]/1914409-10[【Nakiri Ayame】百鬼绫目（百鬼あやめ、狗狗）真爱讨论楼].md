@@ -4826,3 +4826,12 @@ towa那边说明天晚上有和绫总打瓦的联动
 
 居然是打瓦么 我还在猜是不是打A
 
+
+
+*****
+
+####  因为你不会  
+##### 13978#       发表于 2022-2-18 21:10
+
+绫总是不是瓦罗兰特又买皮肤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
