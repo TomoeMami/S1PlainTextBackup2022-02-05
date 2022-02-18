@@ -13640,3 +13640,15 @@ TVアニメ「ラブライブ！スーパースター!!」各法人のBlu-ray全
 
 反正水二期开始特典CD就没新封面了
 
+
+
+*****
+
+####  cat1230  
+##### 5609#       发表于 2022-2-19 03:51
+
+鲤鱼又要上电视节目啦，anisondays，而且还唱的滑滑蛋<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+啥时候安排安排跟丰崎爱生合作个节目呀<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

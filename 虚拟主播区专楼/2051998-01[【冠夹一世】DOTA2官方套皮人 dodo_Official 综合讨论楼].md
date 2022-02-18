@@ -3057,3 +3057,18 @@ dodo打csgo了，纯纯坐牢。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">女陪玩假说的可能性提升了
 
+
+
+*****
+
+####  一品堂官  
+##### 362#       发表于 2022-2-19 04:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54745764&amp;ptid=2051998" target="_blank">nma 发表于 2022-2-18 21:41</a>
+直播比赛要么有指指点点欲望，要么有代入感，就是没见过do子这种清心寡欲事不关己的，还不如打cs有意思
+
+— ...</blockquote>
+正经刀狗会在这看比赛？主播忙着和弹幕调情，真想看比赛的当然觉得无聊。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

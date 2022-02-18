@@ -1308,3 +1308,14 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  李小狼  
+##### 101#       发表于 2022-2-19 02:14
+
+麻烦大佬给掌掌眼，上周刚换的舞馆2021的点对点，这算有横纹吗<img src="https://p.sda1.dev/5/ed17454bf66e1a424522d05708c5bc62/IMG_CMP_197148888.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
