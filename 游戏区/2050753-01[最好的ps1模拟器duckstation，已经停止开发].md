@@ -928,3 +928,27 @@ DuckStation停止开发的消息一出，的确让国内某无良模拟器的作
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  kimmmmmm  
+##### 79#       发表于 2022-2-18 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54737128&amp;ptid=2050753" target="_blank">droople 发表于 2022-2-18 11:02</a>
+
+@kimmmmmm
+
+原汁原味还玩什么模拟器。。。。。</blockquote>
+模拟器我都开超频，ps我开多倍分辨率和防抖动，fcmd开放闪烁，基本原汁原味，体验比原版好得多
+
+*****
+
+####  droople  
+##### 80#       发表于 2022-2-18 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54739861&amp;ptid=2050753" target="_blank">kimmmmmm 发表于 2022-02-18 14:05:46</a>
+模拟器我都开超频，ps我开多倍分辨率和防抖动，fcmd开放闪烁，基本原汁原味，体验比原版好得多 ...</blockquote>你是接crt玩？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
