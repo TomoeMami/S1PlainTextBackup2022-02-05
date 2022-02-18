@@ -1436,3 +1436,16 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 现在SS有和泉国见逢川星罗，S貌似没什么好卡，抽卡是留着以后抽强的还是现在抽了补强？还有通第二章的3000 ...</blockquote>
 你这box可以了钻留着吧，每天发是游戏内的天数，每过一天（节）给100，通完第二章25天一共3000，我的建议是先打第二章BOSS，比活动a级简单一点，你c位逢川是打系，打活动BOSS很难受
 
+
+
+*****
+
+####  poor  
+##### 134#       发表于 2022-2-18 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54739182&amp;ptid=2050204" target="_blank">aucun 发表于 2022-2-18 13:12</a>
+你这box可以了钻留着吧，每天发是游戏内的天数，每过一天（节）给100，通完第二章25天一共3000，我的建议 ...</blockquote>
+送的女主SS跟和泉不能C吗？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
