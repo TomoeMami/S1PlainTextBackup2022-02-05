@@ -1436,3 +1436,12 @@ koni的BID
 
 鱼鱼好像是华裔？上次直播她说她亲戚会说闽南语还是粤语来着
 
+
+
+*****
+
+####  人別離苦  
+##### 142#       发表于 2022-2-18 16:21
+
+鱼自己就会粤语好像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
