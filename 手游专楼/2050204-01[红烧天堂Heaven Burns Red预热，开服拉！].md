@@ -1414,3 +1414,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 3k钻是哪里的情报啊</blockquote>
 直播说的，我还以为打通一次性给，原来是过一天给100，可以慢慢推了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 132#       发表于 2022-2-18 12:32
+
+现在SS有和泉国见逢川星罗，S貌似没什么好卡，抽卡是留着以后抽强的还是现在抽了补强？还有通第二章的3000钻看前面说是要现在通了以后每天发点？那现在是打第二章好还是打活动好？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
