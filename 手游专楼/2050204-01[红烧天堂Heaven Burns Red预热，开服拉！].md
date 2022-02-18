@@ -1449,3 +1449,22 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  月球列车  
+##### 135#       发表于 2022-2-18 15:05
+
+抽到了ss的占卜姐和魔女妹，这俩可以练吗
+
+*****
+
+####  elven119  
+##### 136#         楼主| 发表于 2022-2-18 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54740722&amp;ptid=2050204" target="_blank">月球列车 发表于 2022-2-18 15:05</a>
+
+抽到了ss的占卜姐和魔女妹，这俩可以练吗</blockquote>
+都是t0强度，目前影子bosslv8练级大法，这2个可以说是核心了，全队3t暴击buff的占卜，突属性大招的天然ちゃん,都是影子lv8必带的
+

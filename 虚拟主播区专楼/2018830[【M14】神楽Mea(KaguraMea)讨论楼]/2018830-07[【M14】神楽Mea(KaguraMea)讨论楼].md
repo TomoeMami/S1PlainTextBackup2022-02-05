@@ -1874,3 +1874,22 @@ mea队友能带飞，这是BLG的ad位享受不到的
 
 我看不懂lol，但每次点进直播间看kda都很凄惨，属于是越玩越坐牢了
 
+
+
+*****
+
+####  上坂蓮華  
+##### 9208#       发表于 2022-2-18 15:05
+
+感觉变强了，或者说敢走到对面ad脸上单挑
+
+*****
+
+####  古战场亡魂  
+##### 9209#       发表于 2022-2-18 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54740729&amp;ptid=2018830" target="_blank">上坂蓮華 发表于 2022-2-18 15:05</a>
+
+感觉变强了，或者说敢走到对面ad脸上单挑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">强的不是mea，强的是泽丽……
+

@@ -952,3 +952,17 @@ DuckStation停止开发的消息一出，的确让国内某无良模拟器的作
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  reegun  
+##### 81#       发表于 2022-2-18 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54737128&amp;ptid=2050753" target="_blank">droople 发表于 2022-2-18 11:02</a>
+@kimmmmmm
+
+原汁原味还玩什么模拟器。。。。。</blockquote>
+模拟器怎么不能原汁原味了？完全原机分辨率自动切换，刷新率完美匹配。弄台低解电脑配好模拟器完事。当然弄台状态可以的彩监就比较麻烦。
+duckstation这个可以通过ra挂switchres实现完美实机分辨率刷新率，不过既然闹翻了么，就用emucrt好了，可以从fc给你完美实现到土星的原生画面。<img src="https://p.sda1.dev/5/8ac5d8427fbce1d414c1ec9713348351/IMG_CMP_113072303.jpeg" referrerpolicy="no-referrer">
+
