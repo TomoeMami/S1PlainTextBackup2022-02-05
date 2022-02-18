@@ -1760,3 +1760,14 @@ space
 
 周五vcp~小麻又有摸鱼的理由~
 
+
+
+*****
+
+####  十九号大侠  
+##### 9196#       发表于 2022-2-18 08:32
+
+别急，等会就打lol
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
