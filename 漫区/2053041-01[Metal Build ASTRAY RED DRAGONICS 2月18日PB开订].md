@@ -703,3 +703,42 @@ bandai近年成品搞色差分色 魔怔了
 这一看就是没有支架站不稳的东西……摆个姿势都费劲，希望这是最后一部异端的mb……一会去凑个热闹～ ...</blockquote>
 漆黑攻击真要出的话那漆黑异端基本上没跑了只需要新开模个天线以及枪刃其余都是现成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 65#       发表于 2022-2-18 18:59
+
+倒狗凶猛
+
+准点进去点付款，就跳出错误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算了，等配件包吧
+
+*****
+
+####  gpx234mqx  
+##### 66#       发表于 2022-2-18 19:02
+
+ 本帖最后由 gpx234mqx 于 2022-2-18 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54741338&amp;ptid=2053041" target="_blank">猫溺泉君 发表于 2022-2-18 15:46</a>
+
+只有视力不好才会觉得下半身这是一点点变化，就冲着这次红魔龙素体总算能玩了也是有价值的，腰可动膝盖可动 ...</blockquote>
+看图这大腿比原本抬高了一点，本来最多踢腿和地面平行，的确改进了下
+
+就看能不能还原设定的动作
+
+但是官方没给说明，这就有问题了
+
+如果真能还原设定的可动幅度，还不死命吹啊
+
+屏幕截图 2022-02-18 190400.png
+(45.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-18 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202202/18/190452ja2wk8k2xd3xvbe4.png" referrerpolicy="no-referrer">
+
