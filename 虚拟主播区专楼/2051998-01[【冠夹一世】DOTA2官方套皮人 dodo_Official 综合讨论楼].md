@@ -2994,3 +2994,12 @@ dodo新视频挺有意思的
 
 do子看比赛纯迷惑行为，没表现出对比赛有任何热情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  赤星ビスコ  
+##### 355#       发表于 2022-2-18 20:44
+
+看dota比赛只要看着就行，弹幕自己会吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

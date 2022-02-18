@@ -1018,3 +1018,19 @@ duckstation这个可以通过ra挂switchres实现完美实机分辨率刷新率�
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  nightrap  
+##### 86#       发表于 2022-2-18 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54742758&amp;ptid=2050753" target="_blank">dreamquest 发表于 2022-2-18 17:41</a>
+
+话说我单纯就是为了Parallel这个N64核心
+
+当初论坛的小伙伴推荐的，模拟N64特别准确，可是非得下个ra才能用 ...</blockquote>
+N64的化，推荐用这个模拟器m64p：[https://github.com/m64p/m64p/releases](https://github.com/m64p/m64p/releases)
+
+这里面就用上了ParaLLEl插件。
+

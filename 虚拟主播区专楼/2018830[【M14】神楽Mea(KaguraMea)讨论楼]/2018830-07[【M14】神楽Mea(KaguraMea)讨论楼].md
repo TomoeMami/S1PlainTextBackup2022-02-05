@@ -2064,3 +2064,12 @@ afa下午3点15到4点15竟然有1个小时，总该给点东西看看了吧
 
 神奇的直播，正常音量的话就是，一个炸麦的+一个没音量的+一个低音量的，声音高点，花园猫一笑炸麦耳朵就疼。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我服了，是没联动过吗？？？还比mc力，不看弹幕，不调声音，比个锤子的mc力……
 
+
+
+*****
+
+####  路人庚  
+##### 9229#       发表于 2022-2-18 20:22
+
+很明显，vcp的staff并不会看vcp的直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
