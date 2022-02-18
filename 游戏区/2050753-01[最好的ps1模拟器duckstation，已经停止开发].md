@@ -1072,3 +1072,15 @@ N64的化，推荐用这个模拟器m64p：[https://github.com/m64p/m64p/release
 像上面模拟crt的滤镜玩老主机其实很一般的，因为现在的显示器一般都是平的，搞个crt太麻烦了。ra滤镜玩掌 ...</blockquote>
 所以啊，所以你还是绕不开shader啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛利提督  
+##### 90#       发表于 2022-2-18 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54735729&amp;ptid=2050753" target="_blank">nightrap 发表于 2022-2-18 09:41</a>
+
+如果你试过的游戏多了就会发现ePSXe根本不行，最有名的就是Konami当年的那堆养成类游戏（包括心跳回忆话 ...</blockquote>
+epsxe最著名的是刀魂的显示bug，十几年了没修好
+

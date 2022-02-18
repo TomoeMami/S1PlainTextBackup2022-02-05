@@ -3030,3 +3030,21 @@ dodo打csgo了，纯纯坐牢。
 
 血压飙升
 
+
+
+*****
+
+####  反方向的波  
+##### 359#       发表于 2022-2-18 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么回事，夹夹这狙二连杀？？？？？？
+
+*****
+
+####  nma  
+##### 360#       发表于 2022-2-18 21:41
+
+直播比赛要么有指指点点欲望，要么有代入感，就是没见过do子这种清心寡欲事不关己的，还不如打cs有意思
+
+—— 来自火星上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0-debug
+
