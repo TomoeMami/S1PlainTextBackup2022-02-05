@@ -1963,3 +1963,53 @@ afa下午3点15到4点15竟然有1个小时，总该给点东西看看了吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那也太拉了
 
+
+
+*****
+
+####  往世雷书  
+##### 9218#       发表于 2022-2-18 17:06
+
+别就那几个游戏了，打块也是老游戏从来没见她再捡起来过，看技术应该是专门练过的，却一点也不喜欢玩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  呓亘  
+##### 9219#       发表于 2022-2-18 17:09
+
+搞点杂谈企划也成啊……
+
+*****
+
+####  时间在我手中  
+##### 9220#       发表于 2022-2-18 17:09
+
+哈，你以为打块她那个程度很需要练吗，我花了三天练会DT炮基本就有把握赢这人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 9221#       发表于 2022-2-18 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54742331&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-2-18 17:09</a>
+哈，你以为打块她那个程度很需要练吗，我花了三天练会DT炮基本就有把握赢这人了 ...</blockquote>
+管人们打了一个多月也没见人均庄司水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  时间在我手中  
+##### 9222#       发表于 2022-2-18 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54742374&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-2-18 17:13</a>
+
+管人们打了一个多月也没见人均庄司水平
+
+—— 来自 S1Fun</blockquote>
+不学固定开局或者学会高效率挖掘，做T旋乃至做W连的人凭什么能【变强】，就算是吊人本质上那会儿也不过是靠反应和经验赢的，事实上就是学会一些固定开局和T旋做法能最快达到一个凑合的水平。
+
+当然，有的人反应实在快不起来那又是另外一回事了
+
