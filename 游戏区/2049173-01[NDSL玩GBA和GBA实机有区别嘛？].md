@@ -1291,3 +1291,20 @@ NDSL虽然是导电胶，但是键程也比较短，而且按键相对GBA来说�
 上周刚把神游的B屏SP改了typec充电音频一体的接口，配上饭盒Nds的电池，感觉齐活了。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 gbp改高亮ips屏配ezj烧录卡有个问题，就是电池电压需求比较高，爱老婆不适用了，只能用南孚恒压锂电才能勉强撑得住。gbc好像就没有这个问题。
 
+
+
+*****
+
+####  亚瑟摩根  
+##### 100#       发表于 2022-2-19 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54746751&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-18 23:08</a>
+艹生，买了才有人说这个问题
+
+看了下我是03的主板，40针的
+
+https://www.bilibili.com/read/cv14802142</blockquote>
+我记得横纹不是说拧电位器可以消除嘛，你问问舞馆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
