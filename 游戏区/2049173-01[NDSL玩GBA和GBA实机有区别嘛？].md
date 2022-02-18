@@ -1252,3 +1252,32 @@ NDSL虽然是导电胶，但是键程也比较短，而且按键相对GBA来说�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  oidoid  
+##### 98#       发表于 2022-2-18 23:08
+
+ 本帖最后由 oidoid 于 2022-2-18 23:11 编辑 
+
+<img src="https://img.saraba1st.com/forum/202202/18/230742dwwp0iz14nn4h587.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220218230732.png</strong> (14.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-18 23:07 上传
+
+艹生，买了才有人说这个问题
+
+看了下我是03的主板，40针的
+[https://www.bilibili.com/read/cv14802142](https://www.bilibili.com/read/cv14802142) <blockquote>初代版本：电池仓数字为01，板号 AGB-CPU-01 ，40针屏幕，CPU那一面有一个飞件；
+
+第二版：电池仓数字为02，板号 AGB-CPU-02 ，40针屏幕，固定主板的有3颗螺钉，卡带挡板有4颗螺钉；
+
+第三版：电池仓数字为03，板号 AGB-CPU-03 ，40针屏幕，主机进一步costdown，固定主板的有2颗螺钉，卡带挡板有2颗螺钉；
+
+第四版：电池仓数字为10，板号 AGB-CPU-10 ，32针屏幕，主板设计和前几种都有区别，固定主板的有2颗螺钉，卡带挡板有2颗螺钉。</blockquote>
+算了先试试，不行就咸鱼和人换算了
+

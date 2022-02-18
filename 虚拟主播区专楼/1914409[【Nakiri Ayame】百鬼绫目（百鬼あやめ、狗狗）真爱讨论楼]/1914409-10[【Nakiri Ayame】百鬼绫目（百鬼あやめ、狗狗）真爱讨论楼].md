@@ -4844,3 +4844,13 @@ towa那边说明天晚上有和绫总打瓦的联动
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瓦现在也挺火的
 
+
+
+*****
+
+####  nian1538  
+##### 13980#       发表于 2022-2-18 23:09
+
+Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴也很紧张
+[https://youtu.be/ix0xg4tVBpQ?t=8940](https://youtu.be/ix0xg4tVBpQ?t=8940)
+
