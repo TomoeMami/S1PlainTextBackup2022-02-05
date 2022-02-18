@@ -1484,3 +1484,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  BrainDead  
+##### 138#       发表于 2022-2-19 01:21
+
+这游戏抽卡点数不继承也就算了，卡池关闭之后这些点数居然只能用来换破烂？
+
+看得我是直接不敢抽了，感觉只能攒满200发再开抽，否则亏到姥姥家。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
