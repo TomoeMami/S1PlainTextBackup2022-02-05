@@ -886,3 +886,29 @@ DuckStation停止开发的消息一出，的确让国内某无良模拟器的作
 
 我以为十几年前的epsxe就已经能完美模拟PS1了，还差哪里不行吗？
 
+
+
+*****
+
+####  nightrap  
+##### 76#       发表于 2022-2-18 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54709142&amp;ptid=2050753" target="_blank">CamphorLife 发表于 2022-2-16 11:50</a>
+
+那现在duckstation和swanstation该选哪个？</blockquote>
+我独爱Xebra，毕竟支持游戏数量多和对游戏的兼容性强等特点对我来说更为重要。
+
+不过这个只限于PC版，这个模拟器虽说有安卓版但完成度严重不足。并且只能保佑这个模拟器不会像pSX那样因为原作者的放弃而废了吧。
+
+*****
+
+####  nightrap  
+##### 77#       发表于 2022-2-18 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54709874&amp;ptid=2050753" target="_blank">超级柯南迷 发表于 2022-2-16 12:33</a>
+
+我以为十几年前的epsxe就已经能完美模拟PS1了，还差哪里不行吗？</blockquote>
+如果你试过的游戏多了就会发现ePSXe根本不行，最有名的就是Konami当年的那堆养成类游戏（包括心跳回忆话剧集、心跳回忆2、凝望骑士等游戏），不是完全玩不了就是游戏途中的bug多导致影响正常游戏。
+
+不过这似乎是没办法的事情，PS的这种机制就导致如果想要增强画面就会牺牲模拟精度和游戏兼容性。PS模拟在游戏兼容性的特点基本是这样的：3D加速插件&lt;纯2D插件&lt;只用纯软件方式的模拟器，兼容性问题到现在依然没有很好的解决办法。
+
