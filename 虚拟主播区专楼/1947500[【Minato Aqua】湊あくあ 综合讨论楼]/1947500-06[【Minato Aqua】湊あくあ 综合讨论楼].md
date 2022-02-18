@@ -6701,3 +6701,14 @@ towa？真的不熟、现有最有可能只有西西队了<img src="https://stat
 
 看mv的时候满脑子都是needy streamer overdose。
 
+
+
+*****
+
+####  zpy393  
+##### 8283#       发表于 2022-2-18 23:21
+
+几首原创曲听多了觉得还蛮好听的
+
+啊，除了那首“太喜欢夸夸了”是我欣赏不来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
