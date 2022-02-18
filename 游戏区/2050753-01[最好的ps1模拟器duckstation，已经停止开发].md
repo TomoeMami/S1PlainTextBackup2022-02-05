@@ -989,3 +989,32 @@ duckstation这个可以通过ra挂switchres实现完美实机分辨率刷新率�
 模拟器怎么不能原汁原味了？完全原机分辨率自动切换，刷新率完美匹配。弄台低解电脑配好模拟器完事。当然 ...</blockquote>
 请问下这是什么游戏呀
 
+
+
+*****
+
+####  保科智子  
+##### 84#       发表于 2022-2-18 19:45
+
+所以手机鸭站就是没法加滤镜吗？
+在机顶盒上装了鸭站玩ps特别方便，唯一缺的就是crt的扫描线了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  droople  
+##### 85#       发表于 2022-2-18 20:02
+
+啊
+
+ 本帖最后由 droople 于 2022-2-18 20:05 编辑 
+<blockquote>引用第80楼reegun于2022-02-18 15:13发表的  :
+
+引用:droople 发表于 2022-2-18 11:02@kimmmmmm原汁原味还玩什么模拟器......</blockquote>
+@reegun
+
+你回我之前看看他是你这个玩法吗！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+他不用shader
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 12](http://stage1.5j4m.com/?1.37)
+

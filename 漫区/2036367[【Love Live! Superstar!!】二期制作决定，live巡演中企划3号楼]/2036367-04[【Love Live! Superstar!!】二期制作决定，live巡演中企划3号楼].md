@@ -13575,3 +13575,43 @@ QQ图片20220217001748.png
 
 2022-2-18 19:21 上传
 
+
+
+*****
+
+####  Piano-Forest  
+##### 5603#       发表于 2022-2-18 19:43
+
+💫Blu-ray💫
+
+TVアニメ「ラブライブ！スーパースター!!」各法人のBlu-ray全巻購入特典デザインを公開🎊
+
+💿各特典楽曲のCDジャケット
+
+🌸Amazon特典ドラマCDジャケット
+
+2/25発売の第6巻と合わせ是非チェックしてくださいね🌟
+
+☑詳細
+[https://www.lovelive-anime.jp/yuigaoka/bd/#houjin](https://www.lovelive-anime.jp/yuigaoka/bd/#houjin)
+<img src="https://p.sda1.dev/5/29f62d58be9e46babdb42c1c0875a61b/20220218_194212.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/a8af61ef1c71b7ca0b7c410e1fba0339/20220218_194214.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 5604#       发表于 2022-2-18 19:50
+
+生放排到三月去了，看来二月星团广播生放都没了。
+干嘛不把返生肉发出来混时间啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有yurayura赶紧的，等不及听全曲了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5605#       发表于 2022-2-18 19:54
+
+这是不打算宣传一专吗…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
