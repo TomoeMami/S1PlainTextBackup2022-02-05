@@ -966,3 +966,14 @@ DuckStation停止开发的消息一出，的确让国内某无良模拟器的作
 模拟器怎么不能原汁原味了？完全原机分辨率自动切换，刷新率完美匹配。弄台低解电脑配好模拟器完事。当然弄台状态可以的彩监就比较麻烦。
 duckstation这个可以通过ra挂switchres实现完美实机分辨率刷新率，不过既然闹翻了么，就用emucrt好了，可以从fc给你完美实现到土星的原生画面。<img src="https://p.sda1.dev/5/8ac5d8427fbce1d414c1ec9713348351/IMG_CMP_113072303.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dreamquest  
+##### 82#       发表于 2022-2-18 17:41
+
+话说我单纯就是为了Parallel这个N64核心
+
+当初论坛的小伙伴推荐的，模拟N64特别准确，可是非得下个ra才能用，很麻烦，可是没有ra，这个核心貌似又无法运行，等于我这个ra里就这么一个核心<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
