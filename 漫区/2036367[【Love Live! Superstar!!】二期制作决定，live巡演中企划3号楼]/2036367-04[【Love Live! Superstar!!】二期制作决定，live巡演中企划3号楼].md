@@ -13615,3 +13615,12 @@ TVアニメ「ラブライブ！スーパースター!!」各法人のBlu-ray全
 
 这是不打算宣传一专吗…………<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 5606#       发表于 2022-2-18 20:11
+
+没人手还是没资源啊，这个特典有点敷衍？
+
