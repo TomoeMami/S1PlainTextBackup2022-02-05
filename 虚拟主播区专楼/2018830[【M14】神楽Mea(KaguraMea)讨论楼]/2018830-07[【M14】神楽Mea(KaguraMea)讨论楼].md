@@ -1845,3 +1845,12 @@ space
 
 mea这菜的实在看不下去了，观赏性远不如复盘ig打blg……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂蓮華  
+##### 9205#       发表于 2022-2-18 13:13
+
+mea队友能带飞，这是BLG的ad位享受不到的
+
