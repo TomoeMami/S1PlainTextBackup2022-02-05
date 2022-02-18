@@ -1369,3 +1369,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 —— 来自 Google Pixel 6, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  elven119  
+##### 128#         楼主| 发表于 2022-2-18 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54732043&amp;ptid=2050204" target="_blank">rsa1zc 发表于 2022-2-17 22:17</a>
+
+生放结束给了十几张票+500钻，月底前打通第二章送3k钻</blockquote>
+3k钻是哪里的情报啊
+
