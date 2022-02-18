@@ -1509,3 +1509,17 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 看得我是直接不敢抽了，感觉只 ...</blockquote>
 就是为了让你抽必得的
 
+
+
+*****
+
+####  elven119  
+##### 140#         楼主| 发表于 2022-2-19 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54747822&amp;ptid=2050204" target="_blank">BrainDead 发表于 2022-2-19 01:21</a>
+
+这游戏抽卡点数不继承也就算了，卡池关闭之后这些点数居然只能用来换破烂？
+
+看得我是直接不敢抽了，感觉只 ...</blockquote>
+飞机社传统，抽必得，石头存着等井，他公司游戏每个新卡池都会有一个必得池子，微课就靠这个了
+
