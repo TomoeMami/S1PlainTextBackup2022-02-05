@@ -1394,3 +1394,14 @@ koni的BID
 
 昨晚玲子的联动有趣，除了发言够丶外，还得益于是联动啊，普通的直播效果还是碍于中文水平一句话说半天，日常冷场直播断断续续的，昨晚因为有第二个人在，冷场时间大幅减少。
 
+
+
+*****
+
+####  ishikawa_k  
+##### 138#       发表于 2022-2-18 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54737818&amp;ptid=2050895" target="_blank">Vneet 发表于 2022-2-18 11:36</a>
+昨晚玲子的联动有趣，除了发言够丶外，还得益于是联动啊，普通的直播效果还是碍于中文水平一句话说半天，日 ...</blockquote>
+我觉得主要是喝了酒，建议以后每次开播前吹几瓶
+
