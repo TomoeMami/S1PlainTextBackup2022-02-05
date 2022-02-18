@@ -692,3 +692,14 @@ bandai近年成品搞色差分色 魔怔了
 
 这一看就是没有支架站不稳的东西……摆个姿势都费劲，希望这是最后一部异端的mb……一会去凑个热闹～
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 64#       发表于 2022-2-18 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54742169&amp;ptid=2053041" target="_blank">更木剑八 发表于 2022-2-18 16:53</a>
+这一看就是没有支架站不稳的东西……摆个姿势都费劲，希望这是最后一部异端的mb……一会去凑个热闹～ ...</blockquote>
+漆黑攻击真要出的话那漆黑异端基本上没跑了只需要新开模个天线以及枪刃其余都是现成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
