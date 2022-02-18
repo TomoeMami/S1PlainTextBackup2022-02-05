@@ -1402,3 +1402,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 所以这游戏SS的突破有稳定来源么?还是重氪只能抽；活动送的满破战力怎么样？相当于几破SS ...</blockquote>
 活动可以换ss突破碎片
 
+
+
+*****
+
+####  rsa1zc  
+##### 131#       发表于 2022-2-18 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54734757&amp;ptid=2050204" target="_blank">elven119 发表于 2022-2-18 07:46</a>
+
+3k钻是哪里的情报啊</blockquote>
+直播说的，我还以为打通一次性给，原来是过一天给100，可以慢慢推了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
