@@ -977,3 +977,15 @@ duckstation这个可以通过ra挂switchres实现完美实机分辨率刷新率�
 
 当初论坛的小伙伴推荐的，模拟N64特别准确，可是非得下个ra才能用，很麻烦，可是没有ra，这个核心貌似又无法运行，等于我这个ra里就这么一个核心<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  violettor  
+##### 83#       发表于 2022-2-18 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54740858&amp;ptid=2050753" target="_blank">reegun 发表于 2022-2-18 15:13</a>
+
+模拟器怎么不能原汁原味了？完全原机分辨率自动切换，刷新率完美匹配。弄台低解电脑配好模拟器完事。当然 ...</blockquote>
+请问下这是什么游戏呀
+
