@@ -1390,3 +1390,15 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 所以这游戏SS的突破有稳定来源么?还是重氪只能抽；活动送的满破战力怎么样？相当于几破SS
 
+
+
+*****
+
+####  elven119  
+##### 130#         楼主| 发表于 2022-2-18 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54737037&amp;ptid=2050204" target="_blank">exam00 发表于 2022-2-18 10:58</a>
+
+所以这游戏SS的突破有稳定来源么?还是重氪只能抽；活动送的满破战力怎么样？相当于几破SS ...</blockquote>
+活动可以换ss突破碎片
+
