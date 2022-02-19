@@ -1559,3 +1559,12 @@ gura和fauna的奥术魔刃<img src="https://static.saraba1st.com/image/smiley/f
 
 Gura去年就说想播PowerWash，病休前那周说终于要到许可了，星那边Roberu也先播了两次了，Kronii也准备播。今天日程表挂出来本来有PowerWash和Dying Light 2，结果马上撤掉说许可出问题了。游戏Dev直接跑推下面回复发许可。不知道是运营又搞砸什么了，或者也可能是发行商史克威尔那边的问题。
 
+
+
+*****
+
+####  PureIllusion  
+##### 1644#       发表于 2022-2-19 10:22
+
+Irys在twitter space里说，不让播bully了，估计是亚洲地理课的问题
+

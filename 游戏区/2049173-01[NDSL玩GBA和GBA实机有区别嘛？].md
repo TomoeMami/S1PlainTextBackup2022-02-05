@@ -1319,3 +1319,34 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  亚瑟摩根  
+##### 102#       发表于 2022-2-19 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54748110&amp;ptid=2049173" target="_blank">李小狼 发表于 2022-2-19 02:14</a>
+麻烦大佬给掌掌眼，上周刚换的舞馆2021的点对点，这算有横纹吗
+
+—— 来自 Xiaomi MIX 2S, Android 10上的  ...</blockquote>
+你这算可以了，安心玩吧，横纹如下图所示，和解决方法
+
+<img src="https://img.saraba1st.com/forum/202202/19/102106bue8761e7hhe8rmr.jpg" referrerpolicy="no-referrer">
+
+<strong>21176B2CFF5C1F3157309AD4BD3B538B.jpg</strong> (76.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-19 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202202/19/102111bzwn7w6pi6y6mfpp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220219_102050_com.baidu.tieba.jpg</strong> (730.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-19 10:21 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
