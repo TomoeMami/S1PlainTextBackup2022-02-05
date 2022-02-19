@@ -1118,3 +1118,24 @@ N64的化，推荐用这个模拟器m64p：https://github.com/m64p/m64p/releases
 <img src="https://s4.ax1x.com/2022/02/19/HHN4YD.png" referrerpolicy="no-referrer">
 <img src="https://s4.ax1x.com/2022/02/19/HHNTld.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Swanfal  
+##### 93#       发表于 2022-2-19 11:34
+
+ 本帖最后由 Swanfal 于 2022-2-19 11:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54557474&amp;ptid=2050753" target="_blank">Tring 发表于 2022-2-5 16:29</a>
+首先，几乎所有开源协议都要求保留署名权，藏代码太下作了。
+
+其次，GPL可是最具代表性的copyleft协议，怎 ...</blockquote>
+我不是站ra，但是GPL是鼓励商业化的，他们官方专门写过文
+
+https://www.gnu.org/philosophy/free-sw.zh-cn.html
+自由软件 可以 是商业软件
+
+“自由软件” 不表示 “非商业化”。与之相反，自由软件必须可以商用、可以商业开发、可以商业发布。这个政策非常重要—缺乏这样的政策，自由软件将无法实现自己的目标。 
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
