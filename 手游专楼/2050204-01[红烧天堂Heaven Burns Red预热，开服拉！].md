@@ -1548,3 +1548,17 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 —— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rsa1zc  
+##### 143#       发表于 2022-2-19 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54751984&amp;ptid=2050204" target="_blank">cvql 发表于 2022-2-19 14:27</a>
+
+发现挂机节能能扔在手机后台运行不影响工作。。。这样就还能凑合
+
+—— 来自 samsung SM-N9760, Android 11 ...</blockquote>
+后台都不需要挂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">进入自动周回模式后关机都行，下次上线自动收菜
+
