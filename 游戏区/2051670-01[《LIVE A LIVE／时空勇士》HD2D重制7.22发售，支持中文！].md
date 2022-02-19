@@ -1526,3 +1526,22 @@ https://www.bilibili.com/video/BV1cK4y1h77g
 光直面会PV和PV1就看得热泪盈眶了。真的谢谢时田的不放弃，而且找的声优都很对路。牛仔叔的明夫，老师是给 ...</blockquote>
 剧透这种东西，对于没玩过的人来说很多时候属于不点出来就不会注意的，到玩的时候可能都忘了
 
+
+
+*****
+
+####  ff2077  
+##### 150#       发表于 2022-2-19 19:50
+
+<img src="https://img.saraba1st.com/forum/202202/19/195027wb186wwbbmbu7335.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-02-19-19-48-24-889_com.sina.weibo.jpg</strong> (638.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-19 19:50 上传
+
+蕾莎出击不是刚出了个重制版
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
