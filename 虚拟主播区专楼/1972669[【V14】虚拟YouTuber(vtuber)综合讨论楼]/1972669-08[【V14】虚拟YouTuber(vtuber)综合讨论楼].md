@@ -2961,3 +2961,28 @@ lack结婚，好女人组织弟弟妹妹联合祝贺
 泥潭怎么没有彩虹专楼</blockquote>
 [https://bbs.saraba1st.com/2b/thread-1914336-1-2.html](https://bbs.saraba1st.com/2b/thread-1914336-1-2.html)
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10760#       发表于 2022-2-19 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54746945&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-2-18 23:26</a>
+兔头总会让人想起V是V...
+
+没...虚拟的地方不是设定...而是重现语C群，并且是V们假装成是一般人在语C着V他们 ...</blockquote>
+就是这一点我没get到啊。
+说到底虚拟与真实的二元对应已经很足够了。
+但是，这种虚拟的V装作自己是普通人在语cV。实际上就是普通人在语cV在这两种解释之间我觉得并没有很大的差异啊。
+没有那种冲击感或者说影响力？或者说意义？
+
+另外也有可能是我对他们的了解还没有足够到能通过文字来完成足够的联想<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 10761#       发表于 2022-2-19 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">确实回不去了。
+
