@@ -1084,3 +1084,21 @@ N64的化，推荐用这个模拟器m64p：[https://github.com/m64p/m64p/release
 如果你试过的游戏多了就会发现ePSXe根本不行，最有名的就是Konami当年的那堆养成类游戏（包括心跳回忆话 ...</blockquote>
 epsxe最著名的是刀魂的显示bug，十几年了没修好
 
+
+
+*****
+
+####  dreamquest  
+##### 91#       发表于 2022-2-19 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54745033&amp;ptid=2050753" target="_blank">nightrap 发表于 2022-2-18 20:46</a>
+
+N64的化，推荐用这个模拟器m64p：https://github.com/m64p/m64p/releases
+
+这里面就用上了ParaLLEl插件。 ...</blockquote>
+WWWWWOOOOOOOWWWWWW
+
+感谢感谢，终于能卸载掉RA啦，倒不是说RA不好，但我强迫症就排斥这种肥大的东西，包括MAME
+
+大佬那我顺便再问一下有没有好用的街机模拟器，MAME太大了，但是FBA模拟器和WINKAWAS模拟器又模拟不了噗哟噗哟
+
