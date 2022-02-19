@@ -6721,3 +6721,12 @@ towa？真的不熟、现有最有可能只有西西队了<img src="https://stat
 
 好像团长说老头环不能播 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 悲伤
 
+
+
+*****
+
+####  nian1538  
+##### 8285#       发表于 2022-2-19 07:50
+
+笑死，提前一天说锁日本IP，日清也太牛了吧
+
