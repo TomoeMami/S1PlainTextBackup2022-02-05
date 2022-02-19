@@ -3215,3 +3215,37 @@ do子：灭霸没大了<img src="https://static.saraba1st.com/image/smiley/face2
 最后靠着龙心加的血量吃了大把输出拖死了对面，实在是太神奇了</blockquote>
 有没有可能出个盘子a杖赢更快呢一个猜想
 
+
+
+*****
+
+####  端木恋心  
+##### 382#       发表于 2022-2-19 21:03
+
+ 本帖最后由 端木恋心 于 2022-2-19 21:06 编辑 
+
+F0啊还好中路哈斯卡不然中路开局走在翻盘路上 切出去了一下，没想到是大哥哈斯卡。
+
+*****
+
+####  反方向的波  
+##### 383#       发表于 2022-2-19 21:04
+
+连踩两花，这买了对面演员？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 384#       发表于 2022-2-19 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54756619&amp;ptid=2051998" target="_blank">haruhiismer 发表于 2022-2-19 21:02</a>
+有没有可能出个盘子a杖赢更快呢一个猜想</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我怀疑她对人马a杖的认识还停留在双刃剑年代
+
+*****
+
+####  反方向的波  
+##### 385#       发表于 2022-2-19 21:24
+
+今天她怎么玩什么都喜欢冲无视野高坡<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

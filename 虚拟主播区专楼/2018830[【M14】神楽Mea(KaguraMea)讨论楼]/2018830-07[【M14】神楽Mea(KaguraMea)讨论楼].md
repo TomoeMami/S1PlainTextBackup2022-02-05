@@ -2230,3 +2230,21 @@ VCP这企划。。。。到现在为止，一直给我一种一言难尽的感�
 
 syl，23号组长联动一个看起来像恐怖游戏
 
+
+
+*****
+
+####  呓亘  
+##### 9247#       发表于 2022-2-19 21:11
+
+棉花糖环节好评！！！
+
+*****
+
+####  呓亘  
+##### 9248#       发表于 2022-2-19 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54756590&amp;ptid=2018830" target="_blank">clvan_ 发表于 2022-2-19 21:00</a>
+ 突然插入棉花糖环节 syl，23号组长联动一个看起来像恐怖游戏</blockquote>
+恐鬼症
+
