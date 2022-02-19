@@ -9175,3 +9175,14 @@ side story
 —— 来自 HUAWEI PAR-AL00, Android 9上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不太可能，叔叔马娘手游都还给版号卡着
 
+
+
+*****
+
+####  gearbox  
+##### 683#       发表于 2022-2-19 09:18
+
+西安放映会的门票<img src="https://p.sda1.dev/5/cdd9857a28578a740d72ce4b5ef7afdc/IMG_CMP_133925132.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
