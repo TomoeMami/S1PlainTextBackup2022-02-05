@@ -1595,3 +1595,37 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  qw3434cn  
+##### 146#       发表于 2022-2-20 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54759103&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-20 00:18</a>
+
+练习场刷溶液（就是那个试管）的话，是越高级越好吗？感觉中级比低级少是不是我的错觉？
+
+另外无氪问几个以 ...</blockquote>
+关于掉落不是错觉，虽然高级掉率更高，但是低级刷起来要比高级快很多。
+
+开服这几个ss角色要想打最高级图 lv8 棱镜舒服的话，必须要有星罗，但是没有也能过。
+
+目前看来你游是送的少而且要抽人权卡的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+开服角色少，还不用追求纯克制。主流队都是一两个打手配拐，而且打手和拐都是ss<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+非ss的打手都是给ss打手当装备的，本身几乎不能用，无论是属性还是技能倍率都和ss差距极大。
+
+几个s级辅助有点绝活，可用，但是如果出了同角色ss的话是一定下班的。a卡就只能泡澡了。
+
+*****
+
+####  猫咪澎澎  
+##### 147#       发表于 2022-2-20 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54759103&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-20 00:18</a>
+ 练习场刷溶液（就是那个试管）的话，是越高级越好吗？感觉中级比低级少是不是我的错觉？  另外无氪问几个以 ...</blockquote>
+ 训练场看时间，初5或者中二哪个短刷哪个。
+你说的活动活下来不知道是什么意思。活动boss的难度跟迷宫层数挂钩，S级需要迷宫40层。看你打不打得过。现阶段没必要追求全队同属性，SS比S在属性上的差距还是非常可观的。打幻影boss一般都是攒SP破盾加buff一波大招输出，和迷宫是两种不同的思路
+

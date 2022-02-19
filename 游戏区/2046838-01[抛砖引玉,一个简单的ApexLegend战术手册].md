@@ -1482,3 +1482,17 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 我感觉涡轮太影响能量武器体系，迟早要被重做或者整合，快速上弹金配件那种程度就刚刚好，有没有差别不太大
 
+
+
+*****
+
+####  景田翼  
+##### 84#       发表于 2022-2-20 03:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54256262&amp;ptid=2046838" target="_blank">braverbt 发表于 2022-1-12 10:24</a>
+
+手柄做不来TS,不过其他的都是可以用的.
+
+原地0速起步,蹬墙跳,近战锤地面加速都可以.</blockquote>
+能教些手柄捡东西的技巧吗
+

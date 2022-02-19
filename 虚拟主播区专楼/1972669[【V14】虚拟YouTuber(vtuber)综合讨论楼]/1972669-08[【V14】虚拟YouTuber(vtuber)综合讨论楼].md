@@ -3114,3 +3114,98 @@ v本人在搞语c的笑点有点像卓别林在模仿大赛获得第三名，的
 
 搞新歌、新皮、新3D、live速度真的让人怀疑是家里有矿还是真在日本钓到金龟婿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 10771#       发表于 2022-2-20 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54759738&amp;ptid=1972669" target="_blank">バーチャルS1er 发表于 2022-2-20 01:34</a>
+
+眠大佐一直都是谜之财力啊，
+
+搞新歌、新皮、新3D、live速度真的让人怀疑是家里有矿还是真在日本钓到金龟 ...</blockquote>
+东雪莲不是说多摩美术的？大概家里有点钱吧，不过听了几首翻唱，这把人声调的都跟vocaloid一样，实在没什么兴趣听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 10772#       发表于 2022-2-20 01:58
+
+东雪莲在原创曲的音乐层面上还是值得一听的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 10773#       发表于 2022-2-20 02:10
+
+原创曲推荐都来听听riot最好的圆脸短腿姨长濑有花今天的live<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">已经拖下来了明天就放到2楼
+
+[https://www.bilibili.com/video/BV1gS4y1k7SH](https://www.bilibili.com/video/BV1gS4y1k7SH)
+
+*****
+
+####  OldGlory  
+##### 10774#       发表于 2022-2-20 02:11
+
+live和专辑本来就是有钱就能搞定，有啥奇怪的
+
+*****
+
+####  free  
+##### 10775#       发表于 2022-2-20 02:18
+
+ 本帖最后由 free 于 2022-2-20 02:27 编辑 
+
+润羽和mafumafu这点裤裆里的破事嗯炒多少天了还没个完，是个管人群就在讲这个，点去mafumafu的批站号看了一眼，管人粉丝还是太闲了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我只想说，有完没完？今天还跳不跳？不跳我睡觉去了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+要是想让粉丝舆论施压，起码也像当初azulim求助那样，围观群众还好站个队。现在谁关心你们裤裆里那点破事啊，两边全是谜语人，还天天在网上一哭二闹三上吊的<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TiHaru|-1|欢乐多|
+| gogomw|-1|你寄吧谁啊?|
+
+查看全部评分
+
+*****
+
+####  stmule  
+##### 10776#       发表于 2022-2-20 02:40
+
+说来azulim现在转型户外vtuber了，也是估不到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  fastary  
+##### 10777#       发表于 2022-2-20 03:13
+
+说起来我一直想看黑客参加大会之类的就是想看他留下团建的回忆，不过目前看来那个传说就是极限了吧……毕竟他连长篇游戏都很少有播第二回甚至播完的，无论是游戏企划还是联动组合都是倾向于一期一会……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+啊啊……复归之后要等多久才能看到他恢复社内联动呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10778#       发表于 2022-2-20 04:37
+
+草，抱有一丝希望硬熬夜到四点多想看不破逆凸黑客的我像个小丑
+
+*****
+
+####  伊可费斯  
+##### 10779#       发表于 2022-2-20 04:46
+
+看一眼感觉是spwn下那家公司做的？
+
