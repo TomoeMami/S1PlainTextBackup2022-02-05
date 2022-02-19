@@ -4854,3 +4854,12 @@ towa那边说明天晚上有和绫总打瓦的联动
 Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴也很紧张
 [https://youtu.be/ix0xg4tVBpQ?t=8940](https://youtu.be/ix0xg4tVBpQ?t=8940)
 
+
+
+*****
+
+####  stedckk  
+##### 13981#       发表于 2022-2-19 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么社障人设，跟男人玩的时候也没见你需要那么多勇气
+

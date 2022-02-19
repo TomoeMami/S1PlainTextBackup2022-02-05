@@ -1151,3 +1151,15 @@ https://www.gnu.org/philosophy/free-sw.zh-cn.html
 话说大佬发现个问题，有个游戏，我用RA的ParaLLEl就显示正确，用这个mupen64的ParaLLEl就显示不出来，大 ...</blockquote>
 我这边也试了一下你的这个游戏，可能确实是当前我说的这个模拟器存在的问题（我用BizHawk也没出现这种错误）。对这个游戏只能先用别的模拟器了，或是等这个模拟器再更新。
 
+
+
+*****
+
+####  dreamquest  
+##### 95#       发表于 2022-2-19 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54750359&amp;ptid=2050753" target="_blank">nightrap 发表于 2022-2-19 11:54</a>
+
+我这边也试了一下你的这个游戏，可能确实是当前我说的这个模拟器存在的问题（我用BizHawk也没出现这种错 ...</blockquote>
+哦？BizHawk还是头次听说，我试下
+
