@@ -3072,3 +3072,42 @@ dodo打csgo了，纯纯坐牢。
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  seki_m  
+##### 363#       发表于 2022-2-19 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一波顶塔优势全送了
+
+*****
+
+####  bishbashbosh  
+##### 364#       发表于 2022-2-19 20:16
+
+do子这小魔棒用的我好难受啊
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  seki_m  
+##### 365#       发表于 2022-2-19 20:20
+
+文斗开始！
+
+*****
+
+####  oceanneo  
+##### 366#       发表于 2022-2-19 20:21
+
+嘴臭哥的节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 367#       发表于 2022-2-19 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就要看夹夹心态崩了开送但还是要端着的样子
+
