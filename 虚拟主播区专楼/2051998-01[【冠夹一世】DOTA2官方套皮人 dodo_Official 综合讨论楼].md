@@ -3249,3 +3249,22 @@ F0啊还好中路哈斯卡不然中路开局走在翻盘路上 切出去了一�
 
 今天她怎么玩什么都喜欢冲无视野高坡<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bishbashbosh  
+##### 386#       发表于 2022-2-19 21:36
+
+夹夹的四号位理解真的很萌新<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+或许也是一种复古
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  端木恋心  
+##### 387#       发表于 2022-2-19 21:38
+
+寄了，只能说阵容炸开了。
+
