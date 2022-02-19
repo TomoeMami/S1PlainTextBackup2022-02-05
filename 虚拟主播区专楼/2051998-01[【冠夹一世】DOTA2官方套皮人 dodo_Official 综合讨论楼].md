@@ -3494,3 +3494,28 @@ dodo今天你和我总要嘎一个<img src="https://static.saraba1st.com/image/s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夹夹看看别人的龙骑，不过这龙骑不出魂戒，窝不是很认可
 
+
+
+*****
+
+####  反方向的波  
+##### 416#       发表于 2022-2-20 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 417#       发表于 2022-2-20 00:15
+
+冠夹刀塔打得不怎么样，养地精的水平倒是厉害
+
+*****
+
+####  rosevalley46  
+##### 418#       发表于 2022-2-20 00:32
+
+经典dota主播最菜的是打dota<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+快进到pubg,csgo,自走棋轮流混
+
