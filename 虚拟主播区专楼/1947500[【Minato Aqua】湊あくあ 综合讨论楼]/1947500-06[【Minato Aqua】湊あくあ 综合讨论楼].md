@@ -6783,3 +6783,18 @@ FS家主动要授权一直没要到吧。以前开sc播而其它一些企业势�
 
 现在spwn也限日本ip，可能海外有歌曲版权风险吧
 
+
+
+*****
+
+####  nian1538  
+##### 8291#       发表于 2022-2-19 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54758108&amp;ptid=1947500" target="_blank">YukinoMashiro 发表于 2022-2-19 22:41</a>
+现在spwn也限日本ip，可能海外有歌曲版权风险吧</blockquote>
+那还是不太一样的
+SPWN是live之前之后都锁购买
+日清是买票的时候不管你，到了live的时候直接禁日本以外的IP访问，而且最高720p，完事之后录像倒是可以看
+一看就是服务器不够用
+就算这样Live50多分钟的时候服务器还是挂了一段时间
+
