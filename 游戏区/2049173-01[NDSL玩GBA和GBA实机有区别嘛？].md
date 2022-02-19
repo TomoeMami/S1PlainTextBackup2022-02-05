@@ -1350,3 +1350,37 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  李小狼  
+##### 103#       发表于 2022-2-19 10:28
+
+ 本帖最后由 李小狼 于 2022-2-19 10:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54749506&amp;ptid=2049173" target="_blank">亚瑟摩根 发表于 2022-2-19 10:21</a>
+你这算可以了，安心玩吧，横纹如下图所示，和解决方法</blockquote>
+原来这么严重，赶上隔行扫描了
+
+貌似也要看人品，第一次发货给的屏比这都严重，往下拆的时候还把液晶弄坏了。后来花了五十寄回去店家给安的才变成现在的效果。我也是四十线版本，还好解决了，舞馆售后还不错的，<img src="https://p.sda1.dev/5/a6801e73f8bf47b20ebb4ffab29869b4/IMG_CMP_17020474.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  arbilest  
+##### 104#       发表于 2022-2-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54729038&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-2-17 18:19</a>
+这个问题一直存在到了EZODE，而且问的人也很多，所以他们已经在官网上的用户指南里公布过解决方法 ...</blockquote>
+你说的和说明书上是反的，比如机战OG1和2是AUTO进去关机开SRAM再进
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hagane  
+##### 105#       发表于 2022-2-19 10:39
+
+皮角过的3DS能直接玩GBA GB的ROM吗？
+

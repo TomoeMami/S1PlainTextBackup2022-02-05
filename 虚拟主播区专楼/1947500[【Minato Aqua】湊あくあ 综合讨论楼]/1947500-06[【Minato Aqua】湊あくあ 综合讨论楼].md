@@ -6730,3 +6730,24 @@ towa？真的不熟、现有最有可能只有西西队了<img src="https://stat
 
 笑死，提前一天说锁日本IP，日清也太牛了吧
 
+
+
+*****
+
+####  面具13  
+##### 8286#       发表于 2022-2-19 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54748637&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-2-19 07:50</a>
+
+笑死，提前一天说锁日本IP，日清也太牛了吧</blockquote>
+看推上的消息日清界面上的“限日本国内”是去年12月初就有了，不知道是不是偷偷加上去的。
+
+*****
+
+####  a2276382  
+##### 8287#       发表于 2022-2-19 10:38
+
+老头环不能播 是授权还是其他问题阿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
