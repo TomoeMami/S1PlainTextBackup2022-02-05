@@ -3340,3 +3340,54 @@ dodo坚持住 这次不要哭
 
 卧槽这送得也太酷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  seki_m  
+##### 397#       发表于 2022-2-19 22:44
+
+送得有点自然了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 398#       发表于 2022-2-19 22:45
+
+Duang！小兵晕了。
+
+*****
+
+####  反方向的波  
+##### 399#       发表于 2022-2-19 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水友们看到了吧，刀塔真的是4打5也能赢的游戏。夹夹都能躺，钱包神躺赢也无可厚非吧
+
+*****
+
+####  憧憬鲨  
+##### 400#       发表于 2022-2-19 22:50
+
+跳duang帕克这也想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 401#       发表于 2022-2-19 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好大哥走了
+
+*****
+
+####  憧憬鲨  
+##### 402#       发表于 2022-2-19 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">冠夹这几波送得有点
+
+*****
+
+####  nma  
+##### 403#       发表于 2022-2-19 22:56
+
+感觉不如孙一峰……直播效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
