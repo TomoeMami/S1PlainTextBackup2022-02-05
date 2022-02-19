@@ -363,3 +363,14 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 光是这几条就已经看出官方想赋予她一个反派大恶人形象了，顺着官方思路走几年，负面情绪放大就是现在的爱歌风评了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87030#       发表于 2022-2-19 19:01
+
+还差一百多万点数，感觉要吃苹果了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
