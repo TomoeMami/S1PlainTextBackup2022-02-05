@@ -3268,3 +3268,28 @@ F0啊还好中路哈斯卡不然中路开局走在翻盘路上 切出去了一�
 
 寄了，只能说阵容炸开了。
 
+
+
+*****
+
+####  端木恋心  
+##### 388#       发表于 2022-2-19 21:45
+
+经典中路亚军船长了
+
+*****
+
+####  反方向的波  
+##### 389#       发表于 2022-2-19 21:48
+
+ 本帖最后由 反方向的波 于 2022-2-19 21:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这是她第一次玩昆卡？快进到三连中x
+
+*****
+
+####  反方向的波  
+##### 390#       发表于 2022-2-19 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">第一天那个影魔solo真的是她自己打的么
+
