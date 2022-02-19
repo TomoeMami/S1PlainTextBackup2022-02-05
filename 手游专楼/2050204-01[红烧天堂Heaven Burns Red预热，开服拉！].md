@@ -1537,3 +1537,14 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 不过刚开服角色不全连羁绊交流都做不了，属实难受。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cvql  
+##### 142#       发表于 2022-2-19 14:27
+
+发现挂机节能能扔在手机后台运行不影响工作。。。这样就还能凑合
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
