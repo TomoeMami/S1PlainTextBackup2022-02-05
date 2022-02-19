@@ -1177,3 +1177,15 @@ ra 就挺好。自己写游玩列表，每个游戏都单独保存着色器和�
 手写是很繁琐，如果会编程就好很 ...</blockquote>
 之后就在想精力税是不是智商税这个问题了。
 
+
+
+*****
+
+####  kimmmmmm  
+##### 97#       发表于 2022-2-19 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54750612&amp;ptid=2050753" target="_blank">dreamquest 发表于 2022-2-19 12:18</a>
+
+哦？BizHawk还是头次听说，我试下</blockquote>
+[http://emulation.gametechwiki.com/index.php/Main_Page](http://emulation.gametechwiki.com/index.php/Main_Page)
+
