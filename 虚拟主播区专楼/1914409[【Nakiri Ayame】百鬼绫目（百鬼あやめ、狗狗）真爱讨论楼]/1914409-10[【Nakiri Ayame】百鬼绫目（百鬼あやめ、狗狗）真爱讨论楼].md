@@ -4863,3 +4863,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么社障人设，跟男人玩的时候也没见你需要那么多勇气
 
+
+
+*****
+
+####  因为你不会  
+##### 13982#       发表于 2022-2-19 16:54
+
+可能是绫总的偶像包袱
+

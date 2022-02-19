@@ -13652,3 +13652,12 @@ TVアニメ「ラブライブ！スーパースター!!」各法人のBlu-ray全
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  starring  
+##### 5610#       发表于 2022-2-19 16:46
+
+谷山纪章新冠阳性，nagi在推上说过超次元音乐祭在后台找他交谈过，希望星的各位都没事<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
