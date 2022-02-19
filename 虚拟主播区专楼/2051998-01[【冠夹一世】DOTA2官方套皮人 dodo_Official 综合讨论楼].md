@@ -3111,3 +3111,47 @@ do子这小魔棒用的我好难受啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就要看夹夹心态崩了开送但还是要端着的样子
 
+
+
+*****
+
+####  caupollen  
+##### 368#       发表于 2022-2-19 20:23
+
+刚想听 就屏蔽了
+
+*****
+
+####  端木恋心  
+##### 369#       发表于 2022-2-19 20:29
+
+这才是dota嘛
+
+*****
+
+####  nma  
+##### 370#       发表于 2022-2-19 20:32
+
+do子：灭霸没大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 371#       发表于 2022-2-19 20:34
+
+阿do这英雄池清一色莽夫，不愧是张翼do
+
+*****
+
+####  反方向的波  
+##### 372#       发表于 2022-2-19 20:34
+
+夹夹打刀反应是真的比我快，不过送的也挺快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 373#       发表于 2022-2-19 20:42
+
+要翻了啊。经典边吵边打，最后翻盘。
+
