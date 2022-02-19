@@ -3155,3 +3155,63 @@ do子：灭霸没大了<img src="https://static.saraba1st.com/image/smiley/face2
 
 要翻了啊。经典边吵边打，最后翻盘。
 
+
+
+*****
+
+####  caupollen  
+##### 374#       发表于 2022-2-19 20:46
+
+小男友对dodo也太好了 语音安慰是吧
+
+*****
+
+####  反方向的波  
+##### 375#       发表于 2022-2-19 20:49
+
+赵云太多了
+
+*****
+
+####  pwzzy  
+##### 376#       发表于 2022-2-19 20:51
+
+这铁彩笔为什么能赢，我不能接受
+
+*****
+
+####  赤星ビスコ  
+##### 377#       发表于 2022-2-19 20:54
+
+看笑了，技能放不出逛街，莫名其妙还打赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 378#       发表于 2022-2-19 20:54
+
+打的好不如排的好。不过dodo吃了很多技能不能说没作用吧。
+
+*****
+
+####  haruhiismer  
+##### 379#       发表于 2022-2-19 20:58
+
+最后不会真出龙心了吧什么处级理解
+
+*****
+
+####  反方向的波  
+##### 380#       发表于 2022-2-19 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">最后靠着龙心加的血量吃了大把输出拖死了对面，实在是太神奇了
+
+*****
+
+####  haruhiismer  
+##### 381#       发表于 2022-2-19 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54756607&amp;ptid=2051998" target="_blank">反方向的波 发表于 2022-2-19 21:01</a>
+最后靠着龙心加的血量吃了大把输出拖死了对面，实在是太神奇了</blockquote>
+有没有可能出个盘子a杖赢更快呢一个猜想
+
