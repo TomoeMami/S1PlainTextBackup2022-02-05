@@ -1384,3 +1384,18 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 皮角过的3DS能直接玩GBA GB的ROM吗？
 
+
+
+*****
+
+####  李小狼  
+##### 106#       发表于 2022-2-19 10:43
+
+ 本帖最后由 李小狼 于 2022-2-19 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54749683&amp;ptid=2049173" target="_blank">hagane 发表于 2022-2-19 10:39</a>
+皮角过的3DS能直接玩GBA GB的ROM吗？</blockquote>
+某些烧录卡可以直接玩gba
+不需要外设可以玩转换过的vc或者装模拟器
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

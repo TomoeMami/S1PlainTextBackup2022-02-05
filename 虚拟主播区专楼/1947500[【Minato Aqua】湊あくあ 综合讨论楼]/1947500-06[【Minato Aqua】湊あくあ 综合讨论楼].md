@@ -6751,3 +6751,17 @@ towa？真的不熟、现有最有可能只有西西队了<img src="https://stat
 
 —— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  面具13  
+##### 8288#       发表于 2022-2-19 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54749664&amp;ptid=1947500" target="_blank">a2276382 发表于 2022-2-19 10:38</a>
+
+老头环不能播 是授权还是其他问题阿
+
+—— 来自 realme RMX3310, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+FS家主动要授权一直没要到吧。以前开sc播而其它一些企业势关了sc，也是一个被攻击的点
+

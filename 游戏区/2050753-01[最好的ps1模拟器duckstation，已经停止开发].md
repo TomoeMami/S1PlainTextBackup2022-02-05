@@ -1102,3 +1102,19 @@ WWWWWOOOOOOOWWWWWW
 
 大佬那我顺便再问一下有没有好用的街机模拟器，MAME太大了，但是FBA模拟器和WINKAWAS模拟器又模拟不了噗哟噗哟
 
+
+
+*****
+
+####  dreamquest  
+##### 92#       发表于 2022-2-19 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54745033&amp;ptid=2050753" target="_blank">nightrap 发表于 2022-2-18 20:46</a>
+
+N64的化，推荐用这个模拟器m64p：https://github.com/m64p/m64p/releases
+
+这里面就用上了ParaLLEl插件。 ...</blockquote>
+话说大佬发现个问题，有个游戏，我用RA的ParaLLEl就显示正确，用这个mupen64的ParaLLEl就显示不出来，大佬能帮我分析下有可能是什么原因么，这游戏是个钓鱼游戏，正常的话这个鱼饵是能显示全的，但mupen64只显示鱼钩不显示鱼饵
+<img src="https://s4.ax1x.com/2022/02/19/HHN4YD.png" referrerpolicy="no-referrer">
+<img src="https://s4.ax1x.com/2022/02/19/HHNTld.png" referrerpolicy="no-referrer">
+
