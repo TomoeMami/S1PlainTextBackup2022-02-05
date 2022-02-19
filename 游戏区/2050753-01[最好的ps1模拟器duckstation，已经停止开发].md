@@ -1163,3 +1163,17 @@ https://www.gnu.org/philosophy/free-sw.zh-cn.html
 我这边也试了一下你的这个游戏，可能确实是当前我说的这个模拟器存在的问题（我用BizHawk也没出现这种错 ...</blockquote>
 哦？BizHawk还是头次听说，我试下
 
+
+
+*****
+
+####  波卡帕马  
+##### 96#       发表于 2022-2-19 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54641913&amp;ptid=2050753" target="_blank">精钢魔像 发表于 2022-2-11 16:27</a>
+
+ra 就挺好。自己写游玩列表，每个游戏都单独保存着色器和模拟器核心设置
+
+手写是很繁琐，如果会编程就好很 ...</blockquote>
+之后就在想精力税是不是智商税这个问题了。
+

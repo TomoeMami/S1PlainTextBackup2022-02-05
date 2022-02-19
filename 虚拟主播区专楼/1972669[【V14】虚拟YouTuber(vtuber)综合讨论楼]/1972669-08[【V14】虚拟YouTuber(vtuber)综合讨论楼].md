@@ -2860,3 +2860,14 @@ KR还是留了一手
 
 说到底光用文字就可以描写出会动的纸片人的话还不如去看小说……（？）
 
+
+
+*****
+
+####  Ketestrait  
+##### 10751#       发表于 2022-2-19 14:50
+
+<img src="https://tvax2.sinaimg.cn/large/7c16af6bly1gzitjrvvcej20n0116tkj.jpg" referrerpolicy="no-referrer">
+
+lack结婚，好女人组织弟弟妹妹联合祝贺
+
