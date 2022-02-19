@@ -1523,3 +1523,17 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 看得我是直接不敢抽了，感觉只 ...</blockquote>
 飞机社传统，抽必得，石头存着等井，他公司游戏每个新卡池都会有一个必得池子，微课就靠这个了
 
+
+
+*****
+
+####  BrainDead  
+##### 141#       发表于 2022-2-19 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54748607&amp;ptid=2050204" target="_blank">elven119 发表于 2022-2-19 07:36</a>
+
+飞机社传统，抽必得，石头存着等井，他公司游戏每个新卡池都会有一个必得池子，微课就靠这个了 ...</blockquote>
+懂了，吴克就是忍住不抽攒井。
+
+不过刚开服角色不全连羁绊交流都做不了，属实难受。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
