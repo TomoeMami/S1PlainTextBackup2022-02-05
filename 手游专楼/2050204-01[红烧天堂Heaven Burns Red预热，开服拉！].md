@@ -1694,3 +1694,16 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202202/21/025351k7z2ncmqmskzws2n.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cvql  
+##### 152#       发表于 2022-2-21 06:37
+
+这数值设计就是个完全抄浪漫沙加手游的变种，三技能多被动，ss属性肯定不是A能比的，单单满破倍率差距和被动就天差地别，越到后期差距就越大。
+浪漫沙加的A S原本还是存在最优属性凹点用途，现在其实也基本废弃掉了。
+后期必然还是全ss为主流的。
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
