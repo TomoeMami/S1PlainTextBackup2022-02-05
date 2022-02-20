@@ -1545,3 +1545,15 @@ https://www.bilibili.com/video/BV1cK4y1h77g
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cloudchily  
+##### 151#       发表于 2022-2-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54625266&amp;ptid=2051670" target="_blank">Meltina 发表于 2022-2-10 17:30</a>
+
+这么说想要《Energy Breaker》，当年关注英文化补丁，坑了差不多10年有一天突然出了，很有兴致打了一大半 ...</blockquote>
+四狂神战记2去年夏天我玩了半部，音乐和解谜都很好，但流程，剧情和战斗确实有点。。。。后来就坑了
+

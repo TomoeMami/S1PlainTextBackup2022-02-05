@@ -13723,3 +13723,12 @@ TVアニメ「ラブライブ！スーパースター!!」各法人のBlu-ray全
 
 2022-2-20 10:14 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5616#       发表于 2022-2-20 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还以为这一专要过段时间才发货 结果突然就到了 人却短时间内回不去
+
