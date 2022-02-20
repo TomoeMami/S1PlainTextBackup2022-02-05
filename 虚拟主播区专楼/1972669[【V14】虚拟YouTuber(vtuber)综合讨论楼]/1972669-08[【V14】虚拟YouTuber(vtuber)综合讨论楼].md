@@ -3424,3 +3424,14 @@ Millie交际范围这么广怎么以前没见过
 
 条子实力轮外当解说可以理解，这没黑黑队长役里就剩hada和nrk算一直在玩瓦的了，其他队长能当igl么<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10797#       发表于 2022-2-20 21:05
+
+就当团建来看呗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然没法把这东西当单纯团建来看的人肯定很多
+
