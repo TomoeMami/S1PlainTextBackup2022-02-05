@@ -397,3 +397,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 才发现茶壶居然月底过期，之前攒了30+只能强吃了……
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87034#       发表于 2022-2-20 18:13
+
+这次绊加成能拉到100%就是为了给你用掉的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
