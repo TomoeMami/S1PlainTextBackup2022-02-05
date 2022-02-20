@@ -3218,3 +3218,14 @@ live和专辑本来就是有钱就能搞定，有啥奇怪的
 
 可是魔法美发实在太烂了，张口就是“对方抱着好意接近我”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 10781#       发表于 2022-2-20 10:27
+
+ 本帖最后由 Suzutsuki 于 2022-2-20 10:29 编辑 
+
+10点一起来就看见enna同接9000多了，这跟不同人合唱（虽然其他人的声音好像只有音声）寒蝉歌的活还挺好，唱得也好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
