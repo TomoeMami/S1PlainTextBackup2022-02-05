@@ -3397,3 +3397,12 @@ Millie交际范围这么广怎么以前没见过
 
 不知不觉间小千apex又大师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10794#       发表于 2022-2-20 19:52
+
+黑客居然还自称有B+实力，这下不练习岂不是很丢脸对吧(明示)说起来这阵容简直梦回2019，除了队长以外基本最多的互动就是在当年mc虹服了吧……
+
