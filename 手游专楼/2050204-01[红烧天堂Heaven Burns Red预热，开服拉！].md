@@ -1638,3 +1638,59 @@ UU开服的时候用了下， 下载没事，进游戏报那个G字头的错误�
 
 这游戏用什么加速器比较好，自己的梯子进去就报错……
 
+
+
+*****
+
+####  poor  
+##### 149#       发表于 2022-2-21 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54760023&amp;ptid=2050204" target="_blank">qw3434cn 发表于 2022-2-20 02:10</a>
+关于掉落不是错觉，虽然高级掉率更高，但是低级刷起来要比高级快很多。
+
+开服这几个ss角色要想打最高级图  ...</blockquote>
+非PVP游戏人权都是怎么推的？要是出得慢攒井大概也能应付，要是出得快的话，过气配置只要不是没法用，很多人光为了强度还是不会期期追的吧？如果人权出得快，而且出一次以前的配置就没法用，那这副本膨胀速度得快成什么样……
+
+S除了要毛技能的只是想练个等级，不存在被SS淘汰问题吧，因为我看wiki上面自动周回推荐有好几个SA的。如果SA的数值低到不如被克制属性的SS的话，我就一个队伍打到底了
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  poor  
+##### 150#       发表于 2022-2-21 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54760056&amp;ptid=2050204" target="_blank">猫咪澎澎 发表于 2022-2-20 02:15</a>
+训练场看时间，初5或者中二哪个短刷哪个。
+你说的活动活下来不知道是什么意思。活动boss的难度跟迷宫层 ...</blockquote>
+活下来就前面说的，打活动最高难度副本不要太难受啊，或者重要的东西基本能换完
+主要是不知道纯单机以后怎么推人权，想来想去只有提高活动难度了，要是活动难度提高速度跟出卡速度挂钩，那无氪不是马上就要死球了
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  BrainDead  
+##### 151#       发表于 2022-2-21 02:56
+
+推完第二章郁闷得睡不着。。于是做了张梗图以表达此时心情<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/21/025453po3g3u83uoos7312.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (156.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-21 02:54 上传
+
+image.png
+(156.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-21 02:53 上传
+
+<img src="https://img.saraba1st.com/forum/202202/21/025351k7z2ncmqmskzws2n.png" referrerpolicy="no-referrer">
+

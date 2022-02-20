@@ -1471,3 +1471,12 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  oznark  
+##### 111#       发表于 2022-2-21 02:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看到这贴然后发现我家里好像有个gba sp找不到了，感觉好像丢了几百块钱，特别难受
+
