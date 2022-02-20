@@ -13732,3 +13732,12 @@ TVアニメ「ラブライブ！スーパースター!!」各法人のBlu-ray全
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还以为这一专要过段时间才发货 结果突然就到了 人却短时间内回不去
 
+
+
+*****
+
+####  lj205  
+##### 5617#       发表于 2022-2-20 18:58
+
+鲤鱼一专这备货简直无语，到现在还是各种缺货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
