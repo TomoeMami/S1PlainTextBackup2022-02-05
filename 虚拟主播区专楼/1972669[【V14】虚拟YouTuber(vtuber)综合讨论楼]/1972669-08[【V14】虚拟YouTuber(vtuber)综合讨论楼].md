@@ -3229,3 +3229,18 @@ live和专辑本来就是有钱就能搞定，有啥奇怪的
 
 10点一起来就看见enna同接9000多了，这跟不同人合唱（虽然其他人的声音好像只有音声）寒蝉歌的活还挺好，唱得也好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10782#       发表于 2022-2-20 11:57
+
+黛灰：valo？打是打过不过基本只有初期玩过一些
+
+我：还能看到黛灰组队参加apex大会吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+还是黛灰：要参加valo大会，会练习
+
+我：！？！？！？
+
