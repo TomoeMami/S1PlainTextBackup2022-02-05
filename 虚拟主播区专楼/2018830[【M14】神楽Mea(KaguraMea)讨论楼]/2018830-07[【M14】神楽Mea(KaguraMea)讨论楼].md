@@ -2487,3 +2487,16 @@ cherry早该boom boom了
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  往世雷书  
+##### 9278#       发表于 2022-2-21 00:21
+
+ 本帖最后由 往世雷书 于 2022-2-21 00:23 编辑 
+
+说起毕业，这四年拿来读书，现在开始直播的话也许面貌大不相同，但是我已经想象不出来没遇到过她的自己是什么样了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
