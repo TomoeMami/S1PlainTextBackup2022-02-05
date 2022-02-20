@@ -1458,3 +1458,16 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 然后接下来你就有了2块主板，最后为了这碟醋不能浪费又再包一份饺子么？
 
+
+
+*****
+
+####  zris  
+##### 110#         楼主| 发表于 2022-2-21 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54771293&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-21 00:00</a>
+然后接下来你就有了2块主板，最后为了这碟醋不能浪费又再包一份饺子么？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我刚刚买了ags101了，应该说我现在是有普亮的sp和高亮sp了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3463,3 +3463,29 @@ the most active subs on Twitch
 
 有没有楼友最近经常看她，这种subathon不会影响她的身体吗<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  fastary  
+##### 10800#       发表于 2022-2-21 00:06
+
+不破逆凸没黑客这事管厕有人投稿黑屁不破被群嘲，结果yhm那边居然还真吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+论情理应该就是黑客睡过去了顺便玩了下最喜欢的自虐梗，至于不破打了没接还是没打都有可能，结果一时之间以为黑客一直在等好可怜的mmr、说不破排挤黑客的不破黑、说唯一的好友组合都不带你玩不如赶紧毕业的黑客扭曲粉、说自虐梗超烂的再休止一次好好反思吧的黑客an全冒出来了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+不破那边好在出来澄清了自己打了没接，就不知道黑客anti抓着他粉丝民度和玩烂梗要嘲到几时了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rzrbtk  
+##### 10801#       发表于 2022-2-21 00:15
+
+郡郡最近玩派热情高得去联动<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">！？
+
+省一楼，看了不破逆凸的月樱部分，品味到了一些组合反应上的有趣的点，虽然此组合一直没有联动就算有预告也经常当天鸽子，但感觉对此有怨言的人又相对挺少，感觉一是归功于部分成员不熟且有其他大热组合（最主要），二是每次说起来每个人都有意愿会说想下次搞（偶尔还替别人说），三是鸽子理由很正当：六人时间合不来。
+
+看到另外某些组合因为各种原因被喷都会觉得...（同时羡慕热度）
+
