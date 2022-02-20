@@ -1412,3 +1412,40 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 —— 来自 HUAWEI CDY-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zris  
+##### 108#         楼主| 发表于 2022-2-20 21:49
+
+说个开心的事情给大家开心下。<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+由于我的对ips排斥，加上舞馆ips sp没活，而且点对点的sp屏幕要今年下半年才有。我就找到另外一家厂家买了ags101的屏幕。
+今天到货兴致满满装上去点亮，结果点不亮。
+后来才上网查知道ags001也就是普亮的主板跟101高亮主板不一样。当然也可以通过飞线啥的，国外有教程，可以让001主板点亮101的屏幕。
+但是我嫌麻烦。
+目前我处理方法有四个，一是买个101的主板
+二是买个伊拉克的101，换屏幕。
+三是101屏幕卖了，等点对点
+四是买个sp的ips完事
+目前打算还是1和2
+唉玩个gba 真折腾
+
+<img src="https://img.saraba1st.com/forum/202202/20/215001ah888yhz88e7h7lq.jpg" referrerpolicy="no-referrer">
+
+<strong>6239f4fd-d768-45ab-86dc-a8267488b695.jpg</strong> (156.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-20 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202202/20/215001jdlrpz7l6122zln2.jpg" referrerpolicy="no-referrer">
+
+<strong>126619f1-b272-4582-9720-a449324afd15.jpg</strong> (220.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-20 21:50 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
