@@ -1824,3 +1824,12 @@ ss和s等级是通用的，而且s的强化最后一项属性也可以给ss吃�
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  xiongxingyu  
+##### 162#       发表于 2022-2-21 12:58
+
+玩过飞机社游戏的都知道，这家公司做的手游非最高稀有度的卡都没必要练，或者说角色抽到ss、5星版本才算个完整的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

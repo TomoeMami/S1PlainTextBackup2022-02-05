@@ -13925,3 +13925,26 @@ CDE0422C-7CFE-449A-953E-EAEA1F81F740.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5630#       发表于 2022-2-21 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54775474&amp;ptid=2036367" target="_blank">player3960 发表于 2022-2-21 11:40</a>
+官方这么搞，是不是可以推出星团的人气排行了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还需要推吗 也就是前二可能有来有回
+
+*****
+
+####  player3960  
+##### 5631#       发表于 2022-2-21 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54776191&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-21 12:42</a>
+
+还需要推吗 也就是前二可能有来有回</blockquote>
+传说归传说，这可是皇军的官方认证.JPG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
