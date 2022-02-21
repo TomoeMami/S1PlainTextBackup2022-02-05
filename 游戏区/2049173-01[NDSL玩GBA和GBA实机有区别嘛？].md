@@ -1809,3 +1809,15 @@ ebay有几个日本发货的，卖的比本体还贵
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  谷恒条野  
+##### 138#       发表于 2022-2-21 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777492&amp;ptid=2049173" target="_blank">JasonBourne 发表于 2022-2-21 14:28</a>
+爱乐普充电套装，闲鱼低价电池听说假货有点多
+话说nds psp psv 3ds这些机子一般隔多久拿出来充一次电？我看 ...</blockquote>
+以前看老男人上有人说是psp主板上有一个长得像主板电池的那个电容坏了，然后会不断漏电。换了就好了。
+
