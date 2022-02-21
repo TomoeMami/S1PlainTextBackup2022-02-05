@@ -1505,3 +1505,55 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 改机之后，GBA用电池，基本一个半小时就开始亮红灯了，这么扛不住嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JasonBourne  
+##### 114#       发表于 2022-2-21 14:28
+
+爱乐普充电套装，闲鱼低价电池听说假货有点多
+话说nds psp psv 3ds这些机子一般隔多久拿出来充一次电？我看了下除了psp其他的都挺持久的，放2个月基本没咋掉电，但psp一个月就没了很奇怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zris  
+##### 115#         楼主| 发表于 2022-2-21 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777492&amp;ptid=2049173" target="_blank">JasonBourne 发表于 2022-2-21 14:28</a>
+
+爱乐普充电套装，闲鱼低价电池听说假货有点多
+
+话说nds psp psv 3ds这些机子一般隔多久拿出来充一次电？我看 ...</blockquote>
+NDS要注意下外，其他PSP PSV 3ds我都是想到再充电。
+
+NDSL太久没冲，确实有一部跪了，不清楚是不是因为电池的原因。
+
+*****
+
+####  硫黄  
+##### 116#       发表于 2022-2-21 14:38
+
+紫米的也行，记得别买青春版
+
+GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
+
+*****
+
+####  an0nymous  
+##### 117#       发表于 2022-2-21 14:42
+
+贴里的大佬们不来一个analogue pocket？ 买gba自己成套改下来， 换成色更好的壳差不多也要一部analogue pocket的价格了， 我已经预订了一部 
+
+*****
+
+####  zris  
+##### 118#         楼主| 发表于 2022-2-21 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777652&amp;ptid=2049173" target="_blank">an0nymous 发表于 2022-2-21 14:42</a>
+
+贴里的大佬们不来一个analogue pocket？ 买gba自己成套改下来， 换成色更好的壳差不多也要一部analogue poc ...</blockquote>
+期货太久了···而且预算已经给steam deck了，我看最近都是23年才发货了，如果不出意外过几个月会定吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
