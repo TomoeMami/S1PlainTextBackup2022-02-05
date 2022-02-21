@@ -1707,3 +1707,14 @@ image.png
 
 —— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  猫咪澎澎  
+##### 153#       发表于 2022-2-21 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54772272&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-21 02:09</a>
+ 活下来就前面说的，打活动最高难度副本不要太难受啊，或者重要的东西基本能换完 主要是不知道纯单机以后 ...</blockquote>
+活动全搬打A级就够了，一定要打最高级的话最好有个拐，不然就要堆练度
+
