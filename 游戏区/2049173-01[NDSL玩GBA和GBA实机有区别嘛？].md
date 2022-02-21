@@ -1677,3 +1677,18 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 
 才看见这个楼，顺路问问有没有解决GBM-GBA/SP联机的方案，找了很久没有找到这种联机西线...
 
+
+
+*****
+
+####  褪色的雪花  
+##### 128#       发表于 2022-2-21 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54778042&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-21 15:12</a>
+最近贴吧不吹爱老婆了，改推荐紫米或者京造充电锂电池
+
+不然就上极端方案，充电锂电池包+C口改造（虽然也T ...</blockquote>
+买根线然后接充电宝 
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
