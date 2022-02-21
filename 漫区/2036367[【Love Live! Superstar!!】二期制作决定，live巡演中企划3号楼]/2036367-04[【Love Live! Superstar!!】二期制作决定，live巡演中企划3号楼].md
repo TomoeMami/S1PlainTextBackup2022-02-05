@@ -13913,3 +13913,15 @@ CDE0422C-7CFE-449A-953E-EAEA1F81F740.jpeg
 
 堇的表情好魅<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5629#       发表于 2022-2-21 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54775474&amp;ptid=2036367" target="_blank">player3960 发表于 2022-02-21 11:40:41</a>
+官方这么搞，是不是可以推出星团的人气排行了</blockquote>公布前三已经和全公布没区别了。不是，恋恋，我没迫害你的意思啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
