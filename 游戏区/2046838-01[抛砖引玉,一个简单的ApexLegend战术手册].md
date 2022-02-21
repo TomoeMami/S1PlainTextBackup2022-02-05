@@ -1496,3 +1496,28 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 原地0速起步,蹬墙跳,近战锤地面加速都可以.</blockquote>
 能教些手柄捡东西的技巧吗
 
+
+
+*****
+
+####  braverbt  
+##### 85#         楼主| 发表于 2022-2-21 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54760498&amp;ptid=2046838" target="_blank">景田翼 发表于 2022-2-20 03:44</a>
+
+能教些手柄捡东西的技巧吗</blockquote>
+我是使用背键,设置到左手无名指是装填&amp;捡东西的按钮
+
+玩游戏的时候勾无名指即可.
+
+如果背键有连发的话会更方便.
+
+*****
+
+####  鹅大人  
+##### 86#       发表于 2022-2-21 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天看的主播无意中提到，手柄哥现在都有踏板了，身法什么的不在话下，踏板一踩比你滑滚轮方便多了。
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

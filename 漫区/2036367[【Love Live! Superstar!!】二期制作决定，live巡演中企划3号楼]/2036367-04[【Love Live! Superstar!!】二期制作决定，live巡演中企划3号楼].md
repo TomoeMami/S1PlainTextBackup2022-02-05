@@ -13858,3 +13858,17 @@ CDE0422C-7CFE-449A-953E-EAEA1F81F740.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/21/004046gapapba5danpgnd1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 5623#       发表于 2022-2-21 11:02
+
+【表紙を先行公開✨】
+
+最新の「ラブライブ！」情報をお届けする「LoveLive！Days ラブライブ！総合マガジン Vol.25」は２月28日発売です！
+
+ラブライブ！シリーズ横断表紙第４弾は、絢瀬絵里・桜内梨子・中須かすみ・平安名すみれが登場!!
+<img src="https://p.sda1.dev/5/fbbbe7aea3e37074210ac2f0e7be8bb9/20220221_110047.jpg" referrerpolicy="no-referrer">
+

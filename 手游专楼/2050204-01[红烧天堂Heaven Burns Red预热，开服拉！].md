@@ -1763,3 +1763,64 @@ ss和s等级是通用的，而且s的强化最后一项属性也可以给ss吃�
 
 目标换完的话氪金抽卡不如氪体力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  叶雾  
+##### 157#       发表于 2022-2-21 10:05
+
+刷完初始又摸了好久，刚刚打完第一章
+
+<img src="https://img.saraba1st.com/forum/202202/21/100408kl7eyl7y77iev9vk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220221-095758_HeavenBurnsRed.jpg</strong> (231 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-21 10:04 上传
+
+这队伍能不能打下去
+
+通过挂机刷到40级，第一章为止都挺简单的
+
+
+
+*****
+
+####  cvql  
+##### 158#       发表于 2022-2-21 10:20
+
+满编6ss以上都能通关无所谓的
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  exam00  
+##### 159#       发表于 2022-2-21 10:41
+
+别的游戏关卡过了都给石，任务也给，这游戏石头就任务比其他少一大截的啊。剧情再好，过一遍就差不多了，再说懂日语也不多。战斗冗长，游戏性很差。
+
+*****
+
+####  poor  
+##### 160#       发表于 2022-2-21 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54773126&amp;ptid=2050204" target="_blank">猫咪澎澎 发表于 2022-2-21 08:48</a>
+活动全搬打A级就够了，一定要打最高级的话最好有个拐，不然就要堆练度</blockquote>
+谢谢，活动能打就好，不会过期的就慢慢就好，看来还是能蝗下去的
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  poor  
+##### 161#       发表于 2022-2-21 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54773510&amp;ptid=2050204" target="_blank">qw3434cn 发表于 2022-2-21 09:23</a>
+要说单机没有人权卡也没问题，体现卡强度的棱镜和活动最高难度打不过也只不过少一点经验和掉落，不会影响 ...</blockquote>
+谢谢，活动换不完没关系，能换完重要的就行，再不行只换绝版并且有用的就好了，而且应该还有复刻。当期人权无所谓，以前的能用就行。这么一想我要求大概挺低的应该没问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
