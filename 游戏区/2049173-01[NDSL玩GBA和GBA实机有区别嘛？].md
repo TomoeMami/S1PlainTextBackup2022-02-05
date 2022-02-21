@@ -1821,3 +1821,15 @@ ebay有几个日本发货的，卖的比本体还贵
 话说nds psp psv 3ds这些机子一般隔多久拿出来充一次电？我看 ...</blockquote>
 以前看老男人上有人说是psp主板上有一个长得像主板电池的那个电容坏了，然后会不断漏电。换了就好了。
 
+
+
+*****
+
+####  oidoid  
+##### 139#       发表于 2022-2-21 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54780014&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-21 17:35</a>
+看起来可以研究一下</blockquote>
+看了下设计图，老男人那个方案其实就是目前这些的加厚版。
+本身GBA的厚度在主流掌机里已经够厚了，这个外挂电池仓会进一步加厚不说，还多少要影响到卡槽，至少我个人是觉得会很丑和很难拿的。
+
