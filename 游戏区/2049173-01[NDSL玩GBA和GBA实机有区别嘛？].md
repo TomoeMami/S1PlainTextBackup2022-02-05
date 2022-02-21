@@ -1771,3 +1771,41 @@ MMP，前几天不定时开机的实话发现PSP的电源灯不正常
 
 我GBA用的无线有两个，回头淘个GBM用的就好了
 
+
+
+*****
+
+####  zris  
+##### 135#         楼主| 发表于 2022-2-21 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54781008&amp;ptid=2049173" target="_blank">windtrack 发表于 2022-2-21 19:00</a>
+哦哦哦，无线这个GBM居然有专用配件，太好了
+
+我GBA用的无线有两个，回头淘个GBM用的就好了 ...</blockquote>
+我去搜了下，不便宜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  windtrack  
+##### 136#       发表于 2022-2-21 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54781055&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-21 19:04</a>
+
+我去搜了下，不便宜
+
+—— 来自 S1Fun</blockquote>
+上次去日本跑了秋叶原几个知名中古店都没找到那个联机线转换头的现货，无线的那个估计更稀有了...
+
+*****
+
+####  zris  
+##### 137#         楼主| 发表于 2022-2-21 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54781074&amp;ptid=2049173" target="_blank">windtrack 发表于 2022-2-21 19:06</a>
+上次去日本跑了秋叶原几个知名中古店都没找到那个联机线转换头的现货，无线的那个估计更稀有了... ...</blockquote>
+ebay有几个日本发货的，卖的比本体还贵
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
