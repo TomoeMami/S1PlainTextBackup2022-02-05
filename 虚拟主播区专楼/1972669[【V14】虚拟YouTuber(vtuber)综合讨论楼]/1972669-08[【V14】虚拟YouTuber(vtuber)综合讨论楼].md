@@ -3623,3 +3623,12 @@ syl，逛了两天vspo串的感觉
 
 好弱智的对比，笑死
 
+
+
+*****
+
+####  Ketestrait  
+##### 10814#       发表于 2022-2-21 23:38
+
+夏芽和雷欧斯这打牌对战俩副音轨围观大叔太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
