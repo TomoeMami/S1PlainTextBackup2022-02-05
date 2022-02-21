@@ -3585,3 +3585,62 @@ dodo今天你和我总要嘎一个<img src="https://static.saraba1st.com/image/s
 
 滚滚算是练出来的，之前开大一下都滚不到的还历历在目
 
+
+
+*****
+
+####  端木恋心  
+##### 427#       发表于 2022-2-21 20:26
+
+突发恶疾
+
+*****
+
+####  caupollen  
+##### 428#       发表于 2022-2-21 20:31
+
+假哭是吧
+
+*****
+
+####  弈秋  
+##### 429#       发表于 2022-2-21 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太会了
+
+*****
+
+####  反方向的波  
+##### 430#       发表于 2022-2-21 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骗弹幕有一手
+
+*****
+
+####  端木恋心  
+##### 431#       发表于 2022-2-21 20:41
+
+弹幕最多的玩法
+
+*****
+
+####  Fstt  
+##### 432#       发表于 2022-2-21 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54781903&amp;ptid=2051998" target="_blank"> 赤星ビスコ 发表于 2022-2-21 20:21</a> 滚滚算是练出来的，之前开大一下都滚不到的还历历在目 </blockquote>
+不算吧，第二次直播单排了一把下分后，回去悄悄单排了一把回血，那把就是滚滚来自: iPhone客户端
+
+*****
+
+####  端木恋心  
+##### 433#       发表于 2022-2-21 20:48
+
+她太懂直播了
+
+*****
+
+####  rosevalley46  
+##### 434#       发表于 2022-2-21 20:48
+
+便宜鼠标就嗯造是吧
+
