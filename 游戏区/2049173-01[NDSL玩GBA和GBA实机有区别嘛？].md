@@ -1557,3 +1557,55 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 贴里的大佬们不来一个analogue pocket？ 买gba自己成套改下来， 换成色更好的壳差不多也要一部analogue poc ...</blockquote>
 期货太久了···而且预算已经给steam deck了，我看最近都是23年才发货了，如果不出意外过几个月会定吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zris  
+##### 119#         楼主| 发表于 2022-2-21 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777609&amp;ptid=2049173" target="_blank">硫黄 发表于 2022-2-21 14:38</a>
+
+紫米的也行，记得别买青春版
+
+GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">可以考虑买一个，尸体GBA了，换导电胶。
+
+要嘛就是现在这些导电胶，垫点东西。
+
+虽然我也很喜欢SP的手感，段落感比GBA好
+
+*****
+
+####  newtypezeta  
+##### 120#       发表于 2022-2-21 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777652&amp;ptid=2049173" target="_blank">an0nymous 发表于 2022-2-21 14:42</a>
+
+贴里的大佬们不来一个analogue pocket？ 买gba自己成套改下来， 换成色更好的壳差不多也要一部analogue poc ...</blockquote>
+我预定了两台，不知年底能不能发货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  an0nymous  
+##### 121#       发表于 2022-2-21 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777729&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-21 14:48</a>
+
+期货太久了···而且预算已经给steam deck了，我看最近都是23年才发货了，如果不出意外过几个月会定吧[f ...</blockquote>
+我定了steam deck跟analogue pocket, 算是今年的数码礼物， analogue pocket牛逼的地方是， 还支持neo geo pocket, game gear卡带
+
+*****
+
+####  zris  
+##### 122#         楼主| 发表于 2022-2-21 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777774&amp;ptid=2049173" target="_blank">an0nymous 发表于 2022-2-21 14:51</a>
+
+我定了steam deck跟analogue pocket, 算是今年的数码礼物， analogue pocket牛逼的地方是， 还支持neo ge ...</blockquote>
+还有雅达利的lynx，不过这几个都要换转接口吧
+
+说起来，转接口都不便宜<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
