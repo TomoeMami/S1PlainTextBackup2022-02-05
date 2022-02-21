@@ -424,3 +424,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 都没注意上周的周常没做完就刷新了，亏亿<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 87037#       发表于 2022-2-21 23:49
+
+今天这版本更新以后好像筛选活动礼装的功能失灵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

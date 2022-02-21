@@ -3632,3 +3632,48 @@ syl，逛了两天vspo串的感觉
 
 夏芽和雷欧斯这打牌对战俩副音轨围观大叔太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 10815#       发表于 2022-2-21 23:48
+
+[https://twitter.com/hh_cross_events/status/1495639421055651840](https://twitter.com/hh_cross_events/status/1495639421055651840)
+
+🎵3/12、13開催！JM梅田ミュージックフェス🎵
+
+人気VTuber、バーチャルアーティストが「#JM梅田」に大集結！
+
+✨出演者発表第一弾✨
+
+#VALIS
+
+#GEMSCOMPANY
+
+#まりなす
+
+#リアクト
+
+▼特設サイト▼
+[https://hhcross.hankyu-hanshin.jp/events/jm_umeda](https://hhcross.hankyu-hanshin.jp/events/jm_umeda)
+
+<img src="https://img.saraba1st.com/forum/202202/21/234802qa1vbr9hafaf2vyf.jpg" referrerpolicy="no-referrer">
+
+<strong>拼盘.jpg</strong> (414.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-21 23:48 上传
+
+*****
+
+####  毛头小希  
+##### 10816#       发表于 2022-2-22 00:06
+
+<blockquote>Ketestrait 发表于 2022-2-21 23:38
+夏芽和雷欧斯这打牌对战俩副音轨围观大叔太搞了</blockquote>
+当事人两位也很搞，清楚大文豪vs疯狂科学家，以及你们这场到底要打多久……
+
+是说社长主办？的这个战斗都市也太随意了，元id kr的都来打了，en的还来围观了，我今晚只全程跟了豆猫，想补完其他人的都不懂猴年马月了
+
