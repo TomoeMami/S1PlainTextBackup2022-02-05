@@ -1855,3 +1855,15 @@ ss和s等级是通用的，而且s的强化最后一项属性也可以给ss吃�
 
 —— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Marro  
+##### 165#       发表于 2022-2-21 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54776385&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2022-2-21 12:58</a>
+
+玩过飞机社游戏的都知道，这家公司做的手游非最高稀有度的卡都没必要练，或者说角色抽到ss、5星版本才算个 ...</blockquote>
+现在时空猫隐藏boss还没送的角色强度高呢
+
