@@ -1639,3 +1639,20 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 
 打算试试京造
 
+
+
+*****
+
+####  zris  
+##### 125#         楼主| 发表于 2022-2-21 15:33
+
+<img src="https://img.saraba1st.com/forum/202202/21/153311c76oqpb5ouunt6m6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (625.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-21 15:33 上传
+
+看了下老男人有搞锂电池套装众筹的，感觉可以还行
+
