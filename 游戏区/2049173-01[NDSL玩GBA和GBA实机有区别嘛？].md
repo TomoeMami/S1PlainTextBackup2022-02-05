@@ -1480,3 +1480,17 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看到这贴然后发现我家里好像有个gba sp找不到了，感觉好像丢了几百块钱，特别难受
 
+
+
+*****
+
+####  zris  
+##### 112#         楼主| 发表于 2022-2-21 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54772352&amp;ptid=2049173" target="_blank">oznark 发表于 2022-2-21 02:37</a>
+看到这贴然后发现我家里好像有个gba sp找不到了，感觉好像丢了几百块钱，特别难受 ...</blockquote>
+现在gba都老值钱了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+找到就是赚到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
