@@ -13964,3 +13964,23 @@ CDE0422C-7CFE-449A-953E-EAEA1F81F740.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星的人气排名是不是和入队顺序差不多来着
 
+
+
+*****
+
+####  damian-wade  
+##### 5634#       发表于 2022-2-21 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54776928&amp;ptid=2036367" target="_blank">笋狐 发表于 2022-2-21 13:39</a>
+星的人气排名是不是和入队顺序差不多来着</blockquote>
+说明一切尽在花田大老师的掌控之中<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 5635#       发表于 2022-2-21 13:57
+
+等第二季可恋回发起进攻了，一切都会好起来的。<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
