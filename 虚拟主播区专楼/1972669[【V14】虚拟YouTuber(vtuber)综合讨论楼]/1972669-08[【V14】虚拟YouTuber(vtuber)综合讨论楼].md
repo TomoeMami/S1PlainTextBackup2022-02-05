@@ -3686,3 +3686,16 @@ syl，逛了两天vspo串的感觉
 
 2D皮套人比日式年抛偶像成本低多了所以少赚点无所谓，3D皮套人成本那么高挣这么点真是靠市梦率发电了。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10818#       发表于 2022-2-22 00:57
+
+<blockquote>@NIJISANJI_World
+
+Hehe! :)</blockquote>你虹又要开始下饺子了，男团新手保护到期？
+
+Syl，nina这种表面包容bba，背后说不定骂痛骂管人痴的类型我挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
