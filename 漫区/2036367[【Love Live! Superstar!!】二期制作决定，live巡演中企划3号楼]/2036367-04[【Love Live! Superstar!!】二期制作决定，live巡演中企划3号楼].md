@@ -14219,3 +14219,19 @@ AB0AA0FE-585E-49D4-BE9F-C4C92D82AF57.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/21/211002tvci6mw5dugqdwie.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5649#       发表于 2022-2-21 22:30
+
+鲤鱼今晚直播说b限购票人数远超预期，看来是好的开头，除去破站的渠道费，加上国内的售票加礼物，这次live真的可能还有赚
+
+*****
+
+####  megapikachu  
+##### 5650#       发表于 2022-2-21 22:36
+
+证明之前社长发推说有不少人买票可能不是客套话，而是真的比预期要好不少。
+

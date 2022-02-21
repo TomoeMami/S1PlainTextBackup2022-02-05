@@ -2766,3 +2766,23 @@ cherry早该boom boom了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是社畜，谁没事在生日时候努力啊（努力打游戏看漫画刷剧例外
 
+
+
+*****
+
+####  Igarashi  
+##### 9309#       发表于 2022-2-21 22:37
+
+时间过得真快，转眼间你也21岁了
+
+——正是我遇到你的年龄
+
+还是说句生日快乐吧，希望你的人生一切顺利
+
+*****
+
+####  thisisaspider  
+##### 9310#       发表于 2022-2-21 22:40
+
+想看麻麻回魂 不想看楼友回魂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
