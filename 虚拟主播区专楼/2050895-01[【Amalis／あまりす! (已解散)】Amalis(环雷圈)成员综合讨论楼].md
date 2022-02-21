@@ -1549,3 +1549,15 @@ koni的BID
 
 昨天睡月404同接也达到新高峰72了，不能算底边了，说不定慢慢的还真能做起来
 
+
+
+*****
+
+####  Newfarming2  
+##### 154#       发表于 2022-2-21 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54771292&amp;ptid=2050895" target="_blank">请问有猪扒饭吗 发表于 2022-2-21 00:00</a>
+
+一个思路，永雏塔菲也算环雷圈该去隔壁塔菲楼吸血了</blockquote>
+你觉得去塔菲楼是谁吸谁的血啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

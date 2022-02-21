@@ -3644,3 +3644,26 @@ dodo今天你和我总要嘎一个<img src="https://static.saraba1st.com/image/s
 
 便宜鼠标就嗯造是吧
 
+
+
+*****
+
+####  pwzzy  
+##### 435#       发表于 2022-2-21 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">dodo急了别拍鼠标了，一拳打进我逼里！
+
+*****
+
+####  nma  
+##### 436#       发表于 2022-2-21 20:58
+
+公式化的神，do子小学成绩一定很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 437#       发表于 2022-2-21 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夹夹打不好刀塔的原因找到了，公式化不适合dota
+
