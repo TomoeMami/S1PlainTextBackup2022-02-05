@@ -1757,3 +1757,17 @@ MMP，前几天不定时开机的实话发现PSP的电源灯不正常
 
 只能继续买几条试试了
 
+
+
+*****
+
+####  windtrack  
+##### 134#       发表于 2022-2-21 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54780003&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-21 17:34</a>
+
+按照这个指引可以去找相关配件</blockquote>
+哦哦哦，无线这个GBM居然有专用配件，太好了
+
+我GBA用的无线有两个，回头淘个GBM用的就好了
+
