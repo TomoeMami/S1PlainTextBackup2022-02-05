@@ -1692,3 +1692,13 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  oidoid  
+##### 129#       发表于 2022-2-21 17:07
+
+<img src="https://p.sda1.dev/5/8b0e032f2039e250b4d82514c1910ee1/IMG_CMP_54717794.jpeg" referrerpolicy="no-referrer">
+说的是这种方案，不过缺点是不美观加上电池质量难以保证
+
