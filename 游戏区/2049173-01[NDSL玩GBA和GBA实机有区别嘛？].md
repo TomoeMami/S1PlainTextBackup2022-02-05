@@ -1656,3 +1656,15 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 
 看了下老男人有搞锂电池套装众筹的，感觉可以还行
 
+
+
+*****
+
+####  oidoid  
+##### 126#       发表于 2022-2-21 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54778318&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-21 15:33</a>
+
+看了下老男人有搞锂电池套装众筹的，感觉可以还行</blockquote>
+这么大个包会严重影响重心和持握手感吧
+
