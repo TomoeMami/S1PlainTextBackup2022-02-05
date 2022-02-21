@@ -1702,3 +1702,58 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 <img src="https://p.sda1.dev/5/8b0e032f2039e250b4d82514c1910ee1/IMG_CMP_54717794.jpeg" referrerpolicy="no-referrer">
 说的是这种方案，不过缺点是不美观加上电池质量难以保证
 
+
+
+*****
+
+####  zris  
+##### 130#         楼主| 发表于 2022-2-21 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54778738&amp;ptid=2049173" target="_blank">windtrack 发表于 2022-2-21 16:06</a>
+
+才看见这个楼，顺路问问有没有解决GBM-GBA/SP联机的方案，找了很久没有找到这种联机西线... ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202202/21/173358ezbbaov9biiwziv9.png" referrerpolicy="no-referrer">
+
+<strong>GBMGBM.png</strong> (19.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-21 17:33 上传
+
+按照这个指引可以去找相关配件
+
+*****
+
+####  zris  
+##### 131#         楼主| 发表于 2022-2-21 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54779583&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-21 17:07</a>
+
+说的是这种方案，不过缺点是不美观加上电池质量难以保证</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+看起来可以研究一下
+
+*****
+
+####  硫黄  
+##### 132#       发表于 2022-2-21 17:37
+
+无线通讯器不是所有游戏都支持的
+
+比如宝可梦绿宝石可以用，但红蓝宝石就不支持
+
+*****
+
+####  oidoid  
+##### 133#       发表于 2022-2-21 17:37
+
+MMP，前几天不定时开机的实话发现PSP的电源灯不正常
+
+拆开一看右排线和电源接口有点损耗就索性买了配件
+
+结果买来，发现更糟，直接不通电……
+
+只能继续买几条试试了
+
