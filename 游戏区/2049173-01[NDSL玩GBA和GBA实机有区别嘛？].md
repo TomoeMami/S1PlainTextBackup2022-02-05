@@ -1494,3 +1494,14 @@ https://www.bilibili.com/read/cv14802142</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 113#         楼主| 发表于 2022-2-21 14:22
+
+有没有铁子们推荐下5号电池
+
+改机之后，GBA用电池，基本一个半小时就开始亮红灯了，这么扛不住嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
