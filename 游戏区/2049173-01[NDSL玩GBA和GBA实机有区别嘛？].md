@@ -1609,3 +1609,33 @@ GBA怎么改SP的锅仔片啊，我真的不喜欢现在国产GBA导电胶手感
 
 说起来，转接口都不便宜<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oidoid  
+##### 123#       发表于 2022-2-21 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54777414&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-21 14:22</a>
+
+有没有铁子们推荐下5号电池
+
+改机之后，GBA用电池，基本一个半小时就开始亮红灯了，这么扛不住嘛[f:0 ...</blockquote>
+最近贴吧不吹爱老婆了，改推荐紫米或者京造充电锂电池
+
+不然就上极端方案，充电锂电池包+C口改造（虽然也TM的死贵）
+
+*****
+
+####  zris  
+##### 124#         楼主| 发表于 2022-2-21 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54778042&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-21 15:12</a>
+
+最近贴吧不吹爱老婆了，改推荐紫米或者京造充电锂电池
+
+不然就上极端方案，充电锂电池包+C口改造（虽然也T ...</blockquote>
+爱老婆之前用过，当时玩discman买了8个充电套装，说真的，充电太慢，其他都还好说
+
+打算试试京造
+
