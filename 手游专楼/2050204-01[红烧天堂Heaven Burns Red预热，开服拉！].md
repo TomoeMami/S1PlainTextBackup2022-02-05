@@ -1747,3 +1747,19 @@ ss和s等级是通用的，而且s的强化最后一项属性也可以给ss吃�
 
 自动周回很简单，高练度打手随便配个辅助就能秒，而且收益远不如手动战斗内容，是不能作为角色强度判断标准的。
 
+
+
+*****
+
+####  qw3434cn  
+##### 156#       发表于 2022-2-21 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54772272&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-21 02:09</a>
+
+活下来就前面说的，打活动最高难度副本不要太难受啊，或者重要的东西基本能换完
+
+主要是不知道纯单机以后 ...</blockquote>
+现在你游因为自回体换不完活动商店正在被炎上，飞机社直接装死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+目标换完的话氪金抽卡不如氪体力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
