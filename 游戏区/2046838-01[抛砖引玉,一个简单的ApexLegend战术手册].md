@@ -1521,3 +1521,19 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  景田翼  
+##### 87#       发表于 2022-2-21 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54774679&amp;ptid=2046838" target="_blank">braverbt 发表于 2022-2-21 10:47</a>
+
+我是使用背键,设置到左手无名指是装填&amp;捡东西的按钮
+
+玩游戏的时候勾无名指即可.</blockquote>
+别人说捡的时候轻点只会捡匹配的东西
+
+但是我发现我就见一见什么乱七八糟的配件就把身上捡满了
+

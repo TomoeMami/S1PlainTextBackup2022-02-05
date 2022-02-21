@@ -13872,3 +13872,35 @@ CDE0422C-7CFE-449A-953E-EAEA1F81F740.jpeg
 ラブライブ！シリーズ横断表紙第４弾は、絢瀬絵里・桜内梨子・中須かすみ・平安名すみれが登場!!
 <img src="https://p.sda1.dev/5/fbbbe7aea3e37074210ac2f0e7be8bb9/20220221_110047.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5624#       发表于 2022-2-21 11:32
+
+这封面比人气四天王的好看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5625#       发表于 2022-2-21 11:38
+
+都挺有那种贵气的感觉。虽然都是谐星（
+
+*****
+
+####  离心  
+##### 5626#       发表于 2022-2-21 11:39
+
+各有各的好看吧。都好看都喜欢
+
+*****
+
+####  player3960  
+##### 5627#       发表于 2022-2-21 11:40
+
+官方这么搞，是不是可以推出星团的人气排行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
