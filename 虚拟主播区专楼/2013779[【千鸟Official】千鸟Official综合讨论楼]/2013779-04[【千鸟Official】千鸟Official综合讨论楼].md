@@ -10170,3 +10170,16 @@ yysy 走廊是这样的 与其在lga发帖问云运营 还不如盼珺归捏<img
 
 这个憋笑会笑死
 
+
+
+*****
+
+####  papermoon868  
+##### 5571#       发表于 2022-2-23 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54771838&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-21 00:51</a>
+啊？不是吧，哎呦喂，难怪五个女孩子四个会打lol</blockquote>
+404小姐被喷没上进心不急，被喷lol菜的像白银急眼了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
