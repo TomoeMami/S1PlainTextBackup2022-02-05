@@ -2947,3 +2947,66 @@ IG复活是有点吓人了
 
 阿咩跟糖糖最大的区别就是，阿咩会把糖糖发在小号上的东西发到大号上（迫真）
 
+
+
+*****
+
+####  汇聚群光  
+##### 9322#       发表于 2022-2-22 19:01
+
+糖糖是谁？
+
+*****
+
+####  T_Hb  
+##### 9323#       发表于 2022-2-22 19:06
+
+是大物主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzu  
+##### 9324#       发表于 2022-2-22 19:10
+
+🙏升天🙏
+
+*****
+
+####  やト  
+##### 9325#       发表于 2022-2-22 19:12
+
+主播女孩重度依赖 的主角
+
+*****
+
+####  往世雷书  
+##### 9326#       发表于 2022-2-22 19:15
+
+也不光是段子，她以前也会用发沙雕推的方式说一些真话
+
+<img src="https://img.saraba1st.com/forum/202202/22/191456orkrszutrfj2qm6x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220222_191136_tv.danmaku.bili_edit_363313019335185.jpg</strong> (265.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/191456ipbawsy3b758ra7r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220222_191059_tv.danmaku.bili_edit_363351547859137.jpg</strong> (238.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/191456r382qzh6r4qslzm8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220222_191121_tv.danmaku.bili_edit_363333990808619.jpg</strong> (94.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 19:14 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

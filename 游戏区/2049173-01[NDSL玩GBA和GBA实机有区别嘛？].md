@@ -2183,3 +2183,81 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  oidoid  
+##### 165#       发表于 2022-2-22 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793724&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-22 19:03</a>
+
+有横纹嘛？我感觉你这个没横纹啊
+
+我买的喷射壳，那个是送了镜面。</blockquote>
+没有，所以我直接贴了贴纸，
+
+不过具体怎么样还是要等有游戏卡了才知道
+
+*****
+
+####  luguozmy  
+##### 166#       发表于 2022-2-22 19:10
+
+给以前的老GBC换了按键，ndsl换了外壳。老实说ndsl的结构还是很折腾的。
+
+*****
+
+####  zris  
+##### 167#         楼主| 发表于 2022-2-22 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793779&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-22 19:06</a>
+没有，所以我直接贴了贴纸，
+
+不过具体怎么样还是要等有游戏卡了才知道
+
+ ...</blockquote>
+买的ezode嘛？没有就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  スペシャル  
+##### 168#       发表于 2022-2-22 19:16
+
+看到gba电池想起来，人老了经常机器砸脸都继续昏睡，不是锂电的话属实太费钱了……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  koemi  
+##### 169#       发表于 2022-2-22 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在有那种自带USB充电口的五号电池 给GBA用还是挺合适的
+
+*****
+
+####  koemi  
+##### 170#       发表于 2022-2-22 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793826&amp;ptid=2049173" target="_blank">luguozmy 发表于 2022-2-22 19:10</a>
+
+给以前的老GBC换了按键，ndsl换了外壳。老实说ndsl的结构还是很折腾的。</blockquote>
+上屏幕的排线在住转轴里 一不小心就扯裂了
+
+*****
+
+####  oidoid  
+##### 171#       发表于 2022-2-22 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793922&amp;ptid=2049173" target="_blank">koemi 发表于 2022-2-22 19:20</a>
+
+现在有那种自带USB充电口的五号电池 给GBA用还是挺合适的</blockquote>
+其实现在的五号锂电池容量和持久都已经比以前的充电电池强很多了
+
+只是我搞不懂为什么有的玩家一直厚古薄今
+
+锂电池早期没低压预警之类的设计，没电就瞬间没，但现在早改进很多了啊……
+
