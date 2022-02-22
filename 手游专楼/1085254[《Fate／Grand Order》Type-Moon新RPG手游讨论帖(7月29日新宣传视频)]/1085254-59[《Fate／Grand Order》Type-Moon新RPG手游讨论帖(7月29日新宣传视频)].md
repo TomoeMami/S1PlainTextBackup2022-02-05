@@ -530,3 +530,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 连出10个就有用了（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也太看脸了 本身五星出货率就低 还要只出那一个
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 87047#       发表于 2022-2-22 18:22
+
+还剩20W点数，凌晨打个三四把就可以收工……
+
