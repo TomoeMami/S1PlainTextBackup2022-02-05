@@ -2288,3 +2288,26 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  CamphorLife  
+##### 173#       发表于 2022-2-22 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54796213&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-22 22:22</a>
+
+艹啊，跟大家说个开心的事情，md 我去买101屏幕结果给我来个ips屏幕，我收的这台101屏幕有点瑕疵，但是看着 ...</blockquote>
+这ips不是低分的吧
+
+*****
+
+####  zris  
+##### 174#         楼主| 发表于 2022-2-22 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54796369&amp;ptid=2049173" target="_blank">CamphorLife 发表于 2022-2-22 22:31</a>
+这ips不是低分的吧</blockquote>
+母雞啊，咋分低分高分？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
