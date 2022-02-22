@@ -2261,3 +2261,30 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 锂电池早期没低压预警之类的设计，没电就瞬间没，但现在早改进很多了啊……
 
+
+
+*****
+
+####  zris  
+##### 172#         楼主| 发表于 2022-2-22 22:22
+
+艹啊，跟大家说个开心的事情，md 我去买101屏幕结果给我来个ips屏幕，我收的这台101屏幕有点瑕疵，但是看着比ips舒服多了，md，奸商，现在正在扯皮。上101屏幕下ips
+
+<img src="https://img.saraba1st.com/forum/202202/22/222205nvziez3hliloncla.jpg" referrerpolicy="no-referrer">
+
+<strong>17f7be6e-04d8-4d17-8f30-022885176c17.jpg</strong> (178.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/222205pe1z8ib194av1vr4.jpg" referrerpolicy="no-referrer">
+
+<strong>3f2bffce-8a61-4fcb-99e6-fa763b69f64a.jpg</strong> (247.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 22:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
