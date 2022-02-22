@@ -518,3 +518,15 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 然而一个盘子也没用啊 这盘子系统真的弱智</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连出10个就有用了（
 
+
+
+*****
+
+####  qixinno2  
+##### 87046#       发表于 2022-2-22 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789961&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-22 14:19</a>
+
+连出10个就有用了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也太看脸了 本身五星出货率就低 还要只出那一个
+
