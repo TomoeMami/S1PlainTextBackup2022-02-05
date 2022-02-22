@@ -2311,3 +2311,28 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  CamphorLife  
+##### 175#       发表于 2022-2-22 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54796502&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-22 22:41</a>
+
+母雞啊，咋分低分高分？
+
+—— 来自 S1Fun</blockquote>
+有无颗粒感。低分IPS的颗粒感和101是一样的
+
+*****
+
+####  zris  
+##### 176#         楼主| 发表于 2022-2-22 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54796513&amp;ptid=2049173" target="_blank">CamphorLife 发表于 2022-2-22 22:42</a>
+有无颗粒感。低分IPS的颗粒感和101是一样的</blockquote>
+木有，都是锯齿一眼就看出是ips屏幕了，四点合一，如果说低分是舞馆今年出的那个点对点，那我已经安装给横板gba了，但是gbasp没有出点对点，目前sp都还是四合一的ips。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
