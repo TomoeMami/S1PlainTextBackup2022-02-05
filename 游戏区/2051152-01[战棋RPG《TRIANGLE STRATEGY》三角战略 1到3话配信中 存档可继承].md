@@ -2720,3 +2720,12 @@ SFC皇骑是直接死亡，但是战斗结束之前可以用魔法复活
 但是这游戏从试玩来看S上很一般，除非自己限定一堆规则（H难度、不死人、掉落 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">说起p4g其实坏在技能卡系统了，p4g中期一段很有bd养成取舍纠结内味， 保哪几个技能，从哪个养起来的素材对着合成表，才能合进那个完成体最终又是别的材料，套娃。 
 
+
+
+*****
+
+####  屌丶哲  
+##### 243#       发表于 2022-2-22 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">作为AVG游戏，真是相当对我口味，等正式版玩简单难度看剧情吧
+

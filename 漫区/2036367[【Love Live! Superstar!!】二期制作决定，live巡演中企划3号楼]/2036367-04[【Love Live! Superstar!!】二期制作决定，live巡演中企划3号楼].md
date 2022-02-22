@@ -14361,3 +14361,16 @@ A6C798E4-6179-465E-AA8B-DD17BD631D65.jpeg
 
 其实跟缪斯和水团相比 拉拉拉动能力低了不少...当初那群人都是首单 首专几乎过万的...不过能有这么多很不错了
 
+
+
+*****
+
+####  任天索尼子  
+##### 5661#       发表于 2022-2-22 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793123&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-2-22 18:11</a>
+其实跟缪斯和水团相比 拉拉拉动能力低了不少...当初那群人都是首单 首专几乎过万的...不过能有这么多很不错 ...</blockquote>
+实体cd本来就不行了 爱马仕那头以前起码一张盘能卖个两三万 现在上万都难了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
