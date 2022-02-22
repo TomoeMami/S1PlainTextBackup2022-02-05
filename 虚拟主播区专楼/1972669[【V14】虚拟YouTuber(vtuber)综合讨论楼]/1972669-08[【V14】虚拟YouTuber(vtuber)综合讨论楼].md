@@ -4065,3 +4065,20 @@ syl
 
 按你说的情报，粽毛和紫毛是亚裔和shu前同事，稍微看了一眼パール油管有韩文歌翻唱，粽毛前世没提国籍，所以紫毛韩国人粽毛冲国人吗，不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10851#       发表于 2022-2-22 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793692&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-22 19:00</a>
+
+请问老哥能说得清楚一点吗或者指个路
+
+按你说的情报，粽毛和紫毛是亚裔和shu前同事，稍微看了一眼パ ...</blockquote>
+Q&amp;A提到自己是中国人并且设定Chinese Mafia，虽然锁推了但能看到他的观众提到他的中文还可以（猜测和其他liver水平相当），但并不清楚国内一些年轻人熟知的互联网信息，因此应该是华裔
+
+蓝毛（Yugo Asuma）对他的猜测有几种不同的声音，我个人倾向于是Ritaka，这里可以看到他的clip：[TikTok](https://www.tiktok.com/@shy._.weird0/video/7058963051126705454?is_copy_url=1&amp;is_from_webapp=v1&amp;lang=zh-Hant-TW&amp;q=Ritaka&amp;t=1645529761937)（他银盾了，没想到有很多人在这个平台看v）锁推了但能够看到： <blockquote>I’ll miss you! I was amazed by your vibes and rhythm skills!（也可能指的是音游，我不了解相关术语）</blockquote>
+也许与DJ设定相关；这位也提到会再相见，如果他不在nijiEN，也可能在starEN
+
