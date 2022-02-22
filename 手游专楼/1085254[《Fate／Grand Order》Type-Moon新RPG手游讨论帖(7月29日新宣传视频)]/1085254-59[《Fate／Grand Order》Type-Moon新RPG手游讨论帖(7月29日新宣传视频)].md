@@ -433,3 +433,15 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 今天这版本更新以后好像筛选活动礼装的功能失灵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 87038#       发表于 2022-2-22 12:13
+
+干，怎么就只剩23个小时了
+
+还差100w
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

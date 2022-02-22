@@ -3866,3 +3866,31 @@ https://t.co/yngYHtS6N3
 
 <img src="https://img.saraba1st.com/forum/202202/22/114318x9vszubpogu8vngg.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10834#       发表于 2022-2-22 12:01
+
+可是伊甸组活动确实多到会让人怀疑偏心吧(小声)
+
+syl
+
+去听了预告视频，其他四个人声音还挺满意的就是我超蓝毛怎么听起来是反串……长得也不中性啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 10835#       发表于 2022-2-22 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">edens的强推这么明显还用说，都已经广告联动咖啡+niji noon带新了
+syl nen争取连出三期男人，平衡下男女比例
+
+*****
+
+####  OldGlory  
+##### 10836#       发表于 2022-2-22 12:25
+
+至少吸取本社教训不搞男女混一期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
