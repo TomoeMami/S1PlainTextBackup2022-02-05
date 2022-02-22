@@ -3821,3 +3821,14 @@ https://t.co/yngYHtS6N3
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我很期待这期又能捅点什么事情出来
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 10832#       发表于 2022-2-22 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54787739&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-2-22 11:00</a>
+我很期待这期又能捅点什么事情出来</blockquote>
+外国人的一生：出生 __ 死亡<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
