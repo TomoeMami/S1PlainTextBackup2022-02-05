@@ -3708,3 +3708,46 @@ Syl，nina这种表面包容bba，背后说不定骂痛骂管人痴的类型我�
 
 en男也不需要新手保护期了吧，而且新一期还是en女的话也没啥影响。倒是本社怎么出得比en还慢，差不多也想凑新人初配的热闹了……(虹半年另说
 
+
+
+*****
+
+####  Suny08  
+##### 10820#       发表于 2022-2-22 10:00
+
+以前看nina 讲她进虹就是因为疫情以来生活改变了太孤单了需要陪伴虹en给了她想要的一切还挺感动的，什么才是温暖大家庭啊
+
+*****
+
+####  NBXX  
+##### 10821#       发表于 2022-2-22 10:04
+
+【Noctyx VTuber Debut Announcement】
+
+Please welcome #NIJISANJI_EN 5th wave VTuber group "Noctyx”!
+
+🔻Meet the members:
+@Alban_Knox, @Yugo_Asuma, @Fulgur_Ovid, @Sonny_Brisko and @Uki_Violeta
+
+🔻Debut teaser:
+https://t.co/yngYHtS6N3
+
+#Noctyx_VTuberDebut #NIJISANJI #NIJISANJI_EN https://t.co/zylM9sBEHO
+<img src="https://p.sda1.dev/5/79e4876116bf92ef1234c246d7db014c/IMG_CMP_83428403.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  dybang  
+##### 10822#       发表于 2022-2-22 10:06
+
+怎么一股kr味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10823#       发表于 2022-2-22 10:08
+
+草结果en真是新男人啊，不过比起luxiem皮要更像传统女性向手游一些……不知道二期还能不能有一期的热度
+
