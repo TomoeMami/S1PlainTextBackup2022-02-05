@@ -4082,3 +4082,18 @@ Q&amp;A提到自己是中国人并且设定Chinese Mafia，虽然锁推了但能
 蓝毛（Yugo Asuma）对他的猜测有几种不同的声音，我个人倾向于是Ritaka，这里可以看到他的clip：[TikTok](https://www.tiktok.com/@shy._.weird0/video/7058963051126705454?is_copy_url=1&amp;is_from_webapp=v1&amp;lang=zh-Hant-TW&amp;q=Ritaka&amp;t=1645529761937)（他银盾了，没想到有很多人在这个平台看v）锁推了但能够看到： <blockquote>I’ll miss you! I was amazed by your vibes and rhythm skills!（也可能指的是音游，我不了解相关术语）</blockquote>
 也许与DJ设定相关；这位也提到会再相见，如果他不在nijiEN，也可能在starEN
 
+
+
+*****
+
+####  fastary  
+##### 10852#       发表于 2022-2-22 19:56
+
+<blockquote>alcoholic1000 发表于 2022-2-22 19:44
+Q&amp;A提到自己是中国人并且设定Chinese Mafia，虽然锁推了但能看到他的观众提到他的中文还可以（猜测和其他l ...</blockquote>
+感谢，华裔的话就挺正常的了
+
+starEN没定要出吧，之前那个不是整活来着吗
+
+yugo在预告的声音太像女人了反而听不出来是不是这个ritaka，声音对不上感觉说服力还是不足？估计只能等初配信再确定了
+
