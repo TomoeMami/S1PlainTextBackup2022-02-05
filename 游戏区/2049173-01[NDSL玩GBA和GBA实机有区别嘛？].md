@@ -1860,3 +1860,33 @@ ebay有几个日本发货的，卖的比本体还贵
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  zris  
+##### 142#         楼主| 发表于 2022-2-22 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54785932&amp;ptid=2049173" target="_blank">droople 发表于 2022-2-22 08:26</a>
+
+@oidoid
+
+你们到底要多大容量的gba电池。。。。。</blockquote>
+主要换了屏之后，续航跟初版switch一样，尿崩
+
+玩两个小时就扛不住了
+
+*****
+
+####  droople  
+##### 143#       发表于 2022-2-22 10:19
+
+<blockquote>引用第141楼zris于2022-02-22 10:15发表的  :
+
+引用:droople 发表于 2022-2-22 08:26@oidoid你们到底要多大容量的gba......</blockquote>
+@zris
+
+正好防沉迷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 12](http://stage1.5j4m.com/?1.37)
+
