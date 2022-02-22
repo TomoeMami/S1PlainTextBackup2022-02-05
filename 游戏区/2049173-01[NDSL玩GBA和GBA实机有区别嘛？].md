@@ -2111,3 +2111,31 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 翻新有什么不好，别人的翻新过程都能做成百万播放的视频，良好的翻新不就是跟汽车的保养过程一样么，只不过电子玩具为了降低成本用了廉价材料导致保养过程不一样罢了。
 
+
+
+*****
+
+####  matthewsteel  
+##### 160#       发表于 2022-2-22 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54790827&amp;ptid=2049173" target="_blank">Yui_hirasawa 发表于 2022-2-22 15:21</a>
+
+有点想收一台成色好的原版GBA放展示柜当摆件收藏，有没有推荐的中古游戏机店啊？不考虑太复杂的海淘。 ...</blockquote>
+咸鱼那个叫数码舞馆的好像很火。有看过店铺，但是从没买过，不清楚有没有坑
+
+*****
+
+####  zris  
+##### 161#         楼主| 发表于 2022-2-22 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54792054&amp;ptid=2049173" target="_blank">matthewsteel 发表于 2022-2-22 16:48</a>
+
+咸鱼那个叫数码舞馆的好像很火。有看过店铺，但是从没买过，不清楚有没有坑 ...</blockquote>
+他家卖的屏幕现在算第一了
+
+我在他家买了两块GB，一块GBC，一块GBA的屏了
+
+他家没啥问题
+
+但是他好像不卖原版，都是卖改过的整机或者配件
+
