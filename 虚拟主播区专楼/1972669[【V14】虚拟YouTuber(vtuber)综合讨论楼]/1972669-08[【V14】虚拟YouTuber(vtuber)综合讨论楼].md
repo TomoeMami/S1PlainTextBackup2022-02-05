@@ -3954,3 +3954,21 @@ a bara Irish vtuber who does danmei readings on Twitch </blockquote>
 
 这次会有几个东南亚猴
 
+
+
+*****
+
+####  qq845629713  
+##### 10842#       发表于 2022-2-22 15:26
+
+5分之一的白皮
+
+*****
+
+####  FCCHua  
+##### 10843#       发表于 2022-2-22 15:34
+
+ 本帖最后由 FCCHua 于 2022-2-22 15:37 编辑 
+
+久违的oreapo直播双排apex，虽然最近私下有双排valo和apex<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

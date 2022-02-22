@@ -2053,3 +2053,28 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 有点想收一台成色好的原版GBA放展示柜当摆件收藏，有没有推荐的中古游戏机店啊？不考虑太复杂的海淘。
 
+
+
+*****
+
+####  zris  
+##### 155#         楼主| 发表于 2022-2-22 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54790827&amp;ptid=2049173" target="_blank">Yui_hirasawa 发表于 2022-2-22 15:21</a>
+
+有点想收一台成色好的原版GBA放展示柜当摆件收藏，有没有推荐的中古游戏机店啊？不考虑太复杂的海淘。 ...</blockquote>
+你可以考虑看看本地交易，要嘛看看咸鱼了
+
+现在很难保证橙色好的不是翻新，国外的几率可能小点
+
+但是也要留意留意<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+而且现在收不合适，价格炒的奇高，个人推荐还是去日拍淘一个
+
+*****
+
+####  二丁目拓也  
+##### 156#       发表于 2022-2-22 15:40
+
+我在泥潭收了台NDSi就是想重温老任平台的G世纪。。。
+
