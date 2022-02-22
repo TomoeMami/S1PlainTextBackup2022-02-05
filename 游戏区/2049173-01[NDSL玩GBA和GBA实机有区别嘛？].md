@@ -1945,3 +1945,28 @@ DSI在煤炉很便宜，试试海淘
 
 主要NDS现在价格也不贵，没有炒的空间，所以也没啥人搞配件啥的
 
+
+
+*****
+
+####  koemi  
+##### 148#       发表于 2022-2-22 12:50
+
+主要是3DS玩NDS眼睛很累 用原始分辨率启动屏幕太小了
+
+如果拉伸画面模糊 玩一会就感到眼花了 N3DS和N3DSLL都有这种情况
+
+*****
+
+####  zris  
+##### 149#         楼主| 发表于 2022-2-22 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789055&amp;ptid=2049173" target="_blank">koemi 发表于 2022-2-22 12:50</a>
+
+主要是3DS玩NDS眼睛很累 用原始分辨率启动屏幕太小了
+
+如果拉伸画面模糊 玩一会就感到眼花了 N3DS和N3DSLL都 ...</blockquote>
+所以我都是拿NDSL 玩，屏幕也还好
+
+3DS拉升NDS和PSV拉升PSP我看着都不舒服
+
