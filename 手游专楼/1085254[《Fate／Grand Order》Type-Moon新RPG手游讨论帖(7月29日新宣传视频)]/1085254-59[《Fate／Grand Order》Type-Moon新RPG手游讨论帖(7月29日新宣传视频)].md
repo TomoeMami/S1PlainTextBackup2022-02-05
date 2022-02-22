@@ -454,3 +454,35 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了 送的10石出了个狐狸  上次出了个月神  已经2连歪了
 
+
+
+*****
+
+####  qixinno2  
+##### 87040#       发表于 2022-2-22 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789198&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-22 13:03</a>
+
+麻了 送的10石出了个狐狸  上次出了个月神  已经2连歪了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">欧 我已经俩月没出五星了
+
+*****
+
+####  alucardcz  
+##### 87041#       发表于 2022-2-22 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789771&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-22 14:00</a>
+
+欧 我已经俩月没出五星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和没出有什么区别又不是new 我常驻还缺好几个呢 例如拉二 不邢
+
+*****
+
+####  qixinno2  
+##### 87042#       发表于 2022-2-22 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789778&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-22 14:01</a>
+
+和没出有什么区别又不是new 我常驻还缺好几个呢 例如拉二 不邢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">+1也比不出强啊 我常驻缺的更多
+

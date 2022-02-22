@@ -2001,3 +2001,46 @@ DSI在煤炉很便宜，试试海淘
 
 时代要向前发展的（误
 
+
+
+*****
+
+####  zris  
+##### 151#         楼主| 发表于 2022-2-22 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789475&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-22 13:30</a>
+错了
+
+不是要多大容量，而是要“不破坏外观和重心的情况下保持一定程度的电量”
+
+毕竟EZO和EZODE都是高耗电 ...</blockquote>
+卧槽京造这么牛逼嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oidoid  
+##### 152#       发表于 2022-2-22 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789627&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-22 13:48</a>
+
+卧槽京造这么牛逼嘛
+
+—— 来自 S1Fun</blockquote>
+EZODE号称比EZO省30%，所以理论上更久一些。
+
+京造这些充电锂电池可都是标称3800毫安的。
+
+*****
+
+####  zris  
+##### 153#         楼主| 发表于 2022-2-22 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789678&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-22 13:52</a>
+
+EZODE号称比EZO省30%，所以理论上更久一些。
+
+京造这些充电锂电池可都是标称3800毫安的。 ...</blockquote>
+我去京东看看<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
