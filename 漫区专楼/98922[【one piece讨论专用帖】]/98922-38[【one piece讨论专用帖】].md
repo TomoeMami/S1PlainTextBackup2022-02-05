@@ -11985,3 +11985,16 @@ image.jpg
 
 乔伊波伊一直扛着原罪吧，毕竟这个人的信息核心是那篇 “谢罪文”。
 
+
+
+*****
+
+####  穆  
+##### 56452#       发表于 2022-2-23 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer">罗的进化还真的速度啊 之前被明哥揍得都“哭”出来了
+
+转身就把大妈按在地上锤（物理意义）<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
+
+明哥：那个啊。。。罗哥啊。。。刚才是外面人多。。。现在我给你磕一个吧23333333333
+
