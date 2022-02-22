@@ -4189,3 +4189,20 @@ Ike（眼镜）是瑞典母语这两个是确定非英语母语的，本人自�
 Nina（狐狸妈 ...</blockquote>
 en最esl的应该是millie，口音巨重
 
+
+
+*****
+
+####  rzrbtk  
+##### 10861#       发表于 2022-2-23 00:29
+
+谢谢我郡转发怪图，笑了
+
+<img src="https://img.saraba1st.com/forum/202202/23/002856g3aana2tpa3c1vvp.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 798 - (1) れどはす 在 Twitter_ _アゴピーの原罪 #剣持コラ画像 ht.jpg</strong> (271.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 00:28 上传
+
