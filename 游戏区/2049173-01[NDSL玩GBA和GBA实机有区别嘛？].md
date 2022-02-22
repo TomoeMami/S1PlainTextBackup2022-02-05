@@ -1970,3 +1970,34 @@ DSI在煤炉很便宜，试试海淘
 
 3DS拉升NDS和PSV拉升PSP我看着都不舒服
 
+
+
+*****
+
+####  oidoid  
+##### 150#       发表于 2022-2-22 13:30
+
+ 本帖最后由 oidoid 于 2022-2-22 13:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54785932&amp;ptid=2049173" target="_blank">droople 发表于 2022-2-22 08:26</a>
+
+@oidoid
+
+你们到底要多大容量的gba电池。。。。。</blockquote>
+错了
+
+不是要多大容量，而是要“不破坏外观和重心的情况下保持一定程度的电量”
+
+毕竟EZO和EZODE都是高耗电的卡，屏幕本身的光源也是需要消耗电量的
+
+而且说实话，10年前eneloop是2000毫安的神奇电池，10年后的锂电池没有理由比它还低的吧
+
+<img src="https://img.saraba1st.com/forum/202202/22/133339aw5xz3zusrxkekt3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220222133139.png</strong> (19.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 13:33 上传
+
+时代要向前发展的（误
+
