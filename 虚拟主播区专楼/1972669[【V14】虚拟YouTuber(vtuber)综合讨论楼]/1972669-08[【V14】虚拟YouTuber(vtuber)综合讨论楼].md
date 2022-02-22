@@ -3699,3 +3699,12 @@ Hehe! :)</blockquote>你虹又要开始下饺子了，男团新手保护到期�
 
 Syl，nina这种表面包容bba，背后说不定骂痛骂管人痴的类型我挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10819#       发表于 2022-2-22 09:18
+
+en男也不需要新手保护期了吧，而且新一期还是en女的话也没啥影响。倒是本社怎么出得比en还慢，差不多也想凑新人初配的热闹了……(虹半年另说
+
