@@ -486,3 +486,35 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 和没出有什么区别又不是new 我常驻还缺好几个呢 例如拉二 不邢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">+1也比不出强啊 我常驻缺的更多
 
+
+
+*****
+
+####  alucardcz  
+##### 87043#       发表于 2022-2-22 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789800&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-22 14:02</a>
+
++1也比不出强啊 我常驻缺的更多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如出同一个直接变成盘子
+
+*****
+
+####  qixinno2  
+##### 87044#       发表于 2022-2-22 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789826&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-22 14:05</a>
+
+不如出同一个直接变成盘子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然而一个盘子也没用啊 这盘子系统真的弱智
+
+*****
+
+####  alucardcz  
+##### 87045#       发表于 2022-2-22 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54789842&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-22 14:07</a>
+
+然而一个盘子也没用啊 这盘子系统真的弱智</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连出10个就有用了（
+
