@@ -4042,3 +4042,26 @@ syl
 
 虹en应该不会招非英语母语的人吧，不然那也太弱智了，感觉可能还是华裔吧
 
+
+
+*****
+
+####  rzrbtk  
+##### 10849#       发表于 2022-2-22 18:45
+
+仔细看了一会动起来的en男，感觉有一位男珈乐（初期）
+
+*****
+
+####  fastary  
+##### 10850#       发表于 2022-2-22 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54791412&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-2-22 16:04</a>
+
+看了一眼，这次应该有个韩国人有个中国人，还有一个爱尔兰
+
+两位亚裔都来自hanamori（Pomu和Shu那个 ...</blockquote>
+请问老哥能说得清楚一点吗或者指个路<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+按你说的情报，粽毛和紫毛是亚裔和shu前同事，稍微看了一眼パール油管有韩文歌翻唱，粽毛前世没提国籍，所以紫毛韩国人粽毛冲国人吗，不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

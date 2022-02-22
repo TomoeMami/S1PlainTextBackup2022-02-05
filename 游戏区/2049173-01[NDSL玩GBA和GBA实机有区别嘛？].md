@@ -2139,3 +2139,47 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 但是他好像不卖原版，都是卖改过的整机或者配件
 
+
+
+*****
+
+####  oidoid  
+##### 162#       发表于 2022-2-22 18:54
+
+ 本帖最后由 oidoid 于 2022-2-22 18:55 编辑 
+
+<img src="https://p.sda1.dev/5/e9214ed141bc563e3fb80adee96f5563/IMG_CMP_9877216.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/13dd79edba6ac77559d37ca1cc320e08/IMG_CMP_119227912.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/a7588fc542fa2f53467a65ac13b5dba2/IMG_CMP_124352277.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/41386538b0887d2bc333890c84ff8581/IMG_CMP_191451112.jpeg" referrerpolicy="no-referrer">
+
+折腾到天黑才发现，这家的壳并不包含镜面，这大概是修破烂生涯里第二搞笑的笑话了
+<img src="https://p.sda1.dev/5/d16ce7aa02f282d72ad93f2c2b759be2/IMG_CMP_181111933.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  oidoid  
+##### 163#       发表于 2022-2-22 18:59
+
+另外某武馆家的GBA按键做工是差了点，十字键和边条下端明显缺损
+
+壳的螺丝很难扭，索性全部换成十字螺丝了，以后拆起来也方便些。
+
+那个触摸排线必须要很贴合壳才能收到你手指触摸/敲击的冲击力度，懒得打磨的话一定要用东西垫着它让它尽可能的贴合外壳，再不然就是用胶带粘住它
+
+其他的……等烧录卡和镜面到了再测试了
+
+*****
+
+####  zris  
+##### 164#         楼主| 发表于 2022-2-22 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793682&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-22 18:59</a>
+另外某武馆家的GBA按键做工是差了点，十字键和边条下端明显缺损
+
+壳的螺丝很难扭，索性全部换成十字螺丝了， ...</blockquote>
+有横纹嘛？我感觉你这个没横纹啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+我买的喷射壳，那个是送了镜面。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

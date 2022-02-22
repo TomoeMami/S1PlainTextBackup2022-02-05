@@ -14374,3 +14374,16 @@ A6C798E4-6179-465E-AA8B-DD17BD631D65.jpeg
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  nufawneafg  
+##### 5662#       发表于 2022-2-22 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793123&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-2-22 18:11</a>
+其实跟缪斯和水团相比 拉拉拉动能力低了不少...当初那群人都是首单 首专几乎过万的...不过能有这么多很不错 ...</blockquote>
+念旧也要讲基本法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+16～18年你实体音乐什么环境，22年你实体音乐什么环境
+人家老成员也有理由说的，我当年个人专是什么阵容，是Elements Garden是安濑圣是EFFY是kei hayashi，我当年贴的是灰色系列结城友奈巴克亚罗。你这给我的是什么音乐人啊，这后疫情时代市场是什么市场啊。诶呦能卖三千多，谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

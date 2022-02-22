@@ -1939,3 +1939,12 @@ nanamin不是说自己只有事务能力 不会打架吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">事务能力只是特长罢了，女主这个特长音乐的不也能提刀砍怪
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">刀了才好进池子啊，剧情驱动游戏，趁着剧情关键时期出卡才能骗人氪金，现在赶着大家打第二章不就是为了下周开aoi池子，教官组想进池子还想插队，那只能让麻子动刀了
 
+
+
+*****
+
+####  PDTN  
+##### 173#       发表于 2022-2-22 18:55
+
+第二章迷宫重复玩起来有点疲劳，全靠剧情吊着了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
