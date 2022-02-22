@@ -2044,3 +2044,12 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 京造这些充电锂电池可都是标称3800毫安的。 ...</blockquote>
 我去京东看看<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yui_hirasawa  
+##### 154#       发表于 2022-2-22 15:21
+
+有点想收一台成色好的原版GBA放展示柜当摆件收藏，有没有推荐的中古游戏机店啊？不考虑太复杂的海淘。
+
