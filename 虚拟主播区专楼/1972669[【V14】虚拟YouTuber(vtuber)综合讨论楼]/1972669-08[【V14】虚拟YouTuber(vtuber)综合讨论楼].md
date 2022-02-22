@@ -3972,3 +3972,55 @@ a bara Irish vtuber who does danmei readings on Twitch </blockquote>
 
 久违的oreapo直播双排apex，虽然最近私下有双排valo和apex<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10844#       发表于 2022-2-22 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54790898&amp;ptid=1972669" target="_blank">qq845629713 发表于 2022-2-22 15:26</a>
+
+5分之一的白皮</blockquote>
+看了一眼，这次应该有个韩国人有个中国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还有一个爱尔兰
+
+两位亚裔都来自hanamori（Pomu和Shu那个社团，快被你虹薅禿），一看韩国人歌翻唱的MIX是shannon（Enna），现成员和亲友也都转推表示支持应该没跑了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 1|情报帮大忙了|
+| qq845629713| + 1|支持|
+
+查看全部评分
+
+*****
+
+####  fastary  
+##### 10845#       发表于 2022-2-22 16:14
+
+ 本帖最后由 fastary 于 2022-2-22 16:22 编辑 
+
+中国人是那个发定型文的黄毛？说起来之前好像有见过聊说国人vr出道不如试试本社的，这下真有了(只是华裔另说)
+
+syl
+
+推上看白毛和vox斗嘴好长一串累了没细看，然后去看了一眼en厕已经快进到新男人除了粽毛光靠推文都能看出没素质了，吓人<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qq845629713  
+##### 10846#       发表于 2022-2-22 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54791412&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-2-22 16:04</a>
+
+看了一眼，这次应该有个韩国人有个中国人，还有一个爱尔兰
+
+两位亚裔都来自hanamori（Pomu和Shu那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 如果真的是冲国公民，而不是华裔，那么维阿en的门槛真的要在评价了
+
