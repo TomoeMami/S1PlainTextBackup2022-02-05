@@ -14387,3 +14387,64 @@ A6C798E4-6179-465E-AA8B-DD17BD631D65.jpeg
 16～18年你实体音乐什么环境，22年你实体音乐什么环境
 人家老成员也有理由说的，我当年个人专是什么阵容，是Elements Garden是安濑圣是EFFY是kei hayashi，我当年贴的是灰色系列结城友奈巴克亚罗。你这给我的是什么音乐人啊，这后疫情时代市场是什么市场啊。诶呦能卖三千多，谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 5663#       发表于 2022-2-22 21:52
+
+<blockquote>#Liyuu[超话]# 今天是猫猫的日子🐈
+
+就是说一年半前的Liyuu来了🥺 </blockquote>
+2020年8月8日
+
+Bilibili World
+
+鲤鱼穿这身唱了《白金DISCO》
+
+09771F7A-03AA-47F4-A187-782F73C24C15.jpeg
+(478.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/215134mi96jpguouso9jz6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+580A6C52-E8CF-492D-967B-7C5A0CAA7492.jpeg
+(122 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/215134tsfhg0133tje3g3g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4E917E84-4318-43AE-ACBD-CFE4110C6534.jpeg
+(187.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/215134i49wz2azelycat6h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+EE1C3D6F-5D2C-438B-AB05-B39090E245BB.jpeg
+(129.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/215134q93eaadyrde3pd2e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E8A489A7-5DF5-44A3-8A44-AA8963325D85.jpeg
+(110.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 21:51 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/215134l3fdc22bbn455z1b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

@@ -4167,3 +4167,25 @@ QQ截图20220222212910.jpg
 
 <img src="https://img.saraba1st.com/forum/202202/22/213351mblk340u4p6bggo5.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  撕叁  
+##### 10859#       发表于 2022-2-22 22:02
+
+棕毛听声音比较像ritaka，紫毛像pearl，真有chimon的话hanamori人都快被虹抽光了。不过不会真有cusleacrann吧…看了下这人的twitch有点离谱的
+
+*****
+
+####  撕叁  
+##### 10860#       发表于 2022-2-22 22:06
+
+<blockquote>毛头小希 发表于 2022-2-22 21:34
+Reimu（幽灵）是西班牙语母语
+
+Ike（眼镜）是瑞典母语这两个是确定非英语母语的，本人自述的
+
+Nina（狐狸妈 ...</blockquote>
+en最esl的应该是millie，口音巨重
+
