@@ -1568,3 +1568,20 @@ Gura去年就说想播PowerWash，病休前那周说终于要到许可了，星�
 
 Irys在twitter space里说，不让播bully了，估计是亚洲地理课的问题
 
+
+
+*****
+
+####  PureIllusion  
+##### 1645#       发表于 2022-2-22 14:51
+
+[https://archive.wakarimasen.moe/vt/thread/18816809/#18821308](https://archive.wakarimasen.moe/vt/thread/18816809/#18821308)
+
+今天刷/#/数字串，看到Dudul在串里发了自己做动画视频的一些数字，里面也说做holo相关的内容带来的知名度给他提供了很多门路。后面其他人则提到Holobass（Pop on Rocks）和Kevin牛（Smol Ame）没摆正自己，砸了自己脚，我就跟着查了一下现状。
+
+Holobass在EN一周年时复出了，也再次解释了一下当时的事件，除了自己犯蠢说错话，也有很大原因在YouTube上音乐版权管理混乱和Cover低效运营上，盈利问题他自称是防止版权钓鱼的。现在回过头来看只能说挺不幸的。
+
+Kevin本身有经济困难，去年年底看到Seafoam、Kanauru等fanartist能从Ame那里接活儿做VR模型做视频，自己却没被找，做的游戏还是不收益的，心态爆炸，说想删了Smol Ame游戏，不过很快承认自己的问题，包括有bipolar还没钱吃药。现在看起来好像状态还行。
+
+反过来说Dudul就比较健康，hobby的就归hobby，借助热度从其他方面反哺自己，眼界不能陷在里面。
+
