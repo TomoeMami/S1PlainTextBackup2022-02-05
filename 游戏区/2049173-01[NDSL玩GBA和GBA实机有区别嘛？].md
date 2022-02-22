@@ -1920,3 +1920,28 @@ DSI在煤炉很便宜，试试海淘
 
 注意防疫
 
+
+
+*****
+
+####  koemi  
+##### 146#       发表于 2022-2-22 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54788728&amp;ptid=2049173" target="_blank">硫黄 发表于 2022-2-22 12:21</a>
+
+DSI在煤炉很便宜，试试海淘
+
+注意防疫</blockquote>
+就算是库存机估计屏幕也都不行了orz...
+
+*****
+
+####  zris  
+##### 147#         楼主| 发表于 2022-2-22 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+尿屏确实难定
+
+主要NDS现在价格也不贵，没有炒的空间，所以也没啥人搞配件啥的
+
