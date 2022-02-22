@@ -1892,3 +1892,16 @@ ss和s等级是通用的，而且s的强化最后一项属性也可以给ss吃�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没打属性过不去20层迷宫 麻了..
 
+
+
+*****
+
+####  Tucsria  
+##### 169#       发表于 2022-2-22 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">B队 C队 G队全员在内测的时候就做完大招了，包括其他队队长
+
+基础ss尽快出完也好
+
+另外ss出了之后回忆之庭会增加对应个人剧情（需解锁）  
+

@@ -3821,3 +3821,76 @@ https://t.co/yngYHtS6N3
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我很期待这期又能捅点什么事情出来
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 10832#       发表于 2022-2-22 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54787739&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-2-22 11:00</a>
+我很期待这期又能捅点什么事情出来</blockquote>
+外国人的一生：出生 __ 死亡<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  毛头小希  
+##### 10833#       发表于 2022-2-22 11:43
+
+别的不说，EN在设定这块还是很用心的，
+
+一期 天空海洋大地（光）
+
+二期 天空海洋大地（暗）
+
+三期 天堂和地狱
+
+四期 过去
+
+五期 未来
+
+还有视觉图和出道曲都是要成本的，光冲这些我就愿意相信en不像本家早起那样大量抽卡放养完事
+
+就是不知道什么时候停了
+
+以及本家什么时候才出新人，免得伊甸组一有点什么活动又要被说偏心
+
+1645499160442.jpg
+(359.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 11:43 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/114318x9vszubpogu8vngg.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 10834#       发表于 2022-2-22 12:01
+
+可是伊甸组活动确实多到会让人怀疑偏心吧(小声)
+
+syl
+
+去听了预告视频，其他四个人声音还挺满意的就是我超蓝毛怎么听起来是反串……长得也不中性啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 10835#       发表于 2022-2-22 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">edens的强推这么明显还用说，都已经广告联动咖啡+niji noon带新了
+syl nen争取连出三期男人，平衡下男女比例
+
+*****
+
+####  OldGlory  
+##### 10836#       发表于 2022-2-22 12:25
+
+至少吸取本社教训不搞男女混一期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

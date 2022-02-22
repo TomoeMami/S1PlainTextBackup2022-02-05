@@ -1890,3 +1890,58 @@ ebay有几个日本发货的，卖的比本体还贵
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ercai1  
+##### 144#       发表于 2022-2-22 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54787153&amp;ptid=2049173" target="_blank">droople 发表于 2022-2-22 10:19</a>
+
+@zris
+
+正好防沉迷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实当你迷上了折腾之后，玩不玩游戏已经变得不重要了……
+
+“我可以不玩，但我不能没有”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 145#       发表于 2022-2-22 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54783888&amp;ptid=2049173" target="_blank">koemi 发表于 2022-2-21 23:36</a>
+
+什么时候NDS也像GBA出现大量可替换零件自行DIY就好了 
+
+两台DSI屏幕都挂了 二手找不到品相好的 要么 ...</blockquote>
+DSI在煤炉很便宜，试试海淘
+
+注意防疫
+
+
+
+*****
+
+####  koemi  
+##### 146#       发表于 2022-2-22 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54788728&amp;ptid=2049173" target="_blank">硫黄 发表于 2022-2-22 12:21</a>
+
+DSI在煤炉很便宜，试试海淘
+
+注意防疫</blockquote>
+就算是库存机估计屏幕也都不行了orz...
+
+*****
+
+####  zris  
+##### 147#         楼主| 发表于 2022-2-22 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+尿屏确实难定
+
+主要NDS现在价格也不贵，没有炒的空间，所以也没啥人搞配件啥的
+
