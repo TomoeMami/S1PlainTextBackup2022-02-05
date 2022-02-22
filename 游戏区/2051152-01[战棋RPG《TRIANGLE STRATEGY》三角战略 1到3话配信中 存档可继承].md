@@ -2729,3 +2729,17 @@ SFC皇骑是直接死亡，但是战斗结束之前可以用魔法复活
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">作为AVG游戏，真是相当对我口味，等正式版玩简单难度看剧情吧
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 244#       发表于 2022-2-22 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54728365&amp;ptid=2051152" target="_blank">llysander 发表于 2022-2-17 17:28</a>
+
+那是老屁股屈服了，命运之轮里逆输入了fft的躺地等倒数
+
+老to就是嗷呜一声人直接没了，中期可以拿 ...</blockquote>
+SFC版的话活用MVP奖励功能就可以等级碾压固定剧情敌人的
+
