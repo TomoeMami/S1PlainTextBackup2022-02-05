@@ -1883,3 +1883,12 @@ ss和s等级是通用的，而且s的强化最后一项属性也可以给ss吃�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">想抽ななみん，啥时候把教官组刀了吧，刀了就能进池子了
 
+
+
+*****
+
+####  一之江瑞江  
+##### 168#       发表于 2022-2-22 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没打属性过不去20层迷宫 麻了..
+
