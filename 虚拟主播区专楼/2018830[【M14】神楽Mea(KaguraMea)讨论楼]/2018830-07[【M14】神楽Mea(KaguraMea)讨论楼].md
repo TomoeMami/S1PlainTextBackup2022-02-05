@@ -2804,3 +2804,18 @@ cherry早该boom boom了
 
 你是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  鷹書たかしょ  
+##### 9313#       发表于 2022-2-22 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54783289&amp;ptid=2018830" target="_blank">Igarashi 发表于 2022-2-21 22:37</a>
+时间过得真快，转眼间你也21岁了
+
+——正是我遇到你的年龄
+
+还是说句生日快乐吧，希望你的人生一切顺利 ...</blockquote>
+smjb，你不是16岁吗
+
