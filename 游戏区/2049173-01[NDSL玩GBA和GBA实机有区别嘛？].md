@@ -2078,3 +2078,27 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 我在泥潭收了台NDSi就是想重温老任平台的G世纪。。。
 
+
+
+*****
+
+####  Yui_hirasawa  
+##### 157#       发表于 2022-2-22 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54790986&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-22 15:32</a>
+
+你可以考虑看看本地交易，要嘛看看咸鱼了
+
+现在很难保证橙色好的不是翻新，国外的几率可能小点</blockquote>
+小地方，本地交易可能有点难。在淘宝搜到一家卖中古品的，箱说全95新的卖到800左右，全新未用的2000多，属实有点夸张。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zris  
+##### 158#         楼主| 发表于 2022-2-22 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54791121&amp;ptid=2049173" target="_blank">Yui_hirasawa 发表于 2022-2-22 15:41</a>
+
+小地方，本地交易可能有点难。在淘宝搜到一家卖中古品的，箱说全95新的卖到800左右，全新未用的2000多， ...</blockquote>
+我个人意见收个大差不差的，自己换个壳就行了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
