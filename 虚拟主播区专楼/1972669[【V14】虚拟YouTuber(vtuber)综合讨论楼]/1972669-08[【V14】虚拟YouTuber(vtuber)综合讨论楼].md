@@ -4138,3 +4138,32 @@ NBGI是不是傻逼啊
 
 这次黄金船频道是多少同接啊（
 
+
+
+*****
+
+####  毛头小希  
+##### 10858#       发表于 2022-2-22 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54793314&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-2-22 18:26</a>
+
+虹en应该不会招非英语母语的人吧，不然那也太弱智了，感觉可能还是华裔吧 ...</blockquote>
+Reimu（幽灵）是西班牙语母语
+
+Ike（眼镜）是瑞典母语这两个是确定非英语母语的，本人自述的
+
+Nina（狐狸妈妈）是乌克兰裔大姐，很难确定母语到底是英语还是俄语
+
+以及省一楼，刚说着eden组新工商就来了草
+
+是手机通讯运营商（？）的工商
+
+QQ截图20220222212910.jpg
+(174.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-22 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202202/22/213351mblk340u4p6bggo5.jpg" referrerpolicy="no-referrer">
+
