@@ -445,3 +445,12 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 还差100w
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87039#       发表于 2022-2-22 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了 送的10石出了个狐狸  上次出了个月神  已经2连歪了
+
