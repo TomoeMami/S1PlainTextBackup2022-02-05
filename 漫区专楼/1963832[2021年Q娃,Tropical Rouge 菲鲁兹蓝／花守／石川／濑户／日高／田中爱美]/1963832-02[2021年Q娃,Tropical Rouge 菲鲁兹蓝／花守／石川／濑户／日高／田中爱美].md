@@ -14115,3 +14115,14 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 剧场版有资源了吗？</blockquote>
 昨天BD发售，应该快了
 
+
+
+*****
+
+####  最强惠酱  
+##### 2577#       发表于 2022-2-23 15:25
+
+貌似和佳三人剧场版背景路人客串了下
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
