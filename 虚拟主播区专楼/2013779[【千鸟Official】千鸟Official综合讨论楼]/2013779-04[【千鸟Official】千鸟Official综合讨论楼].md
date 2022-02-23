@@ -10269,3 +10269,37 @@ yysy 走廊是这样的 与其在lga发帖问云运营 还不如盼珺归捏<img
 
 喜欢《无极》的主播评价喜欢《疯狂的石头》的观众品味独特，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  faithlifer  
+##### 5582#       发表于 2022-2-24 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54809048&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-23 22:11</a>
+
+按照我这么多年的经验来看，我感觉千鸟的时间不长了。</blockquote>
+不会吧，为什么<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yerish  
+##### 5583#       发表于 2022-2-24 02:25
+
+11月看到现在，我也觉得千鸟看一天少一天吧，不知道啥时候就没了。
+像co这种应届生没理由吊死在千鸟上。剩下四个年纪也不算小了也都有其他特长，合同结束了可能会离开直播行业吧。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  faithlifer  
+##### 5584#       发表于 2022-2-24 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54811324&amp;ptid=2013779" target="_blank">Yerish 发表于 2022-2-24 02:25</a>
+
+11月看到现在，我也觉得千鸟看一天少一天吧，不知道啥时候就没了。
+
+像co这种应届生没理由吊死在千鸟上。剩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
