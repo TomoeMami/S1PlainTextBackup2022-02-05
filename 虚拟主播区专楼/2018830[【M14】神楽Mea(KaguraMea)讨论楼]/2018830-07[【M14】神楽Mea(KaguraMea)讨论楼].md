@@ -3351,3 +3351,30 @@ mea塔姆的叫声比较恐怖
 
 恶魔凭依，我真的绷不住了……
 
+
+
+*****
+
+####  专业划水人员  
+##### 9365#       发表于 2022-2-23 20:11
+
+怎么一直都没有猎杀
+
+*****
+
+####  Rem-清曲  
+##### 9366#       发表于 2022-2-23 20:12
+
+这游戏改了么，我上一年刚出的时候玩那b3分钟之后就开始抓人了  这5分钟不关灯不锁门是咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9367#       发表于 2022-2-23 20:19
+
+ 本帖最后由 T_Hb 于 2022-2-23 20:22 编辑 
+
+いい悲鳴，好久没听过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+骗饭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

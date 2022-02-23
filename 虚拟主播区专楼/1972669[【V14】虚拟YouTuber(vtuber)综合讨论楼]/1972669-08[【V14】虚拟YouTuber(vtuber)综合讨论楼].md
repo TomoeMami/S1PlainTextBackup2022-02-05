@@ -4357,3 +4357,12 @@ syl
 
 虽然我对打枪没兴趣不过cheeky笑声还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10875#       发表于 2022-2-23 20:14
+
+那么是cevio还是vocaloid呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
