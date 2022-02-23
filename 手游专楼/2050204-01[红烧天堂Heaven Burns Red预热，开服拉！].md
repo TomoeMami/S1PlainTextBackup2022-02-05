@@ -1948,3 +1948,15 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 第二章迷宫重复玩起来有点疲劳，全靠剧情吊着了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蕾丝  
+##### 174#       发表于 2022-2-23 08:44
+
+重新看了一下序章才发现和泉以前还算是女主那个乐队的粉丝来着吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这什么私生饭剧情
+跳着看剧情错过的细节太多了，还是得慢慢补起来才行，而且第二章的剧情cg也得收齐……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
