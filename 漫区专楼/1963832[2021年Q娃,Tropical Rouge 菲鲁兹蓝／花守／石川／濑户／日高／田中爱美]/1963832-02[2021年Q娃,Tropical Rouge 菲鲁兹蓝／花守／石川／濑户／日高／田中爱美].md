@@ -14103,3 +14103,15 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 剧场版有资源了吗？
 
+
+
+*****
+
+####  过气页游  
+##### 2576#       发表于 2022-2-23 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54800279&amp;ptid=1963832" target="_blank">达达葱2 发表于 2022-2-23 10:47</a>
+
+剧场版有资源了吗？</blockquote>
+昨天BD发售，应该快了
+
