@@ -12127,3 +12127,12 @@ image.jpg
 五老星改命令抓五皇去了，看来传说中的被用假名掩盖的果实真的是五皇的橡胶果实 ...</blockquote>
 五皇这干完凯多那还有余力对付cp0，不知道这次是谁来救场。
 
+
+
+*****
+
+####  owada  
+##### 56467#       发表于 2022-2-23 14:08
+
+我觉得面子果实会来救场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

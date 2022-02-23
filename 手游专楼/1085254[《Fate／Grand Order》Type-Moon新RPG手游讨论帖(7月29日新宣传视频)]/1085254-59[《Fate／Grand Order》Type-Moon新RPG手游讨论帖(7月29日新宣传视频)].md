@@ -539,3 +539,35 @@ t1对面神性，莱尼斯全扔太公然后换道满，开太公全技能，然
 
 还剩20W点数，凌晨打个三四把就可以收工……
 
+
+
+*****
+
+####  白金口袋  
+##### 87048#       发表于 2022-2-23 14:07
+
+情人节最佳搭档，过劳死姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/23/000743bthqz2mh6ztxvqz8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220223000640.png</strong> (3.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 14:07 上传
+
+<img src="https://img.saraba1st.com/forum/202202/23/000744uzyublbzusxulsbk.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220223000648.png</strong> (6.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 14:07 上传
+
+*****
+
+####  khxooo  
+##### 87049#       发表于 2022-2-23 14:11
+
+C呆，14w点
+
