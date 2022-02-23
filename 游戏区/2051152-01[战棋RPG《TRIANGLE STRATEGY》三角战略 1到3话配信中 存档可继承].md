@@ -2798,3 +2798,12 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 解包信息，合计48关。19-21关一个周目。
 
+
+
+*****
+
+####  allenz3  
+##### 250#       发表于 2022-2-23 17:26
+
+关卡数还是蛮有诚意的，希望不要有很多重复地图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
