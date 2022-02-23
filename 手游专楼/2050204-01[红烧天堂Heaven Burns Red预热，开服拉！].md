@@ -1960,3 +1960,16 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  islxyqwe  
+##### 175#       发表于 2022-2-23 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54792239&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-22 17:00</a>
+自动挂机是不是有BUG？已经两次了，后台切回来看发现是0次，第一次我以为切太快，这次注意了下切回来是过了 ...</blockquote>
+这种情况就直接退游戏重开，时间会补回来（
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
