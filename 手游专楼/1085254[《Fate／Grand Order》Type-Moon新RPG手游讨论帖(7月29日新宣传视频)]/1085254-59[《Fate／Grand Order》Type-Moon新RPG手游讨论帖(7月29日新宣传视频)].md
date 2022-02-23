@@ -713,3 +713,25 @@ A狐，刷本习惯打手放三号位
 
 翻页
 
+
+
+*****
+
+####  alucardcz  
+##### 87064#       发表于 2022-2-23 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54806571&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-23 18:27</a>
+
+奶一口今年依然不会复刻芭娜娜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后白情就复课 被光速打脸
+
+*****
+
+####  qixinno2  
+##### 87065#       发表于 2022-2-23 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54807066&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-23 19:11</a>
+
+然后白情就复课 被光速打脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我无所谓 因为我只有1石
+
