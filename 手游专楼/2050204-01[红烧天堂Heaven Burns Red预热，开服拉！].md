@@ -1997,3 +1997,15 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 第二章打完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这..
 
+
+
+*****
+
+####  elven119  
+##### 178#         楼主| 发表于 2022-2-23 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54806716&amp;ptid=2050204" target="_blank">キラ様 发表于 2022-2-23 18:42</a>
+
+第二章打完了这..</blockquote>
+今日的第二章受害者出现了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
