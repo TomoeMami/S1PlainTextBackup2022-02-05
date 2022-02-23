@@ -12163,3 +12163,14 @@ image.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">在场的cp0很强啊，草帽团有余力帮路飞的大概也就甚平吧
 
+
+
+*****
+
+####  jy000129  
+##### 56471#       发表于 2022-2-23 16:53
+
+看LGA脑洞，说路飞的橡胶果实实际上是卡通果实，所以可以免疫雷电和做出很夸张的变形，感觉不是没可能
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

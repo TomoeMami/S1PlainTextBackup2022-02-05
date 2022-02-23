@@ -1973,3 +1973,18 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  poor  
+##### 176#       发表于 2022-2-23 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54803117&amp;ptid=2050204" target="_blank">islxyqwe 发表于 2022-2-23 13:36</a>
+这种情况就直接退游戏重开，时间会补回来（
+
+—— 来自 samsung SM-G9810, Android 11上的 S1Next-鹅版 v ...</blockquote>
+原来如此，白亏了几个小时。虽然玩到后面都是蚊子腿了……
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

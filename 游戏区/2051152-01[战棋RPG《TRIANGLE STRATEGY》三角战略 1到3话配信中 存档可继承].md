@@ -2780,3 +2780,12 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 把生岛直树换成吉田明彦，那么将绝杀，可惜换不得<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  czxiang_0  
+##### 248#       发表于 2022-2-23 17:03
+
+你们不觉得剧情太磨叽才是最大问题，我要的是slg，要比比你们去gal比比好不好
+
