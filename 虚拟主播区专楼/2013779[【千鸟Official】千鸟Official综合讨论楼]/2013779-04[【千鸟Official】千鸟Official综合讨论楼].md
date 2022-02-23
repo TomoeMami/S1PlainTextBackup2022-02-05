@@ -10210,3 +10210,28 @@ yysy 走廊是这样的 与其在lga发帖问云运营 还不如盼珺归捏<img
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  faithlifer  
+##### 5575#       发表于 2022-2-23 22:04
+
+被文静拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  sjbssd  
+##### 5576#       发表于 2022-2-23 22:07
+
+文静今天不对劲，看得我好怕<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 5577#       发表于 2022-2-23 22:11
+
+按照我这么多年的经验来看，我感觉千鸟的时间不长了。
+

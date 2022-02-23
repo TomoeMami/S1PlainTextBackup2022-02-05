@@ -2892,3 +2892,25 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 首先是剧情，对话这么多，小人演出又慢，就算狂按也快不了多少，比如小人冒那个省略号，看 ...</blockquote>
 杂兵确实有点太耐揍，不过比起以前一个后期魔法能放一两分钟的SRPG好多了
 
+
+
+*****
+
+####  Magnesium  
+##### 259#       发表于 2022-2-23 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808464&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-2-23 21:17</a>
+
+确实，特别是男主，长得一脸不是好东西的感觉。
+
+然后男主的壮壮，说是忠臣，也不像好人，那么尖的下巴， ...</blockquote>
+军师看起来过于正直以至于让人觉得他日后会反水<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+女主粉毛自带黑化属性<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+枪圣带个面具明显别有用心
+
+雪国的炸弹发明家、沙国的军师和医生明明挺正派的，但是一脸反派样
+
+真就没一个老实人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
