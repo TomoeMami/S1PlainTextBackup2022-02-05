@@ -3428,3 +3428,15 @@ mea塔姆的叫声比较恐怖
 
 《大朋友话题》
 
+
+
+*****
+
+####  路人庚  
+##### 9373#       发表于 2022-2-24 00:07
+
+ 本帖最后由 路人庚 于 2022-2-24 00:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今天的播，真好啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打错了金额的小伙大概要恰一段时间泡面了（指用slab把1000刀当成1000日元
+
