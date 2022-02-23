@@ -4335,3 +4335,25 @@ syl
 
 除了公式首订阅顺之外又一官方斗虫真的狼性
 
+
+
+*****
+
+####  喜闻乐见  
+##### 10873#       发表于 2022-2-23 19:49
+
+ 本帖最后由 喜闻乐见 于 2022-2-23 19:59 编辑 
+
+音源化不可避
+
+这首新单曲的前面部分不就是v调教那股儿，怕是老爱音源公式曲KZN-01了
+
+  <img src="https://ae02.alicdn.com/kf/H1d174d2b4758430ba1a6d9f3ac840487m.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10874#       发表于 2022-2-23 20:03
+
+虽然我对打枪没兴趣不过cheeky笑声还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
