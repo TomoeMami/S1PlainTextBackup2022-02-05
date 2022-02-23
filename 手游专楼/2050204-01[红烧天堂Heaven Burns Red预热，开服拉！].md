@@ -2020,3 +2020,17 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 譬如第一次选了A选项器+1，第二次选A还能+1吗？
 
+
+
+*****
+
+####  chenzhi11  
+##### 180#       发表于 2022-2-23 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808466&amp;ptid=2050204" target="_blank">posion 发表于 2022-2-23 21:17</a>
+
+请教一下，剧情对话刷的六维+点选项是可以重复刷还是只能拿1次？
+
+譬如第一次选了A选项器+1，第二次选A还能 ...</blockquote>
+剧情选项加点都是一次性的 每个选项只能一次。
+
