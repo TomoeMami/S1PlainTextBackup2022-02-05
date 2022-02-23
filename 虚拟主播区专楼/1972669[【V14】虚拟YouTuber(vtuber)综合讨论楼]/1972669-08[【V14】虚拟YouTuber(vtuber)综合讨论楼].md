@@ -4411,3 +4411,14 @@ VSPO在订阅上拿下了774
 
 说到vspo订阅，刚去看了眼noah已经追上丽姐了啊，比想象中快很多<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 10880#       发表于 2022-2-24 01:07
+
+我现在只想玩世不二出（）
+
+今天比赛hnn和noah带队打的都还行，特别是noah竟然是igl，补上了最后的短板啊，属实第一枪女了
+
