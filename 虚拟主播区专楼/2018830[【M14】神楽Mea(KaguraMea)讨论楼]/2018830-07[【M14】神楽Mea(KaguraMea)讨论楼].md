@@ -3180,3 +3180,37 @@ remake失败了，再次remake
 
 看标题，可能只播一会儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9347#       发表于 2022-2-23 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54805409&amp;ptid=2018830" target="_blank">pei23333 发表于 2022-2-23 16:46</a>
+
+10点唱歌，顺带周五的节目是和小红直播尬聊
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+指正，是周四和小红尬聊。
+
+往好里想，这次花园猫缺勤了，mea打卡了，下次mea也能缺勤。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">、
+
+阿咩是不是离不开二十八九岁的阿姨了，总是在和这个年纪的打交道。
+
+和小红联动打游戏我觉得还行，尬聊真的算了吧，没台本隔着两代沟。
+
+*****
+
+####  T_Hb  
+##### 9348#       发表于 2022-2-23 17:02
+
+不看就完事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 9349#       发表于 2022-2-23 17:08
+
+可以聊嘛，你是个冠军，我也是冠军
+

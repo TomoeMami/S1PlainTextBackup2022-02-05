@@ -4251,3 +4251,14 @@ syl，noah新衣服鸽到5月了，错开这次vspo新衣潮也好吧…
 
 zsyl，3月了…bora该回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 10866#       发表于 2022-2-23 17:16
+
+EN那个听着像女配男的不是有传言说中之人是trans的吗，ftm？
+
+还没出道呢，说不定到时候还可能是个Non-binary
+
