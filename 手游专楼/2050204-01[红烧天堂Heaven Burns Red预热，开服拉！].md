@@ -2009,3 +2009,14 @@ nanamin不是说自己只有事务能力 不会打架吧
 第二章打完了这..</blockquote>
 今日的第二章受害者出现了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  posion  
+##### 179#       发表于 2022-2-23 21:17
+
+请教一下，剧情对话刷的六维+点选项是可以重复刷还是只能拿1次？
+
+譬如第一次选了A选项器+1，第二次选A还能+1吗？
+

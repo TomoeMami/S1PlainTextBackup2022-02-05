@@ -4366,3 +4366,16 @@ syl
 
 那么是cevio还是vocaloid呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 10876#       发表于 2022-2-23 21:21
+
+[https://p2y.jp/vspo-has-risen-to ... outube-subscribers/](https://p2y.jp/vspo-has-risen-to-the-3rd-place-among-vtuber-agencies-and-groups-in-japan-in-terms-of-total-youtube-subscribers/)
+
+ぶいすぽっ！ 合計チャンネル登録者数で日本国内のVTuber事務所・グループ3位に浮上
+
+VSPO在订阅上拿下了774
+

@@ -2841,3 +2841,21 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 我觉得这十八九节，如果只有18-19场战斗怎么讲得完故事啊
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 255#       发表于 2022-2-23 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808024&amp;ptid=2051152" target="_blank">南宫月汐 发表于 2022-2-23 20:36</a>
+
+人设最大的问题我觉得是所有人看起来都像坏人
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+确实，特别是男主，长得一脸不是好东西的感觉。
+
+然后男主的壮壮，说是忠臣，也不像好人，那么尖的下巴，能戳死人。
+
+军师倒是看起来正直一点。
+
