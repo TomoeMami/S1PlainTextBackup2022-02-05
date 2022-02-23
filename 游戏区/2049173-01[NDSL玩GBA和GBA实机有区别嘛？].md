@@ -2361,3 +2361,29 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 我这边有两个多余的了，想出了</blockquote>
 球PM，有点想要
 
+
+
+*****
+
+####  zris  
+##### 179#         楼主| 发表于 2022-2-23 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想我已经疯了
+
+我又搞了台AGS101，说真的SP的101屏观感比NDSL和舞馆点对点的
+
+我打算把拆机那个有瑕疵的101屏，到时候看楼里哪个小伙伴需要找我吧，免费送了。
+
+*****
+
+####  褪色的雪花  
+##### 180#       发表于 2022-2-23 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54790827&amp;ptid=2049173" target="_blank">Yui_hirasawa 发表于 2022-2-22 15:21</a>
+有点想收一台成色好的原版GBA放展示柜当摆件收藏，有没有推荐的中古游戏机店啊？不考虑太复杂的海淘。 ...</blockquote>
+其实可以换个体验方式 
+买套件自己组一个
+现在连金属壳都有了
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
