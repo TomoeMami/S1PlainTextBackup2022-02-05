@@ -2347,3 +2347,17 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 我这边有两个多余的了，想出了
 
+
+
+*****
+
+####  kyowzq  
+##### 178#       发表于 2022-2-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54801488&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-23 11:32</a>
+
+说起来现在有老哥知道GBA GBA SP啥价
+
+我这边有两个多余的了，想出了</blockquote>
+球PM，有点想要
+

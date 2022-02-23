@@ -12109,3 +12109,21 @@ image.jpg
 
 你看看雷利两年里都教了什么
 
+
+
+*****
+
+####  roxas.sora  
+##### 56465#       发表于 2022-2-23 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让cp0去干这种活和自杀有什么区别
+
+*****
+
+####  晃来晃去  
+##### 56466#       发表于 2022-2-23 13:58
+
+<blockquote>COINCIDENCE 发表于 2022-2-23 09:37
+五老星改命令抓五皇去了，看来传说中的被用假名掩盖的果实真的是五皇的橡胶果实 ...</blockquote>
+五皇这干完凯多那还有余力对付cp0，不知道这次是谁来救场。
+
