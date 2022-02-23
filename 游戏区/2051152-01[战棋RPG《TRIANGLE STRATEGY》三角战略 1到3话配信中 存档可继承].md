@@ -2859,3 +2859,36 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 军师倒是看起来正直一点。
 
+
+
+*****
+
+####  Petilil  
+##### 256#       发表于 2022-2-23 21:36
+
+48关是包含训练关的吧，去掉训练关估计也就三十多关
+
+*****
+
+####  战狼PTSD  
+##### 257#       发表于 2022-2-23 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54805652&amp;ptid=2051152" target="_blank">czxiang_0 发表于 2022-2-23 17:03</a>
+
+你们不觉得剧情太磨叽才是最大问题，我要的是slg，要比比你们去gal比比好不好 ...</blockquote>
+问题这代宣传看起来就像是主打剧情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+缺少个CY系手游的功能，剧情点SKIP后出个概括给你看
+
+*****
+
+####  战狼PTSD  
+##### 258#       发表于 2022-2-23 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54689896&amp;ptid=2051152" target="_blank">Meltina 发表于 2022-2-14 23:52</a>
+
+感觉节奏太慢了
+
+首先是剧情，对话这么多，小人演出又慢，就算狂按也快不了多少，比如小人冒那个省略号，看 ...</blockquote>
+杂兵确实有点太耐揍，不过比起以前一个后期魔法能放一两分钟的SRPG好多了
+

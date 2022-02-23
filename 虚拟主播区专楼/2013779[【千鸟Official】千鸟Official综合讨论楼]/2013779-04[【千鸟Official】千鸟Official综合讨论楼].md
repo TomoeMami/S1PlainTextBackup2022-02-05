@@ -10183,3 +10183,12 @@ yysy 走廊是这样的 与其在lga发帖问云运营 还不如盼珺归捏<img
 
 —— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  伞沢直美  
+##### 5572#       发表于 2022-2-23 21:32
+
+文静突了
+
