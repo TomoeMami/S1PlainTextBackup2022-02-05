@@ -14164,3 +14164,12 @@ X0]KGP)G{PHL[5NOKJ]8V6P.jpg
 和前辈联动剧场版能不能别再上演前靠被抓的戏码了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 还有治愈友情客串是不是少了一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  待宵  
+##### 2581#       发表于 2022-2-24 07:20
+
+剧场版公主这个人设是不是受到了偶活的影响？
+
