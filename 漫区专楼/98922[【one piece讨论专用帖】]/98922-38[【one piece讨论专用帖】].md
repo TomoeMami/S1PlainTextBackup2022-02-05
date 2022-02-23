@@ -12064,3 +12064,12 @@ image.jpg
 所以五皇的果实觉醒了能让其他人膨胀？这tm都把别人种族整个给改了吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这感觉倒没啥，恶魔果实的能力本就千奇百怪，童趣果实这些不也很BUG嘛
 
+
+
+*****
+
+####  银枪子龙  
+##### 56460#       发表于 2022-2-23 11:50
+
+海贼王海贼王，大部分海贼都是辣鸡没问题
+
