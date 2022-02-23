@@ -4262,3 +4262,12 @@ EN那个听着像女配男的不是有传言说中之人是trans的吗，ftm？
 
 还没出道呢，说不定到时候还可能是个Non-binary
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10867#       发表于 2022-2-23 18:25
+
+niji经历了一波小炎上，因为Sonny Brisko是个金色头发蓝色眼睛的白人男性<strong>Cop，</strong>says "Don't make me use lethal force"在黑人历史月
+
