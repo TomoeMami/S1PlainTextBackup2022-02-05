@@ -12045,3 +12045,22 @@ image.jpg
 
 所以五皇的果实觉醒了能让其他人膨胀？这tm都把别人种族整个给改了吧？
 
+
+
+*****
+
+####  hkguty  
+##### 56458#       发表于 2022-2-23 11:09
+
+最近这漫画怎么那么多马后炮补丁
+
+*****
+
+####  武男  
+##### 56459#       发表于 2022-2-23 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54800981&amp;ptid=98922" target="_blank">cckuku 发表于 2022-2-23 10:47</a>
+
+所以五皇的果实觉醒了能让其他人膨胀？这tm都把别人种族整个给改了吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这感觉倒没啥，恶魔果实的能力本就千奇百怪，童趣果实这些不也很BUG嘛
+
