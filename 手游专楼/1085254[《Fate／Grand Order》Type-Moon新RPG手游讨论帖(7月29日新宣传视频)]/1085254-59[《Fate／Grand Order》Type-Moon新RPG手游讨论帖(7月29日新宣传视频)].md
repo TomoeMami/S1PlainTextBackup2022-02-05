@@ -735,3 +735,14 @@ A狐，刷本习惯打手放三号位
 然后白情就复课 被光速打脸</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我无所谓 因为我只有1石
 
+
+
+*****
+
+####  khxooo  
+##### 87066#       发表于 2022-2-23 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54807066&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-23 19:11</a>
+然后白情就复课 被光速打脸</blockquote>
+那不是更好？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
