@@ -4271,3 +4271,58 @@ EN那个听着像女配男的不是有传言说中之人是trans的吗，ftm？
 
 niji经历了一波小炎上，因为Sonny Brisko是个金色头发蓝色眼睛的白人男性<strong>Cop，</strong>says "Don't make me use lethal force"在黑人历史月
 
+
+
+*****
+
+####  Suny08  
+##### 10868#       发表于 2022-2-23 18:46
+
+好死，5期确实有点飘了，该烧烧了
+
+Syl，怎么还有又瓦又a的，我就直说了马上要打瓦比赛了粘点a的都不行，三枝基本寄了，葵皇昨晚也是各种放炮，今天要还是调整不过来估计葵皇这个大热门也要被抬走了
+
+*****
+
+####  free  
+##### 10869#       发表于 2022-2-23 18:48
+
+这是谁？？？
+
+<img src="https://img.saraba1st.com/forum/202202/23/184839twb87vv9gpwjpbvw.png" referrerpolicy="no-referrer">
+
+<strong>谁.png</strong> (24.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 18:48 上传
+
+*****
+
+####  NBXX  
+##### 10870#       发表于 2022-2-23 18:52
+
+<blockquote>にじさんじの歌動画を簡単に視聴できるWebサービス、NIJIUTA([https://nijiuta.com](https://nijiuta.com))をリリースしました 🎉
+
+週間ランキング、新着、累計視聴数、ランダムの4つから選んで視聴できます
+
+過去の週間ランキング視聴もできます
+
+自動再生なので作業用BGMにおすすめです！
+
+👉 [https://nijiuta.com](https://nijiuta.com)</blockquote>
+<img src="https://p.sda1.dev/5/915dba9af0942c0c442d7abd6d901639/FMQ9fKPaUAYRLRg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10871#       发表于 2022-2-23 18:52
+
+ 本帖最后由 fastary 于 2022-2-23 18:57 编辑 
+
+草，黑客今天还在A没瓦过呢，这人又是惯例不积极队练的，也不知道比赛前能练几次(希望不要到时候被骂战犯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl
+
+昨天en厕就在嘲黄毛发推英文语法都能错肯定是亚裔文盲，今天就被烧了，别真给说中了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

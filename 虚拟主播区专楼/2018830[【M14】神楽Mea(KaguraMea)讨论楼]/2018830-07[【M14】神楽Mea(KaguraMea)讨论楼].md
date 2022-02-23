@@ -3232,3 +3232,21 @@ remake失败了，再次remake
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  十九号大侠  
+##### 9352#       发表于 2022-2-23 18:52
+
+讲述摆烂之道吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 9353#       发表于 2022-2-23 18:59
+
+擦出火花，能擦除什么火花，你vcp能让她把老头环打了我承认擦出火花
+

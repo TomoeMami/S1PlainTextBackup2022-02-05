@@ -1988,3 +1988,12 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  キラ様  
+##### 177#       发表于 2022-2-23 18:42
+
+第二章打完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这..
+
