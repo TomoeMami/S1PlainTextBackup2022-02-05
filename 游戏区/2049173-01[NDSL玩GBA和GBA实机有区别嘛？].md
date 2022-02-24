@@ -2387,3 +2387,22 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  zris  
+##### 181#         楼主| 发表于 2022-2-24 11:47
+
+<img src="https://img.saraba1st.com/forum/202202/24/114642d8h4us1e10d4mds0.jpg" referrerpolicy="no-referrer">
+
+<strong>72b4f100-0186-449f-9359-7d9b1e785d3f.jpg</strong> (178.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 11:46 上传
+
+找了一个几乎全新完美的ags 101，这屏幕真的爱了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
