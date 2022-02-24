@@ -4814,3 +4814,35 @@ cover两份公告把为什么是润走说的很清楚了，魂谈恋爱公司不
 
 mafumafu切割的快啊，第一时间摘干净说双方只是打游戏的朋友关系，不管有没有人信，反正接下来压力都到润这边了
 
+
+
+*****
+
+####  kangkangsama  
+##### 10924#       发表于 2022-2-24 17:43
+
+微博对于润姨的疯女人程度没有足够的认知。
+
+*****
+
+####  越动天下  
+##### 10925#       发表于 2022-2-24 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54818075&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-2-24 17:26</a>
+组一个里之hololive吧，算算也可以凑个一期生出来了</blockquote>
+梦幻的七期生是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/5/c9ad1a851f783c36ccf0c2df0b222cc4/NuB01Df.jpg" referrerpolicy="no-referrer"> 不过男人还是滚
+
+*****
+
+####  2L模仿47哥  
+##### 10926#       发表于 2022-2-24 17:54
+
+微博那帮人只是单纯憎恨冥府茅房罢了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2L模仿47哥  
+##### 10927#       发表于 2022-2-24 17:55
+
+没有润姨这档子事情，微博上巴不得他死的人也照样多得是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
