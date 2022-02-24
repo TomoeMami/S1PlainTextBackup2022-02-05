@@ -3562,3 +3562,37 @@ mea塔姆的叫声比较恐怖
 
 今天竟然说了绝对不会有播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 9387#       发表于 2022-2-24 17:30
+
+哎，要是不在holo了是不是可以自由联动了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Cushaw  
+##### 9388#       发表于 2022-2-24 17:34
+
+小麻现在有几斤几两啊（无端<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  やト  
+##### 9389#       发表于 2022-2-24 17:37
+
+去了皮作为个人来联动的话， 关系也没好到那种程度吧
+
+*****
+
+####  古战场亡魂  
+##### 9390#       发表于 2022-2-24 17:41
+
+鼻血组说熟也没多熟，就粽子的积累转生也能活的很好。
+
