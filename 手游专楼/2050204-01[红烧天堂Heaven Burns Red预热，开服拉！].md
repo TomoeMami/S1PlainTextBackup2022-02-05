@@ -2054,3 +2054,15 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 好了，我也是第二章受害者了
 
+
+
+*****
+
+####  elven119  
+##### 183#         楼主| 发表于 2022-2-24 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816804&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-2-24 15:42</a>
+
+好了，我也是第二章受害者了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

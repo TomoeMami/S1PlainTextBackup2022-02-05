@@ -4580,3 +4580,58 @@ Qsmf能开直播讲讲故事吗，大家都挺好奇的
 
 我还停留在男坏女蠢的版本，怎么wb一看都在说mf4000+润好惨<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwera3469  
+##### 10899#       发表于 2022-2-24 15:44
+
+微博讨厌魔法美发的多吧 说魔法美发毁了润事业
+
+*****
+
+####  qwera3469  
+##### 10900#       发表于 2022-2-24 15:44
+
+微博讨厌魔法美发的多吧 说魔法美发毁了润事业
+
+*****
+
+####  rzrbtk  
+##### 10901#       发表于 2022-2-24 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816749&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-24 15:38</a>
+
+这事我就跟到krkr直播给两边搞澄清和aki爆料的部分，没法卖腐倒黑泥挖黑历史造谣这一串又是什么东西[f:216 ...</blockquote>
+黛灰姐每次傻傻被各种隔空喊话bot添油加醋骗到的时候都有一种’其实你并不是黛灰粉吧那个人怎么会有这种纯良粉丝‘的搞笑感<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，
+
+省一楼，后面那个男方应该是说男方粉丝
+
+*****
+
+####  ヒトニナル  
+##### 10902#       发表于 2022-2-24 15:48
+
+无论有没有润姨这事魔法美发都该死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 10903#       发表于 2022-2-24 15:51
+
+コレコレ和自称润那个前男友也不是什么好饼就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10904#       发表于 2022-2-24 16:00
+
+<blockquote>rzrbtk 发表于 2022-2-24 15:46
+黛灰姐每次傻傻被各种隔空喊话bot添油加醋骗到的时候都有一种’其实你并不是黛灰粉吧那个人怎么会有这种 ...</blockquote>
+就因为不是厕所的评论我才奇怪啊，500+转几乎都是在骂木口和mf快死和心疼润姨的，给我看懵了
+
+(其实我是想嘲的，但万一真是我吃漏瓜了就会显得很小丑还有mf粉嫌疑所以就用信了的语气了
+
+https://share.api.weibo.cn/share/284937245.html?weibo_id=4740400813968622
+
