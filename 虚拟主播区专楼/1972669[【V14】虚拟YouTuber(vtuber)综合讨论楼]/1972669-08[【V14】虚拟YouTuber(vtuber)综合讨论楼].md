@@ -4635,3 +4635,33 @@ Qsmf能开直播讲讲故事吗，大家都挺好奇的
 
 https://share.api.weibo.cn/share/284937245.html?weibo_id=4740400813968622
 
+
+
+*****
+
+####  藤原银  
+##### 10905#       发表于 2022-2-24 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我要是谷乡元昭我也不能让企业里安一个定时炸弹
+
+*****
+
+####  rzrbtk  
+##### 10906#       发表于 2022-2-24 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54817027&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-24 16:00</a>
+
+就因为不是厕所的评论我才奇怪啊，500+转几乎都是在骂木口和mf快死和心疼润姨的，给我看懵了
+
+(其实我是想 ...</blockquote>
+骂杏和mf姑且算wb（各种bot引导出）的一种风气（不限于虹人和术人），然后润在遇人不淑方面确实可以心疼吧...但是发展下来mf缩了，润一个人反复操作（爆料、魂号活动、谜语直播），也许在别的成员推和公司眼里就从蠢逐渐发展成又蠢又坏，然后又刚好有把柄抓，就...
+
+虽然看起来这事没完毕竟还有魂号，但如此干脆的解雇又让人觉得其实是两方协商的结果，并不觉得润和上一位炸公司的siosio有什么相似处👊，猜会是往三角方向发展吧
+
+*****
+
+####  lhawp  
+##### 10907#       发表于 2022-2-24 16:18
+
+看到一条评论「エンゲージリングの返金でエルデンリング買える」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
