@@ -4520,3 +4520,30 @@ Qsmf能开直播讲讲故事吗，大家都挺好奇的
 
 最先制裁露西亚的竟然是……<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashero  
+##### 10893#       发表于 2022-2-24 14:40
+
+看了眼
+这前二的sc记录再过一年能打得破吗
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  IDIDIDID  
+##### 10894#       发表于 2022-2-24 14:48
+
+好死！
+
+*****
+
+####  poipanchao  
+##### 10895#       发表于 2022-2-24 15:20
+
+游综区看到老头环直播规则（我没验证过）
+可以播，不准打钱
+
