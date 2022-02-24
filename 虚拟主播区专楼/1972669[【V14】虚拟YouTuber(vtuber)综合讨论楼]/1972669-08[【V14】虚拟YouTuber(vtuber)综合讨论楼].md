@@ -4733,3 +4733,39 @@ Syl，说到泄密，nijiEN5期的Uki Violeta意外公开了首播试播配信�
 
 不过这些test stream，niji和ACAB的纠缠与今天其他新闻相比都显得无足轻重<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 10916#       发表于 2022-2-24 17:05
+
+继上次恋情曝光很有节目效果地和ATM失灵排在一起后
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">今期情报泄露又很有节目效果地和某个“失信”排在了一起
+
+<img src="https://img.saraba1st.com/forum/202202/24/170147d4pt4tl5eblaaw4t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220224005952.png</strong> (38.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 17:01 上传
+
+润姨，你究竟泄露了什么情报（
+
+*****
+
+####  Porsche  
+##### 10917#       发表于 2022-2-24 17:06
+
+为什么不是魔法美发死了而是润姨死，我不能接受
+
+*****
+
+####  FCCHua  
+##### 10918#       发表于 2022-2-24 17:12
+
+ 本帖最后由 FCCHua 于 2022-2-24 17:14 编辑 
+
+为什么唐突变成了这样，而不是mafu...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
