@@ -12260,3 +12260,12 @@ cp0干个补刀的活也没问题吧
 
 最后解密这个叫梦想果实，你觉得它是什么就是什么，所以一开始取了个橡胶果实的名字想着橡胶这东西没鸟用，取得的人潜意识里也只会发挥出橡胶的特性——谁知道五皇恐怖如斯橡胶都能打到这地步<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Bojenkins  
+##### 56481#       发表于 2022-2-24 11:06
+
+看看尾田这几年又学到啥民科新理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
