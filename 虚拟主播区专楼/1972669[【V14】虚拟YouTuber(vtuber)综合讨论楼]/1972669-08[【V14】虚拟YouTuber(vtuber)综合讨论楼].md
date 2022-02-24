@@ -4917,3 +4917,27 @@ Syl，yugo已经变成/vt/虹串玩具了，期待首播<img src="https://static
 
 你虹为啥没人播环。我想看EN那边的玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10935#       发表于 2022-2-24 23:24
+
+想看黑客播环……不过他虽然喜欢独立游戏好像对这种受苦类就没什么兴趣，虽然也可能只是觉得播不出效果就不玩了，可恶啊
+
+*****
+
+####  poipanchao  
+##### 10936#       发表于 2022-2-24 23:32
+
+twitter.com/kalappo74/status/1496862539770052608
+
+<img src="https://img.saraba1st.com/forum/202202/24/233228ys73b6443g6tz3bn.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220224232100.jpg</strong> (673.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 23:32 上传
+
