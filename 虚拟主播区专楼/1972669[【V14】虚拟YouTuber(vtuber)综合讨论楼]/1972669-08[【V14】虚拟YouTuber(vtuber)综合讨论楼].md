@@ -4864,3 +4864,20 @@ mafumafu切割的快啊，第一时间摘干净说双方只是打游戏的朋友
 
 所以虹人能播老头环吗
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10930#       发表于 2022-2-24 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54820013&amp;ptid=1972669" target="_blank">freka 发表于 2022-2-24 20:32</a>
+
+所以虹人能播老头环吗</blockquote><blockquote>叶@はやおき@Kanae_2434
+
+寝て朝からpc版でするか０時からps5でやるか、、、
+
+朝steamでいきます</blockquote>要播
+
+Syl，yugo已经变成/vt/虹串玩具了，期待首播<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 
+
