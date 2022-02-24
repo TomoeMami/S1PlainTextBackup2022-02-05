@@ -4897,3 +4897,14 @@ Syl，yugo已经变成/vt/虹串玩具了，期待首播<img src="https://static
 
 虹人播法环啊  るる就播啊 [https://www.youtube.com/watch?v=LkyhBWNuKWc](https://www.youtube.com/watch?v=LkyhBWNuKWc)
 
+
+
+*****
+
+####  rzrbtk  
+##### 10933#       发表于 2022-2-24 22:13
+
+今天的管人世界好恐怖，去看环了...
+
+省一楼，每次有任何v出事，郡郡作为炎上总代表都会被流弹打到，可以说已经习惯了，但偶尔看到“杏出了个郡道还不够，润羽又来啊🤢”还是绷不住，替2434谢谢这位推主了
+
