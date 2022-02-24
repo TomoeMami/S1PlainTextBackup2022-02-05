@@ -3637,3 +3637,14 @@ mea塔姆的叫声比较恐怖
 
 这背景不错
 
+
+
+*****
+
+####  十九号大侠  
+##### 9396#       发表于 2022-2-24 20:33
+
+小麻在主持嘞
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
