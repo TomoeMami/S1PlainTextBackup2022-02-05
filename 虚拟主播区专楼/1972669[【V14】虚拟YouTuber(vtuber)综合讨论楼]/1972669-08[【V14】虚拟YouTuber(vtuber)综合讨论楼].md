@@ -4685,3 +4685,51 @@ https://share.api.weibo.cn/share/284937245.html?weibo_id=4740400813968622
 (其实我是想 ...</blockquote>
 个人感觉本身魔法美发微博风评就不好，再加上魔法美发那文章上来一个“对方单方面怀着好意接近我”（虽然后面是在说没有这样）看着的确很渣男。
 
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 10910#       发表于 2022-2-24 16:41
+
+微博本来就不是杏奴聚集地 为了黑马夫当然是把润描述得越可怜效果越好
+
+*****
+
+####  帕克桑  
+##### 10911#       发表于 2022-2-24 16:44
+
+微博这些bot基本都沾点拳 出事了自然ghg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 10912#       发表于 2022-2-24 16:50
+
+好死
+
+*****
+
+####  flyskywalker92  
+##### 10913#       发表于 2022-2-24 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Ryuuseigun  
+##### 10914#       发表于 2022-2-24 16:56
+
+支持地雷润姨魂帐直播和mf真人快打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 10915#       发表于 2022-2-24 16:57
+
+DEMONDICE最近一段时间状态也挺不好的，希望姐不要跑路...
+
+Syl，说到泄密，nijiEN5期的Uki Violeta意外公开了首播试播配信（[链接](https://anonfiles.com/X0SdT3J2xa/3010792-8e51a584673d8bbe4f8e0f5ec60da339_mp4)），不出意料是pearl，重点是有人提到最后出现的discord中女性的声音是Noor（元IN成员），之前一直有她被niji反聘为staff的传闻
+
+不过这些test stream，niji和ACAB的纠缠与今天其他新闻相比都显得无足轻重<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer"> 
+
