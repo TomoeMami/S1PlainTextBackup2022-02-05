@@ -4547,3 +4547,36 @@ Qsmf能开直播讲讲故事吗，大家都挺好奇的
 游综区看到老头环直播规则（我没验证过）
 可以播，不准打钱
 
+
+
+*****
+
+####  IDIDIDID  
+##### 10896#       发表于 2022-2-24 15:33
+
+🌈有准备上环的吗
+
+*****
+
+####  tiro_finale  
+##### 10897#       发表于 2022-2-24 15:38
+
+草，SC榜首是有什么诅咒的吗，杏这事有点乐
+
+*****
+
+####  fastary  
+##### 10898#       发表于 2022-2-24 15:38
+
+<img src="https://img.saraba1st.com/forum/202202/24/153434bmg7za7gzeofvzyw.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022_0224_153350.png</strong> (82.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 15:34 上传
+
+这事我就跟到krkr直播给两边搞澄清和aki爆料的部分，没法卖腐倒黑泥挖黑历史造谣这一串又是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+我还停留在男坏女蠢的版本，怎么wb一看都在说mf4000+润好惨<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
