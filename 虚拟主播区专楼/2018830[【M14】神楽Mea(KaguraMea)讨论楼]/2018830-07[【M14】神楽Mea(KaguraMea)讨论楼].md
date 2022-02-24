@@ -3648,3 +3648,26 @@ mea塔姆的叫声比较恐怖
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9397#       发表于 2022-2-24 20:45
+
+好消息，仓鼠还活着
+
+*****
+
+####  clvan_  
+##### 9398#       发表于 2022-2-24 20:48
+
+还活着，不容易
+
+*****
+
+####  古战场亡魂  
+##### 9399#       发表于 2022-2-24 21:01
+
+今天观感其实还不错，比较像声优电台的形式。mea主持，有台本，时间控制的也非常好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等下周翻译吧。
+
