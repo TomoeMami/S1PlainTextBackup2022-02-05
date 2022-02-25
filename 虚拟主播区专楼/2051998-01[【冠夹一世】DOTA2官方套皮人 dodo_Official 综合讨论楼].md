@@ -3949,3 +3949,12 @@ bot名字完美改的？
 
 他真的，我哭死
 
+
+
+*****
+
+####  rosevalley46  
+##### 471#       发表于 2022-2-25 23:02
+
+总之看得出完美还是投了资源给暗灭头了，看后面能不能进一步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
