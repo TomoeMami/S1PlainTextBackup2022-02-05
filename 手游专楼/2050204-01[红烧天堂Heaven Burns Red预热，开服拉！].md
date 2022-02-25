@@ -2091,3 +2091,14 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 目前最强猴戏就是全buffer下螃蟹打出来的228w，属性阵套上，2次减防叠好，2次加攻，2次加爆，找个弱冰弱突的低等级boss轰一发
 
+
+
+*****
+
+####  barca  
+##### 186#       发表于 2022-2-25 19:58
+
+不愧是屑运营，石头发的和时光猫一样抠，新池子却开得更勤快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
