@@ -15014,3 +15014,15 @@ eh传这些写真太正常了
 
 初辣鸡播的水槽留言，国人的昵称全部切了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">然后有几个留言感觉有重复
 
+
+
+*****
+
+####  Enakina  
+##### 5711#       发表于 2022-2-25 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54830647&amp;ptid=2036367" target="_blank">lj205 发表于 2022-02-25 18:22:32</a>
+然后有几个留言感觉有重复</blockquote>我感觉好像直接说中文的本来就没按那个水槽name啥啥啥的留言，直接该说啥说啥了，有几个先日语后中文的就有昵称
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
