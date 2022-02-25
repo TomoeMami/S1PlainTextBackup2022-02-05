@@ -15044,3 +15044,27 @@ eh传这些写真太正常了
 
 鱼在唱ふわふわ時間开头的时候有唯拍手腕的动作，唱完之后还特意还原了大车轮
 
+
+
+*****
+
+####  Piano-Forest  
+##### 5714#       发表于 2022-2-25 22:30
+
+[https://twitter.com/kamatamanankotu/status/1497216172932034560](https://twitter.com/kamatamanankotu/status/1497216172932034560)
+
+当日朝
+
+#嵐千砂都生誕祭2022 
+<img src="https://p.sda1.dev/5/b43a7d5fca16b421721dc3f4f0ba3a49/20220225_222908.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5715#       发表于 2022-2-25 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54832908&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-02-25 22:16:12</a>
+鱼在唱ふわふわ時間开头的时候有唯拍手腕的动作，唱完之后还特意还原了大车轮 ...</blockquote>草，我说最后那个动作怎么那么憨。原来是还原呆唯了啊，kon剧情都忘的差不多了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3716,3 +3716,19 @@ mea塔姆的叫声比较恐怖
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  呓亘  
+##### 9405#       发表于 2022-2-25 22:33
+
+emmmmmm 这人怕不是把每周五VCP更新也算作一次直播了……
+
+*****
+
+####  道门正御应无骞  
+##### 9406#       发表于 2022-2-25 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">借楼问一下现在VCP究竟是个什么状态？我有听说只是把几个人捏一块儿而已，还是说有实际的企划？
+
