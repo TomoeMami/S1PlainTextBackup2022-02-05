@@ -7071,3 +7071,21 @@ SPWN是live之前之后都锁购买
 
 感觉会晚上播，但这pc优化和一堆乱七八糟的小问题要直播还是用ps5稳点
 
+
+
+*****
+
+####  梅斯之围  
+##### 8324#       发表于 2022-2-25 13:33
+
+她就算播了，玩的节目效果怎么样我不好说，技术力不够头铁凑，估计都是头铁硬打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2276382  
+##### 8325#       发表于 2022-2-25 13:37
+
+看了昨晚狗头人 真的期待阿夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

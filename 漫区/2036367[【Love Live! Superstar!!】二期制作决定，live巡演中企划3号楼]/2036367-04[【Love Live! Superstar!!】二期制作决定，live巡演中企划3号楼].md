@@ -14868,3 +14868,17 @@ nako现在完全靠ll给工作了，个人业务约等于无。年龄也等不�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 5701#       发表于 2022-2-25 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54826840&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-25 13:12</a>
+
+今天liyuu要上节目的日子啊，要唱滑滑蛋。不知道会不会顺便出个唯的cos
+
+----发送自 Xiaomi Redmi K ...</blockquote>
+如果有肯定就预告了，就是唱歌吧，不过第一次乐队伴奏还是可以期待一下。
+
