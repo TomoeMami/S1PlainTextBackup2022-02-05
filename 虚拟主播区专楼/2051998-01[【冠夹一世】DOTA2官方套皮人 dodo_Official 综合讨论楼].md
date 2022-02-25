@@ -3958,3 +3958,12 @@ bot名字完美改的？
 
 总之看得出完美还是投了资源给暗灭头了，看后面能不能进一步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pwzzy  
+##### 472#       发表于 2022-2-26 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠夹这睡前杠精故事真的是绝中绝，每天听不到夹子抬杠要睡不着了
+
