@@ -12457,3 +12457,32 @@ image.png
 — from OPPO PEGM00, Android 11 of S1 Next Goose v2.5.2 ...</blockquote>
 现在看是抢完果实被政府追的太狠了躲东海去了，说不定红发自己都不知道抢了什么吊炸天果实…我记得开头红发说过在东海蹲了一年来着？也说不定橡胶果实需要手术果实才能完全觉醒
 
+
+
+*****
+
+####  华丽の蝴蝶  
+##### 56500#       发表于 2022-2-25 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54828566&amp;ptid=98922" target="_blank">klzxs 发表于 2022-2-25 15:24</a>
+改一点点字确实挺可能
+
+海军也干过这事
+
+比如把罗杰的gol.d改成gold(虽然我感觉每个人都知道罗杰是d</blockquote>
+ゴムゴム和消しゴム字面上是可以联系上的
+
+*****
+
+####  klzxs  
+##### 56501#       发表于 2022-2-25 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54829463&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2022-2-25 16:36</a>
+
+ゴムゴム和消しゴム字面上是可以联系上的</blockquote>
+我的意思是能力上
+
+想不出消除如何转变为橡胶
+
+或者橡胶如何去擦除
+
