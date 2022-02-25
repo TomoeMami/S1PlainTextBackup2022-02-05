@@ -14632,3 +14632,239 @@ BC6F0256-CFAA-4557-9835-4F77251F9699.jpeg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 5679#       发表于 2022-2-24 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54815205&amp;ptid=2036367" target="_blank">player3960 发表于 2022-02-24 12:31:17</a>
+4月后就进入虹团期了，空窗期的星团活动也不知道怎么安排的，现在5月份有个活动还行... ...</blockquote>没准可以撑着空档期去抓紧忙个人了，比如小百合可以宣布出道了，趁热打铁，挺好的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 5680#       发表于 2022-2-24 16:04
+
+香千曲也ゆらゆら<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5681#       发表于 2022-2-24 18:46
+
+所以这ゆら内容能做进第二季吗
+
+*****
+
+####  ykyin09  
+##### 5682#       发表于 2022-2-24 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把恋个人回按 クレッシェンドゆ・ら 写不比这第八集好看得多
+
+*****
+
+####  笋狐  
+##### 5683#       发表于 2022-2-24 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每多一个人在摇曳曲里嗑可恋，就有一个花田十辉惨遭杀害，请加大力度
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5684#       发表于 2022-2-24 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">happy to do wa这首歌好欢乐，不知道到时候怎么编舞
+
+*****
+
+####  welcom  
+##### 5685#       发表于 2022-2-24 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54819986&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-2-24 20:28</a>
+
+把恋个人回按 クレッシェンドゆ・ら 写不比这第八集好看得多</blockquote>
+能第二季复刻夜梨回也行了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 5686#       发表于 2022-2-24 22:24
+
+为了可恋雨夜打相合伞，我要开高级黑色轿车创死你啊花田十辉！
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 5687#       发表于 2022-2-24 22:28
+
+<img src="https://img.saraba1st.com/forum/202202/24/222851arhhtbpdpfwdtdhw.jpg" referrerpolicy="no-referrer">
+
+<strong>20220224_220947.jpg</strong> (154.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 22:28 上传
+
+*****
+
+####  仟音一心  
+##### 5688#       发表于 2022-2-24 23:24
+
+2022.2.25
+
+小千！！！！！
+
+生日快乐🎂🎉
+
+无论何时都一直陪在我身边的重要的存在😌
+
+从此往后也会继续对“圆”爆发出爱意的
+
+对吧~~◎♡
+
+小千和她最喜欢的仓鼠，一起坐在我的手上哦☺︎
+
+#嵐千砂都生誕祭2022##嵐千砂都誕生祭2022# 
+
+8AE779CB-EAC9-40CF-A862-C4BA3E4EAF81.jpeg
+(318.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/232426flwww0w04bd00yl0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E55B19E0-331D-413C-BE03-48DB57007B4D.jpeg
+(784 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/232426feate9nv6l9l010h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Norkey1  
+##### 5689#       发表于 2022-2-24 23:37
+
+才发现上尉都有个人节目了啊，这下好像真只剩nako了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 5690#       发表于 2022-2-25 08:08
+
+鲤鱼和Nako又要上健叔的节目了，期待这次多爆点料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 5691#       发表于 2022-2-25 08:15
+
+<img src="https://img.saraba1st.com/forum/202202/25/081556gvqfv45iywb0ddiy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220225_081410.jpg</strong> (53.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-25 08:15 上传
+
+*****
+
+####  优妮可  
+##### 5692#       发表于 2022-2-25 09:07
+
+<img src="https://img.saraba1st.com/forum/202202/25/090717be6s3u6xonengdgn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220225_090209_com.twitter.android_edit_3252739377107.jpg</strong> (125.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-25 09:07 上传
+
+<img src="https://img.saraba1st.com/forum/202202/25/090717zxbnhh61nxj9d906.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220225_090157_com.twitter.android_edit_3247096573462.jpg</strong> (131.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-25 09:07 上传
+
+还是企划能给活干，nako二连
+
+*****
+
+####  cybernetics31  
+##### 5693#       发表于 2022-2-25 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">holy pig真的不行，nako毕竟还算新人，跳别家的估计也没多少资源
+
+*****
+
+####  starring  
+##### 5694#       发表于 2022-2-25 09:51
+
+这事务所好像一个sns 都没有，真就完全不做宣传
+
+*****
+
+####  lj205  
+##### 5695#       发表于 2022-2-25 09:55
+
+看来重点是宣传演唱会，本来以为运营想冲一下初动
+
+*****
+
+####  星降る森  
+##### 5696#       发表于 2022-2-25 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54824121&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-25 09:51</a>
+
+这事务所好像一个sns 都没有，真就完全不做宣传</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你没看到还好，他家IG过往年份的活动艺人照都是黑白封面的（虽然相册后面有彩色版），阴间的一逼
+
+*****
+
+####  cat1230  
+##### 5697#       发表于 2022-2-25 11:18
+
+nako现在完全靠ll给工作了，个人业务约等于无。年龄也等不起啊，这么搞。事务所还是跳槽好点。不知道日本那边这种工作跳槽方便么。是不是得有人脉才能跳槽
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 5698#       发表于 2022-2-25 12:05
+
+企划才刚开始哪有说想跳就跳的
+
+*****
+
+####  Enakina  
+##### 5699#       发表于 2022-2-25 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54825357&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-02-25 11:18:44</a>
+nako现在完全靠ll给工作了，个人业务约等于无。年龄也等不起啊，这么搞。事务所还是跳槽好点。不知道日本那 ...</blockquote>有合同的，一般等合约结束可以考虑要不要续约，这才刚起步，跑不了的。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cat1230  
+##### 5700#       发表于 2022-2-25 13:12
+
+今天liyuu要上节目的日子啊，要唱滑滑蛋。不知道会不会顺便出个唯的cos<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

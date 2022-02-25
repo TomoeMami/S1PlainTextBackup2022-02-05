@@ -12278,3 +12278,127 @@ cp0干个补刀的活也没问题吧
 
 坏了，不会真的是路飞的果实吧
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56483#       发表于 2022-2-24 13:17
+
+不是橡胶果实政府干嘛要秘密护送，还因为任务失败直接被丢进监狱￼，都是连起来的
+草帽路飞。这就是你要的自由吗，被命运注定好的自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  cckuku  
+##### 56484#       发表于 2022-2-24 14:43
+
+关于路飞的果实，我记得尾田回答过的啊？？当时sbs有人问尾田为什么给主角一个看起来很弱的果实，当时尾田的回答是因为橡胶果实很好玩，结果现在你告诉我这是传说中的果实？我真接受不了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 56485#       发表于 2022-2-24 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">op哪有这种太抽象的果实
+
+最夸张的应该就是把人变人偶那个了
+
+*****
+
+####  faust123  
+##### 56486#       发表于 2022-2-24 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816564&amp;ptid=98922" target="_blank">klzxs 发表于 2022-2-24 15:23</a>
+op哪有这种太抽象的果实
+
+最夸张的应该就是把人变人偶那个了</blockquote>
+艺术果实
+
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  银翼的维罗西  
+##### 56487#       发表于 2022-2-24 16:04
+
+呜呜呜，凯老师尽力了，队友不给力
+
+*****
+
+####  yeluffy  
+##### 56488#       发表于 2022-2-24 18:22
+
+cp0还是有自知之明的，路飞那可是和凯多打的人，怕打不过
+
+*****
+
+####  icewolf01  
+##### 56489#       发表于 2022-2-24 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54813722&amp;ptid=98922" target="_blank">触手皇帝 发表于 2022-2-24 10:59</a>
+
+最后解密这个叫梦想果实，你觉得它是什么就是什么，所以一开始取了个橡胶果实的名字想着橡胶这东西没鸟用， ...</blockquote>
+路飞一开始吃的时候根本不知道是什么，变成橡胶人之后才知道是橡胶果实
+
+除非尾田强势吃书
+
+*****
+
+####  萝卜roto  
+##### 56490#       发表于 2022-2-24 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816245&amp;ptid=98922" target="_blank">cckuku 发表于 2022-2-24 14:43</a>
+关于路飞的果实，我记得尾田回答过的啊？？当时sbs有人问尾田为什么给主角一个看起来很弱的果实，当时尾田 ...</blockquote>
+说明尾田真的急着收尾了，甚至有点摆烂。开始跟98当年那样想到哪画到哪，大方向没错就行，请不要在意细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3370, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  刹那の劍  
+##### 56491#       发表于 2022-2-24 20:16
+
+边走边看吧，我也不太愿意相信橡胶果实是特殊果实，除非有非常合理的解释。。
+
+*****
+
+####  klzxs  
+##### 56492#       发表于 2022-2-24 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816949&amp;ptid=98922" target="_blank">faust123 发表于 2022-2-24 15:53</a>
+
+艺术果实
+
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+名字虽然挺抽象的，效果还是比较简单的
+
+对目标对象的变形而已，类似的也有不少，比如肥皂果实
+
+说变玩偶那个夸张是因为他还有个非常夸张的记忆操作
+
+*****
+
+####  zxzx7753  
+##### 56493#       发表于 2022-2-24 21:25
+
+按wt的主角团两种未来差别看  大妈现在分明是摆烂状态的60岁  然而摆烂状态的60还能强到现在这样  天赋怪太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刹那の劍  
+##### 56494#       发表于 2022-2-25 12:46
+
+这个挺有意思的
+
+image.png
+(147.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-25 12:46 上传
+
+<img src="https://img.saraba1st.com/forum/202202/25/124611wfu2eikaui12atqi.png" referrerpolicy="no-referrer">
+

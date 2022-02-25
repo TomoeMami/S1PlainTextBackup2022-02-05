@@ -3840,3 +3840,44 @@ bot名字完美改的？
 
 不知道周五嘉宾是谁
 
+
+
+*****
+
+####  赤星ビスコ  
+##### 458#       发表于 2022-2-24 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54809444&amp;ptid=2051998" target="_blank">遗尿 发表于 2022-2-23 22:44</a>
+不知道周五嘉宾是谁</blockquote>
+是FG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 459#       发表于 2022-2-24 17:27
+
+天下dota基佬十石，sccc独占八石，锋哥的小男友发现被粉色蠢b抢男人了
+
+*****
+
+####  弈秋  
+##### 460#       发表于 2022-2-24 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老婆和老公联动了
+
+*****
+
+####  端木恋心  
+##### 461#       发表于 2022-2-24 17:46
+
+我朝FG不要和我抢dodo啊
+
+*****
+
+####  mkii量产型  
+##### 462#       发表于 2022-2-24 20:18
+
+ 本帖最后由 mkii量产型 于 2022-2-24 20:33 编辑 
+
+鸡煲啥情况，突然上营业声线，准备毕业了吗
+
