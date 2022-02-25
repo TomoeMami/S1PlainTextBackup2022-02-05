@@ -2111,3 +2111,36 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 第四章都还没开始做，看来第四章有的要等了
 
+
+
+*****
+
+####  poor  
+##### 188#       发表于 2022-2-25 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54830016&amp;ptid=2050204" target="_blank">panyijunpyy 发表于 2022-2-25 17:21</a>
+首先星罗的加爆率buff是3回合，并且在高等级下能提高到接近95%的爆率，所以是目前最强buffer
+
+其次普通人 ...</blockquote>
+我貌似哪里看到只有30%来着，记错了吗……95的话那就还行，虽然3回合救不了和泉的晕，但是95%是个可以接受的SL几率了
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  poor  
+##### 189#       发表于 2022-2-25 22:10
+
+这么快就开始出复制人，还是我有的，感觉已经有点想跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zeroed  
+##### 190#       发表于 2022-2-25 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可能是要把月城刀了，逢川继承遗志换个发型什么的
+
+不过这出新SS也太快了
+

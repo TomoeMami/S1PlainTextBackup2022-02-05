@@ -3924,3 +3924,19 @@ bot名字完美改的？
 
 没看，暗灭头比fg还老？
 
+
+
+*****
+
+####  憧憬鲨  
+##### 468#       发表于 2022-2-25 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠夹会玩大圣吗
+
+*****
+
+####  端木恋心  
+##### 469#       发表于 2022-2-25 22:10
+
+直播没见过啊。
+

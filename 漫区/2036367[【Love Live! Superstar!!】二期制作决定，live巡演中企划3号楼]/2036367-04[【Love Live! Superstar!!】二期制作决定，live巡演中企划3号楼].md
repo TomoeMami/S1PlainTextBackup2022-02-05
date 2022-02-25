@@ -15035,3 +15035,12 @@ eh传这些写真太正常了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼想当马猴烧酒还行，希望她能接到别的配音工作
 
+
+
+*****
+
+####  saya1892  
+##### 5713#       发表于 2022-2-25 22:16
+
+鱼在唱ふわふわ時間开头的时候有唯拍手腕的动作，唱完之后还特意还原了大车轮
+

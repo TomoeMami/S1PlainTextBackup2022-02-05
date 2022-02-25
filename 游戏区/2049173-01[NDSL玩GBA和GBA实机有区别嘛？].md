@@ -2421,3 +2421,12 @@ CRC喷下去又不太有效，懒得再等快递了于是就用了古老的[物�
 
 现在就等镜面到了
 
+
+
+*****
+
+####  保科智子  
+##### 183#       发表于 2022-2-25 22:08
+
+有没有折腾饭盒nds的？想收个下半截改gba的体验原生色彩。哪家有改得好的吗？原厂按键屏幕不发黄存在吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
