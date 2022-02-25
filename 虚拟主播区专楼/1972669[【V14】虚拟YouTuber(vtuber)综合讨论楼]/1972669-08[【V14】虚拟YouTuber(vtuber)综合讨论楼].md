@@ -4992,3 +4992,21 @@ Thanks for your support until now.</blockquote><blockquote>Re:AcT / リアクト
 
 2022-2-25 17:26 上传
 
+
+
+*****
+
+####  winda  
+##### 10941#       发表于 2022-2-25 17:52
+
+qu酱1月减少活动频率，2月开始魂账开twitch直播，基本都有心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 10942#       发表于 2022-2-25 17:57
+
+[https://www.youtube.com/watch?v=wrcppcx92nY](https://www.youtube.com/watch?v=wrcppcx92nY)
+
+老爱最后的糖豆人大会 咋这么喜欢玩这个
+
