@@ -2336,3 +2336,73 @@ EZODE号称比EZO省30%，所以理论上更久一些。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 177#         楼主| 发表于 2022-2-23 11:32
+
+说起来现在有老哥知道GBA GBA SP啥价
+
+我这边有两个多余的了，想出了
+
+
+
+*****
+
+####  kyowzq  
+##### 178#       发表于 2022-2-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54801488&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-23 11:32</a>
+
+说起来现在有老哥知道GBA GBA SP啥价
+
+我这边有两个多余的了，想出了</blockquote>
+球PM，有点想要
+
+
+
+*****
+
+####  zris  
+##### 179#         楼主| 发表于 2022-2-23 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想我已经疯了
+
+我又搞了台AGS101，说真的SP的101屏观感比NDSL和舞馆点对点的
+
+我打算把拆机那个有瑕疵的101屏，到时候看楼里哪个小伙伴需要找我吧，免费送了。
+
+*****
+
+####  褪色的雪花  
+##### 180#       发表于 2022-2-23 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54790827&amp;ptid=2049173" target="_blank">Yui_hirasawa 发表于 2022-2-22 15:21</a>
+有点想收一台成色好的原版GBA放展示柜当摆件收藏，有没有推荐的中古游戏机店啊？不考虑太复杂的海淘。 ...</blockquote>
+其实可以换个体验方式 
+买套件自己组一个
+现在连金属壳都有了
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  zris  
+##### 181#         楼主| 发表于 2022-2-24 11:47
+
+<img src="https://img.saraba1st.com/forum/202202/24/114642d8h4us1e10d4mds0.jpg" referrerpolicy="no-referrer">
+
+<strong>72b4f100-0186-449f-9359-7d9b1e785d3f.jpg</strong> (178.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 11:46 上传
+
+找了一个几乎全新完美的ags 101，这屏幕真的爱了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

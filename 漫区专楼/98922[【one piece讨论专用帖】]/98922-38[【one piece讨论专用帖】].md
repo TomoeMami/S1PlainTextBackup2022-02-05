@@ -12029,3 +12029,252 @@ image.jpg
 
 不过不导电这个怎么圆？
 
+
+
+*****
+
+####  jxzeroga0  
+##### 56456#       发表于 2022-2-23 10:41
+
+惨了，凯多要开始回忆了，这下真没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 56457#       发表于 2022-2-23 10:47
+
+所以五皇的果实觉醒了能让其他人膨胀？这tm都把别人种族整个给改了吧？
+
+
+
+*****
+
+####  hkguty  
+##### 56458#       发表于 2022-2-23 11:09
+
+最近这漫画怎么那么多马后炮补丁
+
+*****
+
+####  武男  
+##### 56459#       发表于 2022-2-23 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54800981&amp;ptid=98922" target="_blank">cckuku 发表于 2022-2-23 10:47</a>
+
+所以五皇的果实觉醒了能让其他人膨胀？这tm都把别人种族整个给改了吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这感觉倒没啥，恶魔果实的能力本就千奇百怪，童趣果实这些不也很BUG嘛
+
+
+
+*****
+
+####  银枪子龙  
+##### 56460#       发表于 2022-2-23 11:50
+
+海贼王海贼王，大部分海贼都是辣鸡没问题
+
+
+
+*****
+
+####  希斯塔姆  
+##### 56461#       发表于 2022-2-23 12:00
+
+黑胡子不就是OP小吕布
+
+白门楼经典复刻一点毛病也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liqudsnake333  
+##### 56462#       发表于 2022-2-23 12:48
+
+琳琳的梦想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  朗姆酒hentai  
+##### 56463#       发表于 2022-2-23 13:07
+
+我是要成为海贼王的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  blueflames001  
+##### 56464#       发表于 2022-2-23 13:36
+
+你看看雷利两年里都教了什么
+
+
+
+*****
+
+####  roxas.sora  
+##### 56465#       发表于 2022-2-23 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让cp0去干这种活和自杀有什么区别
+
+*****
+
+####  晃来晃去  
+##### 56466#       发表于 2022-2-23 13:58
+
+<blockquote>COINCIDENCE 发表于 2022-2-23 09:37
+五老星改命令抓五皇去了，看来传说中的被用假名掩盖的果实真的是五皇的橡胶果实 ...</blockquote>
+五皇这干完凯多那还有余力对付cp0，不知道这次是谁来救场。
+
+
+
+*****
+
+####  owada  
+##### 56467#       发表于 2022-2-23 14:08
+
+我觉得面子果实会来救场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  陶矢  
+##### 56468#       发表于 2022-2-23 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">让CP0去干草帽路飞我看五老星也是没长脑子
+
+
+
+*****
+
+####  刹那の劍  
+##### 56469#       发表于 2022-2-23 14:55
+
+觉醒成9头蛇？？这是什么奇怪的思路
+
+
+
+*****
+
+####  klzxs  
+##### 56470#       发表于 2022-2-23 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">在场的cp0很强啊，草帽团有余力帮路飞的大概也就甚平吧
+
+
+
+*****
+
+####  jy000129  
+##### 56471#       发表于 2022-2-23 16:53
+
+看LGA脑洞，说路飞的橡胶果实实际上是卡通果实，所以可以免疫雷电和做出很夸张的变形，感觉不是没可能
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  Freemasons  
+##### 56472#       发表于 2022-2-23 18:26
+
+都到这阶段了还在御田日记里玩谜语人那套，希望至少和之国篇结束时能揭秘吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  24k纯帅  
+##### 56473#       发表于 2022-2-23 18:29
+
+真名套套果实，不但是橡胶还有额外功效
+
+
+
+*****
+
+####  hkguty  
+##### 56474#       发表于 2022-2-23 19:51
+
+现在都已经确定五老星讲的天选果实就是橡胶果实了么，自由把人变大变小也太扯蛋了吧，他自己一开始变3档的时候还会漏气，变成气球人还差不多，以前倒是YY过橡胶果实觉醒会不会是把别人的所有攻击橡胶化（软化）
+
+
+
+*****
+
+####  zodiac137  
+##### 56475#       发表于 2022-2-23 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54803774&amp;ptid=98922" target="_blank">陶矢 发表于 2022-2-23 14:28</a>
+
+让CP0去干草帽路飞我看五老星也是没长脑子</blockquote>
+打完凯多，路飞也基本差不多了
+
+cp0干个补刀的活也没问题吧
+
+*****
+
+####  klzxs  
+##### 56476#       发表于 2022-2-23 23:51
+
+真的不想看到20年的橡胶人变成别的什么
+
+
+
+*****
+
+####  绝赞販売中  
+##### 56477#       发表于 2022-2-24 02:29
+
+可不要说是橡皮果实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能力就是抹除，失去的一百年就是被抹掉，路飞觉醒之后可以把抹掉东西恢复
+
+
+
+*****
+
+####  六道仙鱼  
+##### 56478#       发表于 2022-2-24 09:13
+
+卡通果实太扯了，这等于所有的能力都可以往卡通上去套，概念太大了。能免疫雷电的话为什么不能免疫冰火。
+
+
+
+*****
+
+####  灰狼  
+##### 56479#       发表于 2022-2-24 09:37
+
+想想看红发其实为了路飞把自己的主角地位放弃了么
+
+果实被路飞吃了，手为了救路飞断了，象征主角的草帽也最后让给了路飞
+
+最后放弃成为主角的念想安安心心给在最后做看门人
+
+
+
+*****
+
+####  触手皇帝  
+##### 56480#       发表于 2022-2-24 10:59
+
+最后解密这个叫梦想果实，你觉得它是什么就是什么，所以一开始取了个橡胶果实的名字想着橡胶这东西没鸟用，取得的人潜意识里也只会发挥出橡胶的特性——谁知道五皇恐怖如斯橡胶都能打到这地步<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Bojenkins  
+##### 56481#       发表于 2022-2-24 11:06
+
+看看尾田这几年又学到啥民科新理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  朗姆酒hentai  
+##### 56482#       发表于 2022-2-24 11:24
+
+坏了，不会真的是路飞的果实吧
+

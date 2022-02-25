@@ -1960,3 +1960,109 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  islxyqwe  
+##### 175#       发表于 2022-2-23 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54792239&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-22 17:00</a>
+自动挂机是不是有BUG？已经两次了，后台切回来看发现是0次，第一次我以为切太快，这次注意了下切回来是过了 ...</blockquote>
+这种情况就直接退游戏重开，时间会补回来（
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  poor  
+##### 176#       发表于 2022-2-23 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54803117&amp;ptid=2050204" target="_blank">islxyqwe 发表于 2022-2-23 13:36</a>
+这种情况就直接退游戏重开，时间会补回来（
+
+—— 来自 samsung SM-G9810, Android 11上的 S1Next-鹅版 v ...</blockquote>
+原来如此，白亏了几个小时。虽然玩到后面都是蚊子腿了……
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  キラ様  
+##### 177#       发表于 2022-2-23 18:42
+
+第二章打完了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这..
+
+
+
+*****
+
+####  elven119  
+##### 178#         楼主| 发表于 2022-2-23 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54806716&amp;ptid=2050204" target="_blank">キラ様 发表于 2022-2-23 18:42</a>
+
+第二章打完了这..</blockquote>
+今日的第二章受害者出现了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  posion  
+##### 179#       发表于 2022-2-23 21:17
+
+请教一下，剧情对话刷的六维+点选项是可以重复刷还是只能拿1次？
+
+譬如第一次选了A选项器+1，第二次选A还能+1吗？
+
+
+
+*****
+
+####  chenzhi11  
+##### 180#       发表于 2022-2-23 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808466&amp;ptid=2050204" target="_blank">posion 发表于 2022-2-23 21:17</a>
+
+请教一下，剧情对话刷的六维+点选项是可以重复刷还是只能拿1次？
+
+譬如第一次选了A选项器+1，第二次选A还能 ...</blockquote>
+剧情选项加点都是一次性的 每个选项只能一次。
+
+
+
+*****
+
+####  poor  
+##### 181#       发表于 2022-2-23 22:51
+
+现在技能等级除了某些加次数的还有什么用？技能具体倍率哪里有得看吗？和泉的大跟单体打一个的时候不知道开哪个好。还有星罗大招就是纯看脸吗？一起开大的时候没随到不是很尴尬，特别和泉这种，这一轮就白给了，加运可以提高成功率吗？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  蕾丝  
+##### 182#       发表于 2022-2-24 15:42
+
+好了，我也是第二章受害者了
+
+
+
+*****
+
+####  elven119  
+##### 183#         楼主| 发表于 2022-2-24 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816804&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-2-24 15:42</a>
+
+好了，我也是第二章受害者了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -4206,3 +4206,756 @@ en最esl的应该是millie，口音巨重
 
 2022-2-23 00:28 上传
 
+
+
+*****
+
+####  FCCHua  
+##### 10862#       发表于 2022-2-23 11:12
+
+nrk为什么又从楼梯上摔下去了......
+
+
+
+*****
+
+####  fastary  
+##### 10863#       发表于 2022-2-23 14:06
+
+懒得一个个翻推看说了啥直接吃en厕二手情报的感想：en二期是怎么做到还没初配信光看发推就一股暴死感的…
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 10864#       发表于 2022-2-23 14:50
+
+ 本帖最后由 布莱士·西伯利 于 2022-2-23 14:53 编辑 
+
+[https://weibo.com/1559505935/LgFlODNZ3](https://weibo.com/1559505935/LgFlODNZ3)
+
+Selen广东话虽然可爱，但一听就想起粤语区八婆，突然有点理解那豪迈的笑声了。
+
+SYL，居然有爱尔兰人...
+
+*****
+
+####  poipanchao  
+##### 10865#       发表于 2022-2-23 14:57
+
+考虑到当年蛋蛋对nrk的黑屁
+（有没有可能是被老公dv了）
+
+syl，noah新衣服鸽到5月了，错开这次vspo新衣潮也好吧…
+
+zsyl，3月了…bora该回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  purdre  
+##### 10866#       发表于 2022-2-23 17:16
+
+EN那个听着像女配男的不是有传言说中之人是trans的吗，ftm？
+
+还没出道呢，说不定到时候还可能是个Non-binary
+
+
+
+*****
+
+####  alcoholic1000  
+##### 10867#       发表于 2022-2-23 18:25
+
+niji经历了一波小炎上，因为Sonny Brisko是个金色头发蓝色眼睛的白人男性<strong>Cop，</strong>says "Don't make me use lethal force"在黑人历史月
+
+
+
+*****
+
+####  Suny08  
+##### 10868#       发表于 2022-2-23 18:46
+
+好死，5期确实有点飘了，该烧烧了
+
+Syl，怎么还有又瓦又a的，我就直说了马上要打瓦比赛了粘点a的都不行，三枝基本寄了，葵皇昨晚也是各种放炮，今天要还是调整不过来估计葵皇这个大热门也要被抬走了
+
+*****
+
+####  free  
+##### 10869#       发表于 2022-2-23 18:48
+
+这是谁？？？
+
+<img src="https://img.saraba1st.com/forum/202202/23/184839twb87vv9gpwjpbvw.png" referrerpolicy="no-referrer">
+
+<strong>谁.png</strong> (24.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 18:48 上传
+
+*****
+
+####  NBXX  
+##### 10870#       发表于 2022-2-23 18:52
+
+<blockquote>にじさんじの歌動画を簡単に視聴できるWebサービス、NIJIUTA([https://nijiuta.com](https://nijiuta.com))をリリースしました 🎉
+
+週間ランキング、新着、累計視聴数、ランダムの4つから選んで視聴できます
+
+過去の週間ランキング視聴もできます
+
+自動再生なので作業用BGMにおすすめです！
+
+👉 [https://nijiuta.com](https://nijiuta.com)</blockquote>
+<img src="https://p.sda1.dev/5/915dba9af0942c0c442d7abd6d901639/FMQ9fKPaUAYRLRg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10871#       发表于 2022-2-23 18:52
+
+ 本帖最后由 fastary 于 2022-2-23 18:57 编辑 
+
+草，黑客今天还在A没瓦过呢，这人又是惯例不积极队练的，也不知道比赛前能练几次(希望不要到时候被骂战犯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl
+
+昨天en厕就在嘲黄毛发推英文语法都能错肯定是亚裔文盲，今天就被烧了，别真给说中了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  IDIDIDID  
+##### 10872#       发表于 2022-2-23 19:11
+
+除了公式首订阅顺之外又一官方斗虫真的狼性
+
+
+
+*****
+
+####  喜闻乐见  
+##### 10873#       发表于 2022-2-23 19:49
+
+ 本帖最后由 喜闻乐见 于 2022-2-23 19:59 编辑 
+
+音源化不可避
+
+这首新单曲的前面部分不就是v调教那股儿，怕是老爱音源公式曲KZN-01了
+
+  <img src="https://ae02.alicdn.com/kf/H1d174d2b4758430ba1a6d9f3ac840487m.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10874#       发表于 2022-2-23 20:03
+
+虽然我对打枪没兴趣不过cheeky笑声还挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ヒトニナル  
+##### 10875#       发表于 2022-2-23 20:14
+
+那么是cevio还是vocaloid呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  NBXX  
+##### 10876#       发表于 2022-2-23 21:21
+
+[https://p2y.jp/vspo-has-risen-to ... outube-subscribers/](https://p2y.jp/vspo-has-risen-to-the-3rd-place-among-vtuber-agencies-and-groups-in-japan-in-terms-of-total-youtube-subscribers/)
+
+ぶいすぽっ！ 合計チャンネル登録者数で日本国内のVTuber事務所・グループ3位に浮上
+
+VSPO在订阅上拿下了774
+
+
+
+*****
+
+####  fastary  
+##### 10877#       发表于 2022-2-23 21:34
+
+多谢cheeky哥<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不愧是佬中佬，黑客一个最高白金三的被charry到最终三位，爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 10878#       发表于 2022-2-23 23:59
+
+不像神椿那样到处推广的话……
+在p主里面的人气可能不会高啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  FCCHua  
+##### 10879#       发表于 2022-2-24 00:56
+
+ 本帖最后由 FCCHua 于 2022-2-24 00:59 编辑 
+
+说到vspo订阅，刚去看了眼noah已经追上丽姐了啊，比想象中快很多<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 10880#       发表于 2022-2-24 01:07
+
+我现在只想玩世不二出（）
+
+今天比赛hnn和noah带队打的都还行，特别是noah竟然是igl，补上了最后的短板啊，属实第一枪女了
+
+
+
+*****
+
+####  fastary  
+##### 10881#       发表于 2022-2-24 09:48
+
+黑客说自己玩的不多我还以为他瓦很菜，结果昨天队练玩jett又好多人夸他挺强的(挠头)怪不得愿意参加社内赛
+
+
+
+*****
+
+####  free  
+##### 10882#       发表于 2022-2-24 14:06
+
+[https://twitter.com/cover_corp/status/1496727074538541057](https://twitter.com/cover_corp/status/1496727074538541057)
+
+【お知らせ】
+
+「潤羽るしあ」契約解除に関するお知らせ
+
+*****
+
+####  Vneet  
+##### 10883#       发表于 2022-2-24 14:20
+
+这日子选得…rosia来了，rushia没了
+
+
+
+*****
+
+####  nowaki  
+##### 10884#       发表于 2022-2-24 14:23
+
+开香槟咯
+
+*****
+
+####  Suny08  
+##### 10885#       发表于 2022-2-24 14:23
+
+Qsmf能开直播讲讲故事吗，大家都挺好奇的
+
+*****
+
+####  nowaki  
+##### 10886#       发表于 2022-2-24 14:23
+
+开香槟咯
+
+*****
+
+####  Vneet  
+##### 10887#       发表于 2022-2-24 14:30
+
+所谓世一是如此诅咒之物
+
+*****
+
+####  fastary  
+##### 10888#       发表于 2022-2-24 14:33
+
+事件发生第二天风向好像还是杏奴不在乎烧一烧就该继续收米了吧，真想不到后续两方一**作下来都给搞解约了……
+
+*****
+
+####  noHentai  
+##### 10889#       发表于 2022-2-24 14:34
+
+润姨这金鱼待遇啊。
+
+金鱼当初好歹也只是个待望新星，炒了田角也能接受，这谷乡挥刀斩世一SC属实狠<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 10890#       发表于 2022-2-24 14:36
+
+居然是开除而不是辞职
+
+
+
+*****
+
+####  rzrbtk  
+##### 10891#       发表于 2022-2-24 14:39
+
+看到enkr悄无声息毙掉一整个底边项目只能感叹田角狼性，看cover两周不到开了世一sc倒是吓到了，为了守护旗下偶像的名誉（和赚来的钱）😨？
+
+*****
+
+####  gaiadc  
+##### 10892#       发表于 2022-2-24 14:39
+
+最先制裁露西亚的竟然是……<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ashero  
+##### 10893#       发表于 2022-2-24 14:40
+
+看了眼
+这前二的sc记录再过一年能打得破吗
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  IDIDIDID  
+##### 10894#       发表于 2022-2-24 14:48
+
+好死！
+
+*****
+
+####  poipanchao  
+##### 10895#       发表于 2022-2-24 15:20
+
+游综区看到老头环直播规则（我没验证过）
+可以播，不准打钱
+
+
+
+*****
+
+####  IDIDIDID  
+##### 10896#       发表于 2022-2-24 15:33
+
+🌈有准备上环的吗
+
+*****
+
+####  tiro_finale  
+##### 10897#       发表于 2022-2-24 15:38
+
+草，SC榜首是有什么诅咒的吗，杏这事有点乐
+
+*****
+
+####  fastary  
+##### 10898#       发表于 2022-2-24 15:38
+
+<img src="https://img.saraba1st.com/forum/202202/24/153434bmg7za7gzeofvzyw.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022_0224_153350.png</strong> (82.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 15:34 上传
+
+这事我就跟到krkr直播给两边搞澄清和aki爆料的部分，没法卖腐倒黑泥挖黑历史造谣这一串又是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+我还停留在男坏女蠢的版本，怎么wb一看都在说mf4000+润好惨<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qwera3469  
+##### 10899#       发表于 2022-2-24 15:44
+
+微博讨厌魔法美发的多吧 说魔法美发毁了润事业
+
+*****
+
+####  qwera3469  
+##### 10900#       发表于 2022-2-24 15:44
+
+微博讨厌魔法美发的多吧 说魔法美发毁了润事业
+
+*****
+
+####  rzrbtk  
+##### 10901#       发表于 2022-2-24 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816749&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-24 15:38</a>
+
+这事我就跟到krkr直播给两边搞澄清和aki爆料的部分，没法卖腐倒黑泥挖黑历史造谣这一串又是什么东西[f:216 ...</blockquote>
+黛灰姐每次傻傻被各种隔空喊话bot添油加醋骗到的时候都有一种’其实你并不是黛灰粉吧那个人怎么会有这种纯良粉丝‘的搞笑感<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，
+
+省一楼，后面那个男方应该是说男方粉丝
+
+*****
+
+####  ヒトニナル  
+##### 10902#       发表于 2022-2-24 15:48
+
+无论有没有润姨这事魔法美发都该死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 10903#       发表于 2022-2-24 15:51
+
+コレコレ和自称润那个前男友也不是什么好饼就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10904#       发表于 2022-2-24 16:00
+
+<blockquote>rzrbtk 发表于 2022-2-24 15:46
+黛灰姐每次傻傻被各种隔空喊话bot添油加醋骗到的时候都有一种’其实你并不是黛灰粉吧那个人怎么会有这种 ...</blockquote>
+就因为不是厕所的评论我才奇怪啊，500+转几乎都是在骂木口和mf快死和心疼润姨的，给我看懵了
+
+(其实我是想嘲的，但万一真是我吃漏瓜了就会显得很小丑还有mf粉嫌疑所以就用信了的语气了
+
+https://share.api.weibo.cn/share/284937245.html?weibo_id=4740400813968622
+
+
+
+*****
+
+####  藤原银  
+##### 10905#       发表于 2022-2-24 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我要是谷乡元昭我也不能让企业里安一个定时炸弹
+
+*****
+
+####  rzrbtk  
+##### 10906#       发表于 2022-2-24 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54817027&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-24 16:00</a>
+
+就因为不是厕所的评论我才奇怪啊，500+转几乎都是在骂木口和mf快死和心疼润姨的，给我看懵了
+
+(其实我是想 ...</blockquote>
+骂杏和mf姑且算wb（各种bot引导出）的一种风气（不限于虹人和术人），然后润在遇人不淑方面确实可以心疼吧...但是发展下来mf缩了，润一个人反复操作（爆料、魂号活动、谜语直播），也许在别的成员推和公司眼里就从蠢逐渐发展成又蠢又坏，然后又刚好有把柄抓，就...
+
+虽然看起来这事没完毕竟还有魂号，但如此干脆的解雇又让人觉得其实是两方协商的结果，并不觉得润和上一位炸公司的siosio有什么相似处👊，猜会是往三角方向发展吧
+
+*****
+
+####  lhawp  
+##### 10907#       发表于 2022-2-24 16:18
+
+看到一条评论「エンゲージリングの返金でエルデンリング買える」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 10908#       发表于 2022-2-24 16:30
+
+无论如何也想象不到事情会发展到这一步，所以毕业配信也没有了？
+
+*****
+
+####  kangkangsama  
+##### 10909#       发表于 2022-2-24 16:32
+
+<blockquote>fastary 发表于 2022-2-24 16:00
+就因为不是厕所的评论我才奇怪啊，500+转几乎都是在骂木口和mf快死和心疼润姨的，给我看懵了
+
+(其实我是想 ...</blockquote>
+个人感觉本身魔法美发微博风评就不好，再加上魔法美发那文章上来一个“对方单方面怀着好意接近我”（虽然后面是在说没有这样）看着的确很渣男。
+
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 10910#       发表于 2022-2-24 16:41
+
+微博本来就不是杏奴聚集地 为了黑马夫当然是把润描述得越可怜效果越好
+
+*****
+
+####  帕克桑  
+##### 10911#       发表于 2022-2-24 16:44
+
+微博这些bot基本都沾点拳 出事了自然ghg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mika-S  
+##### 10912#       发表于 2022-2-24 16:50
+
+好死
+
+*****
+
+####  flyskywalker92  
+##### 10913#       发表于 2022-2-24 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Ryuuseigun  
+##### 10914#       发表于 2022-2-24 16:56
+
+支持地雷润姨魂帐直播和mf真人快打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 10915#       发表于 2022-2-24 16:57
+
+DEMONDICE最近一段时间状态也挺不好的，希望姐不要跑路...
+
+Syl，说到泄密，nijiEN5期的Uki Violeta意外公开了首播试播配信（[链接](https://anonfiles.com/X0SdT3J2xa/3010792-8e51a584673d8bbe4f8e0f5ec60da339_mp4)），不出意料是pearl，重点是有人提到最后出现的discord中女性的声音是Noor（元IN成员），之前一直有她被niji反聘为staff的传闻
+
+不过这些test stream，niji和ACAB的纠缠与今天其他新闻相比都显得无足轻重<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  秋月艾莉  
+##### 10916#       发表于 2022-2-24 17:05
+
+继上次恋情曝光很有节目效果地和ATM失灵排在一起后
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">今期情报泄露又很有节目效果地和某个“失信”排在了一起
+
+<img src="https://img.saraba1st.com/forum/202202/24/170147d4pt4tl5eblaaw4t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220224005952.png</strong> (38.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 17:01 上传
+
+润姨，你究竟泄露了什么情报（
+
+*****
+
+####  Porsche  
+##### 10917#       发表于 2022-2-24 17:06
+
+为什么不是魔法美发死了而是润姨死，我不能接受
+
+*****
+
+####  FCCHua  
+##### 10918#       发表于 2022-2-24 17:12
+
+ 本帖最后由 FCCHua 于 2022-2-24 17:14 编辑 
+
+为什么唐突变成了这样，而不是mafu...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  IDIDIDID  
+##### 10919#       发表于 2022-2-24 17:23
+
+cover两份公告把为什么是润走说的很清楚了，魂谈恋爱公司不管，涉及公司商业信息就滚吧。
+
+*****
+
+####  purdre  
+##### 10920#       发表于 2022-2-24 17:25
+
+为什么都用‘而’，但不用‘也’
+
+一个泄露公司情报的不安定炸弹，一个缩卵推卸责任的渣男，都死不才是最喜闻乐见的结果么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 10921#       发表于 2022-2-24 17:26
+
+组一个里之hololive吧，算算也可以凑个一期生出来了
+
+*****
+
+####  fastary  
+##### 10922#       发表于 2022-2-24 17:26
+
+ 本帖最后由 fastary 于 2022-2-24 17:35 编辑 
+
+呃呃，所以还是微博民屁股蒙蔽了大脑不是我错误地没认识到马夫有多罪大恶极，那没事了 (　^ω^)搜了一下应该还是因为mf厕的歪屁股传话投稿导致路人认为krkr擦屁股那场是mf单方面甩锅给mknk + krkr后来发的塔露脸视频是mf授意发布的一手情报以毁灭润姨管人事业和抹黑mknk
+
+综合起来就是mf全责润姨受害者所以杏开除什么理由都是借口
+
+*****
+
+####  free  
+##### 10923#       发表于 2022-2-24 17:30
+
+mafumafu切割的快啊，第一时间摘干净说双方只是打游戏的朋友关系，不管有没有人信，反正接下来压力都到润这边了
+
+
+
+*****
+
+####  kangkangsama  
+##### 10924#       发表于 2022-2-24 17:43
+
+微博对于润姨的疯女人程度没有足够的认知。
+
+*****
+
+####  越动天下  
+##### 10925#       发表于 2022-2-24 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54818075&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-2-24 17:26</a>
+组一个里之hololive吧，算算也可以凑个一期生出来了</blockquote>
+梦幻的七期生是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/5/c9ad1a851f783c36ccf0c2df0b222cc4/NuB01Df.jpg" referrerpolicy="no-referrer"> 不过男人还是滚
+
+*****
+
+####  2L模仿47哥  
+##### 10926#       发表于 2022-2-24 17:54
+
+微博那帮人只是单纯憎恨冥府茅房罢了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2L模仿47哥  
+##### 10927#       发表于 2022-2-24 17:55
+
+没有润姨这档子事情，微博上巴不得他死的人也照样多得是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  asdhai  
+##### 10928#       发表于 2022-2-24 19:07
+
+不管怎么说，mfmf什么时候死啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  freka  
+##### 10929#       发表于 2022-2-24 20:32
+
+所以虹人能播老头环吗
+
+
+
+*****
+
+####  alcoholic1000  
+##### 10930#       发表于 2022-2-24 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54820013&amp;ptid=1972669" target="_blank">freka 发表于 2022-2-24 20:32</a>
+
+所以虹人能播老头环吗</blockquote><blockquote>叶@はやおき@Kanae_2434
+
+寝て朝からpc版でするか０時からps5でやるか、、、
+
+朝steamでいきます</blockquote>要播
+
+Syl，yugo已经变成/vt/虹串玩具了，期待首播<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  11512  
+##### 10931#       发表于 2022-2-24 21:33
+
+[https://www.youtube.com/watch?v=ppOu2U4SByQ](https://www.youtube.com/watch?v=ppOu2U4SByQ) 三期生解散 我是说怎么兔子不播吸血鬼了
+
+*****
+
+####  11512  
+##### 10932#       发表于 2022-2-24 21:35
+
+虹人播法环啊  るる就播啊 [https://www.youtube.com/watch?v=LkyhBWNuKWc](https://www.youtube.com/watch?v=LkyhBWNuKWc)
+
+
+
+*****
+
+####  rzrbtk  
+##### 10933#       发表于 2022-2-24 22:13
+
+今天的管人世界好恐怖，去看环了...
+
+省一楼，每次有任何v出事，郡郡作为炎上总代表都会被流弹打到，可以说已经习惯了，但偶尔看到“杏出了个郡道还不够，润羽又来啊🤢”还是绷不住，替2434谢谢这位推主了
+
+
+
+*****
+
+####  Suzutsuki  
+##### 10934#       发表于 2022-2-24 23:12
+
+你虹为啥没人播环。我想看EN那边的玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 10935#       发表于 2022-2-24 23:24
+
+想看黑客播环……不过他虽然喜欢独立游戏好像对这种受苦类就没什么兴趣，虽然也可能只是觉得播不出效果就不玩了，可恶啊
+
+*****
+
+####  poipanchao  
+##### 10936#       发表于 2022-2-24 23:32
+
+twitter.com/kalappo74/status/1496862539770052608
+
+<img src="https://img.saraba1st.com/forum/202202/24/233228ys73b6443g6tz3bn.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220224232100.jpg</strong> (673.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 23:32 上传
+
+
+
+*****
+
+####  FCCHua  
+##### 10937#       发表于 2022-2-25 00:52
+
+艺人旅团都一周年了
+
+
+
+*****
+
+####  艾特娜  
+##### 10938#       发表于 2022-2-25 08:26
+
+支持润姨线下报复没法卖腐
+

@@ -10183,3 +10183,132 @@ yysy 走廊是这样的 与其在lga发帖问云运营 还不如盼珺归捏<img
 
 —— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  伞沢直美  
+##### 5572#       发表于 2022-2-23 21:32
+
+文静突了
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 5573#       发表于 2022-2-23 21:42
+
+看着看着鸡哥就突了
+
+*****
+
+####  人民de救星  
+##### 5574#       发表于 2022-2-23 21:59
+
+今天好文静
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  faithlifer  
+##### 5575#       发表于 2022-2-23 22:04
+
+被文静拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  sjbssd  
+##### 5576#       发表于 2022-2-23 22:07
+
+文静今天不对劲，看得我好怕<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 5577#       发表于 2022-2-23 22:11
+
+按照我这么多年的经验来看，我感觉千鸟的时间不长了。
+
+
+
+*****
+
+####  IDIDIDID  
+##### 5578#       发表于 2022-2-23 22:24
+
+彻底变成黄播了
+
+
+
+*****
+
+####  rgauss  
+##### 5579#       发表于 2022-2-23 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉家里人就在边上
+
+*****
+
+####  灰色的狐狸  
+##### 5580#       发表于 2022-2-23 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">一想到家里直播小心翼翼得样子就觉得很搞笑
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 5581#       发表于 2022-2-23 23:45
+
+喜欢《无极》的主播评价喜欢《疯狂的石头》的观众品味独特，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  faithlifer  
+##### 5582#       发表于 2022-2-24 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54809048&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-2-23 22:11</a>
+
+按照我这么多年的经验来看，我感觉千鸟的时间不长了。</blockquote>
+不会吧，为什么<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yerish  
+##### 5583#       发表于 2022-2-24 02:25
+
+11月看到现在，我也觉得千鸟看一天少一天吧，不知道啥时候就没了。
+像co这种应届生没理由吊死在千鸟上。剩下四个年纪也不算小了也都有其他特长，合同结束了可能会离开直播行业吧。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  faithlifer  
+##### 5584#       发表于 2022-2-24 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54811324&amp;ptid=2013779" target="_blank">Yerish 发表于 2022-2-24 02:25</a>
+
+11月看到现在，我也觉得千鸟看一天少一天吧，不知道啥时候就没了。
+
+像co这种应届生没理由吊死在千鸟上。剩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  andeloz  
+##### 5585#       发表于 2022-2-24 11:01
+
+原来昨天播了啊
+

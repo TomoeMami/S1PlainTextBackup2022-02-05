@@ -14103,3 +14103,96 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 剧场版有资源了吗？
 
+
+
+*****
+
+####  过气页游  
+##### 2576#       发表于 2022-2-23 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54800279&amp;ptid=1963832" target="_blank">达达葱2 发表于 2022-2-23 10:47</a>
+
+剧场版有资源了吗？</blockquote>
+昨天BD发售，应该快了
+
+
+
+*****
+
+####  最强惠酱  
+##### 2577#       发表于 2022-2-23 15:25
+
+貌似和佳三人剧场版背景路人客串了下
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  HGCG  
+##### 2578#         楼主| 发表于 2022-2-23 16:05
+
+回楼上，有
+
+X0]KGP)G{PHL[5NOKJ]8V6P.jpg
+(431.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 16:05 上传
+
+<img src="https://img.saraba1st.com/forum/202202/23/160532fqz7aobl2lyy2127.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  达达葱2  
+##### 2579#       发表于 2022-2-23 21:09
+
+雪飘发布了
+
+
+
+*****
+
+####  粉儿alice  
+##### 2580#       发表于 2022-2-24 00:47
+
+剧场版看完了
+和前辈联动剧场版能不能别再上演前靠被抓的戏码了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有治愈友情客串是不是少了一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  待宵  
+##### 2581#       发表于 2022-2-24 07:20
+
+剧场版公主这个人设是不是受到了偶活的影响？
+
+
+
+*****
+
+####  达达葱2  
+##### 2582#       发表于 2022-2-24 15:26
+
+感觉一般啊
+
+
+
+*****
+
+####  最低人间肥宅  
+##### 2583#       发表于 2022-2-25 01:00
+
+看完了
+有抓心组就让人很开心啦！
+剧情嘛……没所谓啦！
+我给满分
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

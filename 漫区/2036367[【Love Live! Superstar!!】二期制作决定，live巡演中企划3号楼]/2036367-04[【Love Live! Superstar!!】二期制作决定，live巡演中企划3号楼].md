@@ -14448,3 +14448,187 @@ E8A489A7-5DF5-44A3-8A44-AA8963325D85.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/22/215134l3fdc22bbn455z1b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yevvet  
+##### 5664#       发表于 2022-2-23 14:27
+
+鲤鱼长发好看
+
+
+
+*****
+
+####  Enakina  
+##### 5665#       发表于 2022-2-23 18:47
+
+小熊首日没在榜啊，首日就50多了，感觉我500也说多了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  starring  
+##### 5666#       发表于 2022-2-24 09:45
+
+[https://m.weibo.cn/6501580366/4740180655476151](https://m.weibo.cn/6501580366/4740180655476151) 
+
+トゥ トゥ トゥ！完整版已出
+
+
+
+*****
+
+####  TCone  
+##### 5667#       发表于 2022-2-24 10:43
+
+ 本帖最后由 TCone 于 2022-2-24 10:46 编辑 
+
+编辑…
+
+
+
+*****
+
+####  仟音一心  
+##### 5668#       发表于 2022-2-24 11:34
+
+可恋曲出了
+
+*****
+
+####  iuhehc  
+##### 5669#       发表于 2022-2-24 11:36
+
+ゆら！ゆら！
+
+*****
+
+####  saya1892  
+##### 5670#       发表于 2022-2-24 11:40
+
+这不管怎么看都是情歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/24/114023quuu1q9uup2ts121.jpg" referrerpolicy="no-referrer">
+
+<strong>クレシェンドゆ・ら.jpg</strong> (786.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 11:40 上传
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5671#       发表于 2022-2-24 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万代这个fes好爽，ll和imas所有团都来了
+
+*****
+
+####  优妮可  
+##### 5672#       发表于 2022-2-24 11:59
+
+更期待舞蹈了
+
+*****
+
+####  仟音一心  
+##### 5673#       发表于 2022-2-24 12:00
+
+水虹星出演时间和名单
+
+690DE165-EFD2-4633-A0AB-FC1423AEA672.jpeg
+(74.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/120014z1vgbo8vg1oovgon.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2D5670E7-1C50-4065-97F4-80C5837F8D9A.jpeg
+(180.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/120015cd9zgt0x3g4z44x3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F9898BCE-56CE-4F69-9A06-6AD793D2F82F.jpeg
+(183.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/120015gtohvfo6rv5jhztm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BC6F0256-CFAA-4557-9835-4F77251F9699.jpeg
+(179.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/120016conyg3uppuso6phu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3B111F35-AEA3-41DD-9290-D489F1B19CB0.jpeg
+(176.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-24 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202202/24/120017foiguu0yawuycyrp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  优妮可  
+##### 5674#       发表于 2022-2-24 12:03
+
+ 本帖最后由 优妮可 于 2022-2-24 12:06 编辑 
+
+蹭上fes血赚，就星人齐了
+
+*****
+
+####  megapikachu  
+##### 5675#       发表于 2022-2-24 12:15
+
+对于星团来说应该是三团跨年以后又一个在自家live以外表现的好机会了。 希望能拿出比跨年的时候更好的状态和水准
+
+*****
+
+####  player3960  
+##### 5676#       发表于 2022-2-24 12:31
+
+4月后就进入虹团期了，空窗期的星团活动也不知道怎么安排的，现在5月份有个活动还行...
+
+*****
+
+####  player3960  
+##### 5677#       发表于 2022-2-24 12:31
+
+4月后就进入虹团期了，空窗期的星团活动也不知道怎么安排的，现在5月份有个活动还行...
+
+
+
+*****
+
+####  Enakina  
+##### 5678#       发表于 2022-2-24 13:26
+
+2g网才听到完整版ゆらゆら，好期待live上的对唱啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

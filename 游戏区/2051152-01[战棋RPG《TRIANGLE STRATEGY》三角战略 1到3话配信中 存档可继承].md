@@ -2752,3 +2752,165 @@ SFC版的话活用MVP奖励功能就可以等级碾压固定剧情敌人的
 
 死人没惩罚就不说了，hard难度下公国线跟教国线的体感难度差异有些大，公国为了不死人sl了10次往上，教国也就不到5次。更别提剧情男主一帮来宾二话不说去别的国家大显身手，人家还好好好感谢感谢……怎么你们两国是已无可用之兵还是咋着？
 
+
+
+*****
+
+####  艾特娜  
+##### 246#       发表于 2022-2-23 11:29
+
+ 本帖最后由 艾特娜 于 2022-2-23 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54677295&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-2-14 10:06</a>
+
+剧情我就觉得很智障，一国公主嫁到另一国大臣家半路被野盗打劫就算还说得过去的话
+
+那看盐国那段剧 ...</blockquote>
+那个盐国大臣是想拉拢男主一起对其他大臣造反的吧
+
+demo1的时候可以看出盐国7圣人也不是铁板一块的，光头胖子想着造反自己独揽大权，demo2里盐国那个年轻的军务圣人明显也对年老的圣人有不满
+
+demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择送的话王子离队，然后又被公国逼着去打自己国家的保皇党贵族，剧情冲突还是够的
+
+
+
+*****
+
+####  戏言学者  
+##### 247#       发表于 2022-2-23 15:08
+
+把生岛直树换成吉田明彦，那么将绝杀，可惜换不得<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">）
+
+
+
+*****
+
+####  czxiang_0  
+##### 248#       发表于 2022-2-23 17:03
+
+你们不觉得剧情太磨叽才是最大问题，我要的是slg，要比比你们去gal比比好不好
+
+
+
+*****
+
+####  bsdlxy  
+##### 249#       发表于 2022-2-23 17:10
+
+解包信息，合计48关。19-21关一个周目。
+
+
+
+*****
+
+####  allenz3  
+##### 250#       发表于 2022-2-23 17:26
+
+关卡数还是蛮有诚意的，希望不要有很多重复地图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  hhgjf  
+##### 251#       发表于 2022-2-23 19:36
+
+要求不高，别想三房子那么敷衍就行了。如果真有48关的话那非常够了，只要不是三房子那样地图90%重复就好。
+
+
+
+*****
+
+####  南宫月汐  
+##### 252#       发表于 2022-2-23 20:36
+
+人设最大的问题我觉得是所有人看起来都像坏人
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  先生空气  
+##### 253#       发表于 2022-2-23 20:38
+
+地图不重复比较难。这18-19关一章三线不一定有风花雪月内容多
+
+*****
+
+####  Winder07  
+##### 254#       发表于 2022-2-23 20:40
+
+我觉得这十八九节，如果只有18-19场战斗怎么讲得完故事啊
+
+
+
+*****
+
+####  yangchunsiyue  
+##### 255#       发表于 2022-2-23 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808024&amp;ptid=2051152" target="_blank">南宫月汐 发表于 2022-2-23 20:36</a>
+
+人设最大的问题我觉得是所有人看起来都像坏人
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+确实，特别是男主，长得一脸不是好东西的感觉。
+
+然后男主的壮壮，说是忠臣，也不像好人，那么尖的下巴，能戳死人。
+
+军师倒是看起来正直一点。
+
+
+
+*****
+
+####  Petilil  
+##### 256#       发表于 2022-2-23 21:36
+
+48关是包含训练关的吧，去掉训练关估计也就三十多关
+
+*****
+
+####  战狼PTSD  
+##### 257#       发表于 2022-2-23 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54805652&amp;ptid=2051152" target="_blank">czxiang_0 发表于 2022-2-23 17:03</a>
+
+你们不觉得剧情太磨叽才是最大问题，我要的是slg，要比比你们去gal比比好不好 ...</blockquote>
+问题这代宣传看起来就像是主打剧情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+缺少个CY系手游的功能，剧情点SKIP后出个概括给你看
+
+*****
+
+####  战狼PTSD  
+##### 258#       发表于 2022-2-23 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54689896&amp;ptid=2051152" target="_blank">Meltina 发表于 2022-2-14 23:52</a>
+
+感觉节奏太慢了
+
+首先是剧情，对话这么多，小人演出又慢，就算狂按也快不了多少，比如小人冒那个省略号，看 ...</blockquote>
+杂兵确实有点太耐揍，不过比起以前一个后期魔法能放一两分钟的SRPG好多了
+
+
+
+*****
+
+####  Magnesium  
+##### 259#       发表于 2022-2-23 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808464&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-2-23 21:17</a>
+
+确实，特别是男主，长得一脸不是好东西的感觉。
+
+然后男主的壮壮，说是忠臣，也不像好人，那么尖的下巴， ...</blockquote>
+军师看起来过于正直以至于让人觉得他日后会反水<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+女主粉毛自带黑化属性<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+枪圣带个面具明显别有用心
+
+雪国的炸弹发明家、沙国的军师和医生明明挺正派的，但是一脸反派样
+
+真就没一个老实人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

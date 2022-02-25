@@ -3153,3 +3153,548 @@ remake失败了，再次remake
 
 好硬的苔本
 
+
+
+*****
+
+####  时间在我手中  
+##### 9344#       发表于 2022-2-23 16:19
+
+才发现恐鬼症竟然是7点的，我还以为10点以后呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  pei23333  
+##### 9345#       发表于 2022-2-23 16:46
+
+10点唱歌，顺带周五的节目是和小红直播尬聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  时间在我手中  
+##### 9346#       发表于 2022-2-23 16:47
+
+看标题，可能只播一会儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9347#       发表于 2022-2-23 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54805409&amp;ptid=2018830" target="_blank">pei23333 发表于 2022-2-23 16:46</a>
+
+10点唱歌，顺带周五的节目是和小红直播尬聊
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+指正，是周四和小红尬聊。
+
+往好里想，这次花园猫缺勤了，mea打卡了，下次mea也能缺勤。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">、
+
+阿咩是不是离不开二十八九岁的阿姨了，总是在和这个年纪的打交道。
+
+和小红联动打游戏我觉得还行，尬聊真的算了吧，没台本隔着两代沟。
+
+*****
+
+####  T_Hb  
+##### 9348#       发表于 2022-2-23 17:02
+
+不看就完事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 9349#       发表于 2022-2-23 17:08
+
+可以聊嘛，你是个冠军，我也是冠军
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9350#       发表于 2022-2-23 18:05
+
+草，周四居然是加班，周五还有团综，泪目。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 9351#       发表于 2022-2-23 18:11
+
+都不喜欢联动吗，我觉得挺好啊，尤其是和不熟悉的人联动，思想的火花都是在碰撞中产生，能脱离无情唱歌机器状态就是好的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  十九号大侠  
+##### 9352#       发表于 2022-2-23 18:52
+
+讲述摆烂之道吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 9353#       发表于 2022-2-23 18:59
+
+擦出火花，能擦除什么火花，你vcp能让她把老头环打了我承认擦出火花
+
+
+
+*****
+
+####  freeze_雪风  
+##### 9354#       发表于 2022-2-23 19:05
+
+ 本帖最后由 freeze_雪风 于 2022-2-23 19:07 编辑 
+
+看见小红的一瞬间我竟然有取关的想法，好可怕的联动<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl 我没关注官号已经尽力做到眼不见心不烦了，结果还是这样<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9355#       发表于 2022-2-23 19:10
+
+ 本帖最后由 T_Hb 于 2022-2-23 19:12 编辑 
+
+时间太早不习惯，差点忘记看联动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/23/191139b1jgg8iqz0jciakc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-23 19:11 上传
+
+绿光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 9356#       发表于 2022-2-23 19:15
+
+这反应挺可的
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9357#       发表于 2022-2-23 19:26
+
+一个冷静的沉稳的猎鬼师带学徒。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这游戏不恐怖还挺好的。
+
+*****
+
+####  暴走的包子  
+##### 9358#       发表于 2022-2-23 19:29
+
+感觉这游戏是自己吓自己或者被队友吓的多
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  andeloz  
+##### 9359#       发表于 2022-2-23 19:29
+
+mea塔姆的叫声比较恐怖
+
+*****
+
+####  yywzjsw  
+##### 9360#       发表于 2022-2-23 19:36
+
+鬼：吵死了
+
+
+
+*****
+
+####  T_Hb  
+##### 9361#       发表于 2022-2-23 19:40
+
+抓鬼asmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 9362#       发表于 2022-2-23 19:45
+
+什么鬼都要被她吓走了
+
+*****
+
+####  T_Hb  
+##### 9363#       发表于 2022-2-23 19:58
+
+这是假メアー，这么爱洗澡
+
+*****
+
+####  古战场亡魂  
+##### 9364#       发表于 2022-2-23 19:59
+
+恶魔凭依，我真的绷不住了……
+
+
+
+*****
+
+####  专业划水人员  
+##### 9365#       发表于 2022-2-23 20:11
+
+怎么一直都没有猎杀
+
+*****
+
+####  Rem-清曲  
+##### 9366#       发表于 2022-2-23 20:12
+
+这游戏改了么，我上一年刚出的时候玩那b3分钟之后就开始抓人了  这5分钟不关灯不锁门是咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9367#       发表于 2022-2-23 20:19
+
+ 本帖最后由 T_Hb 于 2022-2-23 20:22 编辑 
+
+いい悲鳴，好久没听过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+骗饭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9368#       发表于 2022-2-23 22:13
+
+毛衣好啊
+
+*****
+
+####  Mikumiku831  
+##### 9369#       发表于 2022-2-23 22:16
+
+毛衣感觉乃好小
+
+还有左别黑色的那个不知道什么鬼玩意有点出戏
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9370#       发表于 2022-2-23 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54809113&amp;ptid=2018830" target="_blank">Mikumiku831 发表于 2022-2-23 22:16</a>
+
+毛衣感觉乃好小
+
+还有左别黑色的那个不知道什么鬼玩意有点出戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">毛衣上的设计啊，和普通毛衣有个区分。
+
+
+
+*****
+
+####  T_Hb  
+##### 9371#       发表于 2022-2-23 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女粉还挺多
+
+
+
+*****
+
+####  路人庚  
+##### 9372#       发表于 2022-2-23 23:44
+
+《大朋友话题》
+
+
+
+*****
+
+####  路人庚  
+##### 9373#       发表于 2022-2-24 00:07
+
+ 本帖最后由 路人庚 于 2022-2-24 00:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今天的播，真好啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打错了金额的小伙大概要恰一段时间泡面了（指用slab把1000刀当成1000日元
+
+
+
+*****
+
+####  我单推副会长  
+##### 9374#       发表于 2022-2-24 00:33
+
+我还以为是多加了一个零，没想到是单位问题吗？
+
+
+
+*****
+
+####  往世雷书  
+##### 9375#       发表于 2022-2-24 07:38
+
+会不会小事化大给她正要起步的事业沉重一击，起飞必坠机传统艺能了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  yywzjsw  
+##### 9376#       发表于 2022-2-24 09:15
+
+昨晚的歌感觉都好老，除了花火
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9377#       发表于 2022-2-24 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54811748&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-2-24 07:38</a>
+
+会不会小事化大给她正要起步的事业沉重一击，起飞必坠机传统艺能了
+
+—— 来自 S1Fun ...</blockquote>
+打赏打出去了又不是国内未成年闹了就能反的，自己找打赏渠道联系呗。
+
+这种事情也没啥说的。
+
+不过你细说一下正要起步的事业，我怎么没看到？？
+
+
+
+*****
+
+####  时间在我手中  
+##### 9378#       发表于 2022-2-24 10:14
+
+昨晚歌回和人开荒新图都没怎么认真听，只能带薪摸鱼补一下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 9379#       发表于 2022-2-24 11:12
+
+各种怪声还挺有节目效果的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yywzjsw  
+##### 9380#       发表于 2022-2-24 11:38
+
+比鬼吵（
+
+
+
+*****
+
+####  时间在我手中  
+##### 9381#       发表于 2022-2-24 14:53
+
+今天也算是个大日子了，无论是世界范围内亦或者Vjuan这一个小破圈子内而言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 9382#       发表于 2022-2-24 15:19
+
+法国女王又熬死了一批人罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  十九号大侠  
+##### 9383#       发表于 2022-2-24 15:31
+
+联动过几次，不太熟
+
+*****
+
+####  古战场亡魂  
+##### 9384#       发表于 2022-2-24 15:32
+
+今天的神回复怕是神不起来，再神能神过现实?
+
+*****
+
+####  2014720  
+##### 9385#       发表于 2022-2-24 15:39
+
+鼻血组
+
+
+
+*****
+
+####  T_Hb  
+##### 9386#       发表于 2022-2-24 16:37
+
+今天竟然说了绝对不会有播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  往世雷书  
+##### 9387#       发表于 2022-2-24 17:30
+
+哎，要是不在holo了是不是可以自由联动了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Cushaw  
+##### 9388#       发表于 2022-2-24 17:34
+
+小麻现在有几斤几两啊（无端<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  やト  
+##### 9389#       发表于 2022-2-24 17:37
+
+去了皮作为个人来联动的话， 关系也没好到那种程度吧
+
+*****
+
+####  古战场亡魂  
+##### 9390#       发表于 2022-2-24 17:41
+
+鼻血组说熟也没多熟，就粽子的积累转生也能活的很好。
+
+
+
+*****
+
+####  LIPP  
+##### 9391#       发表于 2022-2-24 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要把她也教成menhera了怎么办
+
+*****
+
+####  T_Hb  
+##### 9392#       发表于 2022-2-24 17:54
+
+都是老东西了还能被别人教吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9393#       发表于 2022-2-24 17:54
+
+风怒
+
+
+
+*****
+
+####  2111X  
+##### 9394#       发表于 2022-2-24 18:27
+
+玩泄密的节奏大师我觉得还是离远点好
+
+
+
+*****
+
+####  我单推副会长  
+##### 9395#       发表于 2022-2-24 20:07
+
+这背景不错
+
+
+
+*****
+
+####  十九号大侠  
+##### 9396#       发表于 2022-2-24 20:33
+
+小麻在主持嘞
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  古战场亡魂  
+##### 9397#       发表于 2022-2-24 20:45
+
+好消息，仓鼠还活着
+
+*****
+
+####  clvan_  
+##### 9398#       发表于 2022-2-24 20:48
+
+还活着，不容易
+
+*****
+
+####  古战场亡魂  
+##### 9399#       发表于 2022-2-24 21:01
+
+今天观感其实还不错，比较像声优电台的形式。mea主持，有台本，时间控制的也非常好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等下周翻译吧。
+
+
+
+*****
+
+####  T_Hb  
+##### 9400#       发表于 2022-2-25 00:09
+
+今天有快乐歌回吗
+
+*****
+
+####  呓亘  
+##### 9401#       发表于 2022-2-25 00:12
+
+该有了
+
+
+
+*****
+
+####  掉头学姐  
+##### 9402#       发表于 2022-2-25 09:18
+
+[cp]科隆游戏展上备受关注的，动作冒险游戏《咩咩启示录》公布新动画预告片。本作含Rogue和建造元素，年内登陆PC和主机平台。视频40秒后是之前的实机演示预告片。
+
+玩家将扮演一只被阴郁不祥的陌生人拯救，免于一死的羊羔。为了报答救命之恩，组建起一支忠诚的追随者队伍。踏上探索五大神秘区域的揭秘之旅。净化不信者的心智，传播大智慧的启蒙，进行神秘的仪式，最终成为无上威力的咩咩之神。  http://t.cn/A66h89eP[/cp]
+
