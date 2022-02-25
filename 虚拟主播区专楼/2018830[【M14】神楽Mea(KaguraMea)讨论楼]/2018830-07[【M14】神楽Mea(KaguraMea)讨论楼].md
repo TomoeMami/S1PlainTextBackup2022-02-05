@@ -3803,3 +3803,26 @@ emmmmmm 这人怕不是把每周五VCP更新也算作一次直播了……
 
 苔总这tag不行，应该叫#nerunashi
 
+
+
+*****
+
+####  路人庚  
+##### 9415#       发表于 2022-2-26 01:01
+
+ 本帖最后由 路人庚 于 2022-2-26 01:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜不是阿咩一个人玩あめ（而且正常来说初见的话应该会在不回信息的结局上死个4、5次
+
+不过还是很乐，这下糖糖本糖了
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 9416#       发表于 2022-2-26 01:26
+
+说真的以她的巨魔性格一个人玩估计能爆出无数名言来
+
+但苔苔在估计就得按剧本走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
