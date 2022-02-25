@@ -2160,3 +2160,15 @@ pv压轴站C位，个人剧情已经开完2话，第二话里甚至还立了个�
 
 这活动商店换的ssr突破石居然是1个吗？我特么还以为一次活动能给10个突破石 还想着玩的久总能突破几个呢，结果发现居然是1个，真是让我涨见识了，果然大热游戏不缺人玩就是硬气
 
+
+
+*****
+
+####  ID找不到了  
+##### 193#       发表于 2022-2-26 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54816804&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-2-24 15:42</a>
+
+好了，我也是第二章受害者了</blockquote>
++1 这什么鬼。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

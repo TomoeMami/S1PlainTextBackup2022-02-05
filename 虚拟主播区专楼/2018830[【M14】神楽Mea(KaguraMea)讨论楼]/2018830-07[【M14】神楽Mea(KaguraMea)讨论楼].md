@@ -3783,3 +3783,23 @@ emmmmmm 这人怕不是把每周五VCP更新也算作一次直播了……
 
 唉 阿咩要是在自己直播间玩个娱乐向老头环该多好...
 
+
+
+*****
+
+####  甘栗No.007  
+##### 9413#       发表于 2022-2-26 00:54
+
+阿咩要联动糖糖了，苔苔做的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9414#       发表于 2022-2-26 00:54
+
+ 本帖最后由 T_Hb 于 2022-2-26 00:56 编辑 
+
+<img src="https://p.sda1.dev/5/33fb3861e60540d68ada14c3a1ec45d6/IMG_CMP_52773370.jpeg" referrerpolicy="no-referrer">
+
+苔总这tag不行，应该叫#nerunashi
+
