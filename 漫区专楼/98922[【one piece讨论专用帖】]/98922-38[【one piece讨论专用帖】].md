@@ -12418,3 +12418,14 @@ image.png
 
 另外这漫画已经彻底摆烂了，战斗分镜已经都懒得设计了，看个意思完事了
 
+
+
+*****
+
+####  super_uni  
+##### 56497#       发表于 2022-2-25 15:10
+
+所以红发第一集是要把这果实卖给谁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
