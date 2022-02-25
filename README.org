@@ -8,16 +8,13 @@
 
 2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
 
-2021-2022年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2022
+2022至今历史存档 https://github.com/TomoeMami/S1PlainTextArchive2022
 
-如果内容与时间无强相关，则会被挪至此仓库：
-
-S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
-
-* 2021年9月9日更新：发现S1对国外IP访问限速导致Action成功率大大下降，已转为国内服务器更新。
+__2021年9月9日更新：发现S1对国外IP访问限速导致Action成功率大大下降，已转为国内服务器更新。__
 
 ** 全文搜索方式：
-按下英文句号键，即可进入GitHub官方提供的https://github.dev/TomoeMami/S1PlainTextBackup界面。
+
+限制频率为20次每分钟的简易网页搜索：http://175.27.249.201:8000/
 
 ** 2021-01-08 增加GithubAction支持
 
