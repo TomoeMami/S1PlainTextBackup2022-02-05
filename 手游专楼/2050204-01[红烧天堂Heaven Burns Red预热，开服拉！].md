@@ -2075,3 +2075,19 @@ nanamin不是说自己只有事务能力 不会打架吧
 
 今晚大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  panyijunpyy  
+##### 185#       发表于 2022-2-25 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54809536&amp;ptid=2050204" target="_blank">poor 发表于 2022-2-23 22:51</a>
+
+现在技能等级除了某些加次数的还有什么用？技能具体倍率哪里有得看吗？和泉的大跟单体打一个的时候不知道开 ...</blockquote>
+首先星罗的加爆率buff是3回合，并且在高等级下能提高到接近95%的爆率，所以是目前最强buffer
+
+其次普通人的加攻buff，不是当回合必须使用，是当你开技能的时候才会消耗，你可以提前身上屯几层buff，等到破盾了，或者找到机会在用技能打一波大的（每次技能最多消耗2层加攻buff）
+
+目前最强猴戏就是全buffer下螃蟹打出来的228w，属性阵套上，2次减防叠好，2次加攻，2次加爆，找个弱冰弱突的低等级boss轰一发
+
