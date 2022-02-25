@@ -12515,3 +12515,15 @@ image.png
 
 就好像我看火影看到那撸脱是四代儿子时候的心情一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">也行吧至少五黄前期大智若愚后期大愚若智没卖过惨，不像太子成天逼逼自己是吊车尾这类屁话又当又立
 
+
+
+*****
+
+####  仟音一心  
+##### 56505#       发表于 2022-2-25 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54832327&amp;ptid=98922" target="_blank">摸鱼先锋 发表于 2022-2-25 21:15</a>
+接受不了给路飞果实加的这个buff啊当时还想过路飞虽然爹爷一个比一个吊，但自己也就吃了个拉跨超人 ...</blockquote>
+完全接受不了橡胶果实的隐藏buff，路飞的魅力在他做了什么，不在于他有什么隐藏挂。
+希望只是个象征意义。
+
