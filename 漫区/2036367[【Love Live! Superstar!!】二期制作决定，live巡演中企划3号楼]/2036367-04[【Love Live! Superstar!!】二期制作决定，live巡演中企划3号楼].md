@@ -15068,3 +15068,16 @@ eh传这些写真太正常了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  名津流  
+##### 5716#       发表于 2022-2-25 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54830978&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-25 18:54</a>
+
+我感觉好像直接说中文的本来就没按那个水槽name啥啥啥的留言，直接该说啥说啥了，有几个先日语后中文的就有 ...</blockquote>
+类似这样的？
+[https://www.bilibili.com/video/BV1C44y1n7pw](https://www.bilibili.com/video/BV1C44y1n7pw)
+
