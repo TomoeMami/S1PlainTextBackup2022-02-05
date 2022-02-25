@@ -755,3 +755,14 @@ A狐，刷本习惯打手放三号位
 
 铁打的C呆<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87068#       发表于 2022-2-25 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">好耶，许久不见的彩圈new了霸王花
+
+然后我发现今年周年的福袋我可能真没东西要抽了……
+

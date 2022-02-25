@@ -4968,3 +4968,27 @@ twitter.com/kalappo74/status/1496862539770052608
 
 NIJISANJI EN「First Step Goods」「デビュー記念ボイス」2022年2月27日(日)14時より日本と英語圏で同時販売開始！
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10940#       发表于 2022-2-25 17:28
+
+还是来了
+ <blockquote>久檻夜くぅ❄️🧚‍♀️@Qu_Qualia応援してくれたみんなが大好きです
+
+本当にありがとうございました。
+
+Thanks for your support until now.</blockquote><blockquote>Re:AcT / リアクト【公式】@Re_AcT_
+
+「久檻夜くぅ・犬望チロル」についてのお知らせ</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202202/25/172623kuqlfqmnbtbibf9t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>「久檻夜くぅ・犬望チロル」についてのお知らせ .jpeg</strong> (55.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-25 17:26 上传
+
