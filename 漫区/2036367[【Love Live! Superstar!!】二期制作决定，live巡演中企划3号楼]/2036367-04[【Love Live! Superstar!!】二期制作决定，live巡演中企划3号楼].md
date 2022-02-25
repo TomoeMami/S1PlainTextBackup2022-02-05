@@ -14897,3 +14897,16 @@ nako现在完全靠ll给工作了，个人业务约等于无。年龄也等不�
 
 当然，有机会移籍我肯定是大力支持的，holypeak这事务所对海外粉丝的不友好度和吃相难看度应该算是常见事务所里最高的。（比如FC完全拒绝海外卡，抽选还卡海外名义）
 
+
+
+*****
+
+####  AlfredXC  
+##### 5703#       发表于 2022-2-25 14:51
+
+ 本帖最后由 AlfredXC 于 2022-2-25 14:55 编辑 
+
+[https://weibo.com/1158211483/Lh6wm6H7a](https://weibo.com/1158211483/Lh6wm6H7a)
+
+有人把青山姐写真传EH上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
