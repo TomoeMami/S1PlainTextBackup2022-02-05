@@ -12429,3 +12429,18 @@ image.png
 
 — from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  klzxs  
+##### 56498#       发表于 2022-2-25 15:24
+
+改一点点字确实挺可能
+
+海军也干过这事
+
+比如把罗杰的gol.d改成gold(虽然我感觉每个人都知道罗杰是d
+
+不过我想象不出橡皮和橡胶是怎么变的
+
