@@ -3835,3 +3835,60 @@ emmmmmm 这人怕不是把每周五VCP更新也算作一次直播了……
 
 有看一下的意义<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呓亘  
+##### 9418#       发表于 2022-2-26 01:58
+
+苔苔我爱你！！！！！！！！！！
+
+*****
+
+####  呓亘  
+##### 9419#       发表于 2022-2-26 02:01
+
+阿咩多造点梗！！！！！！！！！！！！！！！！！！！！！！
+
+*****
+
+####  路人庚  
+##### 9420#       发表于 2022-2-26 02:07
+
+ 本帖最后由 路人庚 于 2022-2-26 02:21 编辑 
+
+苔苔给你咩姐安排的苔本是“与mishiro不同的路线”
+
+<img src="https://img.saraba1st.com/forum/202202/26/020739cz91kxpj22kmm2j7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D54E6313-5B94-46AC-8082-522610367BE5.jpeg</strong> (166.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 02:07 上传
+
+mishiro这边已经打出来的3个结局应该是
+
+catastrophe（粉丝小于50万，三维小于60，结束30天流程，“请认真经营游戏”结局）
+
+angel fall down（福利直播5的结局）
+
+healthy party（阴暗0的考证结局）
+
+
+
+*****
+
+####  LIPP  
+##### 9421#       发表于 2022-2-26 02:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">在下次粪企划前苔姨就是我的超人
+
+*****
+
+####  Dualist彩  
+##### 9422#       发表于 2022-2-26 03:21
+
+苔本起个头，快进到你麻觉得还挺有意思然后单播
+
