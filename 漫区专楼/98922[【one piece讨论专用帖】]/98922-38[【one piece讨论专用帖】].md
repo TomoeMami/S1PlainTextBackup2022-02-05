@@ -12527,3 +12527,12 @@ image.png
 完全接受不了橡胶果实的隐藏buff，路飞的魅力在他做了什么，不在于他有什么隐藏挂。
 希望只是个象征意义。
 
+
+
+*****
+
+####  刹那の劍  
+##### 56506#       发表于 2022-2-26 01:23
+
+邮局港剧路飞没卖过惨也没卖过人设，爆料他爸他爷爷也是很早就爆料了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
