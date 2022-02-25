@@ -3732,3 +3732,45 @@ emmmmmm 这人怕不是把每周五VCP更新也算作一次直播了……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">借楼问一下现在VCP究竟是个什么状态？我有听说只是把几个人捏一块儿而已，还是说有实际的企划？
 
+
+
+*****
+
+####  呓亘  
+##### 9407#       发表于 2022-2-25 22:42
+
+有实际的企划 但大多数企划都一股日综味...我倒是希望VCP搞一个热门游戏直播 恐怖游戏直播也好啊……
+
+*****
+
+####  古战场亡魂  
+##### 9408#       发表于 2022-2-25 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54833206&amp;ptid=2018830" target="_blank">呓亘 发表于 2022-2-25 22:42</a>
+
+有实际的企划 但大多数企划都一股日综味...我倒是希望VCP搞一个热门游戏直播 恐怖游戏直播也好啊…… ...</blockquote>
+这跟vcp有个锤子关系……主播自己的问题……mea外出联动游戏也不少啊，只是不在自己直播间玩而已
+
+*****
+
+####  古战场亡魂  
+##### 9409#       发表于 2022-2-25 22:44
+
+ 本帖最后由 古战场亡魂 于 2022-2-25 22:47 编辑 
+
+起码像昨天mea那个类似声优电台的节目是有企划和台本的，staff也是在的……算是个好消息吧。如果两位男主持在的话，日综味也没办法，本来就是搞笑艺人，但是人家彩虹吹的什么天才企划也不过就是这种日综味。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 9410#       发表于 2022-2-25 22:49
+
+我倒是不在乎日综味...只不过之前对VCP期望太高了，还以为阿咩能搞这个企划一飞冲天……
+
+*****
+
+####  藤原银  
+##### 9411#       发表于 2022-2-25 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我是感觉像缺了一股力一样
+
