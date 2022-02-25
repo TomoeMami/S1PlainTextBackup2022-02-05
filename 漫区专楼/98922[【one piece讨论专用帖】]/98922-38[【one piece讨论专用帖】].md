@@ -12504,3 +12504,14 @@ image.png
 
 可能是乔伊波伊就是上一任觉醒的橡皮果实能力者？因为某些原因不得已消除100年的历史，他认为这就是他的罪？
 
+
+
+*****
+
+####  摸鱼先锋  
+##### 56504#       发表于 2022-2-25 21:15
+
+接受不了给路飞果实加的这个buff啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">当时还想过路飞虽然爹爷一个比一个吊，但自己也就吃了个拉跨超人系垃圾果实，主要还是靠着修炼加开发到今天的，结果突然冒出来天选果实的设定？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+就好像我看火影看到那撸脱是四代儿子时候的心情一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">也行吧至少五黄前期大智若愚后期大愚若智没卖过惨，不像太子成天逼逼自己是吊车尾这类屁话又当又立
+
