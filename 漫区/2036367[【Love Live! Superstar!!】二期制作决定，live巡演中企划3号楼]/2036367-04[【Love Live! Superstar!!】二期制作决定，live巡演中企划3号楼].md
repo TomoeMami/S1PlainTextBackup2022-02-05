@@ -15090,3 +15090,13 @@ eh传这些写真太正常了
 
 看了昨晚的采访，hori这是直接推上找的鲤鱼，看来破站牵线说也不攻自破
 
+
+
+*****
+
+####  cybernetics31  
+##### 5718#       发表于 2022-2-26 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔家没那么大能耐的，本来签叔叔家也仅限国内事务
+live viewing 在叔叔家卖水6th的线上票了，汇率算下来还不错，不知道星团有没有。
+

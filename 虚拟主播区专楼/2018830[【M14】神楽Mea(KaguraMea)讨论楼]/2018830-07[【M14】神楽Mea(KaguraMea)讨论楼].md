@@ -3903,3 +3903,15 @@ healthy party（阴暗0的考证结局）
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  onlv星骸  
+##### 9424#       发表于 2022-2-26 10:21
+
+能不能出个主题曲的翻唱。
+苔本就没意思了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
