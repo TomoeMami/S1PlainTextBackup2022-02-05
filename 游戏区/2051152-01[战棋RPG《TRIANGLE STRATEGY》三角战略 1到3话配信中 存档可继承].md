@@ -2923,3 +2923,16 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 怎么我预购了数字版下载这图标还是黑底白字，太难看了我靠
 
+
+
+*****
+
+####  蓮華  
+##### 261#       发表于 2022-2-26 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54808024&amp;ptid=2051152" target="_blank">南宫月汐 发表于 2022-2-23 20:36</a>
+人设最大的问题我觉得是所有人看起来都像坏人
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+没错没错！会不会是为所有人都可能背叛做的铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
