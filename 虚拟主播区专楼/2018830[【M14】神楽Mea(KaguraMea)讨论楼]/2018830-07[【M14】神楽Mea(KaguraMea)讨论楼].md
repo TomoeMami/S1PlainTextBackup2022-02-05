@@ -4551,3 +4551,21 @@ syl，这是苔苔的号吧，前面mishiro联动的时候应该确实是没走�
 
 看来苔苔觉得你咩姐药不能停
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9504#       发表于 2022-2-27 00:42
+
+这么五毒俱全的路线可真少见
+
+*****
+
+####  璃絵和花瑠  
+##### 9505#       发表于 2022-2-27 00:54
+
+什么魔音贯耳<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
