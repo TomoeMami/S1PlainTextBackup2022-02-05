@@ -5437,3 +5437,75 @@ CVID普通变异型免疫缺陷病，严重抗体缺乏症；VILLS我看红迪�
 
 <img src="https://ae04.alicdn.com/kf/Hb6a42b638c2b476dbe8d7fe66fd6a9473.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10983#       发表于 2022-2-26 19:15
+
+这个粉色头发太傻了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+一股花谱味？
+
+*****
+
+####  Vneet  
+##### 10984#       发表于 2022-2-26 19:16
+
+the end?
+
+*****
+
+####  喜闻乐见  
+##### 10985#       发表于 2022-2-26 19:16
+
+竟然是幼女体形
+
+*****
+
+####  バーチャルS1er  
+##### 10986#       发表于 2022-2-26 19:17
+
+KZN感觉人设不太行，配色一股一般女性战斗员味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 10987#       发表于 2022-2-26 19:19
+
+キズナちゃん好袖珍……
+
+*****
+
+####  十九号大侠  
+##### 10988#       发表于 2022-2-26 19:19
+
+世嘉安排一下啊
+
+*****
+
+####  Vneet  
+##### 10989#       发表于 2022-2-26 19:20
+
+ 本帖最后由 Vneet 于 2022-2-26 19:26 编辑 
+
+说道歌唱AI。V家不就有一个叫KIZUNA AKARI的V（紲星(きずな)あかり），当时还调侃是两个V合体。
+
+这下真的也来个叫KIZUNA的音源V。
+
+从V到V，虚拟世界的AI从未离开过，只是从爱酱变成了绊酱。
+
+*****
+
+####  喜闻乐见  
+##### 10990#       发表于 2022-2-26 19:22
+
+<img src="https://ae05.alicdn.com/kf/Hde71b1b5ce4c4c4fa0f8bffb47d71ef3N.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 10991#       发表于 2022-2-26 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">感觉这演唱会的技术力好强啊。现在v圈有技术力更强的吗？
+
