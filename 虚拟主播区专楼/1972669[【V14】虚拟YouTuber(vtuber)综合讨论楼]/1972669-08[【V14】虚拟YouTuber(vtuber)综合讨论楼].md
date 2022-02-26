@@ -5186,3 +5186,26 @@ syl，尊妈啥时候说的？羡慕了，要不咱们复刻一下？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那盐note后复盘来看三次联裁不留把柄，匿名版泄露只有liver知道的12人dc群组内容的人狼游戏更是没有定论，不是朋友自杀情绪失控的tc和note的bug露馅还不会翻车，比润润还是聪明不少的。
 
+
+
+*****
+
+####  free  
+##### 10959#       发表于 2022-2-26 14:57
+
+[https://www.youtube.com/watch?v=P3yadVEV-f4](https://www.youtube.com/watch?v=P3yadVEV-f4)
+
+【緊急生放送】今日真実を話します…潤羽るしあ遂に引退…実はVtuberから嫌がらせを受けていた？まふまふとの同棲疑惑から契約違反行為…海外勢のファンから荒らされる…田中聖が捕まる前の生放送がやばすぎる
+
+两天没关注这事，怎么就由男女关系一转社内霸凌了？而且居然还有三语同传，真是高级！
+
+反正也契约解除了，不如就直球说出来霸凌者是谁吧，别谜语人了。
+
+<img src="https://img.saraba1st.com/forum/202202/26/145714polh22vx5esqdxsh.jpg" referrerpolicy="no-referrer">
+
+<strong>精彩.jpg</strong> (8.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 14:57 上传
+
