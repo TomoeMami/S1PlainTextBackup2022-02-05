@@ -5618,3 +5618,30 @@ KZN感觉人设不太行，配色一股一般女性战斗员味<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  キズナアイ  
+##### 11004#         楼主| 发表于 2022-2-26 23:46
+
+<img src="https://img.saraba1st.com/forum/202202/26/234646c00qyartycsaceer.jpg" referrerpolicy="no-referrer">
+
+<strong>FMh_a4CVcAYAk_W.jpg</strong> (365.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 23:46 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 瑠奈ルナ| + 1||
+
+查看全部评分
+
