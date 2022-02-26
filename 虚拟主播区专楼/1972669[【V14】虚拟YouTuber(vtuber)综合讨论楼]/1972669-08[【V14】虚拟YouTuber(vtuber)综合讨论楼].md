@@ -5258,3 +5258,63 @@ stm，意思还能回榜<img src="https://static.saraba1st.com/image/smiley/face
 
 Kizuna AI The Last Live “hello, world 2022”
 
+
+
+*****
+
+####  IDIDIDID  
+##### 10965#       发表于 2022-2-26 17:06
+
+明透的二单太美了😭😭😭😭
+
+*****
+
+####  alcoholic1000  
+##### 10966#       发表于 2022-2-26 17:18
+
+Connor还是为爱套皮了，明天首播
+
+什么《跨越次元的爱恋》<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/26/171409ttzorwqhwie0wuhe.png" referrerpolicy="no-referrer">
+
+<strong>BubiVT.png</strong> (35.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202202/26/171409oqqqckxs95h5sxhp.png" referrerpolicy="no-referrer">
+
+<strong>ironmouse.png</strong> (45.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 17:14 上传
+
+*****
+
+####  IDIDIDID  
+##### 10967#       发表于 2022-2-26 17:21
+
+铁老鼠现在是老鼠台皮套一姐了吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|不用加套皮定语，就是一姐|
+
+查看全部评分
+
+*****
+
+####  喜闻乐见  
+##### 10968#       发表于 2022-2-26 17:25
+
+<img src="https://ae05.alicdn.com/kf/Hd8907c05ed0843a2ad4afd834b8a6553f.png" referrerpolicy="no-referrer">
+

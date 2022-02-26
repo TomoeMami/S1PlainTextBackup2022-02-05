@@ -2914,3 +2914,12 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 真就没一个老实人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  thez  
+##### 260#       发表于 2022-2-26 17:29
+
+怎么我预购了数字版下载这图标还是黑底白字，太难看了我靠
+
