@@ -5405,3 +5405,35 @@ CVID普通变异型免疫缺陷病，严重抗体缺乏症；VILLS我看红迪�
 
 舞台是reality的吧？大型炫技现场了
 
+
+
+*****
+
+####  喜闻乐见  
+##### 10979#       发表于 2022-2-26 18:45
+
+俺也互动音声投稿了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 10980#       发表于 2022-2-26 18:46
+
+前面在看虹团演唱会，刚转过来，老爱这边谱皇来了吗
+
+
+
+*****
+
+####  free  
+##### 10981#       发表于 2022-2-26 18:47
+
+后面弹琴的是谁啊，刚才那个是中田康孝？这个不认识了
+
+*****
+
+####  喜闻乐见  
+##### 10982#       发表于 2022-2-26 18:50
+
+<img src="https://ae04.alicdn.com/kf/Hb6a42b638c2b476dbe8d7fe66fd6a9473.png" referrerpolicy="no-referrer">
+
