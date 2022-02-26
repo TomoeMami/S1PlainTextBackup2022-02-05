@@ -5645,3 +5645,37 @@ KZN感觉人设不太行，配色一股一般女性战斗员味<img src="https:/
 
 查看全部评分
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11005#       发表于 2022-2-26 23:52
+
+PRISMProj的三期生Shiki Miyoshino/美吉野しき
+
+被指控中之人种族歧视、恐同、跨性别恐惧、霸凌和随意使用n-word（我个人认为是没根据的指控）
+
+V圈怎么走到这地步的...<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/26/234652pgdo1q82zfjov6ff.png" referrerpolicy="no-referrer">
+
+<strong>Miyoshino Shiki of Prism Project 3rd gen is being cancelled after a hit piece of.png</strong> (200.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 23:46 上传
+
+摘要
+
+<img src="https://img.saraba1st.com/forum/202202/26/234552dnzmy2ym64n3kqg2.jpg" referrerpolicy="no-referrer">
+
+<strong>PRISM Project.jpg</strong> (296.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-26 23:45 上传
+
+（PRISM Project 二排右二）
+[全文链接](https://twitter.com/VTuberCringe/status/1497536258591100930)
+

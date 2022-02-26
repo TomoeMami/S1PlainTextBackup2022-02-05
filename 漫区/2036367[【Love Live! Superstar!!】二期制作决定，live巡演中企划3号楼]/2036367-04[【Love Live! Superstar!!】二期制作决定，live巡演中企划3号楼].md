@@ -15284,3 +15284,12 @@ DD噩梦，只推一个勉强还可以
 毕竟讨论了多少年要是业界有个活跃的中国人就好了。以前都是边缘角色，这回真给你找出来一个，表现不错也算宅宅甚至慢慢发现各方面还都有点共同语言。这亲和力还是很高的，所以热情也高<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 当然隔夜出熟肉这种事情确实是年轻人专属<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 5737#       发表于 2022-2-26 23:59
+
+应该是神回或者什么重要的事情才会烤吧，感觉烤鲤鱼广播的实在不多，好像就鲤鱼烧烤铺时不时产出一些了（？
+
