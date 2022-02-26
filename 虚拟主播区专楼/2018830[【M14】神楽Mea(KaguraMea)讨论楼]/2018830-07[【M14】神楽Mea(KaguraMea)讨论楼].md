@@ -4082,3 +4082,125 @@ syl，之前mishiro玩了3小时（
 
 emmmmmmmm 就这？？？？
 
+
+
+*****
+
+####  gongge666  
+##### 9444#       发表于 2022-2-26 22:21
+
+她毕竟不算当过真人主播，很多东西没法感同身受
+
+*****
+
+####  路人庚  
+##### 9445#       发表于 2022-2-26 22:22
+
+你咩除了念台词没别的反应的话那可太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是苔本吗？
+
+*****
+
+####  古战场亡魂  
+##### 9446#       发表于 2022-2-26 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54844388&amp;ptid=2018830" target="_blank">gongge666 发表于 2022-2-26 22:21</a>
+
+她毕竟不算当过真人主播，很多东西没法感同身受</blockquote>
+前世白直播了是吧
+
+*****
+
+####  呓亘  
+##### 9447#       发表于 2022-2-26 22:23
+
+还行 还是能听到一些东西的
+
+*****
+
+####  呓亘  
+##### 9448#       发表于 2022-2-26 22:24
+
+爱小姐不是阿咩 你们天狗不要嗯蹭我们王国民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gongge666  
+##### 9449#       发表于 2022-2-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54844426&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-26 22:23</a>
+
+前世白直播了是吧</blockquote>
+她那不是连脸都没露么，卖颜和不卖颜的主播区别还是很大的
+
+*****
+
+####  路人庚  
+##### 9450#       发表于 2022-2-26 22:27
+
+ 本帖最后由 路人庚 于 2022-2-26 22:30 编辑 
+
+感觉要走不磕药不h的健全主播路线了，就是不知道会不会守住每天都播的连播加成，能守住的话可以在十几天的时候百万粉
+
+有些操作苔苔就直接点了还行
+
+
+
+*****
+
+####  呓亘  
+##### 9451#       发表于 2022-2-26 22:30
+
+话说这人居然也有指尖陀螺啊 她之前是不是提过啊
+
+*****
+
+####  路人庚  
+##### 9452#       发表于 2022-2-26 22:32
+
+全自动对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这笑声
+
+*****
+
+####  古战场亡魂  
+##### 9453#       发表于 2022-2-26 22:34
+
+草，强制喂药。
+
+*****
+
+####  路人庚  
+##### 9454#       发表于 2022-2-26 22:35
+
+阿咩还没反应，苔苔强行磕药还行，上一秒还是拿麦克风卖钱的好活来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dsylolicon  
+##### 9455#       发表于 2022-2-26 22:35
+
+犬山的打法很功利啊，而且顺序还不怎么样（小声，这样后期必崩的
+
+*****
+
+####  路人庚  
+##### 9456#       发表于 2022-2-26 22:36
+
+只要保持连播基本必然百万粉，不知道这路线是不是走do you love me
+
+*****
+
+####  古战场亡魂  
+##### 9457#       发表于 2022-2-26 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54844682&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-2-26 22:36</a>
+
+只要保持连播基本必然百万粉，不知道这路线是不是走do you love me</blockquote>
+都强制嗑药停了一晚了
+
+*****
+
+####  路人庚  
+##### 9458#       发表于 2022-2-26 22:39
+
+好吧看漏流程了（
+
