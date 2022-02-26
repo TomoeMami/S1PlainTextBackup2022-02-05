@@ -15100,3 +15100,24 @@ eh传这些写真太正常了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔家没那么大能耐的，本来签叔叔家也仅限国内事务
 live viewing 在叔叔家卖水6th的线上票了，汇率算下来还不错，不知道星团有没有。
 
+
+
+*****
+
+####  player3960  
+##### 5719#       发表于 2022-2-26 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54836798&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-2-26 10:33</a>
+
+叔叔家没那么大能耐的，本来签叔叔家也仅限国内事务
+
+live viewing 在叔叔家卖水6th的线上票了，汇率 ...</blockquote>
+盲猜一波有吧，b站番剧那个号不是还发过星2nd的视觉图吗
+
+*****
+
+####  lj205  
+##### 5720#       发表于 2022-2-26 10:44
+
+延迟半小时，看取舍了，不过至少说明总算开始重视这边
+

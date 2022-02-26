@@ -5153,3 +5153,16 @@ syl，尊妈啥时候说的？羡慕了，要不咱们复刻一下？
 说起来最近KR的NARI因为KING的推文火了一把，NICONICO上的切片质量也很高也确实很可爱，推荐个自己特别喜欢的
 [https://www.nicovideo.jp/watch/sm39826311](https://www.nicovideo.jp/watch/sm39826311)
 
+
+
+*****
+
+####  free  
+##### 10956#       发表于 2022-2-26 10:57
+
+[https://www.youtube.com/watch?v=6oqutWTdQcc](https://www.youtube.com/watch?v=6oqutWTdQcc)
+
+【音楽的同位体】 ディメンション covered by 星界(SEKAI)
+
+情绪也音源化了
+
