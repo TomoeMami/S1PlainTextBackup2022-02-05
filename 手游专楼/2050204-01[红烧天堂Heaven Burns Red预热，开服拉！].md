@@ -2224,3 +2224,14 @@ pv压轴站C位，个人剧情已经开完2话，第二话里甚至还立了个�
 
 月城的flag感觉也竖起来了
 
+
+
+*****
+
+####  zeroed  
+##### 199#       发表于 2022-2-27 01:09
+
+<img src="https://s3.bmp.ovh/imgs/2022/02/01283c08c8f0911f.jpg" referrerpolicy="no-referrer">
+
+说吧，氪多少可以和ななみんH
+

@@ -5701,3 +5701,12 @@ V圈怎么走到这地步的...<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  CielChloe  
+##### 11008#       发表于 2022-2-27 01:19
+
+当年刚开始进军英语圈的时候，就有贷款V触犯欧美zzzq的了
+

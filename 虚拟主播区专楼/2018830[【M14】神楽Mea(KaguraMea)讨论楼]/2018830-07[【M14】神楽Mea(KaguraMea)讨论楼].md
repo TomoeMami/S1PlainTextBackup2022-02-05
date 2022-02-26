@@ -4569,3 +4569,58 @@ syl，这是苔苔的号吧，前面mishiro联动的时候应该确实是没走�
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  dsylolicon  
+##### 9506#       发表于 2022-2-27 01:00
+
+是NTR结局
+
+*****
+
+####  路人庚  
+##### 9507#       发表于 2022-2-27 01:02
+
+高阴暗的ntr结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  咸鱼渣  
+##### 9508#       发表于 2022-2-27 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">念得好流畅
+
+*****
+
+####  路人庚  
+##### 9509#       发表于 2022-2-27 01:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始了，折磨剧情
+
+*****
+
+####  onlv星骸  
+##### 9510#       发表于 2022-2-27 01:14
+
+感觉她还是果然还是有玩过，不过还是想看她玩呕吐线。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  路人庚  
+##### 9511#       发表于 2022-2-27 01:15
+
+你咩姐应该是云过大致流程了
+
+*****
+
+####  呓亘  
+##### 9512#       发表于 2022-2-27 01:17
+
+希望未来阿咩能翻唱下主题曲
+
