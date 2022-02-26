@@ -5679,3 +5679,14 @@ V圈怎么走到这地步的...<img src="https://static.saraba1st.com/image/smil
 （PRISM Project 二排右二）
 [全文链接](https://twitter.com/VTuberCringe/status/1497536258591100930)
 
+
+
+*****
+
+####  free  
+##### 11006#       发表于 2022-2-27 00:22
+
+老爱live的B站源传到2楼了，不过没有弹幕，谁录了弹幕版本的补一个吧
+
+前几天谁说的动画是霸权社做来着，希望动画能有些看头，至少得比马看四月一日白爪草期待高吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
