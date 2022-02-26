@@ -15081,3 +15081,12 @@ eh传这些写真太正常了
 类似这样的？
 [https://www.bilibili.com/video/BV1C44y1n7pw](https://www.bilibili.com/video/BV1C44y1n7pw)
 
+
+
+*****
+
+####  lj205  
+##### 5717#       发表于 2022-2-26 09:45
+
+看了昨晚的采访，hori这是直接推上找的鲤鱼，看来破站牵线说也不攻自破
+

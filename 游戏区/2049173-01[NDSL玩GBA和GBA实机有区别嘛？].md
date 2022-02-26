@@ -2430,3 +2430,30 @@ CRC喷下去又不太有效，懒得再等快递了于是就用了古老的[物�
 
 有没有折腾饭盒nds的？想收个下半截改gba的体验原生色彩。哪家有改得好的吗？原厂按键屏幕不发黄存在吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zris  
+##### 184#         楼主| 发表于 2022-2-26 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54832478&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-25 21:35</a>
+EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥设置完时间关机就没
+
+然后之前没游戏测试，现在 ...</blockquote>
+太惨了吧。gba的肩键确实现在找不到备用品。我看马云都是卖sp的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oidoid  
+##### 185#       发表于 2022-2-26 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54836397&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-26 09:51</a>
+
+太惨了吧。gba的肩键确实现在找不到备用品。我看马云都是卖sp的
+
+—— 来自 S1Fun ...</blockquote>
+内部结构应该都是一样的，大不了买几个来拆开换内部触片。
+
