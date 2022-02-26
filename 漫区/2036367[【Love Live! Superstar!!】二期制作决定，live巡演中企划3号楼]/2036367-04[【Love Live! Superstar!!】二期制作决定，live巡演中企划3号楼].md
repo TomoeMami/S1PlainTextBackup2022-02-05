@@ -15232,3 +15232,15 @@ DD噩梦，只推一个勉强还可以
 昨晚鲤鱼的地上波居然有熟肉了，看了下时间是今天中午上传的也就是UP通宵翻译打轴……真的是狂热粉啊，上个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皮。。。皮套人能算声优吗
 
+
+
+*****
+
+####  Enakina  
+##### 5732#       发表于 2022-2-26 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54841818&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-02-26 19:22:16</a>
+昨晚鲤鱼的地上波居然有熟肉了，看了下时间是今天中午上传的也就是UP通宵翻译打轴……真的是狂热粉啊，上个 ...</blockquote>你仔细看看，甚至有两个人做了，早上一个，中午一个。中午传的那位是sayu推，之前也火速做了八厘米。至于为啥也这么快做鲤鱼的，嗯，可能是爱屋及乌吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

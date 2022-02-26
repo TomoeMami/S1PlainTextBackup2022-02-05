@@ -2205,3 +2205,13 @@ pv压轴站C位，个人剧情已经开完2话，第二话里甚至还立了个�
 现在买初始怎么样？有老哥知道吗？我矿挖完有两个重复ss感觉炸了，想转生了 ...</blockquote>
 +1不是坏事，大多数1凸能加一点初动，对体验有很大的改善。
 
+
+
+*****
+
+####  rsa1zc  
+##### 197#       发表于 2022-2-26 20:28
+
+<img src="https://p.sda1.dev/5/804d8cb6f33bffd5fce86304fa8a7b8f/IMG_CMP_119405443.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
