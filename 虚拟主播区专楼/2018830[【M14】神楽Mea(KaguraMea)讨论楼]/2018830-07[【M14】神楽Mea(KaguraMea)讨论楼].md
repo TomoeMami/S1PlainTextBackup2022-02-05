@@ -3933,3 +3933,14 @@ healthy party（阴暗0的考证结局）
 
 配信中突然傻笑、呆滯，還有深夜發瘋，是否就是神楽めあ嗑藥的表現?
 
+
+
+*****
+
+####  呓亘  
+##### 9427#       发表于 2022-2-26 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54840551&amp;ptid=2018830" target="_blank">病態極端 发表于 2022-2-26 17:10</a>
+ 配信中突然傻笑、呆滯，還有深夜發瘋，是否就是神楽めあ嗑藥的表現?</blockquote>
+想多了 纯属熬夜不睡的成果
+
