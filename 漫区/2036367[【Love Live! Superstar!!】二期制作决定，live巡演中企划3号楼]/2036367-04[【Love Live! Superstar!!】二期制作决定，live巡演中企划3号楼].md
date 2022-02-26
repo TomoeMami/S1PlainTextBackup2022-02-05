@@ -15269,3 +15269,18 @@ DD噩梦，只推一个勉强还可以
 
 当年在贪婪大陆追新番，火的片子我记得能有20+个字幕组同时做。
 
+
+
+*****
+
+####  nufawneafg  
+##### 5736#       发表于 2022-2-26 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54843110&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-26 20:59</a>
+当年在贪婪大陆追新番，火的片子我记得能有20+个字幕组同时做。</blockquote>
+贪婪大陆好家伙还能看见这词，不说二十年也有十几年了，泥潭果然互联网活化石<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
+其实说起来这两天高强度看B站切片有一部分是年轻人比较有热情，也有一部分是有点情怀的。
+毕竟讨论了多少年要是业界有个活跃的中国人就好了。以前都是边缘角色，这回真给你找出来一个，表现不错也算宅宅甚至慢慢发现各方面还都有点共同语言。这亲和力还是很高的，所以热情也高<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+当然隔夜出熟肉这种事情确实是年轻人专属<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

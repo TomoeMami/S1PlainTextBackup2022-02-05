@@ -4009,3 +4009,76 @@ healthy party（阴暗0的考证结局）
 
 会不会有人刷点啥呢
 
+
+
+*****
+
+####  路人庚  
+##### 9435#       发表于 2022-2-26 22:02
+
+草，拿着mishiro的存档直接玩啊
+
+*****
+
+####  yywzjsw  
+##### 9436#       发表于 2022-2-26 22:06
+
+看上去就完全一小时，能玩到一半结局吗
+
+*****
+
+####  路人庚  
+##### 9437#       发表于 2022-2-26 22:07
+
+ 本帖最后由 路人庚 于 2022-2-26 22:10 编辑 
+
+好吧，甚至是苔苔在操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（rue
+
+syl，之前mishiro玩了3小时（
+
+我的评价是寄，阿咩甚至完全没有尝试去理解游戏的玩法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 9438#       发表于 2022-2-26 22:09
+
+苔苔玩，mea念台词可太惨了
+
+*****
+
+####  yywzjsw  
+##### 9439#       发表于 2022-2-26 22:09
+
+ 本帖最后由 yywzjsw 于 2022-2-26 22:11 编辑 
+
+你麻当中之人（刚刚这段词，歌肯定练过<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dsylolicon  
+##### 9440#       发表于 2022-2-26 22:12
+
+联动（指语音dlc
+
+*****
+
+####  路人庚  
+##### 9441#       发表于 2022-2-26 22:14
+
+感受到了厚厚的心之壁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 9442#       发表于 2022-2-26 22:16
+
+你麻麻的，什么语音包。我绷不住了。
+
+*****
+
+####  呓亘  
+##### 9443#       发表于 2022-2-26 22:20
+
+emmmmmmmm 就这？？？？
+
