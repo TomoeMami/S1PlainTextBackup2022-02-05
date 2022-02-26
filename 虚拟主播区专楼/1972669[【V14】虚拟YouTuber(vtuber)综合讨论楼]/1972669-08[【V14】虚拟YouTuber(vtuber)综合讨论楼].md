@@ -5240,3 +5240,21 @@ syl，为什么同样是恋情暴露，瑠海就这么幸福呢
 
 stm，意思还能回榜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 10963#       发表于 2022-2-26 16:59
+
+之前线下店头也说了这张是出了名的长卖
+
+*****
+
+####  free  
+##### 10964#       发表于 2022-2-26 17:00
+
+[https://www.youtube.com/watch?v=GTa2HxIsBPM](https://www.youtube.com/watch?v=GTa2HxIsBPM)
+
+Kizuna AI The Last Live “hello, world 2022”
+
