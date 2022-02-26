@@ -2482,3 +2482,25 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 有没有折腾饭盒nds的？想收个下半截改gba的体验原生色彩。哪家有改得好的吗？原厂按键屏幕不发黄存在吗？[f ...</blockquote>
 这个自己改就行，收NDS最重要看橙色，现在很多老的NDSL啥的都尿屏了。<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oidoid  
+##### 188#       发表于 2022-2-26 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54836518&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-26 10:04</a>
+
+也有种说法是可以换鼠标微动，这玩意等实在不行再试试
+
+—— 来自 S1Fun ...</blockquote>
+主要是，微动开关的体积比这个要大
+
+贴吧的改造例需要削前壳
+
+如果是透明壳的话，没有打磨会看得见内部留下的痕迹
+
+而且这个东西不管怎么样换都需要动烙铁
+
+所以还是能修则修罢
+
