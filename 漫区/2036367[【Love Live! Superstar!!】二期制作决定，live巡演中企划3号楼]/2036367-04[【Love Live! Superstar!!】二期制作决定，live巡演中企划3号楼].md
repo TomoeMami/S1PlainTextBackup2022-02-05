@@ -15244,3 +15244,28 @@ DD噩梦，只推一个勉强还可以
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 5733#       发表于 2022-2-26 20:41
+
+草，刚发现第三个版本的翻译也来了，卷起来了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5734#       发表于 2022-2-26 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 5735#       发表于 2022-2-26 20:59
+
+当年在贪婪大陆追新番，火的片子我记得能有20+个字幕组同时做。
+
