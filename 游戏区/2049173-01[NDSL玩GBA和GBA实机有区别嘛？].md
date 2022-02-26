@@ -2457,3 +2457,16 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 —— 来自 S1Fun ...</blockquote>
 内部结构应该都是一样的，大不了买几个来拆开换内部触片。
 
+
+
+*****
+
+####  zris  
+##### 186#         楼主| 发表于 2022-2-26 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54836488&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-26 10:00</a>
+内部结构应该都是一样的，大不了买几个来拆开换内部触片。</blockquote>
+也有种说法是可以换鼠标微动，这玩意等实在不行再试试<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
