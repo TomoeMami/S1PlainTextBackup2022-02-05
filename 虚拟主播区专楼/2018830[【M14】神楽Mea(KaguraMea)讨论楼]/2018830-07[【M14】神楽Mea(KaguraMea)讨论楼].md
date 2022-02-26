@@ -4528,3 +4528,26 @@ syl，这是苔苔的号吧，前面mishiro联动的时候应该确实是没走�
 
 如果是台本的话，说不定结尾是mea的翻唱。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 9501#       发表于 2022-2-27 00:22
+
+我不太信会有翻唱（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 9502#       发表于 2022-2-27 00:24
+
+真有翻唱那海苔男直接封神好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 9503#       发表于 2022-2-27 00:26
+
+看来苔苔觉得你咩姐药不能停
+
