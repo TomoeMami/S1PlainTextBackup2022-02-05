@@ -2470,3 +2470,15 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 187#         楼主| 发表于 2022-2-26 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54832814&amp;ptid=2049173" target="_blank">保科智子 发表于 2022-2-25 22:08</a>
+
+有没有折腾饭盒nds的？想收个下半截改gba的体验原生色彩。哪家有改得好的吗？原厂按键屏幕不发黄存在吗？[f ...</blockquote>
+这个自己改就行，收NDS最重要看橙色，现在很多老的NDSL啥的都尿屏了。<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
