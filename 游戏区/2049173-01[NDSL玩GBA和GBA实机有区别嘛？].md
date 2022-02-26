@@ -2504,3 +2504,20 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 
 所以还是能修则修罢
 
+
+
+*****
+
+####  zris  
+##### 189#         楼主| 发表于 2022-2-26 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54839990&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-26 16:03</a>
+主要是，微动开关的体积比这个要大
+
+贴吧的改造例需要削前壳
+
+如果是透明壳的话，没有打磨会看得见内部留下 ...</blockquote>
+我现在也搞电烙铁了 主要有的地方确实要焊接一下。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
