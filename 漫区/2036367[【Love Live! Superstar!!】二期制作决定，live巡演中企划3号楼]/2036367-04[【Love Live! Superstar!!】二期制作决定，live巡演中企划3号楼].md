@@ -15130,3 +15130,14 @@ live viewing 在叔叔家卖水6th的线上票了，汇率 ...</blockquote>
 
 估计是看鱼的成绩不错
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5722#       发表于 2022-2-26 12:04
+
+买了一张水  day1的支持一下，不过线上看价格那么贵还是挺心疼钱包的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">（之前只在b看过EGOIST的线上，100一张）
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

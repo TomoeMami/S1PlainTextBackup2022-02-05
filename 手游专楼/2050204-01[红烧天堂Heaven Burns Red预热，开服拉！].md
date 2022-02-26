@@ -2194,3 +2194,14 @@ pv压轴站C位，个人剧情已经开完2话，第二话里甚至还立了个�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  xmakoto  
+##### 196#       发表于 2022-2-26 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54834465&amp;ptid=2050204" target="_blank">aucun 发表于 2022-2-26 01:10</a>
+现在买初始怎么样？有老哥知道吗？我矿挖完有两个重复ss感觉炸了，想转生了 ...</blockquote>
++1不是坏事，大多数1凸能加一点初动，对体验有很大的改善。
+
