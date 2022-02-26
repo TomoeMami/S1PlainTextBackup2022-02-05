@@ -7209,3 +7209,16 @@ nmd凑阿夸，起床了就嗷了一嗓子，你倒是播啊，你在怕什么
 
 自己打不香吗，我已经大树守卫面前死一晚上了，真好玩
 
+
+
+*****
+
+####  andeloz  
+##### 8340#       发表于 2022-2-26 12:56
+
+ 本帖最后由 andeloz 于 2022-2-25 20:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要死磕 我选的Prisoner开局 开始还搁那研究弹反究极折磨 后来学了魔法就开始快乐了
+
+夸要玩不知道会选什么出生
+

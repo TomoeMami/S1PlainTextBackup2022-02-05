@@ -5175,3 +5175,14 @@ syl，尊妈啥时候说的？羡慕了，要不咱们复刻一下？
 
 那跟润姨比金鱼还是差多了，金鱼好歹从头到尾也就是跟Roa打，运营发完公告也就没啥声音了，而且爆出来的东西甚至还展现了大家庭温暖<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 10958#       发表于 2022-2-26 12:59
+
+ 本帖最后由 winda 于 2022-2-26 13:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那盐note后复盘来看三次联裁不留把柄，匿名版泄露只有liver知道的12人dc群组内容的人狼游戏更是没有定论，不是朋友自杀情绪失控的tc和note的bug露馅还不会翻车，比润润还是聪明不少的。
+
