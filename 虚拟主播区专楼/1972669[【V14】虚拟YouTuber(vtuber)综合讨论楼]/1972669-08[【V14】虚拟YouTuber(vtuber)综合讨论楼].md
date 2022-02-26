@@ -5327,3 +5327,24 @@ Connor还是为爱套皮了，明天首播
 
 说到这位ironmouse，说是身体不好基本下不了床是真的吗，怎么vills上还连唱带跳好几首的，是替身吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10970#       发表于 2022-2-26 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54840705&amp;ptid=1972669" target="_blank">free 发表于 2022-2-26 17:26</a>
+
+说到这位ironmouse，说是身体不好基本下不了床是真的吗，怎么vills上还连唱带跳好几首的，是替身吗 ...</blockquote>
+CVID普通变异型免疫缺陷病，严重抗体缺乏症；VILLS我看红迪讨论是"I'm almost 100% certain the dances and animations were mmd. The vocals however were their own."，具体事实我不是很清楚，[铁鼠回顾VILL](https://www.youtube.com/watch?v=Z1LzkTTPrLA)也只是说像梦一场
+
+*****
+
+####  adamtheo  
+##### 10971#       发表于 2022-2-26 17:56
+
+ 本帖最后由 adamtheo 于 2022-2-26 17:59 编辑 
+
+没事了 顺序打乱了
+
