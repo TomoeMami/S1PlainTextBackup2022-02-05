@@ -15421,3 +15421,14 @@ DD噩梦，只推一个勉强还可以
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 5751#       发表于 2022-2-27 22:55
+
+跨年录播这修音对星有点多余啊，修的和通电了一样
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
