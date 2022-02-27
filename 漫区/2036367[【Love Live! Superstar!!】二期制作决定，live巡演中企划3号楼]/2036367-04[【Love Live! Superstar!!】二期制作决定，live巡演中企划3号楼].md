@@ -15348,3 +15348,24 @@ DD噩梦，只推一个勉强还可以
 
 演唱会
 
+
+
+*****
+
+####  player3960  
+##### 5743#       发表于 2022-2-27 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54852316&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-02-27 18:20:01</a>
+这边演唱会延迟还是挺有必要的，不过企划搞这些实时弹幕没筛选就离谱，一天的好心情被毁的差不多了 ...</blockquote>星团千万别搞这个，谢谢了，md看个live还要防雷，闹心不闹心
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 5744#       发表于 2022-2-27 18:57
+
+我的建议是这种事实弹幕就别来了，怪不得每次别人转播，up主还得挡住推特的事实留言。这次还只是恶心人，下次来个zz发言，估计企划都要受到牵连了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
