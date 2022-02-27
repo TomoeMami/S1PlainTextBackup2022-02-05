@@ -6439,3 +6439,79 @@ Connor还是为爱套皮了，明天首播
 
 如何评价今天lovelive的新企划
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 11078#       发表于 2022-2-28 00:06
+
+说起来apex最协还剩一队没公布怕不就是哈弟箱新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 11079#       发表于 2022-2-28 00:07
+
+ 本帖最后由 rzrbtk 于 2022-2-28 00:18 编辑 
+
+主播和观众的感性有时会变得很有一致性，打麻被帕特的声音涩到之后我郡立刻高喊可爱，这人声音太有那种音声感🥵。还有就是深深感觉到润这件事的影响之大，最近看的那种网站版图变成了润，郡郡被拱火同居男友玩笑的时候四人突然的沉默也微妙…
+
+是我的错觉或是，需要组队的团体赛总是主办方win
+
+*****
+
+####  alcoholic1000  
+##### 11080#       发表于 2022-2-28 00:08
+
+<img src="https://img.saraba1st.com/forum/202202/28/000029hftqfl0q1tbfo0x3.png" referrerpolicy="no-referrer">
+
+<strong>【VALORANT】決勝戦👑　#おくちぽかんだWIN　YEah【本間ひまわり:にじさんじ.png</strong> (66.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 00:00 上传
+
+补个图，实在是累坏，打到现在脑子都动不了了
+
+Syl，
+
+Finana 说mc en服要搞起来了，永远怀念世界服<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">登入点就是bora的toilet，旁边有siu的家，vr星弥的蛋，海岛上还有noor的矿洞设施，叶星联动的痕迹，pomu与seffyna的相识...
+
+算是你虹这几年海外市场征战与不断失败的剪影了，希望en常回去看看
+
+*****
+
+####  Suzutsuki  
+##### 11081#       发表于 2022-2-28 00:09
+
+虹瓦没意思的，远不如我闲着无聊看的reimu的jumpking<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11082#       发表于 2022-2-28 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹瓦唯一收获大概就是副窗口nrk和fowa的组合解说了
+
+*****
+
+####  poipanchao  
+##### 11083#       发表于 2022-2-28 00:15
+
+本间以权谋私，给自己冠军？
+
+*****
+
+####  qwera3469  
+##### 11084#       发表于 2022-2-28 00:16
+
+条子解说口条也还行，西西在旁边当吉祥物他一个人扯了7小时不带停，难为他把菜鸡互啄解说成什么正经大赛一样
+
+*****
+
+####  Suzutsuki  
+##### 11085#       发表于 2022-2-28 00:18
+
+话说咪咪最近挺火热的啊，同接还挺高。印象是新衣服前一段时间还是新衣服开始，看的人就变得挺多的了
+

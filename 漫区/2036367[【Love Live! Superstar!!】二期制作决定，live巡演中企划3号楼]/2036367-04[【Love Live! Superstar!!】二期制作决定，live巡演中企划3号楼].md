@@ -15575,3 +15575,49 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5766#       发表于 2022-2-28 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一转管人可还行 都2022年了
+
+*****
+
+####  cat1230  
+##### 5767#       发表于 2022-2-28 00:03
+
+建个新的管人LL团，还不如把LL从缪到星包括3个对手团总共这么多人的2次元形象再利用，搞个异次元的背景故事板再把大家穿越过去，反正现在轻改动画流行穿越。人多势众，可以合理安排各位声优的时间保证每周抽几个人搞1,2场直播，顺便空闲的人多点工作挣点奶粉钱。 
+
+*****
+
+####  稀勢のささ  
+##### 5768#       发表于 2022-2-28 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好奇是什么形式就去看了下 居然还tm是早就被橄榄的视频势 
+
+*****
+
+####  离心  
+##### 5769#       发表于 2022-2-28 00:12
+
+艹，md本来以为可以从管人坑跳出去的，sb官方又来是吧，资源本来就不好分了，还来？
+
+*****
+
+####  lj205  
+##### 5770#       发表于 2022-2-28 00:15
+
+我想法也是跟5765楼那位兄弟一样
+
+就怕还找holo合作<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5771#       发表于 2022-2-28 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下真得转到vtb区了（误）
+
