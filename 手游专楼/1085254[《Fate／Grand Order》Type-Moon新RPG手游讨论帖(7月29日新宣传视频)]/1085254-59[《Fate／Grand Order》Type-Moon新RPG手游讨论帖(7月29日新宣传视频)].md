@@ -864,3 +864,22 @@ A狐，刷本习惯打手放三号位
 
 YLS暗示2.7在年底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个12月下旬实装
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 87080#       发表于 2022-2-27 19:15
+
+狂娜复刻顺带开强化本好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87081#       发表于 2022-2-27 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54852872&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-2-27 19:15</a>
+
+狂娜复刻顺带开强化本好不好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单点30变50冲 重新定义红卡光炮
+
