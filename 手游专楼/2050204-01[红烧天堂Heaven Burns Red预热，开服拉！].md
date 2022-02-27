@@ -2322,3 +2322,14 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 官方出公告说Ban了16622个违规号
 
+
+
+*****
+
+####  Hemis  
+##### 207#       发表于 2022-2-27 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还好明天出新章
+
+长草没事做整天半挂机刷技能也蛮痛苦的
+

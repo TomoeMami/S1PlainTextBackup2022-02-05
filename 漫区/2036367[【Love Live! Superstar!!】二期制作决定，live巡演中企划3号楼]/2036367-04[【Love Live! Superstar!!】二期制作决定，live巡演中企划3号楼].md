@@ -15548,3 +15548,30 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 神经病你一个2.99次元企划搞个锤子的管人！
 
+
+
+*****
+
+####  优妮可  
+##### 5763#       发表于 2022-2-27 23:53
+
+先观望，反正也没钱没精力去支持了，反正舆论环境肯定变差了，每个群都在骂，估计不久后一些人就闻着味来了
+
+*****
+
+####  一个陆仁贾  
+##### 5764#       发表于 2022-2-27 23:53
+
+我第一反应是爱相随<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  player3960  
+##### 5765#       发表于 2022-2-27 23:55
+
+现在先观察，我还愿意为星团花钱，如果以后星团因为这个管人被缩减资源，不好意思，我直接全转投鲤鱼个活算了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
