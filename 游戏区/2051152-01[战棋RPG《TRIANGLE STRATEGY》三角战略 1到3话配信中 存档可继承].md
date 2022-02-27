@@ -2971,3 +2971,14 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 还成了雪国出兵的借口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  g54088  
+##### 265#       发表于 2022-2-27 16:38
+
+养成是只有强化武器那部分吗？还有不能换武器和转职吗？
+
+— from HUAWEI LYA-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
