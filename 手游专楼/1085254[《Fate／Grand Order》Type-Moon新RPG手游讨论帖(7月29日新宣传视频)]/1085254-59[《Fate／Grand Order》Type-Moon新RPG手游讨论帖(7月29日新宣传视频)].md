@@ -789,3 +789,57 @@ A狐，刷本习惯打手放三号位
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Myroom同时放两个人了能不能永久实装 正好放个黑贞和黑呆
 
+
+
+*****
+
+####  qixinno2  
+##### 87072#       发表于 2022-2-27 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我六石二宝芭娜娜
+
+*****
+
+####  alucardcz  
+##### 87073#       发表于 2022-2-27 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54851793&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-27 17:28</a>
+
+看我六石二宝芭娜娜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧羡慕
+
+*****
+
+####  angelooo  
+##### 87074#       发表于 2022-2-27 17:30
+
+标题15人就13个眼镜礼装，肯定藏东西了，新公司这学坏了懂得炒热度了吧233
+
+狂那这要还不复刻就是行为艺术了，比出新从者的概率还高
+
+*****
+
+####  保罗赫伯特  
+##### 87075#       发表于 2022-2-27 17:32
+
+狂哪终于复刻了啊，有机会体验一下毁天灭地的万物特攻了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TANA  
+##### 87076#       发表于 2022-2-27 17:34
+
+倉花？
+
+*****
+
+####  alucardcz  
+##### 87077#       发表于 2022-2-27 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54851826&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-2-27 17:30</a>
+
+标题15人就13个眼镜礼装，肯定藏东西了，新公司这学坏了懂得炒热度了吧233
+
+狂那这要还不复刻就是行为艺术了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在就等一个不复课了  玩家想到的.舍弃(
+
