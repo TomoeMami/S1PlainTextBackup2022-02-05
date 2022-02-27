@@ -6526,3 +6526,12 @@ mimi的mc算是拿手绝活了
 
 不过这样的话，vspo还剩下len、toto、sena三个小菜比了
 
+
+
+*****
+
+####  purdre  
+##### 11087#       发表于 2022-2-28 06:55
+
+传闻EN新人那个金毛男前世是作TF2视频的，做烦了直接作假死亡信息来逃离TF2圈，乐死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
