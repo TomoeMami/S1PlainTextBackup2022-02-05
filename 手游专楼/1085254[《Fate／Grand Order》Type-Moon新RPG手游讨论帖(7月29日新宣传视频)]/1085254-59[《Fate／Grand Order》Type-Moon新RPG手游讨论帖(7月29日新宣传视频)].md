@@ -843,3 +843,15 @@ A狐，刷本习惯打手放三号位
 狂那这要还不复刻就是行为艺术了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在就等一个不复课了  玩家想到的.舍弃(
 
+
+
+*****
+
+####  angelooo  
+##### 87078#       发表于 2022-2-27 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54851969&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-27 17:46</a>
+
+现在就等一个不复课了  玩家想到的.舍弃(</blockquote>
+然后剧透里的眼镜男还是npc，哈哈哈哈哈
+
