@@ -15489,3 +15489,62 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 企划蜜汁操作………………病还没急都乱投医了
 
+
+
+*****
+
+####  蜜梨柑  
+##### 5756#       发表于 2022-2-27 23:21
+
+这是找新人当管人吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5757#       发表于 2022-2-27 23:23
+
+这什么鬼啊，拉拉也要整管人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5758#       发表于 2022-2-27 23:25
+
+倒车咯，不知道企划是想啥，三团放业界还不够吗………………
+
+*****
+
+####  kata魂  
+##### 5759#       发表于 2022-2-27 23:28
+
+ 本帖最后由 kata魂 于 2022-2-27 23:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不会是看人家好赚钱也想如法炮制吧，毕竟培养虚拟的比培养真实的确实轻松，包括场地都省钱
+
+要是把缪斯弄成虚拟的还算有意义
+
+*****
+
+####  lj205  
+##### 5760#       发表于 2022-2-27 23:29
+
+管人？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 5761#       发表于 2022-2-27 23:35
+
+话说虹的4th live bd当场就宣布发售日期，星的怎么完全没动静？
+
+*****
+
+####  仟音一心  
+##### 5762#       发表于 2022-2-27 23:38
+
+神经病你一个2.99次元企划搞个锤子的管人！
+
