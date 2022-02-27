@@ -5972,3 +5972,24 @@ Syll，能不能开掉，太哈人了<img src="https://static.saraba1st.com/imag
 
 他这个是纯rp吧，前世直播完全不这样
 
+
+
+*****
+
+####  fastary  
+##### 11035#       发表于 2022-2-27 12:20
+
+所以白毛不懂中文大概是RP……
+
+去看了眼推的小视频，本音说话很正常啊，别压了
+
+fujo特攻比女性特攻还小众，他来虹干嘛或者说虹招他干嘛啊？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+syl
+
+所以结论是，白爱尔兰人，紫毛韩裔，粽毛白皮
+
+索尼未知？
+
+华裔那个我还挺感兴趣的，看来没他
+
