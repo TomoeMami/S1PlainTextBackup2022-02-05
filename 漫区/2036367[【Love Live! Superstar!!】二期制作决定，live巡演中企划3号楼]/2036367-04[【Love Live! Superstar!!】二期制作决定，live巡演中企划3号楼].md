@@ -15733,3 +15733,57 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 以前.live不是有偶像部吗，虽然……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5785#       发表于 2022-2-28 01:10
+
+ 本帖最后由 稀勢のささ 于 2022-2-28 01:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54856970&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-2-28 00:54</a>
+倒不是说视频势，肯定也有直播的，而且说不好每天都播比如每日社团活动这样的。说实话虚拟这部分还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那图上左下角就写的投视频为主啊  小剧场这种玩意已经品鉴的够多了 被扫进垃圾堆的东西
+
+*****
+
+####  aoaoaodedede  
+##### 5786#       发表于 2022-2-28 01:13
+
+这个消息是发在哪个平台上啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5787#       发表于 2022-2-28 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857081&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-28 01:10</a>
+
+那图上左下角就写的投视频为主啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">还真是，我沉浸在自己的幻想中了，那没事了。视屏势这种带不起观众互动感的只有死路一条
+
+*****
+
+####  稀勢のささ  
+##### 5788#       发表于 2022-2-28 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857098&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-2-28 01:13</a>
+这个消息是发在哪个平台上啊</blockquote>
+某杂志电子版的消息  大概明天官号会发吧
+
+*****
+
+####  一个陆仁贾  
+##### 5789#       发表于 2022-2-28 01:17
+
+智障爱刚沉睡，LL这边就弄了一个<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aoaoaodedede  
+##### 5790#       发表于 2022-2-28 01:19
+
+不太了解以前的情况，话说企划之前有过什么比较重要的消息是先公布在杂志上的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
