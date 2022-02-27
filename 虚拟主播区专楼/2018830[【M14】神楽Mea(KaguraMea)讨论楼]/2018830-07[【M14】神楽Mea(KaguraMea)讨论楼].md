@@ -4696,3 +4696,12 @@ syl，这是苔苔的号吧，前面mishiro联动的时候应该确实是没走�
 
 上来就这么快乐
 
+
+
+*****
+
+####  古战场亡魂  
+##### 9521#       发表于 2022-2-27 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">过于关注乌克兰局势，差点忘了看直播
+

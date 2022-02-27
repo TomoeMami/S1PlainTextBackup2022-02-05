@@ -6360,3 +6360,14 @@ Connor还是为爱套皮了，明天首播
 
 2022-2-27 22:28 上传
 
+
+
+*****
+
+####  fastary  
+##### 11069#       发表于 2022-2-27 22:31
+
+还是没忍住点进去看了眼白毛的2.0，这不是完全不装了吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+健谈语速又快情绪也高，因为bl男的属性搞得我莫名觉得魂像个男大姐（虽然声音和语法完全男性<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
