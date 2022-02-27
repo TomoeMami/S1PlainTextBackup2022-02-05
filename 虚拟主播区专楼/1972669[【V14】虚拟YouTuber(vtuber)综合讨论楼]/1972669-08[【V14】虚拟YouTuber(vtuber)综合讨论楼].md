@@ -5872,3 +5872,103 @@ uki这也太gay了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 我超，我他妈第一句听到白毛的夹子音就忍不住把音量关了
 
+
+
+*****
+
+####  撕叁  
+##### 11026#       发表于 2022-2-27 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这是什么中二病晚期
+
+*****
+
+####  kadija  
+##### 11027#       发表于 2022-2-27 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54848348&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-27 11:20</a>
+只会英文和一点日文，这位总是白皮了吧感觉棕毛会是5期的领头，皮好看爱笑也会色自己
+
+感觉跟mysta可能是类 ...</blockquote>
+网图已经出来了，白皮
+
+*****
+
+####  喜闻乐见  
+##### 11028#       发表于 2022-2-27 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54842910&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-2-26 20:46</a>
+
+求个始皇B站完整录播+弹幕（）</blockquote>
+nyaa上有人传了，下载看了下还不错
+[https://nyaa.si/view/1495709](https://nyaa.si/view/1495709)
+
+*****
+
+####  fastary  
+##### 11029#       发表于 2022-2-27 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54848642&amp;ptid=1972669" target="_blank">kadija 发表于 2022-2-27 11:48</a>
+
+网图已经出来了，白皮</blockquote>
+确定是ritaka的话确实是白皮
+
+syl
+
+vox的时候我觉得还蛮涩的，但是白毛压太低了就觉得是不是看vox火所以特意掐这么低，说实话没必要而且显得有点油……劝你赶紧别装了对大家都好
+
+关了声音看皮倒是挺帅<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+只会英语，也是白皮？
+
+*****
+
+####  rzrbtk  
+##### 11030#       发表于 2022-2-27 11:55
+
+ 本帖最后由 rzrbtk 于 2022-2-27 12:02 编辑 
+
+宜家和reimu的反应把我看笑了
+
+*****
+
+####  fastary  
+##### 11031#       发表于 2022-2-27 11:58
+
+ 本帖最后由 fastary 于 2022-2-27 12:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">4chan特出来没有啊我要听听他前世有没有这么气泡音，哈人爱好倒是毫不避讳喜欢bl相关，这国漫分类一出我……然而并救不回你的简中风评更何况还喜欢无职
+
+别提你那vox akuma了，别蹭了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你会不会排版啊！！！！！不会找个人帮你看看啊！！
+
+*****
+
+####  布莱士·西伯利  
+##### 11032#       发表于 2022-2-27 11:59
+
+ 本帖最后由 布莱士·西伯利 于 2022-2-27 12:02 编辑 
+
+其实动画品味还行？
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">怎么都不说喜欢彩虹小马？
+
+*****
+
+####  alcoholic1000  
+##### 11033#       发表于 2022-2-27 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54848734&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-27 11:58</a>
+
+4chan特出来没有啊我要听听他前世有没有这么气泡音，哈人</blockquote>
+第一个特出来的就是他，懒得引了你翻我记录
+
+Syll，能不能开掉，太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  撕叁  
+##### 11034#       发表于 2022-2-27 12:03
+
+他这个是纯rp吧，前世直播完全不这样
+
