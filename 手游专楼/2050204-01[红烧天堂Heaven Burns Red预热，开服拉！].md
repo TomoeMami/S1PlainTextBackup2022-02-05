@@ -2302,3 +2302,14 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 趁着周末赶了下进度，目前在攻略装饰5迷宫。每一层的强敌那两个弱斩的黄色大轮子太恶心了，3个斩ssr的轮番 ...</blockquote>
 主要这游戏送个钻还要开限时推主线任务，虽然是个单机但是也是拿时间赶着你推主线。而且从这游戏目前的养成深度来看，囤着不抽等喜欢的角色，到最后可能主线都给你卡住。
 
+
+
+*****
+
+####  astoria  
+##### 205#       发表于 2022-2-27 18:08
+
+赶在月底前通了第二章 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+明天可以继续<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 了
+

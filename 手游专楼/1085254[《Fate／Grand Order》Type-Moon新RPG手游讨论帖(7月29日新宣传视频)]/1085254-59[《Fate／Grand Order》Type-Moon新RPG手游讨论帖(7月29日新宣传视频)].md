@@ -855,3 +855,12 @@ A狐，刷本习惯打手放三号位
 现在就等一个不复课了  玩家想到的.舍弃(</blockquote>
 然后剧透里的眼镜男还是npc，哈哈哈哈哈
 
+
+
+*****
+
+####  miro112233  
+##### 87079#       发表于 2022-2-27 18:22
+
+YLS暗示2.7在年底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个12月下旬实装
+

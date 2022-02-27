@@ -4988,3 +4988,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 又改名了，主播收到的SC都變成了LoL改名卡了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13997#       发表于 2022-2-27 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这周是不是直接摸完了
+

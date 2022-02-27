@@ -2982,3 +2982,17 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 — from HUAWEI LYA-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  thez  
+##### 266#       发表于 2022-2-27 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54851283&amp;ptid=2051152" target="_blank">g54088 发表于 2022-2-27 16:38</a>
+
+养成是只有强化武器那部分吗？还有不能换武器和转职吗？
+
+— from HUAWEI LYA-AL00, Android 10 of S1 Next ...</blockquote>
+不能，人物和职业武器都绑定的，没火纹那么高自由度
+

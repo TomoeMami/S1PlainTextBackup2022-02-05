@@ -6141,3 +6141,15 @@ en男不光有基友，还有cp的吗
 
 是每个人都有吗？
 
+
+
+*****
+
+####  FCCHua  
+##### 11052#       发表于 2022-2-27 18:18
+
+ 本帖最后由 FCCHua 于 2022-2-27 18:23 编辑 
+
+看了眼虹valo，什么碾压局<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl 确实有异性cp，但是是不是每个人都有没数过
+
