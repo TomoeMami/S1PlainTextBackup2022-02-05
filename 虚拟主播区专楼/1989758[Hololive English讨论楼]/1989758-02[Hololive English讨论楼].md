@@ -1676,3 +1676,12 @@ image.png
 
 好了确认了，Gura前阵子确实是Covid，加上这次off collab比较突然，所以没去成
 
+
+
+*****
+
+####  M1NG  
+##### 1654#       发表于 2022-2-27 14:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">确实也猜得到，之前病的那么久那么严重，又在美国这地儿，多半是新冠了。没事康复就好
+
