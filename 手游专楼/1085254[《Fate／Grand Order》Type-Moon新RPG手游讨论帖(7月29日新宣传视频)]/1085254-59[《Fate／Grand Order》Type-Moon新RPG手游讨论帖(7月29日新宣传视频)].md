@@ -946,3 +946,23 @@ dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquo
 dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquote>
 3技能每回合50NP，每回合50宝威可叠加<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87088#       发表于 2022-2-27 23:20
+
+还有法拉第的确是眼镜相关
+
+圣遗物，法拉第博物馆收藏的法拉第生前佩戴的安全眼镜
+
+1-faradays-safety-glasses-science-photo-library.jpg
+(59.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-27 23:20 上传
+
+<img src="https://img.saraba1st.com/forum/202202/27/232046xov1i3kuubuiinkv.jpg" referrerpolicy="no-referrer">
+
