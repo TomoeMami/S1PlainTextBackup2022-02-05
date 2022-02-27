@@ -6258,3 +6258,21 @@ Yugo Asuma 首播：是日本人，是女性，大概率是Ike电话簿招人（
 
 英语确实很弱，不知道为什么去en了，可能语种以多取胜
 
+
+
+*****
+
+####  FCCHua  
+##### 11061#       发表于 2022-2-27 21:28
+
+ 本帖最后由 FCCHua 于 2022-2-27 21:33 编辑 
+
+哈弟他们三现在在直播，merise改名NeoPorte，会有六名新人，三男三女<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 11062#       发表于 2022-2-27 21:45
+
+会不会有bora
+
