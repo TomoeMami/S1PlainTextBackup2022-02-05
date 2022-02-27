@@ -15977,3 +15977,14 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 直播势除非想ASOUL那样一周播个几小时，不然跟一般套皮管人也没啥区别了吧。播得多的话肯定是RP不过来的，结果就是既不虚拟也不学院只剩下偶像了
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5811#       发表于 2022-2-28 06:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">卧槽……
+
+意味不明，这是看AS快凉透了换个地方收定期米？
+
