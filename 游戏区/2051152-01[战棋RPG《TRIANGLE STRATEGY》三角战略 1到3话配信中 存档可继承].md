@@ -2955,3 +2955,19 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 <img src="https://assets.rpgsite.net/images/images/000/109/208/original/Triangle-Strategy_Groma-Yulgina.jpg" referrerpolicy="no-referrer">
 爱丽丝老了之后是不是差不多这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  geniuswu  
+##### 264#       发表于 2022-2-27 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54809077&amp;ptid=2051152" target="_blank">Magnesium 发表于 2022-2-23 22:14</a>
+
+军师看起来过于正直以至于让人觉得他日后会反水
+
+女主粉毛自带黑化属性</blockquote>
+记得在最早的试玩版里炸药专家死了
+
+还成了雪国出兵的借口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
