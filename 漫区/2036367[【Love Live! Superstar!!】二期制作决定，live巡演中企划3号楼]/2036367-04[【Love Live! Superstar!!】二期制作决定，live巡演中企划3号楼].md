@@ -15805,3 +15805,175 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 
 我看这操作国内全在骂，鬼子那边啥反应
 
+
+
+*****
+
+####  Enakina  
+##### 5793#       发表于 2022-2-28 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857240&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-02-28 01:33:23</a>
+我看这操作国内全在骂，鬼子那边啥反应</blockquote>疑惑，不看好，震惊。以及吐槽liella是不是太短命了，liella成员个人活动变多是不是有小道消息了，还看见了个吐槽小百合人气要大跌了的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑雪姫  
+##### 5794#       发表于 2022-2-28 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857293&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-2-28 01:43</a>
+
+疑惑，不看好，震惊。以及吐槽liella是不是太短命了，liella成员个人活动变多是不是有小道消息了，还看见了 ...</blockquote>
+星团还行吧，至少第二季动画是板上钉钉的不是年底就是明年，至少明年肯定是有活动，应该担心虹，虹的资源全砸在今年了，而这个新团今年撑死公布角色声优，要上轨起码明年，所以要抢资源起码的明年。
+
+*****
+
+####  Enakina  
+##### 5795#       发表于 2022-2-28 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857317&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-02-28 01:48:11</a>
+星团还行吧，至少第二季动画是板上钉钉的不是年底就是明年，至少明年肯定是有活动，应该担心虹，虹的资源 ...</blockquote>5ch图一乐而已，都是张嘴就来的，整体还是不看好的多，等发推就知道了，推特上都唱衰，那才是比较能说明问题的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 5796#       发表于 2022-2-28 01:55
+
+深夜做个调查:一专买两个版本的人多吗(
+
+*****
+
+####  iuhehc  
+##### 5797#       发表于 2022-2-28 01:59
+
+ 本帖最后由 iuhehc 于 2022-2-28 02:01 编辑 
+
+这个管人企划起步估摸和水虹星不是一个量级的，至少资源不是，情报都还没出完 不看好
+
+这一出要么就吸现有日v受众，跟企业势竞争要么就是从ll企划内部吸，这要是吸一波日v观众那怕不是..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 5798#       发表于 2022-2-28 02:03
+
+除非和那两家合作，不然并不觉得能抢到多少日v受众，感觉到时候还是现有企划粉丝被薅<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5799#       发表于 2022-2-28 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857366&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-2-28 01:59</a>
+这个管人企划起步估摸和水虹星不是一个量级的，至少资源不是，情报都还没出完 不看好
+
+这一出要么就吸现有日 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挣钱最多的是直播势  皮套过一次生日能收五次米那种  那张图里说的投视频的模式18年就被卷死的差不多了 吃屎都赶不上热的
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5800#       发表于 2022-2-28 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857353&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-2-28 01:55</a>
+
+深夜做个调查:一专买两个版本的人多吗(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就买了真人封面
+
+*****
+
+####  iuhehc  
+##### 5801#       发表于 2022-2-28 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857388&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-28 02:04</a>
+
+挣钱最多的是直播势  皮套过一次生日能收五次米那种  那张图里说的投视频的模式18年就被卷死的差 ...</blockquote>
+就是现在情报也没多少，虽然写的是动画视频为主体也保不准之后不像直播势那样，不然纯视频势我想不到有多能盈利的地方，
+
+*****
+
+####  稀勢のささ  
+##### 5802#       发表于 2022-2-28 02:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857428&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-2-28 02:13</a>
+就是现在情报也没多少，虽然写的是动画视频为主体也保不准之后不像直播势那样，不然纯视频势我想不到有多 ...</blockquote>
+搞直播又能有多大效果呢 始皇帝坐拥300万粉丝 直播也没少搞 这不刚嗷的一声就躺下去了
+
+*****
+
+####  黑雪姫  
+##### 5803#       发表于 2022-2-28 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857380&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2022-2-28 02:03</a>
+
+除非和那两家合作，不然并不觉得能抢到多少日v受众，感觉到时候还是现有企划粉丝被薅 ...</blockquote>
+和某家合作，是嫌国内死的不够快是吗。
+
+*****
+
+####  黑雪姫  
+##### 5804#       发表于 2022-2-28 02:25
+
+话说我有个脑洞，以现在企划方想吧LL往外推出国的想法，可能这次新成员有英语圈华语圈等等语言各国地区的角色也说不定。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 5805#       发表于 2022-2-28 02:31
+
+ 本帖最后由 iuhehc 于 2022-2-28 02:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857448&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-28 02:19</a>
+
+搞直播又能有多大效果呢 始皇帝坐拥300万粉丝 直播也没少搞 这不刚嗷的一声就躺下去了 ...</blockquote>
+所以不看好，除非企划粉大部分买单，像杏新人‘出道即银盾’那样，内部粘性很高的观众打基础且一直在引新观众，不然就是纯纯的对内消耗企划粉粘性
+
+*****
+
+####  稀勢のささ  
+##### 5806#       发表于 2022-2-28 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857471&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-2-28 02:25</a>
+话说我有个脑洞，以现在企划方想吧LL往外推出国的想法，可能这次新成员有英语圈华语圈等等语言各国地区的角 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实有可能出  然后刚一出门就看到几个海外箱的坟头草了
+
+*****
+
+####  稀勢のささ  
+##### 5807#       发表于 2022-2-28 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857366&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-2-28 01:59</a>
+这个管人企划起步估摸和水虹星不是一个量级的，至少资源不是，情报都还没出完 不看好
+
+这一出要么就吸现有日 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我想说的是这玩意基本只可能吸内部粉 犯困了字没打完
+
+*****
+
+####  iuhehc  
+##### 5808#       发表于 2022-2-28 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857509&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-28 02:36</a>
+
+我想说的是这玩意基本只可能吸内部粉 犯困了字没打完</blockquote>
+想往内吸也不知企划粉买不买单，看5ch感觉参考价值不太大，体感这边不看好的声音还是挺大的
+
+*****
+
+####  稀勢のささ  
+##### 5809#       发表于 2022-2-28 02:55
+
+ 本帖最后由 稀勢のささ 于 2022-2-28 03:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857547&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-2-28 02:48</a>
+想往内吸也不知企划粉买不买单，看5ch感觉参考价值不太大，体感这边不看好的声音还是挺大的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果跟管人粉都一个德行的话那肯定是吸不了的 毕竟对底边平时连看都懒得多看一眼 但关键问题是别人底边就躺好吃箱推红利就完事了 他这企划还要搞live发碟吃资源
+
+*****
+
+####  lanslort  
+##### 5810#       发表于 2022-2-28 05:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 直播势除非想ASOUL那样一周播个几小时，不然跟一般套皮管人也没啥区别了吧。播得多的话肯定是RP不过来的，结果就是既不虚拟也不学院只剩下偶像了
+
