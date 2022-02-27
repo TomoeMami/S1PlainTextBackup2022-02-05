@@ -925,3 +925,24 @@ dps已经够了 现在需要一个50-100充来重新定义红卡光炮<img src="
 dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">三技能来加个充能每回合出星和爆伤吧 
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87086#       发表于 2022-2-27 20:28
+
+新的那位迈克尔莫非是迈克尔·法拉第<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+又一个雷系法师
+
+*****
+
+####  khxooo  
+##### 87087#       发表于 2022-2-27 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54853181&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-27 19:49</a>
+
+dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquote>
+3技能每回合50NP，每回合50宝威可叠加<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

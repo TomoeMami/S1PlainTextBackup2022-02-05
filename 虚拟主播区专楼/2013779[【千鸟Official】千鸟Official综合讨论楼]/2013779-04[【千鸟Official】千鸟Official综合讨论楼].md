@@ -10343,3 +10343,12 @@ co宝狡辩时的语气越来越静化了 ↗↘
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">想文静了
 
+
+
+*****
+
+####  伞沢直美  
+##### 5589#       发表于 2022-2-27 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">co宝断电润了，9点官号应该有静子？
+
