@@ -883,3 +883,15 @@ YLS暗示2.7在年底了<img src="https://static.saraba1st.com/image/smiley/face
 狂娜复刻顺带开强化本好不好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单点30变50冲 重新定义红卡光炮
 
+
+
+*****
+
+####  qixinno2  
+##### 87082#       发表于 2022-2-27 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54852887&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-27 19:17</a>
+
+简单点30变50冲 重新定义红卡光炮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">直接宝具本 宝具前置降红卡耐性效果无视弱体无效 宝具后棉被王同款重蓄力
+

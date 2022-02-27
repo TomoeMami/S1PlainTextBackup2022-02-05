@@ -2313,3 +2313,12 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 明天可以继续<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 了
 
+
+
+*****
+
+####  キラ様  
+##### 206#       发表于 2022-2-27 19:34
+
+官方出公告说Ban了16622个违规号
+
