@@ -6229,3 +6229,32 @@ https://twitter.com/hh_cross_events/status/1495639421055651840
 
 刀？
 
+
+
+*****
+
+####  purdre  
+##### 11058#       发表于 2022-2-27 20:53
+
+黑黑演唱会还可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+有点 production value的
+
+*****
+
+####  Suny08  
+##### 11059#       发表于 2022-2-27 20:57
+
+看样子en蓝毛是个日裔啊，目标还有练英语的，这很虹en
+
+*****
+
+####  alcoholic1000  
+##### 11060#       发表于 2022-2-27 21:01
+
+黑黑重大发表：每周番组，A店联动的第二弹；给建了个教堂模型跑剧情
+
+Yugo Asuma 首播：是日本人，是女性，大概率是Ike电话簿招人（暂时未特到），日韩英泰四语，音乐系
+
+英语确实很弱，不知道为什么去en了，可能语种以多取胜
+
