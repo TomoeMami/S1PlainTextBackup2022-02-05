@@ -6310,3 +6310,53 @@ Yugo Asuma 首播：是日本人，是女性，大概率是Ike电话簿招人（
 
 说实话哈弟这两年从A8到吸虹血到自己建有超大物加盟的箱什么水平？感觉V圈第一战略家了。
 
+
+
+*****
+
+####  winda  
+##### 11065#       发表于 2022-2-27 22:15
+
+人可是从pubg登龙门时代就有v最协的宣称权了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是ojiji半路杀出个cr杯弯道超车，把drm同接从3千养到4万更厉害
+
+*****
+
+####  Porsche  
+##### 11066#       发表于 2022-2-27 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54854562&amp;ptid=1972669" target="_blank">free 发表于 2022-2-27 21:52</a>
+江 哥脱了皮玩的也好开心
+
+https://twitter.com/BabutarOfficial/status/1497908743476244480</blockquote>
+最右那个花篮<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dclara1  
+##### 11067#       发表于 2022-2-27 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54840617&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-2-26 17:18</a>
+
+Connor还是为爱套皮了，明天首播
+
+什么《跨越次元的爱恋》</blockquote>
+原来铁耗子讨论在这楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 今天看到timer又被顶到25小时，原来是connor套皮debut帮忙拉了一波大的
+
+*****
+
+####  dclara1  
+##### 11068#       发表于 2022-2-27 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54840645&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-2-26 17:21</a>
+
+铁老鼠现在是老鼠台皮套一姐了吧</blockquote>
+不止是一姐，还是一哥，努力点下周达成倍杀xqc有望 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/27/222836esgp9lgciisgc1c3.png" referrerpolicy="no-referrer">
+
+<strong>ironmouse.png</strong> (42.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-27 22:28 上传
+
