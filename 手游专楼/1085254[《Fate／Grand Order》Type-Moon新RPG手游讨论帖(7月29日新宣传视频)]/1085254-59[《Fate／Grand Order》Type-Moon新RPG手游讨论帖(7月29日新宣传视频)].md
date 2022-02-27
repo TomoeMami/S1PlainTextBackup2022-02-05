@@ -895,3 +895,33 @@ YLS暗示2.7在年底了<img src="https://static.saraba1st.com/image/smiley/face
 简单点30变50冲 重新定义红卡光炮</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">直接宝具本 宝具前置降红卡耐性效果无视弱体无效 宝具后棉被王同款重蓄力
 
+
+
+*****
+
+####  alucardcz  
+##### 87083#       发表于 2022-2-27 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54853076&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-27 19:39</a>
+
+直接宝具本 宝具前置降红卡耐性效果无视弱体无效 宝具后棉被王同款重蓄力 ...</blockquote>
+dps已经够了 现在需要一个50-100充来重新定义红卡光炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 87084#       发表于 2022-2-27 19:55
+
+来个100自充不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫新时代的神啊
+
+*****
+
+####  qixinno2  
+##### 87085#       发表于 2022-2-27 19:55
+
+ 本帖最后由 qixinno2 于 2022-2-27 19:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54853181&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-27 19:49</a>
+
+dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">三技能来加个充能每回合出星和爆伤吧 
+

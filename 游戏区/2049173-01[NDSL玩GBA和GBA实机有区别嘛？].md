@@ -2540,3 +2540,20 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 
 这个原装壳和屏幕虽然还能用但……会有人要么。
 
+
+
+*****
+
+####  zris  
+##### 191#         楼主| 发表于 2022-2-27 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54850332&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-27 14:52</a>
+镜面终于到了
+
+于是折腾屏幕这玩意也告一段落…剩下的就是电池问题
+
+虽然可以上锂电池包方案但是又感觉不好 ...</blockquote>
+我折腾下来替换的那些，我都打算到时候当零件卖了。电池我最近在搞sp，gba的还没弄，你打算用啥，到时候要不等你的报告了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
