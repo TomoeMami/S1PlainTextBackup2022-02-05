@@ -6057,3 +6057,47 @@ DJまだ～？<img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 
 不过yugo感觉蛮可爱的，期待期待。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 11044#       发表于 2022-2-27 13:05
+
+en男二同接大概多少
+
+syl，vspo好像在开辟twitch第二战场
+
+*****
+
+####  kadija  
+##### 11045#       发表于 2022-2-27 13:06
+
+听说蓝毛魂是跨性别，🌈真的把lgbt这块拿的死死的
+
+*****
+
+####  alcoholic1000  
+##### 11046#       发表于 2022-2-27 13:10
+
+ 本帖最后由 alcoholic1000 于 2022-2-27 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54849418&amp;ptid=1972669" target="_blank">kadija 发表于 2022-2-27 13:06</a>
+
+听说蓝毛魂是跨性别，🌈真的把lgbt这块拿的死死的</blockquote>
+紫毛Uki Violeta，韩裔是Non-Binary非二元性别
+
+蓝毛Yugo Asuma皮下应该是女性（没首播不能排除ftm等一些复杂情况），暂时没特出来
+
+Syl，这期有点难以评价，首播前整整三位成员的首播试配信被提前泄露，出道曲在其他平台提前泄露，首播事故（算是v届传统美德？）
+
+但吃en男红利&amp;专武应该也能起来
+
+观测到峰值66k，最低也有50k
+
+*****
+
+####  winda  
+##### 11047#       发表于 2022-2-27 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿仙，aki，胜也好，弦月，梅丽莎也好，总体都是往中性人设在偏，yugo这次的皮有点太男性化了
+
