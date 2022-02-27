@@ -2235,3 +2235,15 @@ pv压轴站C位，个人剧情已经开完2话，第二话里甚至还立了个�
 
 说吧，氪多少可以和ななみんH
 
+
+
+*****
+
+####  蕾丝  
+##### 200#       发表于 2022-2-27 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54842626&amp;ptid=2050204" target="_blank">rsa1zc 发表于 2022-2-26 20:28</a></blockquote>
+惠惠不说话就是大美人啊
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+

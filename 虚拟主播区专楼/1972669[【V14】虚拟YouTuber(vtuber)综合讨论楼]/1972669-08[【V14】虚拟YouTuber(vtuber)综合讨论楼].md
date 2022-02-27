@@ -5710,3 +5710,12 @@ V圈怎么走到这地步的...<img src="https://static.saraba1st.com/image/smil
 
 当年刚开始进军英语圈的时候，就有贷款V触犯欧美zzzq的了
 
+
+
+*****
+
+####  fastary  
+##### 11009#       发表于 2022-2-27 10:19
+
+sonny这声音……神秘地第一次让我回想起了vtb=cute anime boy这句话（褒义
+
