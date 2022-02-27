@@ -15677,3 +15677,59 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 真要发虚拟角**还不如原有的成员上呢，正好把缺的二次元部分补上
 
+
+
+*****
+
+####  Norkey1  
+##### 5778#       发表于 2022-2-28 00:41
+
+搞管人？那我直接搬来凳子看乐子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5779#       发表于 2022-2-28 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54856647&amp;ptid=2036367" target="_blank">lj205 发表于 2022-02-28 00:15:51</a>
+我想法也是跟5765楼那位兄弟一样
+
+就怕还找holo合作</blockquote>那我只能说大家一起死吧，没救了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5780#       发表于 2022-2-28 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">企划你行不行啊
+
+*****
+
+####  稀勢のささ  
+##### 5781#       发表于 2022-2-28 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2022年给你整视频势管人真的劲爆大象部落  看好一年之内暴毙
+
+*****
+
+####  稀勢のささ  
+##### 5782#       发表于 2022-2-28 00:48
+
+风怒
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5783#       发表于 2022-2-28 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5784#       发表于 2022-2-28 00:57
+
+以前.live不是有偶像部吗，虽然……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
