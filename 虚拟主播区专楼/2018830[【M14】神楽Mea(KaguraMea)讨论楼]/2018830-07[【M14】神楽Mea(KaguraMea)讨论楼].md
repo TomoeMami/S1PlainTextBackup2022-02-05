@@ -4658,3 +4658,14 @@ syl，这是苔苔的号吧，前面mishiro联动的时候应该确实是没走�
 
 苔苔能不能再抬一手给你麻整个糖糖官方配音啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pei23333  
+##### 9517#       发表于 2022-2-27 20:16
+
+10点有薛定谔的一播，俺寻思要摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

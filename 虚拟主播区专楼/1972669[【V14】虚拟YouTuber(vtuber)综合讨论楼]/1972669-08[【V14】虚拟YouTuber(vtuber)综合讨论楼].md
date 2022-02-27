@@ -6178,3 +6178,54 @@ syl 确实有异性cp，但是是不是每个人都有没数过
 
 我觉得nrk这组不比葵组弱啊，nrk太强了
 
+
+
+*****
+
+####  free  
+##### 11056#       发表于 2022-2-27 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54784001&amp;ptid=1972669" target="_blank">free 发表于 2022-2-21 23:48</a>
+
+https://twitter.com/hh_cross_events/status/1495639421055651840
+
+🎵3/12、13開催！JM梅田ミュージックフ ...</blockquote>
+[https://twitter.com/hh_cross_events/status/1497876337511780354](https://twitter.com/hh_cross_events/status/1497876337511780354)
+[https://www.hhcross.hankyu-hanshin.jp/events/jm_umeda/](https://www.hhcross.hankyu-hanshin.jp/events/jm_umeda/)
+
+🎵3/12、13開催！JM梅田ミュージックフェス🎵
+
+遂に全出演者公開＆チケット発売開始🌟
+
+#初音ミク
+
+#北斗の拳 ケンシロウ
+
+#96猫
+
+ここでしか見られないスペシャルライブを披露❣
+
+総勢53名の人気VTuber、バーチャルアーティストが「#JM梅田」に大集結です！
+
+<img src="https://img.saraba1st.com/forum/202202/27/200845wawhac4g34kicgzh.jpg" referrerpolicy="no-referrer">
+
+<strong>V.jpg</strong> (330.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-27 20:08 上传
+
+初音和健次郎在虚拟阪急百货门口开live，太V了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑之和  
+##### 11057#       发表于 2022-2-27 20:21
+
+ 本帖最后由 黑之和 于 2022-2-27 20:24 编辑 
+
+大串烧？！
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+刀？
+
