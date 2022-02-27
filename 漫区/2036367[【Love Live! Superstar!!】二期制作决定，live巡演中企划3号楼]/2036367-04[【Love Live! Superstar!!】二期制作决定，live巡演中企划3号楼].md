@@ -15621,3 +15621,59 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下真得转到vtb区了（误）
 
+
+
+*****
+
+####  cybernetics31  
+##### 5772#       发表于 2022-2-28 00:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">企划你让菜宝套个懒猪的皮直播得了，隔壁黄金船那个效果就挺好的
+
+*****
+
+####  nufawneafg  
+##### 5773#       发表于 2022-2-28 00:24
+
+ 本帖最后由 nufawneafg 于 2022-2-28 00:39 编辑 
+
+啥<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+这...万南你要真想吃管人这口饭单拉个企划不香嘛，这不相当于腾笼换鸟，你对拉拉的定位是啥<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+现在不是2019或者2020年了呀，不理解
+你是对自己的音乐产出很有自信还是觉得这领域不饱和，你这那边也不沾啊
+说到22/7这就还牵涉艺人合同问题，就以往成功综合企划偶拉邦歌马这种而言，那也是多方合同，保证合作大于竞争。你这艺人经纪要怎么签？挂靠？单拉？你bna也不干艺人经纪工作啊
+
+*****
+
+####  iuhehc  
+##### 5774#       发表于 2022-2-28 00:28
+
+ 本帖最后由 iuhehc 于 2022-2-28 00:35 编辑 
+
+日v已经够卷了吧，现在去分一杯羹是不是太晚了，总感觉怪怪的希望水虹星都别沾管人
+
+就突然想起来之前德龙还在公式油管那有个视频，和烂铁签约的管人之间有联动可能说不定，反正个人是不看好能砸出多大水花
+
+这玩意也不知道是找好人了还是再公募
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5775#       发表于 2022-2-28 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">仔细想了下这不就是22/7吗，虚拟就虚拟在采用的是网络流媒体的形式，恐怕没有动画而是做视频，用vtb那样的运营方式。不过这样的话我很好奇怎么引入真人
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5776#       发表于 2022-2-28 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">油管发视屏，内容包括但不限于在这个虚拟校园内的日常生活、社团活动、组内成员互动这样。推特上采用声优rp的方式运营虚拟角色的账号来和粉丝进行互动。如果做的好的话我觉得效果还是不错的，但是嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 5777#       发表于 2022-2-28 00:37
+
+真要发虚拟角**还不如原有的成员上呢，正好把缺的二次元部分补上
+

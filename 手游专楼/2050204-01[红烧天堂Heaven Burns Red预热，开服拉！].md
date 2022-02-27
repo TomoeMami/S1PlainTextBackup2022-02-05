@@ -2333,3 +2333,14 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 长草没事做整天半挂机刷技能也蛮痛苦的
 
+
+
+*****
+
+####  meailove  
+##### 208#       发表于 2022-2-28 00:22
+
+各位可以去阿b看看战斗曲的翻译，原来一开始就剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">特别是indigo in blue这首，麻子的填词太好了，明明进入战斗听的时候还感觉很带感
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
