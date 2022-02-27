@@ -4731,3 +4731,28 @@ syl，这是苔苔的号吧，前面mishiro联动的时候应该确实是没走�
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 9524#       发表于 2022-2-28 01:37
+
+<img src="https://img.saraba1st.com/forum/202202/28/013702c8yyanb4tvyy1yym.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220228013626.png</strong> (40.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 01:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/28/013703k4lc2dpmlslyykod.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220228013634.png</strong> (48.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 01:37 上传
+
+就是本人！就是本人！
+

@@ -15787,3 +15787,21 @@ CBDA10DF-8B94-4CB2-A288-3920C2BBBF9E.jpeg
 
 不太了解以前的情况，话说企划之前有过什么比较重要的消息是先公布在杂志上的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 5791#       发表于 2022-2-28 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857152&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-2-28 01:19</a>
+不太了解以前的情况，话说企划之前有过什么比较重要的消息是先公布在杂志上的吗 ...</blockquote>
+Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑雪姫  
+##### 5792#       发表于 2022-2-28 01:33
+
+我看这操作国内全在骂，鬼子那边啥反应
+
