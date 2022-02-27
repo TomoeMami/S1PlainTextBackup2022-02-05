@@ -5719,3 +5719,27 @@ V圈怎么走到这地步的...<img src="https://static.saraba1st.com/image/smil
 
 sonny这声音……神秘地第一次让我回想起了vtb=cute anime boy这句话（褒义
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11010#       发表于 2022-2-27 10:30
+
+ 本帖最后由 alcoholic1000 于 2022-2-27 10:43 编辑 
+
+第一个荧光老哥，感觉能处，游戏池和爱好浓度都可以
+
+天元突破、おやすみプンプン、银英、星际牛仔、人类衰退、幸运星、eva、jojo、刃牙、锯、nhk
+
+TITANFALL 2!MGS难怪/vt/直呼这是我们的人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 11011#       发表于 2022-2-27 10:47
+
+多出翻唱，爱听<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+

@@ -2247,3 +2247,16 @@ pv压轴站C位，个人剧情已经开完2话，第二话里甚至还立了个�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  蕾丝  
+##### 201#       发表于 2022-2-27 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54846014&amp;ptid=2050204" target="_blank">zeroed 发表于 2022-2-27 01:09</a>
+说吧，氪多少可以和ななみんH</blockquote>
+nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+

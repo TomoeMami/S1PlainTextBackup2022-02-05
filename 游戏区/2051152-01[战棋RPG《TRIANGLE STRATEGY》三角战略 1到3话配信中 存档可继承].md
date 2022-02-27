@@ -2936,3 +2936,12 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 —— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
 没错没错！会不会是为所有人都可能背叛做的铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓮華  
+##### 262#       发表于 2022-2-27 10:40
+
+这个罗洁尔族是不是和战场女武神里的达鲁库斯族差不多的
+
