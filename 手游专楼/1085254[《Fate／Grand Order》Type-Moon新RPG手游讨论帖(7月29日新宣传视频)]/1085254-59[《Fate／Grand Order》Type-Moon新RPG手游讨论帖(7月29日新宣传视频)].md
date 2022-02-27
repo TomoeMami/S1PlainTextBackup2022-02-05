@@ -766,3 +766,26 @@ A狐，刷本习惯打手放三号位
 
 然后我发现今年周年的福袋我可能真没东西要抽了……
 
+
+
+*****
+
+####  alucardcz  
+##### 87069#       发表于 2022-2-27 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回狂娜总该复课了  都这样了
+
+*****
+
+####  khxooo  
+##### 87070#       发表于 2022-2-27 17:24
+
+肯定狂那复刻，这个不用想。Banner都是他了。
+
+*****
+
+####  alucardcz  
+##### 87071#       发表于 2022-2-27 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Myroom同时放两个人了能不能永久实装 正好放个黑贞和黑呆
+
