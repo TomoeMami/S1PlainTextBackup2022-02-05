@@ -15403,3 +15403,21 @@ DD噩梦，只推一个勉强还可以
 
 虹结束那个二维码是不是能反馈意见的，谁日语好去说一下？
 
+
+
+*****
+
+####  megapikachu  
+##### 5749#       发表于 2022-2-27 21:05
+
+跨年的加料重播开始了
+
+*****
+
+####  player3960  
+##### 5750#       发表于 2022-2-27 21:14
+
+多了好多新镜头，还有远景变多了，到时候可以对比一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
