@@ -6276,3 +6276,37 @@ Yugo Asuma 首播：是日本人，是女性，大概率是Ike电话簿招人（
 
 会不会有bora
 
+
+
+*****
+
+####  free  
+##### 11063#       发表于 2022-2-27 21:52
+
+江 哥脱了皮玩的也好开心<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/BabutarOfficial/status/1497908743476244480](https://twitter.com/BabutarOfficial/status/1497908743476244480)
+
+本日は #へっぽこばぶ太郎生誕祭2022 にお越し頂きまして本当にありがとうございました！！！！！！！
+
+話したかったことの２割程度しか話せなかったしめちゃくちゃ緊張したけどほんっっっっっとうに楽しかった！！！！！！！😸🖤
+
+最高の思い出です。また会おう！！！！！
+
+大好きだ！！！！！！！！
+
+<img src="https://img.saraba1st.com/forum/202202/27/215209jht1qz1zxx2e8x1o.jpg" referrerpolicy="no-referrer">
+
+<strong>生日会.jpg</strong> (442.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-27 21:52 上传
+
+*****
+
+####  IDIDIDID  
+##### 11064#       发表于 2022-2-27 21:59
+
+说实话哈弟这两年从A8到吸虹血到自己建有超大物加盟的箱什么水平？感觉V圈第一战略家了。
+
