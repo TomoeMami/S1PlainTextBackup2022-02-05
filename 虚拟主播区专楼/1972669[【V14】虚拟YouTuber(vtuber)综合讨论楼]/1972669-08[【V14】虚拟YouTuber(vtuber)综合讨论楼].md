@@ -5743,3 +5743,32 @@ TITANFALL 2!MGS难怪/vt/直呼这是我们的人<img src="https://static.saraba
 
 多出翻唱，爱听<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 11012#       发表于 2022-2-27 10:53
+
+这就是那个华裔吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 11013#       发表于 2022-2-27 10:55
+
+不止一个华裔？
+
+*****
+
+####  alcoholic1000  
+##### 11014#       发表于 2022-2-27 10:56
+
+ 本帖最后由 alcoholic1000 于 2022-2-27 11:02 编辑 
+
+这是韩裔，华裔不一定进来了，/vt/也在找他
+
+Literal KPOP Idol，皮好点能吸不少女粉吧
+
+漫画池铁男同，除了歌力没什么意思
+
