@@ -5835,3 +5835,40 @@ uki这也太gay了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 东京复仇者到底哪里好看了？
 
+
+
+*****
+
+####  fastary  
+##### 11022#       发表于 2022-2-27 11:32
+
+台长那句话怎么说来着，纯粹的感动.jpg
+
+至少比看英好，是吧
+
+怎么没人看咒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  撕叁  
+##### 11023#       发表于 2022-2-27 11:36
+
+真的是ritaka，皮好看不过我是觉得他前世直播有点无聊
+
+前世经典：被妈妈误会在看色情动画而在直播中爆哭
+[https://streamable.com/tkmfb7](https://streamable.com/tkmfb7)
+
+*****
+
+####  布莱士·西伯利  
+##### 11024#       发表于 2022-2-27 11:37
+
+机械手很好看，我还蛮喜欢这个皮的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 11025#       发表于 2022-2-27 11:41
+
+我超，我他妈第一句听到白毛的夹子音就忍不住把音量关了
+
