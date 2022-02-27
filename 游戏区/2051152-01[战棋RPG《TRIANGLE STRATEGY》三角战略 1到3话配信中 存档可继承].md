@@ -2945,3 +2945,13 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 这个罗洁尔族是不是和战场女武神里的达鲁库斯族差不多的
 
+
+
+*****
+
+####  蓮華  
+##### 263#       发表于 2022-2-27 13:03
+
+<img src="https://assets.rpgsite.net/images/images/000/109/208/original/Triangle-Strategy_Groma-Yulgina.jpg" referrerpolicy="no-referrer">
+爱丽丝老了之后是不是差不多这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
