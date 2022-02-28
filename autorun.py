@@ -68,7 +68,7 @@ if __name__ == '__main__':
     session = requests.session()
     for k in forumdict.keys():
         threadict = {}
-        for i in range(1,4):
+        for i in range(1,3):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = session.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
