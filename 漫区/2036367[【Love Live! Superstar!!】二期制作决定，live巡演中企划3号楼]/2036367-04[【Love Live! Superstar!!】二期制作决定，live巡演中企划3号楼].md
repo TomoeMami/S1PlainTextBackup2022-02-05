@@ -16391,3 +16391,25 @@ PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
 
 本来还对二期动画保留一点点期待的，想着起码是现在主力推的团，但是现在之后怎么样都不好说了，对星团二期动画不抱什么期待了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Skyline_R  
+##### 5856#       发表于 2022-2-28 13:11
+
+欸对，看到楼上说动画的，既然要分资源，那不如把花田大老师也分走罢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Skyline_R  
+##### 5857#       发表于 2022-2-28 13:14
+
+ 本帖最后由 Skyline_R 于 2022-2-28 13:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54860463&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-2-28 11:15</a>
+
+PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+这必然是个新人声优啊，而且是基本没有任何配音经验、没有经过任何专业训练的那种
+
