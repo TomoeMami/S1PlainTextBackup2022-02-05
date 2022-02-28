@@ -16293,3 +16293,36 @@ PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
 配信就是直播的意思啊，你在想什么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">这是那种在某个固定时间投视频的模式。。。。看着确实像直播
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5845#       发表于 2022-2-28 11:41
+
+看了一下，还要出手机app，来顶替扑了的游戏的味道浓
+
+*****
+
+####  寒风夜  
+##### 5846#       发表于 2022-2-28 11:45
+
+ 本帖最后由 寒风夜 于 2022-2-28 11:47 编辑 
+
+直播为主  其他也有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5847#       发表于 2022-2-28 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有app？这app是独立的还是带其他三团一起玩的？别说星团危了，三团资源都得少不少吧。。。。
+还好鱼个人歌手在发展。辣鸡holy pig给点作用啊喂。
+
+*****
+
+####  寒风夜  
+##### 5848#       发表于 2022-2-28 11:49
+
+只能拭目以待了
+
