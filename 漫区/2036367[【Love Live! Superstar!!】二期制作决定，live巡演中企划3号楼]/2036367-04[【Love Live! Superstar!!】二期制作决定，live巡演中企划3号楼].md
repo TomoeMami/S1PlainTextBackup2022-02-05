@@ -16369,3 +16369,25 @@ PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
 就买了真人封面</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来都是真人多
 
+
+
+*****
+
+####  x分裂者  
+##### 5854#       发表于 2022-2-28 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">用互联网黑话就是寻找新的增长点。as基本入土，这个应该类似pdp，星还是缪水过来那一套的传统模式，然后疫情和业界现状基本已经只能确定不变的话只会越来越糟，万代应该是想双线并行。
+
+不过我真不看好，手游通过sif那波火了一次，后面运营越来越糟，新弄了as更是一点风浪都翻不起来，手游这么大的风口都把握不住，虹还是靠原来那一套渠道和模式救活的，要是这边也不行的话应该还是传统那一套兜底。
+
+*****
+
+####  aoaoaodedede  
+##### 5855#       发表于 2022-2-28 12:45
+
+没想到星团这么快就要当前辈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+星团出道这不到一年，说句实话感觉有点不是滋味。个人觉得动画做的就那样，一巡舞台布置也就那样，一巡打歌服也就那样……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+本来还对二期动画保留一点点期待的，想着起码是现在主力推的团，但是现在之后怎么样都不好说了，对星团二期动画不抱什么期待了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

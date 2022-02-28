@@ -6658,3 +6658,38 @@ MIAA-452.png
 
 <img src="https://img.saraba1st.com/forum/202202/28/124125t3zgnn7nn7y74dl0.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 11096#       发表于 2022-2-28 12:45
+
+去看了下ovagong的那两个号码，都是乳○責め<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|对对，暴露xp是这之中最好乐的XD.|
+
+查看全部评分
+
+*****
+
+####  purdre  
+##### 11097#       发表于 2022-2-28 12:53
+
+说起来这群人为啥都不懂工作私人电脑分开，至少把账户分开吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwera3469  
+##### 11098#       发表于 2022-2-28 13:02
+
+他都第几次了，之前还输入法直接关联おばくん
+
