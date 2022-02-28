@@ -16228,3 +16228,24 @@ live viewing 在叔叔家卖水6th的线上票了，汇率 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">属于是 差评如潮了 到时候再看 
 
+
+
+*****
+
+####  cat1230  
+##### 5838#       发表于 2022-2-28 11:15
+
+PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lanslort  
+##### 5839#       发表于 2022-2-28 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54859738&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-28 10:34</a>
+
+动画配信是指视频投稿啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 配信就是直播的意思啊，你在想什么
+
