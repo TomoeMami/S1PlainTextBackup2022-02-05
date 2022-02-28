@@ -7641,3 +7641,37 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 
 估计又要休好久了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新磕娘  
+##### 8388#       发表于 2022-2-28 20:00
+
+会限文大体啥意思呢，就是玉玉了？
+
+*****
+
+####  新磕娘  
+##### 8389#       发表于 2022-2-28 20:05
+
+感觉阿夸要是真毕业了也挺好，省的和阿姨们勾心斗角，也能正当理由不联动，没版权限制想播啥播啥，反正钱也挣够了，而且看桐生可可毕业后的收入，也没比在holo时候差多少，还能少被公司抽钱
+
+*****
+
+####  面具13  
+##### 8390#       发表于 2022-2-28 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54867451&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-2-28 20:00</a>
+
+会限文大体啥意思呢，就是玉玉了？</blockquote>
+精神状态不好，恢复好状态前，没法正常直播，为鸽会限道歉。无法取消的工作会去做，还有可能会有在别的地方出现（估计是录好的东西）。
+
+*****
+
+####  面具13  
+##### 8391#       发表于 2022-2-28 20:11
+
+夸宝不要担心，好好休养，我会等你的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+<img src="https://s4.ax1x.com/2022/02/28/bMZOiV.jpg" referrerpolicy="no-referrer">
+
