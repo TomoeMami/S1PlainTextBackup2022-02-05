@@ -16032,3 +16032,36 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 不太了解以前的情况，话说企划之前有过什么比较重要的消息是先公布在杂志上的吗 ...</blockquote>
 缪水最早就是杂志上宣的，虹星是线下活动宣的（虹是SIF感谢祭/星是FES）
 
+
+
+*****
+
+####  Skyline_R  
+##### 5817#       发表于 2022-2-28 08:46
+
+我觉得把缪的几位老偶像拉回来可能是最皆大欢喜的；不过资本家嘛想要开辟新市场，招揽新粉丝，那新企化几乎必然是新人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5818#       发表于 2022-2-28 08:47
+
+星团一转只买了photo版，钱都拿去冲鲤鱼的talk，但是G店到现在都没给我把码发过来，到底行不行？
+
+*****
+
+####  aoaoaodedede  
+##### 5819#       发表于 2022-2-28 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54858280&amp;ptid=2036367" target="_blank">Skyline_R 发表于 2022-2-28 08:39</a>
+
+缪水最早就是杂志上宣的，虹星是线下活动宣的（虹是SIF感谢祭/星是FES）</blockquote>
+谢谢大家了
+
+*****
+
+####  aoaoaodedede  
+##### 5820#       发表于 2022-2-28 09:00
+
+我觉得官方还没放出更多的信息，个人感觉那张图还有点看不清楚企划方到底准备干啥，怎么干，不如等官方发多一点消息再看
+
