@@ -12644,3 +12644,12 @@ cp0不会这么傻跑去3p吧，放冷枪都好过送死啊
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">诶？？？ 索隆身边那个人影呢 是个啥  幻觉？
 
+
+
+*****
+
+####  icewolf01  
+##### 56518#       发表于 2022-2-28 19:31
+
+每次看到大妈年轻时的模样都想说究竟怎么从钢铁不倒翁长成这个样子又变回钢铁不倒翁的
+
