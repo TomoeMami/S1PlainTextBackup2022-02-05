@@ -8,7 +8,7 @@ import io
 import os
 import json
 
-old_number = 2051900+int((int(time.time())-1645583832)/86400)*175
+old_number = 2052400+int((int(time.time())-1646013206)/86400)*175
 
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
@@ -48,7 +48,7 @@ def parse_html(html,threadict):
     # titles = '['+titles+']'
     # return namelist,replylist,total_page,titles
 if __name__ == '__main__':
-    blacklist = [2050796,2050901,2047888,2048377,2049980,2053790,2054713]
+    blacklist = [2053790,2054713]
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
     with open ('/home/ubuntu/s1cookie-1.txt','r',encoding='utf-8') as f:
