@@ -2399,3 +2399,14 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 有人用模拟器玩过这游戏吗？？如果我在家用模拟器，出门用手机玩，会被判定为频繁换端登录给封号吗？
 
+
+
+*****
+
+####  hummysiren  
+##### 214#       发表于 2022-2-28 14:36
+
+月城前辈你这开头就疯狂立flag要不要这么明显啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEYM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

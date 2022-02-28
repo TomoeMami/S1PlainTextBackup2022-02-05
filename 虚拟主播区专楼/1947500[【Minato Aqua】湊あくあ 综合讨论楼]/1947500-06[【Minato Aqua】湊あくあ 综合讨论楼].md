@@ -7443,3 +7443,12 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 
 提前两周也不是借口啊，凑阿夸你好歹是以游戏见长的主播，这点消息提前量都不准备吗
 
+
+
+*****
+
+####  ylssb10438  
+##### 8365#       发表于 2022-2-28 14:31
+
+不是初见就没意思了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
