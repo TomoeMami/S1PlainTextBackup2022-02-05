@@ -16553,3 +16553,14 @@ V走虹路线，搞新东西去冒险，吸新受众
 
 佩佩这厨房跟Nagi上次烤红薯一个地方吧
 
+
+
+*****
+
+####  player3960  
+##### 5870#       发表于 2022-2-28 21:36
+
+看那个红色的微波炉明显是一个地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
