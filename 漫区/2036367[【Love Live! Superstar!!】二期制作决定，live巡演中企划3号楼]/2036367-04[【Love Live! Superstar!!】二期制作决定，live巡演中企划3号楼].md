@@ -16512,3 +16512,17 @@ V走虹路线，搞新东西去冒险，吸新受众
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  iuhehc  
+##### 5866#       发表于 2022-2-28 18:43
+
+ 本帖最后由 iuhehc 于 2022-2-28 18:47 编辑 
+
+看到条 superchat廃校阻止  既视感来了x
+虽然具体也得秋天才知道
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
