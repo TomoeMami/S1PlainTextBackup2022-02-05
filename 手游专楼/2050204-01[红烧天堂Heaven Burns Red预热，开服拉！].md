@@ -2431,3 +2431,12 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 有人用模拟器玩过这游戏吗？？如果我在家用模拟器，出门用手机玩，会被判定为频繁换端登录给封号吗？ ...</blockquote>
 我一直这样玩的，没啥事，注意别用免费加速器就行，可能会因为tb号贩子连坐封ip<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  角龙大剑  
+##### 217#       发表于 2022-2-28 17:01
+
+毛妹这个S卡的核弹有点意思，毛妹人气还挺高的，可能过几天会有一个核弹视频
+
