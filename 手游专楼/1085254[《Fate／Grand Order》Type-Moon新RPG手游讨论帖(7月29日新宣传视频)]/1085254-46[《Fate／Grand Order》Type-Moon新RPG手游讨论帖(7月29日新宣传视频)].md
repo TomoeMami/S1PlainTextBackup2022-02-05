@@ -1,13 +1,8 @@
-<<<<<<< HEAD
-> ## **本文件最后更新于2021-01-04 16:40** 
-=======
-> ## **本文件最后更新于2021-01-04 15:01** 
->>>>>>> ee39be9d1a29b2407431c79e1dcb8dccf05da11d
 
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67501#       发表于 2019-6-16 18:54
 
 
@@ -16,7 +11,7 @@
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67502#       发表于 2019-6-16 18:56
 
 
@@ -28,7 +23,7 @@
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67503#       发表于 2019-6-16 19:28
 
 
@@ -37,7 +32,7 @@
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67504#       发表于 2019-6-16 19:37
 
 
@@ -46,7 +41,7 @@
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67505#       发表于 2019-6-16 20:08
 
 
@@ -58,7 +53,7 @@
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67506#       发表于 2019-6-16 20:21
 
 
@@ -70,7 +65,7 @@
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67507#       发表于 2019-6-16 21:27
 
 
@@ -79,7 +74,7 @@
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67508#       发表于 2019-6-16 21:55
 
 
@@ -90,7 +85,7 @@
 
 *****
 
-####  notmyproblem  
+####  notmyproblem
 ##### 67509#       发表于 2019-6-16 22:12
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -98,7 +93,7 @@
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67510#       发表于 2019-6-16 22:35
 
 
@@ -114,7 +109,7 @@
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67511#       发表于 2019-6-16 22:56
 
 
@@ -123,7 +118,7 @@
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67512#       发表于 2019-6-16 22:59
 
 
@@ -133,7 +128,7 @@
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67513#       发表于 2019-6-16 23:09
 
 
@@ -146,7 +141,7 @@
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67514#       发表于 2019-6-16 23:22
 
 
@@ -160,11 +155,11 @@
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67515#       发表于 2019-6-17 01:29
 
 
- 本帖最后由 LOLITA 于 2019-6-17 02:17 编辑 
+ 本帖最后由 LOLITA 于 2019-6-17 02:17 编辑
 
 墨墨迹迹打到印贞出场，没想到这位身上还寄宿着女神拉克什米呀，写剧本的是怕浪费了她的名字么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
@@ -174,7 +169,7 @@
 
 *****
 
-####  v22325  
+####  v22325
 ##### 67516#       发表于 2019-6-17 02:51
 
 
@@ -183,7 +178,7 @@
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67517#       发表于 2019-6-17 02:55
 
 
@@ -194,7 +189,7 @@
 
 *****
 
-####  榊遊矢  
+####  榊遊矢
 ##### 67518#       发表于 2019-6-17 04:34
 
 
@@ -203,7 +198,7 @@
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67519#       发表于 2019-6-17 07:42
 
 
@@ -212,7 +207,7 @@
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 67520#       发表于 2019-6-17 09:07
 
 
@@ -230,11 +225,11 @@
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67521#       发表于 2019-6-17 09:26
 
 
- 本帖最后由 Jamaisvu 于 2019-6-17 09:27 编辑 
+ 本帖最后由 Jamaisvu 于 2019-6-17 09:27 编辑
 <blockquote>榊遊矢 发表于 2019-6-17 04:34
 打到现在还是没看出来章西一个抗英殖民英雄为什么会穿英军军服…剧情后面有解释吗，还是说必须要抽到了才在 ...</blockquote>
 羽蛇神作为玛雅神还一口西班牙语呢，月球某些编剧对于历史人物的人设也就是关键词大杂烩了
@@ -249,7 +244,7 @@
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67522#       发表于 2019-6-17 09:45
 
 
@@ -258,7 +253,7 @@
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 67523#       发表于 2019-6-17 10:20
 
 
@@ -273,7 +268,7 @@
 
 *****
 
-####  jacatay  
+####  jacatay
 ##### 67524#       发表于 2019-6-17 12:44
 
 
@@ -284,7 +279,7 @@
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67525#       发表于 2019-6-17 13:18
 
 
@@ -299,11 +294,11 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67526#       发表于 2019-6-17 14:10
 
 
- 本帖最后由 LOLITA 于 2019-6-17 14:39 编辑 
+ 本帖最后由 LOLITA 于 2019-6-17 14:39 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44159227&amp;ptid=1085254" target="_blank">rxrx 发表于 2019-6-17 10:20</a>
 
 当然可怜，因为寄宿在对方身内的是大姨子</blockquote>
@@ -312,7 +307,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  ryusei  
+####  ryusei
 ##### 67527#       发表于 2019-6-17 15:42
 
 
@@ -321,7 +316,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67528#       发表于 2019-6-17 17:19
 
 
@@ -333,7 +328,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67529#       发表于 2019-6-17 17:50
 
 
@@ -342,7 +337,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67530#       发表于 2019-6-17 17:50
 
 
@@ -351,7 +346,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67531#       发表于 2019-6-17 18:26
 
 
@@ -360,7 +355,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67532#       发表于 2019-6-17 18:27
 
 
@@ -372,7 +367,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67533#       发表于 2019-6-17 18:29
 
 
@@ -383,7 +378,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67534#       发表于 2019-6-17 18:31
 
 
@@ -395,7 +390,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67535#       发表于 2019-6-17 18:33
 
 
@@ -404,7 +399,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67536#       发表于 2019-6-17 18:34
 
 
@@ -415,7 +410,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67537#       发表于 2019-6-17 18:36
 
 
@@ -427,7 +422,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67538#       发表于 2019-6-17 18:36
 
 
@@ -438,7 +433,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67539#       发表于 2019-6-17 18:37
 
 
@@ -450,7 +445,7 @@ nga云玩家最爱云强度值班
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67540#       发表于 2019-6-17 18:43
 
 
@@ -461,7 +456,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67541#       发表于 2019-6-17 18:58
 
 
@@ -472,7 +467,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67542#       发表于 2019-6-17 19:35
 
 
@@ -481,7 +476,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  v22325  
+####  v22325
 ##### 67543#       发表于 2019-6-17 20:45
 
 
@@ -490,7 +485,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67544#       发表于 2019-6-18 09:10
 
 
@@ -499,7 +494,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 67545#       发表于 2019-6-18 09:13
 
 
@@ -511,7 +506,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67546#       发表于 2019-6-18 09:36
 
 
@@ -520,7 +515,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67547#       发表于 2019-6-18 09:38
 
 
@@ -532,7 +527,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67548#       发表于 2019-6-18 09:39
 
 
@@ -544,7 +539,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67549#       发表于 2019-6-18 09:42
 
 
@@ -559,7 +554,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67550#       发表于 2019-6-18 09:44
 
 
@@ -570,7 +565,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67551#       发表于 2019-6-18 14:36
 
 
@@ -581,7 +576,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67552#       发表于 2019-6-18 14:48
 
 
@@ -595,7 +590,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67553#       发表于 2019-6-18 14:50
 
 
@@ -607,7 +602,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67554#       发表于 2019-6-18 14:51
 
 
@@ -618,7 +613,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67555#       发表于 2019-6-18 14:52
 
 
@@ -630,7 +625,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  zechins  
+####  zechins
 ##### 67556#       发表于 2019-6-18 14:52
 
 
@@ -639,7 +634,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67557#       发表于 2019-6-18 14:54
 
 
@@ -650,7 +645,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67558#       发表于 2019-6-18 14:55
 
 
@@ -662,7 +657,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  jacatay  
+####  jacatay
 ##### 67559#       发表于 2019-6-18 14:56
 
 
@@ -671,7 +666,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67560#       发表于 2019-6-18 14:58
 
 
@@ -682,7 +677,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  v22325  
+####  v22325
 ##### 67561#       发表于 2019-6-18 15:12
 
 
@@ -691,7 +686,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 67562#       发表于 2019-6-18 16:16
 
 
@@ -702,7 +697,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  攻守俱其土肉狐  
+####  攻守俱其土肉狐
 ##### 67563#       发表于 2019-6-18 16:23
 
 
@@ -718,12 +713,12 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 狐狸：这不是芥雏子酱嘛。现在是迦勒底这边的人了啊。
 
-老芥：(那个笨蛋后辈为什么要把这两个人带上来啊啊啊啊啊啊) 
+老芥：(那个笨蛋后辈为什么要把这两个人带上来啊啊啊啊啊啊)
 
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67564#       发表于 2019-6-18 17:33
 
 
@@ -732,7 +727,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67565#       发表于 2019-6-18 18:24
 
 
@@ -741,7 +736,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  johnkamsar  
+####  johnkamsar
 ##### 67566#       发表于 2019-6-19 01:40
 
 
@@ -750,7 +745,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67567#       发表于 2019-6-19 01:49
 
 
@@ -762,7 +757,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  snakeling  
+####  snakeling
 ##### 67568#       发表于 2019-6-19 11:42
 
 
@@ -771,7 +766,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  zechins  
+####  zechins
 ##### 67569#       发表于 2019-6-19 15:44
 
 
@@ -781,7 +776,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67570#       发表于 2019-6-19 17:25
 
 
@@ -792,7 +787,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67571#       发表于 2019-6-19 17:26
 
 
@@ -806,7 +801,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  ramiel  
+####  ramiel
 ##### 67572#       发表于 2019-6-19 19:20
 
 
@@ -815,7 +810,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67573#       发表于 2019-6-19 20:20
 
 
@@ -824,7 +819,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67574#       发表于 2019-6-19 21:14
 
 
@@ -835,7 +830,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67575#       发表于 2019-6-19 21:19
 
 
@@ -844,7 +839,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67576#       发表于 2019-6-19 23:14
 
 
@@ -855,7 +850,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  風卷豹  
+####  風卷豹
 ##### 67577#       发表于 2019-6-20 08:02
 
 
@@ -866,7 +861,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67578#       发表于 2019-6-20 08:57
 
 
@@ -880,7 +875,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  風卷豹  
+####  風卷豹
 ##### 67579#       发表于 2019-6-20 09:13
 
 
@@ -892,7 +887,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67580#       发表于 2019-6-20 09:28
 
 
@@ -910,7 +905,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67581#       发表于 2019-6-20 09:33
 
 
@@ -920,7 +915,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  風卷豹  
+####  風卷豹
 ##### 67582#       发表于 2019-6-20 10:14
 
 
@@ -938,7 +933,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67583#       发表于 2019-6-20 10:26
 
 
@@ -950,7 +945,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67584#       发表于 2019-6-20 10:35
 
 
@@ -966,7 +961,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  仰望神的括约肌  
+####  仰望神的括约肌
 ##### 67585#       发表于 2019-6-20 10:37
 
 
@@ -977,7 +972,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67586#       发表于 2019-6-20 10:42
 
 
@@ -989,7 +984,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  風卷豹  
+####  風卷豹
 ##### 67587#       发表于 2019-6-20 10:45
 
 
@@ -1005,7 +1000,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67588#       发表于 2019-6-20 10:47
 
 
@@ -1019,7 +1014,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  風卷豹  
+####  風卷豹
 ##### 67589#       发表于 2019-6-20 10:52
 
 
@@ -1031,7 +1026,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67590#       发表于 2019-6-20 10:59
 
 
@@ -1040,7 +1035,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67591#       发表于 2019-6-20 11:11
 
 
@@ -1049,7 +1044,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67592#       发表于 2019-6-20 13:35
 
 
@@ -1063,7 +1058,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 67593#       发表于 2019-6-20 16:33
 
 
@@ -1075,7 +1070,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67594#       发表于 2019-6-20 19:39
 
 
@@ -1084,7 +1079,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67595#       发表于 2019-6-21 17:01
 
 
@@ -1093,7 +1088,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67596#       发表于 2019-6-21 17:27
 
 
@@ -1105,7 +1100,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67597#       发表于 2019-6-21 17:28
 
 
@@ -1116,7 +1111,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  eilot  
+####  eilot
 ##### 67598#       发表于 2019-6-21 22:14
 
 
@@ -1125,7 +1120,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67599#       发表于 2019-6-22 00:27
 
 
@@ -1137,7 +1132,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67600#       发表于 2019-6-22 12:21
 
 
@@ -1146,7 +1141,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67601#       发表于 2019-6-22 12:35
 
 
@@ -1157,7 +1152,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67602#       发表于 2019-6-22 13:12
 
 
@@ -1166,7 +1161,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67603#       发表于 2019-6-22 13:26
 
 
@@ -1178,7 +1173,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67604#       发表于 2019-6-22 14:03
 
 
@@ -1190,7 +1185,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67605#       发表于 2019-6-22 14:07
 
 
@@ -1202,7 +1197,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67606#       发表于 2019-6-22 14:09
 
 
@@ -1213,7 +1208,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67607#       发表于 2019-6-22 14:11
 
 
@@ -1225,7 +1220,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67608#       发表于 2019-6-22 14:16
 
 
@@ -1237,7 +1232,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67609#       发表于 2019-6-22 14:39
 
 
@@ -1248,7 +1243,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67610#       发表于 2019-6-22 16:23
 
 
@@ -1257,7 +1252,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67611#       发表于 2019-6-22 16:49
 
 
@@ -1268,7 +1263,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67612#       发表于 2019-6-22 17:00
 
 
@@ -1277,7 +1272,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67613#       发表于 2019-6-22 17:02
 
 
@@ -1289,21 +1284,21 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67614#       发表于 2019-6-22 17:04
 
 
 <img src="http://wx2.sinaimg.cn/large/42a690bfgy1g4a1kb874dj21400u0b2j.jpg" referrerpolicy="no-referrer">
 
 
-3石。。。入魂 
+3石。。。入魂
 
 我好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67615#       发表于 2019-6-22 17:05
 
 
@@ -1312,7 +1307,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67616#       发表于 2019-6-22 17:05
 
 
@@ -1324,12 +1319,12 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67617#       发表于 2019-6-22 17:05
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44231694&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-6-22 17:04</a>
-3石。。。入魂 
+3石。。。入魂
 
 我好了</blockquote>
 欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
@@ -1337,7 +1332,7 @@ stella后排有人的情况下怎么能不换人<img src="https://static.saraba1
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 67618#       发表于 2019-6-22 17:05
 
 
@@ -1349,7 +1344,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67619#       发表于 2019-6-22 17:06
 
 
@@ -1358,7 +1353,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67620#       发表于 2019-6-22 17:08
 
 
@@ -1367,7 +1362,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67621#       发表于 2019-6-22 17:13
 
 
@@ -1376,7 +1371,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67622#       发表于 2019-6-22 17:14
 
 
@@ -1385,7 +1380,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67623#       发表于 2019-6-22 17:15
 
 
@@ -1394,7 +1389,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 67624#       发表于 2019-6-22 17:20
 
 
@@ -1403,7 +1398,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67625#       发表于 2019-6-22 17:20
 
 
@@ -1414,7 +1409,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67626#       发表于 2019-6-22 17:22
 
 
@@ -1423,7 +1418,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67627#       发表于 2019-6-22 17:25
 
 
@@ -1432,7 +1427,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67628#       发表于 2019-6-22 17:28
 
 
@@ -1441,13 +1436,13 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 67629#       发表于 2019-6-22 17:30
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44231694&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-6-22 17:04</a>
 
-3石。。。入魂 
+3石。。。入魂
 
 我好了</blockquote>
 限定萌新标准剧情
@@ -1456,7 +1451,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67630#       发表于 2019-6-22 17:31
 
 
@@ -1465,7 +1460,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67631#       发表于 2019-6-22 17:35
 
 
@@ -1474,7 +1469,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  sandro  
+####  sandro
 ##### 67632#       发表于 2019-6-22 17:35
 
 
@@ -1486,11 +1481,11 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  zxc4563982  
+####  zxc4563982
 ##### 67633#       发表于 2019-6-22 17:38
 
 
- 本帖最后由 zxc4563982 于 2019-6-22 17:41 编辑 
+ 本帖最后由 zxc4563982 于 2019-6-22 17:41 编辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">阿周那满状态下场，太过分了
 
@@ -1499,7 +1494,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alex_chow  
+####  alex_chow
 ##### 67634#       发表于 2019-6-22 17:39
 
 
@@ -1508,7 +1503,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67635#       发表于 2019-6-22 17:45
 
 
@@ -1522,7 +1517,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67636#       发表于 2019-6-22 17:54
 
 
@@ -1531,7 +1526,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67637#       发表于 2019-6-22 17:57
 
 
@@ -1540,7 +1535,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  katun  
+####  katun
 ##### 67638#       发表于 2019-6-22 17:59
 
 
@@ -1549,7 +1544,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67639#       发表于 2019-6-22 17:59
 
 
@@ -1561,7 +1556,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67640#       发表于 2019-6-22 17:59
 
 
@@ -1570,7 +1565,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 67641#       发表于 2019-6-22 18:00
 
 
@@ -1579,7 +1574,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  fantuanhtr  
+####  fantuanhtr
 ##### 67642#       发表于 2019-6-22 18:00
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -1587,7 +1582,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67643#       发表于 2019-6-22 18:00
 
 
@@ -1599,7 +1594,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 67644#       发表于 2019-6-22 18:02
 
 
@@ -1609,7 +1604,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67645#       发表于 2019-6-22 18:02
 
 
@@ -1618,7 +1613,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  缘一  
+####  缘一
 ##### 67646#       发表于 2019-6-22 18:06
 
 
@@ -1629,7 +1624,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  fault  
+####  fault
 ##### 67647#       发表于 2019-6-22 18:06
 
 
@@ -1638,7 +1633,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67648#       发表于 2019-6-22 18:11
 
 
@@ -1647,7 +1642,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67649#       发表于 2019-6-22 18:15
 
 
@@ -1658,7 +1653,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67650#       发表于 2019-6-22 18:16
 
 
@@ -1667,7 +1662,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  更木剑八  
+####  更木剑八
 ##### 67651#       发表于 2019-6-22 18:17
 
 
@@ -1678,7 +1673,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67652#       发表于 2019-6-22 18:18
 
 
@@ -1689,7 +1684,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67653#       发表于 2019-6-22 18:19
 
 
@@ -1701,7 +1696,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67654#       发表于 2019-6-22 18:22
 
 
@@ -1710,7 +1705,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 67655#       发表于 2019-6-22 18:30
 
 
@@ -1719,11 +1714,11 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67656#       发表于 2019-6-22 18:31
 
 
- 本帖最后由 黑上シグマ 于 2019-6-22 18:35 编辑 
+ 本帖最后由 黑上シグマ 于 2019-6-22 18:35 编辑
 
 追了一单，白鸭3宝了……
 
@@ -1732,7 +1727,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  饭太稀  
+####  饭太稀
 ##### 67657#       发表于 2019-6-22 18:34
 
 
@@ -1741,7 +1736,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67658#       发表于 2019-6-22 18:36
 
 
@@ -1755,7 +1750,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  枫紫  
+####  枫紫
 ##### 67659#       发表于 2019-6-22 18:38
 
 
@@ -1764,7 +1759,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67660#       发表于 2019-6-22 18:39
 
 
@@ -1773,7 +1768,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67661#       发表于 2019-6-22 18:48
 
 
@@ -1782,7 +1777,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67662#       发表于 2019-6-22 18:49
 
 
@@ -1791,7 +1786,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 67663#       发表于 2019-6-22 18:49
 
 
@@ -1800,7 +1795,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67664#       发表于 2019-6-22 18:51
 
 
@@ -1812,7 +1807,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67665#       发表于 2019-6-22 18:59
 
 
@@ -1824,7 +1819,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67666#       发表于 2019-6-22 19:00
 
 
@@ -1835,7 +1830,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 67667#       发表于 2019-6-22 19:01
 
 
@@ -1847,7 +1842,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67668#       发表于 2019-6-22 19:01
 
 
@@ -1859,7 +1854,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67669#       发表于 2019-6-22 19:10
 
 
@@ -1871,7 +1866,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67670#       发表于 2019-6-22 19:11
 
 
@@ -1882,7 +1877,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  饭太稀  
+####  饭太稀
 ##### 67671#       发表于 2019-6-22 19:15
 
 
@@ -1891,7 +1886,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67672#       发表于 2019-6-22 19:16
 
 
@@ -1900,7 +1895,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67673#       发表于 2019-6-22 19:18
 
 
@@ -1909,7 +1904,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  GuDaZi  
+####  GuDaZi
 ##### 67674#       发表于 2019-6-22 19:19
 
 
@@ -1918,7 +1913,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  deadog  
+####  deadog
 ##### 67675#       发表于 2019-6-22 19:26
 
 
@@ -1929,7 +1924,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67676#       发表于 2019-6-22 19:28
 
 
@@ -1940,7 +1935,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67677#       发表于 2019-6-22 19:34
 
 
@@ -1951,7 +1946,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67678#       发表于 2019-6-22 19:39
 
 
@@ -1965,7 +1960,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67679#       发表于 2019-6-22 19:47
 
 
@@ -1974,7 +1969,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67680#       发表于 2019-6-22 19:58
 
 
@@ -1983,7 +1978,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67681#       发表于 2019-6-22 20:04
 
 
@@ -1995,7 +1990,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67682#       发表于 2019-6-22 20:12
 
 
@@ -2007,7 +2002,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 67683#       发表于 2019-6-22 20:22
 
 
@@ -2019,7 +2014,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67684#       发表于 2019-6-22 20:25
 
 
@@ -2034,7 +2029,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67685#       发表于 2019-6-22 20:53
 
 
@@ -2043,7 +2038,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67686#       发表于 2019-6-22 20:54
 
 
@@ -2055,7 +2050,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67687#       发表于 2019-6-22 20:57
 
 
@@ -2066,7 +2061,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67688#       发表于 2019-6-22 21:48
 
 
@@ -2075,7 +2070,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67689#       发表于 2019-6-22 21:53
 
 
@@ -2084,7 +2079,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67690#       发表于 2019-6-22 21:56
 
 
@@ -2096,7 +2091,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67691#       发表于 2019-6-22 21:58
 
 
@@ -2108,7 +2103,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67692#       发表于 2019-6-22 21:59
 
 
@@ -2120,7 +2115,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67693#       发表于 2019-6-22 22:06
 
 
@@ -2132,7 +2127,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67694#       发表于 2019-6-22 22:32
 
 
@@ -2141,7 +2136,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67695#       发表于 2019-6-22 22:32
 
 
@@ -2152,7 +2147,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67696#       发表于 2019-6-22 22:56
 
 
@@ -2164,7 +2159,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67697#       发表于 2019-6-22 22:57
 
 
@@ -2176,7 +2171,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67698#       发表于 2019-6-22 22:58
 
 
@@ -2188,7 +2183,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67699#       发表于 2019-6-22 23:13
 
 
@@ -2197,7 +2192,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67700#       发表于 2019-6-22 23:15
 
 
@@ -2208,7 +2203,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67701#       发表于 2019-6-22 23:20
 
 
@@ -2220,7 +2215,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67702#       发表于 2019-6-22 23:27
 
 
@@ -2231,7 +2226,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67703#       发表于 2019-6-22 23:37
 
 
@@ -2243,7 +2238,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  eilot  
+####  eilot
 ##### 67704#       发表于 2019-6-23 00:17
 
 
@@ -2252,7 +2247,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67705#       发表于 2019-6-23 01:09
 
 
@@ -2264,7 +2259,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67706#       发表于 2019-6-23 01:16
 
 
@@ -2275,7 +2270,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67707#       发表于 2019-6-23 01:17
 
 
@@ -2286,7 +2281,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67708#       发表于 2019-6-23 01:42
 
 
@@ -2298,7 +2293,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67709#       发表于 2019-6-23 01:46
 
 
@@ -2309,7 +2304,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67710#       发表于 2019-6-23 01:49
 
 
@@ -2318,7 +2313,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67711#       发表于 2019-6-23 06:41
 
 
@@ -2327,11 +2322,11 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  萨拉丁  
+####  萨拉丁
 ##### 67712#       发表于 2019-6-23 07:17
 
 
- 本帖最后由 萨拉丁 于 2019-6-23 07:25 编辑 
+ 本帖最后由 萨拉丁 于 2019-6-23 07:25 编辑
 
 2.4打完了，当之无愧的2章剧情最强。基本上每个登场角色都有分到戏份，甚至包括提前退场的医神最后都补了一笔。神之空岩的trick太牛逼了，作为FE厨能看到吉娜可和小太阳的后续以及吉娜可的成长感动到涕泪横流。相比之下2.3什么狗屎东西，2.2的霸道总裁爱上我都比老虚的虎头蛇尾强多了。就是地图范围还是这么小，标题写创世灭亡，印度神话大战牛逼吹上天，结果跑来跑去还是在几个村，感觉都不一定有下总范围大。真没想到tmd2章地图最大的居然是2.1的莫斯科周边。
 
@@ -2347,7 +2342,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dts5770  
+####  dts5770
 ##### 67713#       发表于 2019-6-23 12:29
 
 
@@ -2356,7 +2351,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67714#       发表于 2019-6-23 12:53
 
 
@@ -2365,7 +2360,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67715#       发表于 2019-6-23 13:11
 
 
@@ -2376,7 +2371,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67716#       发表于 2019-6-23 13:23
 
 
@@ -2385,7 +2380,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67717#       发表于 2019-6-23 13:27
 
 
@@ -2397,7 +2392,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67718#       发表于 2019-6-23 14:09
 
 
@@ -2408,7 +2403,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67719#       发表于 2019-6-23 14:09
 
 
@@ -2417,7 +2412,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 67720#       发表于 2019-6-23 14:27
 
 
@@ -2426,7 +2421,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67721#       发表于 2019-6-23 14:34
 
 
@@ -2440,7 +2435,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67722#       发表于 2019-6-23 14:36
 
 
@@ -2449,13 +2444,13 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 为啥你会觉得是反讽，3宝石洗地就是比3连舒服，按键少宝具动画快
 
 氪金氪金氪这次明显是在迎合云玩 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想起来了。就是那个说大奥满状态伽摩很难打的那个人吗 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想起来了。就是那个说大奥满状态伽摩很难打的那个人吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还什么史上最难的高难 明明脚打的
 
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67723#       发表于 2019-6-23 14:36
 
 
@@ -2468,7 +2463,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67724#       发表于 2019-6-23 14:41
 
 
@@ -2481,7 +2476,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67725#       发表于 2019-6-23 14:43
 
 
@@ -2495,7 +2490,7 @@ MD海豹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67726#       发表于 2019-6-23 14:44
 
 
@@ -2508,7 +2503,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装<img src="https://
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67727#       发表于 2019-6-23 14:47
 
 
@@ -2519,7 +2514,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67728#       发表于 2019-6-23 14:52
 
 
@@ -2530,7 +2525,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67729#       发表于 2019-6-23 14:55
 
 
@@ -2541,7 +2536,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  katun  
+####  katun
 ##### 67730#       发表于 2019-6-23 14:56
 
 
@@ -2557,7 +2552,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67731#       发表于 2019-6-23 14:57
 
 
@@ -2571,7 +2566,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67732#       发表于 2019-6-23 15:00
 
 
@@ -2582,7 +2577,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  katun  
+####  katun
 ##### 67733#       发表于 2019-6-23 15:01
 
 
@@ -2594,7 +2589,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67734#       发表于 2019-6-23 15:04
 
 
@@ -2606,7 +2601,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 67735#       发表于 2019-6-23 15:14
 
 
@@ -2615,7 +2610,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67736#       发表于 2019-6-23 15:17
 
 
@@ -2627,7 +2622,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 67737#       发表于 2019-6-23 15:25
 
 
@@ -2639,11 +2634,11 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67738#       发表于 2019-6-23 15:30
 
 
- 本帖最后由 alucardcz 于 2019-6-23 15:31 编辑 
+ 本帖最后由 alucardcz 于 2019-6-23 15:31 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44242777&amp;ptid=1085254" target="_blank">selfcest 发表于 2019-6-23 15:25</a>
 
 我打狂还是得上雪山樱或女武神的；这俩强的是泛用，单职阶在伤害上也只能欺负术阶和杀阶的弟弟系数，玛丽 ...</blockquote>
@@ -2654,7 +2649,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 67739#       发表于 2019-6-23 15:32
 
 
@@ -2666,7 +2661,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67740#       发表于 2019-6-23 15:36
 
 
@@ -2675,7 +2670,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67741#       发表于 2019-6-23 15:39
 
 
@@ -2684,7 +2679,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  潇湘孤竹  
+####  潇湘孤竹
 ##### 67742#       发表于 2019-6-23 16:35
 
 
@@ -2694,7 +2689,7 @@ free周回我也塞了3羁绊礼装加一个御主建议礼装</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67743#       发表于 2019-6-23 16:35
 
 
@@ -2706,7 +2701,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67744#       发表于 2019-6-23 16:52
 
 
@@ -2718,7 +2713,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  龙骑将  
+####  龙骑将
 ##### 67745#       发表于 2019-6-23 17:09
 
 
@@ -2727,7 +2722,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67746#       发表于 2019-6-23 17:30
 
 
@@ -2736,7 +2731,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67747#       发表于 2019-6-23 18:57
 
 
@@ -2745,7 +2740,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67748#       发表于 2019-6-23 19:05
 
 
@@ -2757,7 +2752,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67749#       发表于 2019-6-23 19:07
 
 
@@ -2769,7 +2764,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67750#       发表于 2019-6-23 19:10
 
 
@@ -2781,7 +2776,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67751#       发表于 2019-6-23 19:29
 
 
@@ -2793,7 +2788,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67752#       发表于 2019-6-23 20:18
 
 
@@ -2802,7 +2797,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67753#       发表于 2019-6-23 20:35
 
 
@@ -2814,7 +2809,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  萨拉丁  
+####  萨拉丁
 ##### 67754#       发表于 2019-6-23 22:09
 
 
@@ -2826,7 +2821,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67755#       发表于 2019-6-23 22:35
 
 
@@ -2838,7 +2833,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67756#       发表于 2019-6-24 12:33
 
 
@@ -2847,7 +2842,7 @@ pm了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" refer
 
 *****
 
-####  GuDaZi  
+####  GuDaZi
 ##### 67757#       发表于 2019-6-24 13:32
 
 
@@ -2858,7 +2853,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 67758#       发表于 2019-6-24 14:51
 
 
@@ -2867,7 +2862,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  8aa8aa8aa  
+####  8aa8aa8aa
 ##### 67759#       发表于 2019-6-24 19:33
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -2875,7 +2870,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67760#       发表于 2019-6-24 20:00
 
 
@@ -2886,7 +2881,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67761#       发表于 2019-6-24 20:12
 
 
@@ -2895,7 +2890,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  kulanyee  
+####  kulanyee
 ##### 67762#       发表于 2019-6-25 08:57
 
 
@@ -2904,7 +2899,7 @@ b站为什么只能点赞不能点踩啊。。戈壁也是以前能显示点踩�
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 67763#       发表于 2019-6-25 10:29
 
 
@@ -2913,7 +2908,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67764#       发表于 2019-6-25 13:36
 
 
@@ -2922,7 +2917,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67765#       发表于 2019-6-25 13:56
 
 
@@ -2931,7 +2926,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67766#       发表于 2019-6-25 13:58
 
 
@@ -2943,7 +2938,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 67767#       发表于 2019-6-25 14:09
 
 
@@ -2952,7 +2947,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 67768#       发表于 2019-6-25 14:42
 
 
@@ -2961,7 +2956,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67769#       发表于 2019-6-25 14:46
 
 
@@ -2970,7 +2965,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67770#       发表于 2019-6-25 15:10
 
 
@@ -2979,7 +2974,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67771#       发表于 2019-6-25 15:10
 
 
@@ -2988,7 +2983,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  catspace  
+####  catspace
 ##### 67772#       发表于 2019-6-25 15:20
 
 
@@ -2999,7 +2994,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67773#       发表于 2019-6-25 17:07
 
 
@@ -3010,7 +3005,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67774#       发表于 2019-6-25 17:09
 
 
@@ -3019,7 +3014,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67775#       发表于 2019-6-25 17:09
 
 
@@ -3028,7 +3023,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67776#       发表于 2019-6-25 21:47
 
 
@@ -3037,7 +3032,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67777#       发表于 2019-6-25 21:51
 
 
@@ -3049,7 +3044,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67778#       发表于 2019-6-25 21:59
 
 
@@ -3058,7 +3053,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67779#       发表于 2019-6-26 02:24
 
 
@@ -3067,7 +3062,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  frightmia  
+####  frightmia
 ##### 67780#       发表于 2019-6-26 14:57
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -3075,7 +3070,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67781#       发表于 2019-6-26 17:01
 
 
@@ -3084,7 +3079,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67782#       发表于 2019-6-26 17:02
 
 
@@ -3093,7 +3088,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 67783#       发表于 2019-6-26 17:04
 
 
@@ -3102,7 +3097,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67784#       发表于 2019-6-26 17:05
 
 
@@ -3111,7 +3106,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67785#       发表于 2019-6-26 17:05
 
 
@@ -3120,7 +3115,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67786#       发表于 2019-6-26 17:06
 
 
@@ -3129,7 +3124,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67787#       发表于 2019-6-26 17:06
 
 
@@ -3139,7 +3134,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67788#       发表于 2019-6-26 17:10
 
 
@@ -3148,7 +3143,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67789#       发表于 2019-6-26 17:11
 
 
@@ -3157,7 +3152,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67790#       发表于 2019-6-26 17:17
 
 
@@ -3168,7 +3163,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67791#       发表于 2019-6-26 17:18
 
 
@@ -3179,7 +3174,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67792#       发表于 2019-6-26 17:21
 
 
@@ -3191,7 +3186,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67793#       发表于 2019-6-26 17:23
 
 
@@ -3200,7 +3195,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67794#       发表于 2019-6-26 17:28
 
 
@@ -3209,7 +3204,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  bwjx88  
+####  bwjx88
 ##### 67795#       发表于 2019-6-26 17:46
 
 
@@ -3218,7 +3213,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67796#       发表于 2019-6-26 17:51
 
 
@@ -3229,11 +3224,11 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67797#       发表于 2019-6-26 17:53
 
 
- 本帖最后由 alucardcz 于 2019-6-26 17:55 编辑 
+ 本帖最后由 alucardcz 于 2019-6-26 17:55 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44285747&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-6-26 17:51</a>
 
 你怎么能这么豹我2000石头连1只都没看到，全是歪的</blockquote>
@@ -3242,7 +3237,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 67798#       发表于 2019-6-26 18:02
 
 
@@ -3254,7 +3249,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  在海岸  
+####  在海岸
 ##### 67799#       发表于 2019-6-26 18:36
 
 
@@ -3265,7 +3260,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67800#       发表于 2019-6-26 18:38
 
 
@@ -3274,7 +3269,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67801#       发表于 2019-6-26 19:06
 
 
@@ -3283,7 +3278,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67802#       发表于 2019-6-26 20:12
 
 
@@ -3292,7 +3287,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67803#       发表于 2019-6-26 20:22
 
 
@@ -3301,11 +3296,11 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67804#       发表于 2019-6-26 20:23
 
 
- 本帖最后由 LOLITA 于 2019-6-26 21:52 编辑 
+ 本帖最后由 LOLITA 于 2019-6-26 21:52 编辑
 
 这玩不下去了啊，长草期太长了，下个月能有新活动吗？
 
@@ -3315,7 +3310,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  闽明  
+####  闽明
 ##### 67805#       发表于 2019-6-26 22:29
 
 
@@ -3324,7 +3319,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67806#       发表于 2019-6-26 22:40
 
 
@@ -3341,7 +3336,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67807#       发表于 2019-6-26 22:53
 
 
@@ -3357,18 +3352,18 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67808#       发表于 2019-6-27 01:28
 
 
- 本帖最后由 rooarr 于 2019-6-27 01:32 编辑 
+ 本帖最后由 rooarr 于 2019-6-27 01:32 编辑
 
 第一次意识到刷狗粮只需要两个满破宝石，可以借一个好友的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经习惯无脑找cba了
 
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67809#       发表于 2019-6-27 02:11
 
 
@@ -3382,7 +3377,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67810#       发表于 2019-6-27 12:07
 
 
@@ -3395,7 +3390,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67811#       发表于 2019-6-27 12:21
 
 
@@ -3408,7 +3403,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67812#       发表于 2019-6-27 12:33
 
 
@@ -3417,7 +3412,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67813#       发表于 2019-6-27 12:34
 
 
@@ -3428,7 +3423,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67814#       发表于 2019-6-27 12:36
 
 
@@ -3440,7 +3435,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67815#       发表于 2019-6-27 12:38
 
 
@@ -3451,7 +3446,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67816#       发表于 2019-6-27 12:41
 
 
@@ -3463,7 +3458,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67817#       发表于 2019-6-27 13:00
 
 
@@ -3475,7 +3470,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67818#       发表于 2019-6-27 14:06
 
 
@@ -3486,7 +3481,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 67819#       发表于 2019-6-27 18:31
 
 
@@ -3495,7 +3490,7 @@ CBA啥时候能再抽啊，难民就等着这个啊
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67820#       发表于 2019-6-27 19:34
 
 
@@ -3506,7 +3501,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67821#       发表于 2019-6-27 20:24
 
 
@@ -3515,7 +3510,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 67822#       发表于 2019-6-28 06:01
 
 
@@ -3527,7 +3522,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  poor  
+####  poor
 ##### 67823#       发表于 2019-6-28 15:26
 
 
@@ -3536,7 +3531,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67824#       发表于 2019-6-28 17:06
 
 
@@ -3545,7 +3540,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67825#       发表于 2019-6-28 17:11
 
 
@@ -3554,7 +3549,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67826#       发表于 2019-6-28 17:28
 
 
@@ -3565,7 +3560,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67827#       发表于 2019-6-28 17:34
 
 
@@ -3574,7 +3569,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  zechins  
+####  zechins
 ##### 67828#       发表于 2019-6-28 17:35
 
 
@@ -3583,7 +3578,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67829#       发表于 2019-6-28 17:52
 
 
@@ -3592,7 +3587,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  eilot  
+####  eilot
 ##### 67830#       发表于 2019-6-28 17:53
 
 
@@ -3603,7 +3598,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67831#       发表于 2019-6-28 18:14
 
 
@@ -3612,7 +3607,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67832#       发表于 2019-6-28 18:27
 
 
@@ -3621,7 +3616,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 67833#       发表于 2019-6-28 18:30
 
 
@@ -3630,7 +3625,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67834#       发表于 2019-6-28 18:32
 
 
@@ -3639,7 +3634,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67835#       发表于 2019-6-28 18:39
 
 
@@ -3651,7 +3646,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67836#       发表于 2019-6-28 18:41
 
 
@@ -3662,7 +3657,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67837#       发表于 2019-6-28 20:40
 
 
@@ -3671,7 +3666,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67838#       发表于 2019-6-28 21:38
 
 
@@ -3680,7 +3675,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67839#       发表于 2019-6-29 07:02
 
 
@@ -3692,7 +3687,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67840#       发表于 2019-6-29 12:15
 
 
@@ -3701,7 +3696,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67841#       发表于 2019-6-29 12:32
 
 
@@ -3712,7 +3707,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67842#       发表于 2019-6-29 12:33
 
 
@@ -3724,7 +3719,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67843#       发表于 2019-6-29 12:34
 
 
@@ -3735,7 +3730,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67844#       发表于 2019-6-29 12:37
 
 
@@ -3744,7 +3739,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67845#       发表于 2019-6-29 15:11
 
 
@@ -3753,18 +3748,18 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 67846#       发表于 2019-6-30 06:27
 
 
- 本帖最后由 武の炽羽 于 2019-6-30 07:30 编辑 
+ 本帖最后由 武の炽羽 于 2019-6-30 07:30 编辑
 
 35W砸下去，4个光头个0威廉大爷...大爷不爱我<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67847#       发表于 2019-6-30 21:19
 
 
@@ -3776,7 +3771,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67848#       发表于 2019-6-30 23:02
 
 
@@ -3785,7 +3780,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  johnkamsar  
+####  johnkamsar
 ##### 67849#       发表于 2019-6-30 23:10
 
 
@@ -3794,7 +3789,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67850#       发表于 2019-6-30 23:27
 
 
@@ -3803,7 +3798,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67851#       发表于 2019-6-30 23:31
 
 
@@ -3815,7 +3810,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67852#       发表于 2019-6-30 23:34
 
 
@@ -3826,7 +3821,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67853#       发表于 2019-6-30 23:46
 
 
@@ -3838,7 +3833,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67854#       发表于 2019-6-30 23:48
 
 
@@ -3850,7 +3845,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67855#       发表于 2019-7-1 00:02
 
 
@@ -3861,7 +3856,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67856#       发表于 2019-7-1 00:09
 
 
@@ -3876,7 +3871,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67857#       发表于 2019-7-1 00:15
 
 
@@ -3885,7 +3880,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67858#       发表于 2019-7-1 00:16
 
 
@@ -3894,7 +3889,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67859#       发表于 2019-7-1 00:46
 
 
@@ -3903,7 +3898,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67860#       发表于 2019-7-1 06:50
 
 
@@ -3912,7 +3907,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67861#       发表于 2019-7-1 09:25
 
 
@@ -3921,7 +3916,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67862#       发表于 2019-7-1 11:44
 
 
@@ -3937,7 +3932,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 67863#       发表于 2019-7-1 11:50
 
 
@@ -3946,7 +3941,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67864#       发表于 2019-7-1 11:56
 
 
@@ -3960,7 +3955,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67865#       发表于 2019-7-1 12:45
 
 
@@ -3971,7 +3966,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67866#       发表于 2019-7-1 12:49
 
 
@@ -3980,7 +3975,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  D．Va  
+####  D．Va
 ##### 67867#       发表于 2019-7-1 14:20
 
 
@@ -3989,7 +3984,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 67868#       发表于 2019-7-1 16:02
 
 
@@ -4003,7 +3998,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  卡蓮  
+####  卡蓮
 ##### 67869#       发表于 2019-7-1 16:07
 
 
@@ -4020,7 +4015,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67870#       发表于 2019-7-1 16:14
 
 
@@ -4029,7 +4024,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67871#       发表于 2019-7-1 16:25
 
 
@@ -4040,7 +4035,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67872#       发表于 2019-7-1 17:04
 
 
@@ -4049,7 +4044,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67873#       发表于 2019-7-1 17:08
 
 
@@ -4060,7 +4055,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67874#       发表于 2019-7-1 17:17
 
 
@@ -4071,7 +4066,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67875#       发表于 2019-7-1 17:21
 
 
@@ -4080,7 +4075,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67876#       发表于 2019-7-1 17:30
 
 
@@ -4091,7 +4086,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67877#       发表于 2019-7-1 17:33
 
 
@@ -4100,7 +4095,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 67878#       发表于 2019-7-1 17:35
 
 
@@ -4112,7 +4107,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67879#       发表于 2019-7-1 17:35
 
 
@@ -4124,7 +4119,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67880#       发表于 2019-7-1 17:37
 
 
@@ -4135,7 +4130,7 @@ https://appmedia.jp/fategrandorder/3267109 看看这个？</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67881#       发表于 2019-7-1 17:43
 
 
@@ -4146,7 +4141,7 @@ fgo的末日要到了?
 
 *****
 
-####  sandro  
+####  sandro
 ##### 67882#       发表于 2019-7-1 17:46
 
 
@@ -4157,7 +4152,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67883#       发表于 2019-7-1 19:02
 
 
@@ -4166,7 +4161,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67884#       发表于 2019-7-1 19:36
 
 
@@ -4177,16 +4172,16 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67885#       发表于 2019-7-1 19:51
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天肯定更新个生放送预告啦 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天肯定更新个生放送预告啦
 
 
 *****
 
-####  catspace  
+####  catspace
 ##### 67886#       发表于 2019-7-1 20:53
 
 
@@ -4197,11 +4192,11 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67887#       发表于 2019-7-1 21:26
 
 
- 本帖最后由 rooarr 于 2019-7-1 21:28 编辑 
+ 本帖最后由 rooarr 于 2019-7-1 21:28 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44349955&amp;ptid=1085254" target="_blank">catspace 发表于 2019-7-1 20:53</a>
 后面还有三章和最终章，最快也要一年半吧，今年把活动结束了下一年怎么办？ ...</blockquote>
 因为今年上半年的活动，我感觉肯定有复刻的只有联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他都不像是明年还会出的样子
@@ -4211,7 +4206,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67888#       发表于 2019-7-2 14:04
 
 
@@ -4220,7 +4215,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67889#       发表于 2019-7-2 14:07
 
 
@@ -4232,7 +4227,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67890#       发表于 2019-7-2 14:12
 
 
@@ -4244,7 +4239,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67891#       发表于 2019-7-2 14:14
 
 
@@ -4256,7 +4251,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67892#       发表于 2019-7-2 14:15
 
 
@@ -4267,7 +4262,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67893#       发表于 2019-7-2 14:17
 
 
@@ -4276,7 +4271,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67894#       发表于 2019-7-2 14:20
 
 
@@ -4285,7 +4280,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  kulanyee  
+####  kulanyee
 ##### 67895#       发表于 2019-7-2 14:27
 
 
@@ -4297,7 +4292,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67896#       发表于 2019-7-2 14:30
 
 
@@ -4306,7 +4301,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 67897#       发表于 2019-7-2 14:35
 
 
@@ -4316,7 +4311,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  zechins  
+####  zechins
 ##### 67898#       发表于 2019-7-2 14:40
 
 
@@ -4325,7 +4320,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67899#       发表于 2019-7-2 15:51
 
 
@@ -4334,7 +4329,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  sigma0716  
+####  sigma0716
 ##### 67900#       发表于 2019-7-2 15:54
 
 
@@ -4343,7 +4338,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67901#       发表于 2019-7-2 15:56
 
 
@@ -4352,7 +4347,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67902#       发表于 2019-7-2 17:01
 
 
@@ -4361,7 +4356,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67903#       发表于 2019-7-2 17:02
 
 
@@ -4370,7 +4365,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  kulanyee  
+####  kulanyee
 ##### 67904#       发表于 2019-7-2 17:04
 
 
@@ -4379,7 +4374,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67905#       发表于 2019-7-2 17:05
 
 
@@ -4388,7 +4383,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67906#       发表于 2019-7-2 17:07
 
 
@@ -4397,7 +4392,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67907#       发表于 2019-7-2 17:07
 
 
@@ -4406,7 +4401,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67908#       发表于 2019-7-2 17:09
 
 
@@ -4415,7 +4410,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67909#       发表于 2019-7-2 17:30
 
 
@@ -4427,7 +4422,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67910#       发表于 2019-7-2 17:33
 
 
@@ -4439,7 +4434,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67911#       发表于 2019-7-2 18:07
 
 
@@ -4448,7 +4443,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67912#       发表于 2019-7-2 18:15
 
 
@@ -4457,7 +4452,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  catspace  
+####  catspace
 ##### 67913#       发表于 2019-7-2 18:16
 
 
@@ -4471,7 +4466,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67914#       发表于 2019-7-2 18:17
 
 
@@ -4482,7 +4477,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67915#       发表于 2019-7-2 19:52
 
 
@@ -4491,7 +4486,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  catspace  
+####  catspace
 ##### 67916#       发表于 2019-7-2 20:21
 
 
@@ -4502,7 +4497,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67917#       发表于 2019-7-2 20:59
 
 
@@ -4513,7 +4508,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67918#       发表于 2019-7-2 23:14
 
 
@@ -4522,7 +4517,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67919#       发表于 2019-7-2 23:44
 
 
@@ -4534,7 +4529,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 67920#       发表于 2019-7-2 23:47
 
 
@@ -4543,7 +4538,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67921#       发表于 2019-7-3 00:00
 
 
@@ -4552,7 +4547,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  catspace  
+####  catspace
 ##### 67922#       发表于 2019-7-3 00:20
 
 
@@ -4563,7 +4558,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67923#       发表于 2019-7-3 00:30
 
 
@@ -4572,7 +4567,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67924#       发表于 2019-7-3 01:42
 
 
@@ -4584,7 +4579,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  quanlix  
+####  quanlix
 ##### 67925#       发表于 2019-7-3 01:45
 
 
@@ -4595,7 +4590,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 67926#       发表于 2019-7-3 04:26
 
 
@@ -4606,7 +4601,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67927#       发表于 2019-7-3 07:46
 
 
@@ -4618,7 +4613,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67928#       发表于 2019-7-3 08:26
 
 
@@ -4629,7 +4624,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  zechins  
+####  zechins
 ##### 67929#       发表于 2019-7-3 08:36
 
 
@@ -4638,7 +4633,7 @@ fgo的末日要到了?</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67930#       发表于 2019-7-3 09:15
 
 
@@ -4650,7 +4645,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67931#       发表于 2019-7-3 09:27
 
 
@@ -4661,7 +4656,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 67932#       发表于 2019-7-3 09:45
 
 
@@ -4672,7 +4667,7 @@ Lily严格来说是事前奖励 为了加宝具才做成活动英灵的<img src=
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67933#       发表于 2019-7-3 10:19
 
 
@@ -4685,7 +4680,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67934#       发表于 2019-7-3 11:11
 
 
@@ -4696,7 +4691,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67935#       发表于 2019-7-3 11:19
 
 
@@ -4708,7 +4703,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67936#       发表于 2019-7-3 11:26
 
 
@@ -4719,7 +4714,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  eilot  
+####  eilot
 ##### 67937#       发表于 2019-7-3 15:36
 
 
@@ -4728,7 +4723,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67938#       发表于 2019-7-3 17:05
 
 
@@ -4737,7 +4732,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67939#       发表于 2019-7-3 17:10
 
 
@@ -4746,7 +4741,7 @@ https://appmedia.jp/fategrandorder/3521116
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67940#       发表于 2019-7-3 17:13
 
 
@@ -4757,7 +4752,7 @@ md。。真是限定
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67941#       发表于 2019-7-3 17:14
 
 
@@ -4766,7 +4761,7 @@ md。。真是限定
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67942#       发表于 2019-7-3 17:14
 
 
@@ -4775,7 +4770,7 @@ md。。真是限定
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67943#       发表于 2019-7-3 17:14
 
 
@@ -4784,7 +4779,7 @@ md。。真是限定
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67944#       发表于 2019-7-3 17:15
 
 
@@ -4793,7 +4788,7 @@ md。。真是限定
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67945#       发表于 2019-7-3 17:22
 
 
@@ -4802,7 +4797,7 @@ md。。真是限定
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 67946#       发表于 2019-7-3 17:22
 
 
@@ -4811,7 +4806,7 @@ md。。真是限定
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67947#       发表于 2019-7-3 17:22
 
 
@@ -4823,7 +4818,7 @@ md。。真是限定
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67948#       发表于 2019-7-3 17:23
 
 
@@ -4834,7 +4829,7 @@ md。。真是限定
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67949#       发表于 2019-7-3 17:23
 
 
@@ -4843,7 +4838,7 @@ md。。真是限定
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67950#       发表于 2019-7-3 17:25
 
 
@@ -4854,7 +4849,7 @@ md。。真是限定
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67951#       发表于 2019-7-3 17:27
 
 
@@ -4863,7 +4858,7 @@ md。。真是限定
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 67952#       发表于 2019-7-3 17:29
 
 
@@ -4875,7 +4870,7 @@ md。。真是限定
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67953#       发表于 2019-7-3 17:29
 
 
@@ -4884,7 +4879,7 @@ md。。真是限定
 
 *****
 
-####  zechins  
+####  zechins
 ##### 67954#       发表于 2019-7-3 17:32
 
 
@@ -4893,7 +4888,7 @@ md。。真是限定
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67955#       发表于 2019-7-3 17:33
 
 
@@ -4904,7 +4899,7 @@ md。。真是限定
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 67956#       发表于 2019-7-3 17:35
 
 
@@ -4913,7 +4908,7 @@ md。。真是限定
 
 *****
 
-####  D．Va  
+####  D．Va
 ##### 67957#       发表于 2019-7-3 17:36
 
 
@@ -4922,7 +4917,7 @@ cv是77吧，太棒了
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 67958#       发表于 2019-7-3 17:40
 
 
@@ -4933,7 +4928,7 @@ cv是77吧，太棒了
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 67959#       发表于 2019-7-3 17:40
 
 
@@ -4942,7 +4937,7 @@ cv是77吧，太棒了
 
 *****
 
-####  v22325  
+####  v22325
 ##### 67960#       发表于 2019-7-3 17:40
 
 
@@ -4951,7 +4946,7 @@ cv是77吧，太棒了
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67961#       发表于 2019-7-3 17:41
 
 
@@ -4964,7 +4959,7 @@ cv是77吧，太棒了
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67962#       发表于 2019-7-3 17:42
 
 
@@ -4973,11 +4968,11 @@ fgo有森兰丸吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 67963#       发表于 2019-7-3 17:42
 
 
- 本帖最后由 花枝鱿鱼面 于 2019-7-3 18:05 编辑 
+ 本帖最后由 花枝鱿鱼面 于 2019-7-3 18:05 编辑
 
 说起来贴吧那个奶上杉谦信姿势的图居然两个都中了点，社长你也太摸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 喷了，咕哒子默认姿势
@@ -4987,7 +4982,7 @@ fgo有森兰丸吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 *****
 
-####  sandro  
+####  sandro
 ##### 67964#       发表于 2019-7-3 17:45
 
 
@@ -4996,7 +4991,7 @@ av nobu好妖艳
 
 *****
 
-####  zakki  
+####  zakki
 ##### 67965#       发表于 2019-7-3 17:48
 
 
@@ -5009,7 +5004,7 @@ av nobu好妖艳
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67966#       发表于 2019-7-3 17:49
 
 
@@ -5018,7 +5013,7 @@ av nobu好妖艳
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67967#       发表于 2019-7-3 17:49
 
 
@@ -5030,7 +5025,7 @@ av nobu好妖艳
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67968#       发表于 2019-7-3 17:51
 
 
@@ -5042,7 +5037,7 @@ av nobu好妖艳
 
 *****
 
-####  34789  
+####  34789
 ##### 67969#       发表于 2019-7-3 17:51
 
 
@@ -5051,7 +5046,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 67970#       发表于 2019-7-3 17:51
 
 
@@ -5063,7 +5058,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  kulanyee  
+####  kulanyee
 ##### 67971#       发表于 2019-7-3 17:58
 
 
@@ -5072,7 +5067,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67972#       发表于 2019-7-3 18:15
 
 
@@ -5083,7 +5078,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67973#       发表于 2019-7-3 18:17
 
 
@@ -5092,7 +5087,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67974#       发表于 2019-7-3 18:37
 
 
@@ -5101,7 +5096,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  v22325  
+####  v22325
 ##### 67975#       发表于 2019-7-3 18:37
 
 
@@ -5113,7 +5108,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 67976#       发表于 2019-7-3 18:48
 
 
@@ -5124,7 +5119,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 67977#       发表于 2019-7-3 18:51
 
 
@@ -5135,7 +5130,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67978#       发表于 2019-7-3 18:55
 
 
@@ -5149,7 +5144,7 @@ cm里面还有生面孔，这是要有二期卡池的样子啊
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 67979#       发表于 2019-7-3 19:00
 
 
@@ -5163,7 +5158,7 @@ mgo是啥
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 67980#       发表于 2019-7-3 19:50
 
 
@@ -5172,7 +5167,7 @@ mgo是啥
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67981#       发表于 2019-7-3 19:54
 
 
@@ -5184,7 +5179,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 67982#       发表于 2019-7-3 19:55
 
 
@@ -5193,7 +5188,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 67983#       发表于 2019-7-3 19:55
 
 
@@ -5205,7 +5200,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 67984#       发表于 2019-7-3 20:15
 
 
@@ -5214,7 +5209,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 67985#       发表于 2019-7-3 20:22
 
 
@@ -5226,18 +5221,18 @@ mgo是啥</blockquote>
 
 *****
 
-####  奈落的孤火花  
+####  奈落的孤火花
 ##### 67986#       发表于 2019-7-3 20:56
 
 
- 本帖最后由 奈落的孤火花 于 2019-7-3 21:01 编辑 
+ 本帖最后由 奈落的孤火花 于 2019-7-3 21:01 编辑
 
 如果FGO关服了，出一个包含所有副本和剧情的离线版的可能性大么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  sin.yugi  
+####  sin.yugi
 ##### 67987#       发表于 2019-7-3 22:35
 
 
@@ -5248,7 +5243,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  marxel  
+####  marxel
 ##### 67988#       发表于 2019-7-4 00:22
 
 
@@ -5263,19 +5258,19 @@ mgo是啥</blockquote>
 
 *****
 
-####  v22325  
+####  v22325
 ##### 67989#       发表于 2019-7-4 00:32
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44374872&amp;ptid=1085254" target="_blank">奈落的孤火花 发表于 2019-7-3 20:56</a>
 
 如果FGO关服了，出一个包含所有副本和剧情的离线版的可能性大么我现在好想弃坑但又害怕如果不能一直 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还记得愚人节那个么 不都给你删了 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还记得愚人节那个么 不都给你删了
 
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 67990#       发表于 2019-7-4 02:00
 
 
@@ -5290,7 +5285,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 67991#       发表于 2019-7-4 09:29
 
 
@@ -5305,18 +5300,18 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67992#       发表于 2019-7-4 14:55
 
 
- 本帖最后由 alucardcz 于 2019-7-4 14:59 编辑 
+ 本帖最后由 alucardcz 于 2019-7-4 14:59 编辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说魔王信長从强度上来说是不是已经gg了  红卡av光炮 光靠个神性特攻基本没救  那么要什么样的技能组才能变成准1流强度呢
 
 
 *****
 
-####  dante888  
+####  dante888
 ##### 67993#       发表于 2019-7-4 14:56
 
 
@@ -5327,7 +5322,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 67994#       发表于 2019-7-4 15:04
 
 
@@ -5339,7 +5334,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 67995#       发表于 2019-7-4 15:14
 
 
@@ -5350,7 +5345,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 67996#       发表于 2019-7-4 15:17
 
 
@@ -5359,7 +5354,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 67997#       发表于 2019-7-4 15:33
 
 
@@ -5370,7 +5365,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 67998#       发表于 2019-7-4 15:37
 
 
@@ -5379,12 +5374,12 @@ mgo是啥</blockquote>
 狂娜基本上是红卡光炮顶点了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">1技能赋予敌全体神型+红卡耐性down（3回合） 2技能获得每回合获取np+出星的效果（3回合 100% 20星） 3技能红卡30%up+集星+爆伤（3回合）
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">如何 
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">如何
 
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 67999#       发表于 2019-7-4 15:44
 
 
@@ -5393,7 +5388,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68000#       发表于 2019-7-4 15:46
 
 
@@ -5404,7 +5399,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68001#       发表于 2019-7-4 15:58
 
 
@@ -5416,7 +5411,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68002#       发表于 2019-7-4 16:23
 
 
@@ -5427,7 +5422,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68003#       发表于 2019-7-4 16:37
 
 
@@ -5436,7 +5431,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68004#       发表于 2019-7-4 17:03
 
 
@@ -5445,7 +5440,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68005#       发表于 2019-7-4 17:05
 
 
@@ -5454,7 +5449,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68006#       发表于 2019-7-4 17:06
 
 
@@ -5466,7 +5461,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68007#       发表于 2019-7-4 17:10
 
 
@@ -5475,7 +5470,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68008#       发表于 2019-7-4 17:11
 
 
@@ -5487,7 +5482,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68009#       发表于 2019-7-4 17:14
 
 
@@ -5496,7 +5491,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68010#       发表于 2019-7-4 17:25
 
 
@@ -5505,7 +5500,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68011#       发表于 2019-7-4 17:34
 
 
@@ -5514,7 +5509,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68012#       发表于 2019-7-4 17:39
 
 
@@ -5523,7 +5518,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68013#       发表于 2019-7-4 17:42
 
 
@@ -5532,7 +5527,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68014#       发表于 2019-7-4 17:43
 
 
@@ -5541,7 +5536,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68015#       发表于 2019-7-4 17:44
 
 
@@ -5550,7 +5545,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  katun  
+####  katun
 ##### 68016#       发表于 2019-7-4 17:45
 
 
@@ -5562,7 +5557,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  katun  
+####  katun
 ##### 68017#       发表于 2019-7-4 17:46
 
 
@@ -5571,7 +5566,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68018#       发表于 2019-7-4 17:46
 
 
@@ -5583,7 +5578,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68019#       发表于 2019-7-4 17:48
 
 
@@ -5594,7 +5589,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68020#       发表于 2019-7-4 17:49
 
 
@@ -5603,7 +5598,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68021#       发表于 2019-7-4 17:50
 
 
@@ -5615,7 +5610,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68022#       发表于 2019-7-4 17:50
 
 
@@ -5624,7 +5619,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68023#       发表于 2019-7-4 17:54
 
 
@@ -5633,7 +5628,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  katun  
+####  katun
 ##### 68024#       发表于 2019-7-4 17:59
 
 
@@ -5645,7 +5640,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68025#       发表于 2019-7-4 18:00
 
 
@@ -5654,7 +5649,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68026#       发表于 2019-7-4 18:01
 
 
@@ -5663,7 +5658,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68027#       发表于 2019-7-4 18:03
 
 
@@ -5674,7 +5669,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68028#       发表于 2019-7-4 18:03
 
 
@@ -5686,19 +5681,19 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68029#       发表于 2019-7-4 18:04
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44386088&amp;ptid=1085254" target="_blank">dante888 发表于 2019-7-4 18:03</a>
 
 平a又不看宝具数，上2个弱体纹章就行啊</blockquote>
-没啊 我说的是宝具啊 
+没啊 我说的是宝具啊
 
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68030#       发表于 2019-7-4 18:06
 
 
@@ -5707,7 +5702,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68031#       发表于 2019-7-4 18:07
 
 
@@ -5716,7 +5711,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68032#       发表于 2019-7-4 18:20
 
 
@@ -5725,7 +5720,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68033#       发表于 2019-7-4 18:22
 
 
@@ -5738,7 +5733,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 68034#       发表于 2019-7-4 18:25
 
 
@@ -5749,7 +5744,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68035#       发表于 2019-7-4 18:29
 
 
@@ -5760,7 +5755,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68036#       发表于 2019-7-4 18:30
 
 
@@ -5769,7 +5764,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68037#       发表于 2019-7-4 18:32
 
 
@@ -5778,7 +5773,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68038#       发表于 2019-7-4 18:34
 
 
@@ -5790,7 +5785,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68039#       发表于 2019-7-4 18:36
 
 
@@ -5804,7 +5799,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  闽明  
+####  闽明
 ##### 68040#       发表于 2019-7-4 18:37
 
 
@@ -5813,7 +5808,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68041#       发表于 2019-7-4 18:45
 
 
@@ -5822,7 +5817,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68042#       发表于 2019-7-4 18:53
 
 
@@ -5834,7 +5829,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  34789  
+####  34789
 ##### 68043#       发表于 2019-7-4 18:53
 
 
@@ -5845,11 +5840,11 @@ mgo是啥</blockquote>
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68044#       发表于 2019-7-4 18:58
 
 
- 本帖最后由 v22325 于 2019-7-4 19:02 编辑 
+ 本帖最后由 v22325 于 2019-7-4 19:02 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44386551&amp;ptid=1085254" target="_blank">LOLITA 发表于 2019-7-4 18:45</a>
 
 哦对了，活动开场那个墨镜男是谁啊？苏格兰场的人吗？</blockquote>
@@ -5858,7 +5853,7 @@ mgo是啥</blockquote>
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68045#       发表于 2019-7-4 19:00
 
 
@@ -5870,11 +5865,11 @@ mgo是啥</blockquote>
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68046#       发表于 2019-7-4 19:02
 
 
- 本帖最后由 eilot 于 2019-7-4 19:09 编辑 
+ 本帖最后由 eilot 于 2019-7-4 19:09 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44386440&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-7-4 18:34</a>
 
 确率回避   无敌贯通直接带走</blockquote>
@@ -5883,11 +5878,11 @@ mgo是啥</blockquote>
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68047#       发表于 2019-7-4 19:03
 
 
- 本帖最后由 Jamaisvu 于 2019-7-5 00:31 编辑 
+ 本帖最后由 Jamaisvu 于 2019-7-5 00:31 编辑
 <blockquote>LOLITA 发表于 2019-7-4 18:45
 哦对了，活动开场那个墨镜男是谁啊？苏格兰场的人吗？</blockquote>
 Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，控制熵；拉普拉斯妖能推导物质各时段的运动状态）
@@ -5898,7 +5893,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68048#       发表于 2019-7-4 19:04
 
 
@@ -5914,7 +5909,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  34789  
+####  34789
 ##### 68049#       发表于 2019-7-4 19:04
 
 
@@ -5926,7 +5921,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68050#       发表于 2019-7-4 19:08
 
 
@@ -5938,7 +5933,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68051#       发表于 2019-7-4 19:08
 
 
@@ -5947,7 +5942,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68052#       发表于 2019-7-4 19:09
 
 
@@ -5959,7 +5954,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68053#       发表于 2019-7-4 19:12
 
 
@@ -5971,7 +5966,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68054#       发表于 2019-7-4 19:17
 
 
@@ -5985,18 +5980,18 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68055#       发表于 2019-7-4 19:20
 
 
- 本帖最后由 ネロ 于 2019-7-4 19:22 编辑 
+ 本帖最后由 ネロ 于 2019-7-4 19:22 编辑
 
 我擦，大公，nmdwsm<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">居然是歪的第三宝，荣登我五星宝具等级最高
 
 
 *****
 
-####  虎克别音  
+####  虎克别音
 ##### 68056#       发表于 2019-7-4 20:35
 
 
@@ -6005,7 +6000,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68057#       发表于 2019-7-4 20:59
 
 
@@ -6014,7 +6009,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68058#       发表于 2019-7-4 21:01
 
 
@@ -6026,7 +6021,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68059#       发表于 2019-7-4 21:02
 
 
@@ -6035,7 +6030,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68060#       发表于 2019-7-4 21:02
 
 
@@ -6046,7 +6041,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68061#       发表于 2019-7-4 21:25
 
 
@@ -6055,7 +6050,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  GameTheory  
+####  GameTheory
 ##### 68062#       发表于 2019-7-4 21:41
 
 
@@ -6067,7 +6062,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68063#       发表于 2019-7-4 22:06
 
 
@@ -6076,18 +6071,18 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68064#       发表于 2019-7-4 22:28
 
 
- 本帖最后由 khxooo 于 2019-7-4 22:30 编辑 
+ 本帖最后由 khxooo 于 2019-7-4 22:30 编辑
 
 15呼符+10连，狂信长+4星礼装，连个3星礼装都不给<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68065#       发表于 2019-7-4 22:39
 
 
@@ -6103,7 +6098,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68066#       发表于 2019-7-4 23:13
 
 
@@ -6112,7 +6107,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68067#       发表于 2019-7-4 23:31
 
 
@@ -6123,7 +6118,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68068#       发表于 2019-7-4 23:33
 
 
@@ -6132,7 +6127,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68069#       发表于 2019-7-4 23:34
 
 
@@ -6147,18 +6142,18 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68070#       发表于 2019-7-5 00:12
 
 
- 本帖最后由 Jamaisvu 于 2019-7-5 00:33 编辑 
+ 本帖最后由 Jamaisvu 于 2019-7-5 00:33 编辑
 
 看了一下信长魔王的语音解包，二期大概有柴田胜家、织田信胜、明智光秀，麦克斯韦妖不知道一起来还是继续卫星。
 
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68071#       发表于 2019-7-5 00:16
 
 
@@ -6167,7 +6162,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68072#       发表于 2019-7-5 00:45
 
 
@@ -6176,7 +6171,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rzxa  
+####  rzxa
 ##### 68073#       发表于 2019-7-5 00:48
 
 
@@ -6185,7 +6180,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68074#       发表于 2019-7-5 03:27
 
 
@@ -6194,7 +6189,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68075#       发表于 2019-7-5 05:32
 
 
@@ -6203,7 +6198,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68076#       发表于 2019-7-5 05:56
 
 
@@ -6212,7 +6207,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68077#       发表于 2019-7-5 06:20
 
 
@@ -6221,7 +6216,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68078#       发表于 2019-7-5 07:30
 
 
@@ -6233,7 +6228,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68079#       发表于 2019-7-5 07:35
 
 
@@ -6242,7 +6237,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  bwjx88  
+####  bwjx88
 ##### 68080#       发表于 2019-7-5 09:14
 
 
@@ -6251,7 +6246,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68081#       发表于 2019-7-5 09:23
 
 
@@ -6262,7 +6257,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 68082#       发表于 2019-7-5 09:25
 
 
@@ -6275,7 +6270,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  風卷豹  
+####  風卷豹
 ##### 68083#       发表于 2019-7-5 09:40
 
 
@@ -6286,7 +6281,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  xiongxingyu  
+####  xiongxingyu
 ##### 68084#       发表于 2019-7-5 09:53
 
 
@@ -6295,7 +6290,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68085#       发表于 2019-7-5 10:03
 
 
@@ -6311,7 +6306,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68086#       发表于 2019-7-5 10:06
 
 
@@ -6321,14 +6316,14 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 帅气大姐你摇了我吧
 
-5宝自buff70 带孔明呆毛buff 新年衣服buff 带倍卡白字40w  算了算 不带倍卡这么多buff人均7w 
+5宝自buff70 带孔明呆毛buff 新年衣服buff 带倍卡白字40w  算了算 不带倍卡这么多buff人均7w
 
 这也太强了吧
 
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 68087#       发表于 2019-7-5 10:28
 
 
@@ -6342,7 +6337,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68088#       发表于 2019-7-5 10:43
 
 
@@ -6353,7 +6348,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68089#       发表于 2019-7-5 10:51
 
 
@@ -6362,7 +6357,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  jacatay  
+####  jacatay
 ##### 68090#       发表于 2019-7-5 11:15
 
 
@@ -6371,7 +6366,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68091#       发表于 2019-7-5 11:24
 
 
@@ -6383,7 +6378,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  notmyproblem  
+####  notmyproblem
 ##### 68092#       发表于 2019-7-5 11:27
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -6391,7 +6386,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68093#       发表于 2019-7-5 11:32
 
 
@@ -6400,7 +6395,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68094#       发表于 2019-7-5 11:34
 
 
@@ -6416,7 +6411,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68095#       发表于 2019-7-5 11:37
 
 
@@ -6430,7 +6425,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68096#       发表于 2019-7-5 11:40
 
 
@@ -6444,7 +6439,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68097#       发表于 2019-7-5 11:43
 
 
@@ -6456,14 +6451,14 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  鱼缸  
+####  鱼缸
 ##### 68098#       发表于 2019-7-5 11:48
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44394064&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-7-5 11:32</a>
 
 上一个能连发的绿卡好像是布妹？</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">她要绑李庄又要宝具高到鞭尸才能连发……但已经有两个随便连发的枪四星了 
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">她要绑李庄又要宝具高到鞭尸才能连发……但已经有两个随便连发的枪四星了
 
 新五星是旧四星的下位替换 不是很懂做卡的人在想什么
 
@@ -6472,12 +6467,12 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68099#       发表于 2019-7-5 11:53
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44394270&amp;ptid=1085254" target="_blank">鱼缸 发表于 2019-7-5 11:48</a>
-她要绑李庄又要宝具高到鞭尸才能连发……但已经有两个随便连发的枪四星了 
+她要绑李庄又要宝具高到鞭尸才能连发……但已经有两个随便连发的枪四星了
 
 新五星是旧四星的下位 ...</blockquote>
 我觉得还是2个4星枪竞争力太强，显得布妹弱，脚后跟1宝我也是大量在用，没感觉有什么不好，布妹就活动之后光速过气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -6485,7 +6480,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68100#       发表于 2019-7-5 11:59
 
 
@@ -6494,7 +6489,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68101#       发表于 2019-7-5 12:02
 
 
@@ -6503,7 +6498,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68102#       发表于 2019-7-5 12:06
 
 
@@ -6512,7 +6507,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68103#       发表于 2019-7-5 12:07
 
 
@@ -6521,7 +6516,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  广西桂系兵  
+####  广西桂系兵
 ##### 68104#       发表于 2019-7-5 12:35
 
 
@@ -6535,7 +6530,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68105#       发表于 2019-7-5 12:56
 
 
@@ -6547,7 +6542,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68106#       发表于 2019-7-5 13:46
 
 
@@ -6559,7 +6554,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68107#       发表于 2019-7-5 13:49
 
 
@@ -6571,7 +6566,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68108#       发表于 2019-7-5 13:49
 
 
@@ -6580,7 +6575,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68109#       发表于 2019-7-5 14:03
 
 
@@ -6589,7 +6584,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68110#       发表于 2019-7-5 16:57
 
 
@@ -6601,7 +6596,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68111#       发表于 2019-7-5 17:04
 
 
@@ -6613,7 +6608,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68112#       发表于 2019-7-5 17:09
 
 
@@ -6626,7 +6621,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68113#       发表于 2019-7-5 17:16
 
 
@@ -6638,7 +6633,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68114#       发表于 2019-7-5 17:20
 
 
@@ -6650,7 +6645,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68115#       发表于 2019-7-5 17:22
 
 
@@ -6662,7 +6657,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68116#       发表于 2019-7-5 17:34
 
 
@@ -6672,16 +6667,16 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68117#       发表于 2019-7-5 17:37
 
 
-说起来上杉那宝具是什么史实？怎么八次都是从前面冲过来的 
+说起来上杉那宝具是什么史实？怎么八次都是从前面冲过来的
 
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68118#       发表于 2019-7-5 17:40
 
 
@@ -6696,7 +6691,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68119#       发表于 2019-7-5 17:52
 
 
@@ -6707,7 +6702,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68120#       发表于 2019-7-5 18:42
 
 
@@ -6720,18 +6715,18 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68121#       发表于 2019-7-5 23:53
 
 
- 本帖最后由 khxooo 于 2019-7-5 23:55 编辑 
+ 本帖最后由 khxooo 于 2019-7-5 23:55 编辑
 
 故事也太短了，不够过瘾。明智最后的颜艺笑死了，猴子落地怕不是又是要互怼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过接着是冲田Alter的戏份了吧，毕竟前面的戏份太少了，肯定在后日谈补回来
 
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68122#       发表于 2019-7-6 02:50
 
 
@@ -6740,16 +6735,16 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68123#       发表于 2019-7-6 15:59
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事想换狂烂3连玩玩 结果不习惯操作翻车了。。还翻了2把 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事想换狂烂3连玩玩 结果不习惯操作翻车了。。还翻了2把
 
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68124#       发表于 2019-7-6 16:11
 
 
@@ -6760,7 +6755,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68125#       发表于 2019-7-6 16:15
 
 
@@ -6772,7 +6767,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68126#       发表于 2019-7-6 16:15
 
 
@@ -6781,7 +6776,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68127#       发表于 2019-7-6 16:41
 
 
@@ -6792,7 +6787,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68128#       发表于 2019-7-6 19:17
 
 
@@ -6801,7 +6796,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68129#       发表于 2019-7-7 14:05
 
 
@@ -6813,7 +6808,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68130#       发表于 2019-7-7 14:14
 
 
@@ -6822,7 +6817,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68131#       发表于 2019-7-7 14:15
 
 
@@ -6837,7 +6832,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68132#       发表于 2019-7-7 16:47
 
 
@@ -6846,7 +6841,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68133#       发表于 2019-7-7 17:00
 
 
@@ -6858,7 +6853,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 68134#       发表于 2019-7-7 17:28
 
 
@@ -6867,7 +6862,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68135#       发表于 2019-7-7 18:52
 
 
@@ -6876,7 +6871,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 68136#       发表于 2019-7-7 19:00
 
 
@@ -6885,7 +6880,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68137#       发表于 2019-7-7 19:39
 
 
@@ -6894,7 +6889,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68138#       发表于 2019-7-7 19:40
 
 
@@ -6906,7 +6901,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68139#       发表于 2019-7-8 17:05
 
 
@@ -6915,7 +6910,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68140#       发表于 2019-7-8 18:53
 
 
@@ -6924,7 +6919,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68141#       发表于 2019-7-8 19:10
 
 
@@ -6933,7 +6928,7 @@ Caster麦克斯韦妖（已改，麦克斯韦妖能观测到分子热运动，�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68142#       发表于 2019-7-8 19:19
 
 
@@ -6944,7 +6939,7 @@ ygg：四周年根据纪念礼装数量送石头<img src="https://static.saraba1
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68143#       发表于 2019-7-8 19:27
 
 
@@ -6956,18 +6951,18 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  夜游绯依  
+####  夜游绯依
 ##### 68144#       发表于 2019-7-8 22:38
 
 
- 本帖最后由 夜游绯依 于 2019-7-8 23:02 编辑 
+ 本帖最后由 夜游绯依 于 2019-7-8 23:02 编辑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉好久没抽福袋了。。石头这么贵。。。。更想抽福袋了
 
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68145#       发表于 2019-7-9 17:43
 
 
@@ -6976,7 +6971,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68146#       发表于 2019-7-9 17:57
 
 
@@ -6987,7 +6982,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  蕾丝  
+####  蕾丝
 ##### 68147#       发表于 2019-7-9 18:01
 
 
@@ -7000,7 +6995,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68148#       发表于 2019-7-9 20:24
 
 
@@ -7009,7 +7004,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68149#       发表于 2019-7-9 20:38
 
 
@@ -7018,7 +7013,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68150#       发表于 2019-7-9 21:04
 
 
@@ -7030,7 +7025,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68151#       发表于 2019-7-9 21:11
 
 
@@ -7042,7 +7037,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  断线木偶  
+####  断线木偶
 ##### 68152#       发表于 2019-7-10 21:54
 
 
@@ -7053,7 +7048,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68153#       发表于 2019-7-11 00:48
 
 
@@ -7064,7 +7059,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68154#       发表于 2019-7-11 00:58
 
 
@@ -7073,7 +7068,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68155#       发表于 2019-7-11 13:49
 
 
@@ -7082,7 +7077,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68156#       发表于 2019-7-11 17:32
 
 
@@ -7091,7 +7086,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68157#       发表于 2019-7-11 17:38
 
 
@@ -7103,7 +7098,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68158#       发表于 2019-7-11 17:40
 
 
@@ -7114,7 +7109,7 @@ ygg：四周年根据纪念礼装数量送石头</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68159#       发表于 2019-7-11 18:00
 
 
@@ -7123,20 +7118,20 @@ free本的血量有点高啊<img src="https://static.saraba1st.com/image/smiley/
 
 *****
 
-####  dawning  
+####  dawning
 ##### 68160#       发表于 2019-7-11 18:06
 
 bianji
 
 
- 本帖最后由 dawning 于 2019-7-11 18:12 编辑 
+ 本帖最后由 dawning 于 2019-7-11 18:12 编辑
 
 编辑，发错楼了
 
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68161#       发表于 2019-7-11 18:34
 
 
@@ -7145,7 +7140,7 @@ bianji
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68162#       发表于 2019-7-11 18:37
 
 
@@ -7157,7 +7152,7 @@ free本的血量有点高啊</blockquote>
 
 *****
 
-####  虎克别音  
+####  虎克别音
 ##### 68163#       发表于 2019-7-11 19:11
 
 
@@ -7166,7 +7161,7 @@ free本的血量有点高啊</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68164#       发表于 2019-7-11 19:28
 
 
@@ -7177,7 +7172,7 @@ free本的血量有点高啊</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68165#       发表于 2019-7-11 20:05
 
 
@@ -7186,7 +7181,7 @@ free本的血量有点高啊</blockquote>
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68166#       发表于 2019-7-11 20:19
 
 
@@ -7195,7 +7190,7 @@ free本的血量有点高啊</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68167#       发表于 2019-7-11 20:28
 
 
@@ -7204,7 +7199,7 @@ free本的血量有点高啊</blockquote>
 
 *****
 
-####  鱼缸  
+####  鱼缸
 ##### 68168#       发表于 2019-7-11 20:35
 
 
@@ -7216,7 +7211,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68169#       发表于 2019-7-11 20:45
 
 
@@ -7228,7 +7223,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68170#       发表于 2019-7-11 20:49
 
 
@@ -7240,7 +7235,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68171#       发表于 2019-7-11 21:08
 
 
@@ -7249,7 +7244,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68172#       发表于 2019-7-11 21:11
 
 
@@ -7258,7 +7253,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68173#       发表于 2019-7-11 22:02
 
 
@@ -7270,7 +7265,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68174#       发表于 2019-7-11 22:52
 
 
@@ -7281,7 +7276,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68175#       发表于 2019-7-11 23:38
 
 
@@ -7290,7 +7285,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Dizzylily  
+####  Dizzylily
 ##### 68176#       发表于 2019-7-12 00:36
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -7298,7 +7293,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68177#       发表于 2019-7-12 00:44
 
 
@@ -7307,7 +7302,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68178#       发表于 2019-7-12 00:45
 
 
@@ -7317,7 +7312,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68179#       发表于 2019-7-12 07:36
 
 
@@ -7326,7 +7321,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68180#       发表于 2019-7-12 09:37
 
 
@@ -7337,7 +7332,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68181#       发表于 2019-7-12 10:22
 
 
@@ -7346,7 +7341,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  jacatay  
+####  jacatay
 ##### 68182#       发表于 2019-7-12 10:35
 
 
@@ -7355,7 +7350,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68183#       发表于 2019-7-12 10:39
 
 
@@ -7367,7 +7362,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68184#       发表于 2019-7-12 10:39
 
 
@@ -7376,7 +7371,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68185#       发表于 2019-7-12 10:52
 
 
@@ -7387,7 +7382,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68186#       发表于 2019-7-12 18:52
 
 
@@ -7396,7 +7391,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  yongze  
+####  yongze
 ##### 68187#       发表于 2019-7-12 18:58
 
 
@@ -7405,7 +7400,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68188#       发表于 2019-7-13 11:07
 
 
@@ -7414,7 +7409,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68189#       发表于 2019-7-13 11:38
 
 
@@ -7425,7 +7420,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68190#       发表于 2019-7-13 11:55
 
 
@@ -7434,7 +7429,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68191#       发表于 2019-7-13 11:58
 
 
@@ -7448,7 +7443,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  克瓦特罗大尉  
+####  克瓦特罗大尉
 ##### 68192#       发表于 2019-7-13 23:51
 
 
@@ -7457,7 +7452,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  尤梅文  
+####  尤梅文
 ##### 68193#       发表于 2019-7-14 01:19
 
 
@@ -7469,7 +7464,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  克瓦特罗大尉  
+####  克瓦特罗大尉
 ##### 68194#       发表于 2019-7-14 11:39
 
 
@@ -7481,7 +7476,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68195#       发表于 2019-7-14 23:56
 
 
@@ -7490,7 +7485,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68196#       发表于 2019-7-15 06:57
 
 
@@ -7501,7 +7496,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  D．Va  
+####  D．Va
 ##### 68197#       发表于 2019-7-15 07:11
 
 
@@ -7510,7 +7505,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68198#       发表于 2019-7-15 12:03
 
 
@@ -7522,7 +7517,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68199#       发表于 2019-7-15 12:33
 
 
@@ -7533,7 +7528,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68200#       发表于 2019-7-15 12:34
 
 
@@ -7545,7 +7540,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68201#       发表于 2019-7-15 12:50
 
 
@@ -7554,7 +7549,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68202#       发表于 2019-7-15 13:33
 
 
@@ -7566,7 +7561,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68203#       发表于 2019-7-15 13:34
 
 
@@ -7575,7 +7570,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68204#       发表于 2019-7-15 15:08
 
 
@@ -7586,7 +7581,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68205#       发表于 2019-7-15 15:14
 
 
@@ -7597,7 +7592,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68206#       发表于 2019-7-15 17:12
 
 
@@ -7606,7 +7601,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68207#       发表于 2019-7-15 17:21
 
 
@@ -7617,7 +7612,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68208#       发表于 2019-7-15 17:25
 
 
@@ -7626,7 +7621,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68209#       发表于 2019-7-15 17:28
 
 
@@ -7638,7 +7633,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  jacatay  
+####  jacatay
 ##### 68210#       发表于 2019-7-15 17:29
 
 
@@ -7647,7 +7642,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68211#       发表于 2019-7-15 17:40
 
 
@@ -7656,7 +7651,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  3436  
+####  3436
 ##### 68212#       发表于 2019-7-15 17:50
 
 
@@ -7665,7 +7660,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68213#       发表于 2019-7-15 17:58
 
 
@@ -7674,7 +7669,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68214#       发表于 2019-7-15 18:01
 
 
@@ -7683,7 +7678,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68215#       发表于 2019-7-15 18:04
 
 
@@ -7692,7 +7687,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68216#       发表于 2019-7-15 18:06
 
 
@@ -7701,7 +7696,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68217#       发表于 2019-7-15 18:10
 
 
@@ -7712,7 +7707,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68218#       发表于 2019-7-15 20:56
 
 
@@ -7721,7 +7716,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68219#       发表于 2019-7-15 21:00
 
 
@@ -7733,7 +7728,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  枫紫  
+####  枫紫
 ##### 68220#       发表于 2019-7-16 10:49
 
 
@@ -7742,7 +7737,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68221#       发表于 2019-7-16 10:53
 
 
@@ -7753,7 +7748,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68222#       发表于 2019-7-16 11:43
 
 
@@ -7764,7 +7759,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68223#       发表于 2019-7-16 12:42
 
 
@@ -7773,7 +7768,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68224#       发表于 2019-7-17 16:52
 
 
@@ -7782,7 +7777,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68225#       发表于 2019-7-17 17:03
 
 
@@ -7791,7 +7786,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68226#       发表于 2019-7-17 17:14
 
 
@@ -7803,7 +7798,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68227#       发表于 2019-7-17 17:15
 
 
@@ -7812,7 +7807,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 68228#       发表于 2019-7-17 17:17
 
 
@@ -7821,7 +7816,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68229#       发表于 2019-7-17 17:20
 
 
@@ -7833,7 +7828,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68230#       发表于 2019-7-17 17:21
 
 
@@ -7845,7 +7840,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68231#       发表于 2019-7-17 17:24
 
 
@@ -7857,7 +7852,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68232#       发表于 2019-7-17 17:25
 
 
@@ -7869,7 +7864,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  katun  
+####  katun
 ##### 68233#       发表于 2019-7-17 17:25
 
 
@@ -7878,7 +7873,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  kulanyee  
+####  kulanyee
 ##### 68234#       发表于 2019-7-17 17:30
 
 
@@ -7887,7 +7882,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  quanlix  
+####  quanlix
 ##### 68235#       发表于 2019-7-17 17:33
 
 
@@ -7896,7 +7891,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68236#       发表于 2019-7-17 17:36
 
 
@@ -7905,7 +7900,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68237#       发表于 2019-7-17 17:58
 
 
@@ -7914,7 +7909,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68238#       发表于 2019-7-17 18:01
 
 
@@ -7923,7 +7918,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68239#       发表于 2019-7-17 18:10
 
 
@@ -7932,7 +7927,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68240#       发表于 2019-7-17 18:12
 
 
@@ -7943,7 +7938,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68241#       发表于 2019-7-17 18:18
 
 
@@ -7957,11 +7952,11 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68242#       发表于 2019-7-17 18:19
 
 
- 本帖最后由 黑上シグマ 于 2019-7-17 18:21 编辑 
+ 本帖最后由 黑上シグマ 于 2019-7-17 18:21 编辑
 
 抽到第六张船长…………还不给我无记名灵基………………
 
@@ -7972,7 +7967,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68243#       发表于 2019-7-17 18:24
 
 
@@ -7988,7 +7983,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68244#       发表于 2019-7-17 18:29
 
 
@@ -8000,7 +7995,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 68245#       发表于 2019-7-17 18:35
 
 
@@ -8009,7 +8004,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68246#       发表于 2019-7-17 18:37
 
 
@@ -8021,7 +8016,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68247#       发表于 2019-7-17 18:41
 
 
@@ -8032,7 +8027,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68248#       发表于 2019-7-17 18:49
 
 
@@ -8042,7 +8037,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68249#       发表于 2019-7-17 19:09
 
 
@@ -8051,7 +8046,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68250#       发表于 2019-7-17 19:15
 
 
@@ -8060,7 +8055,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68251#       发表于 2019-7-17 19:18
 
 
@@ -8071,15 +8066,15 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68252#       发表于 2019-7-17 19:18
 
 
- 本帖最后由 alucardcz 于 2019-7-17 19:21 编辑 
+ 本帖最后由 alucardcz 于 2019-7-17 19:21 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44554680&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-7-17 19:18</a>
 
 萌新你的2宝伯爵呢</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不存在了  
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不存在了
 
 
 看了看离下次签到30石还有13天 大概还有最后一博的机会(
@@ -8087,12 +8082,12 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68253#       发表于 2019-7-17 19:27
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44554686&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-7-17 19:18</a>
-不存在了  
+不存在了
 
 
 看了看离下次签到30石还有13天 大概还有最后一博的机会(</blockquote>
@@ -8101,7 +8096,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68254#       发表于 2019-7-17 19:28
 
 
@@ -8113,7 +8108,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68255#       发表于 2019-7-17 19:31
 
 
@@ -8124,7 +8119,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68256#       发表于 2019-7-17 19:34
 
 
@@ -8136,7 +8131,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68257#       发表于 2019-7-17 19:48
 
 
@@ -8145,7 +8140,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68258#       发表于 2019-7-17 20:12
 
 
@@ -8154,7 +8149,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68259#       发表于 2019-7-18 01:56
 
 
@@ -8163,7 +8158,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  氤墨  
+####  氤墨
 ##### 68260#       发表于 2019-7-18 07:09
 
 
@@ -8172,7 +8167,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68261#       发表于 2019-7-18 09:50
 
 
@@ -8187,7 +8182,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68262#       发表于 2019-7-18 09:56
 
 
@@ -8201,7 +8196,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68263#       发表于 2019-7-18 10:01
 
 
@@ -8212,7 +8207,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68264#       发表于 2019-7-18 10:03
 
 
@@ -8221,7 +8216,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rxrx  
+####  rxrx
 ##### 68265#       发表于 2019-7-18 10:18
 
 
@@ -8230,7 +8225,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68266#       发表于 2019-7-18 12:37
 
 
@@ -8239,7 +8234,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68267#       发表于 2019-7-18 12:40
 
 
@@ -8248,7 +8243,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68268#       发表于 2019-7-18 15:36
 
 
@@ -8257,7 +8252,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  kulanyee  
+####  kulanyee
 ##### 68269#       发表于 2019-7-18 17:01
 
 
@@ -8266,7 +8261,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68270#       发表于 2019-7-18 23:49
 
 
@@ -8279,7 +8274,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68271#       发表于 2019-7-19 22:57
 
 
@@ -8288,7 +8283,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  悲铃空幻  
+####  悲铃空幻
 ##### 68272#       发表于 2019-7-20 07:41
 
 
@@ -8297,7 +8292,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68273#       发表于 2019-7-20 13:33
 
 
@@ -8306,7 +8301,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68274#       发表于 2019-7-20 16:10
 
 
@@ -8318,7 +8313,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68275#       发表于 2019-7-20 18:51
 
 
@@ -8332,7 +8327,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68276#       发表于 2019-7-20 18:56
 
 
@@ -8346,7 +8341,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68277#       发表于 2019-7-21 09:00
 
 
@@ -8357,7 +8352,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68278#       发表于 2019-7-21 14:51
 
 
@@ -8366,7 +8361,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68279#       发表于 2019-7-21 15:43
 
 
@@ -8375,7 +8370,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68280#       发表于 2019-7-21 15:50
 
 
@@ -8387,7 +8382,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68281#       发表于 2019-7-21 15:53
 
 
@@ -8396,7 +8391,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68282#       发表于 2019-7-21 16:59
 
 
@@ -8407,7 +8402,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68283#       发表于 2019-7-21 17:00
 
 
@@ -8419,7 +8414,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68284#       发表于 2019-7-21 23:43
 
 
@@ -8428,7 +8423,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68285#       发表于 2019-7-22 00:03
 
 
@@ -8437,7 +8432,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68286#       发表于 2019-7-22 06:06
 
 
@@ -8448,7 +8443,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68287#       发表于 2019-7-22 16:39
 
 
@@ -8457,7 +8452,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68288#       发表于 2019-7-22 16:47
 
 
@@ -8468,7 +8463,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68289#       发表于 2019-7-22 17:13
 
 
@@ -8477,7 +8472,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68290#       发表于 2019-7-22 17:22
 
 
@@ -8493,7 +8488,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68291#       发表于 2019-7-22 18:34
 
 
@@ -8507,7 +8502,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68292#       发表于 2019-7-22 20:00
 
 
@@ -8516,7 +8511,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68293#       发表于 2019-7-22 20:08
 
 
@@ -8528,7 +8523,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68294#       发表于 2019-7-22 20:10
 
 
@@ -8542,7 +8537,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68295#       发表于 2019-7-22 20:14
 
 
@@ -8558,11 +8553,11 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68296#       发表于 2019-7-22 20:17
 
 
- 本帖最后由 v22325 于 2019-7-22 20:19 编辑 
+ 本帖最后由 v22325 于 2019-7-22 20:19 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44620049&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-7-22 20:08</a>
 
 哈？现在不把活动通常分开挂的人才是少数吧？</blockquote>
@@ -8572,7 +8567,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68297#       发表于 2019-7-22 20:22
 
 
@@ -8594,7 +8589,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68298#       发表于 2019-7-22 20:24
 
 
@@ -8606,7 +8601,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68299#       发表于 2019-7-22 20:26
 
 
@@ -8621,7 +8616,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68300#       发表于 2019-7-22 20:28
 
 
@@ -8633,28 +8628,28 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68301#       发表于 2019-7-22 20:34
 
 
 <blockquote>alucardcz 发表于 2019-7-22 20:28
 这功能..已经不能叫新了...什么时候出的我都不记得了</blockquote>
 
-😂因为我一直非常顺手  平时就挂回绊礼装和钱 活动就挂活动角等 用不到这种功能啊 
+😂因为我一直非常顺手  平时就挂回绊礼装和钱 活动就挂活动角等 用不到这种功能啊
 
-要不是今天看20个好友请求满了  清了一个一个月不登录的 想顺手清理一下不挂礼装的人 
+要不是今天看20个好友请求满了  清了一个一个月不登录的 想顺手清理一下不挂礼装的人
 
 不然我都意识不到这回事
 
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68302#       发表于 2019-7-22 20:44
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44620343&amp;ptid=1085254" target="_blank">v22325 发表于 2019-7-22 20:34</a>
-😂因为我一直非常顺手  平时就挂回绊礼装和钱 活动就挂活动角等 用不到这种功能啊 
+😂因为我一直非常顺手  平时就挂回绊礼装和钱 活动就挂活动角等 用不到这种功能啊
 
 要不是今天看20个好友 ...</blockquote>
 说明你没有真爱，不需要常年挂<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
@@ -8662,7 +8657,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68303#       发表于 2019-7-22 20:49
 
 
@@ -8671,7 +8666,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68304#       发表于 2019-7-23 01:11
 
 
@@ -8680,7 +8675,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68305#       发表于 2019-7-23 08:00
 
 
@@ -8689,7 +8684,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68306#       发表于 2019-7-23 11:57
 
 
@@ -8698,7 +8693,7 @@ CBA出来后就可以用了 因为她没有需要按的技能 周回的时候还
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68307#       发表于 2019-7-23 12:46
 
 
@@ -8709,7 +8704,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 68308#       发表于 2019-7-24 17:09
 
 
@@ -8718,7 +8713,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68309#       发表于 2019-7-24 17:15
 
 
@@ -8727,7 +8722,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68310#       发表于 2019-7-24 17:36
 
 
@@ -8736,7 +8731,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68311#       发表于 2019-7-24 18:08
 
 
@@ -8745,7 +8740,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68312#       发表于 2019-7-24 18:13
 
 
@@ -8754,7 +8749,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68313#       发表于 2019-7-24 18:56
 
 
@@ -8765,7 +8760,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68314#       发表于 2019-7-24 19:04
 
 
@@ -8776,7 +8771,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  丘萤之光  
+####  丘萤之光
 ##### 68315#       发表于 2019-7-24 19:54
 
 
@@ -8785,7 +8780,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68316#       发表于 2019-7-24 19:57
 
 
@@ -8794,7 +8789,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68317#       发表于 2019-7-24 20:02
 
 
@@ -8803,7 +8798,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  Alice.Andvari  
+####  Alice.Andvari
 ##### 68318#       发表于 2019-7-24 21:46
 
 
@@ -8812,7 +8807,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68319#       发表于 2019-7-24 22:18
 
 
@@ -8821,7 +8816,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68320#       发表于 2019-7-25 00:16
 
 
@@ -8830,7 +8825,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68321#       发表于 2019-7-25 10:30
 
 
@@ -8839,7 +8834,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68322#       发表于 2019-7-25 10:53
 
 
@@ -8851,7 +8846,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68323#       发表于 2019-7-25 10:56
 
 
@@ -8862,7 +8857,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68324#       发表于 2019-7-25 11:38
 
 
@@ -8873,7 +8868,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  落とされ神  
+####  落とされ神
 ##### 68325#       发表于 2019-7-25 16:18
 
 
@@ -8884,7 +8879,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68326#       发表于 2019-7-25 19:09
 
 
@@ -8895,7 +8890,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68327#       发表于 2019-7-25 20:42
 
 
@@ -8904,7 +8899,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68328#       发表于 2019-7-26 00:32
 
 
@@ -8913,7 +8908,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68329#       发表于 2019-7-26 16:29
 
 
@@ -8922,7 +8917,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68330#       发表于 2019-7-26 17:22
 
 
@@ -8931,7 +8926,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68331#       发表于 2019-7-26 17:33
 
 
@@ -8940,7 +8935,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68332#       发表于 2019-7-26 18:12
 
 
@@ -8949,7 +8944,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68333#       发表于 2019-7-26 19:13
 
 
@@ -8958,7 +8953,7 @@ up、改模、新宝具动画都可以安排上了
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68334#       发表于 2019-7-26 23:44
 
 
@@ -8967,7 +8962,7 @@ Sion礼装还剩4天到期结果绿方不够<img src="https://static.saraba1st.c
 
 *****
 
-####  虎克别音  
+####  虎克别音
 ##### 68335#       发表于 2019-7-27 00:29
 
 
@@ -8979,7 +8974,7 @@ av60894558
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68336#       发表于 2019-7-27 10:17
 
 
@@ -8988,7 +8983,7 @@ av60894558
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68337#       发表于 2019-7-27 10:20
 
 
@@ -8997,16 +8992,16 @@ av60894558
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68338#       发表于 2019-7-27 10:26
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正一张僵尸酒吞一张阿比就完事了 僵尸酒吞简直太棒了 图超多的 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正一张僵尸酒吞一张阿比就完事了 僵尸酒吞简直太棒了 图超多的
 
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68339#       发表于 2019-7-27 10:30
 
 
@@ -9018,7 +9013,7 @@ av60894558
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68340#       发表于 2019-7-27 15:30
 
 
@@ -9027,7 +9022,7 @@ av60894558
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68341#       发表于 2019-7-27 17:12
 
 
@@ -9044,7 +9039,7 @@ av60894558
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68342#       发表于 2019-7-27 17:15
 
 
@@ -9060,7 +9055,7 @@ av60894558
 
 *****
 
-####  巴裘拉  
+####  巴裘拉
 ##### 68343#       发表于 2019-7-27 20:42
 
 
@@ -9069,7 +9064,7 @@ av60894558
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68344#       发表于 2019-7-28 18:24
 
 
@@ -9078,7 +9073,7 @@ av60894558
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68345#       发表于 2019-7-28 18:28
 
 
@@ -9089,7 +9084,7 @@ av60894558
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68346#       发表于 2019-7-28 18:54
 
 
@@ -9100,7 +9095,7 @@ av60894558
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68347#       发表于 2019-7-28 19:08
 
 
@@ -9112,7 +9107,7 @@ av60894558
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68348#       发表于 2019-7-28 19:14
 
 
@@ -9123,7 +9118,7 @@ av60894558
 
 *****
 
-####  hylq2100  
+####  hylq2100
 ##### 68349#       发表于 2019-7-28 23:07
 
 
@@ -9132,7 +9127,7 @@ av60894558
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68350#       发表于 2019-7-28 23:15
 
 
@@ -9141,7 +9136,7 @@ av60894558
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68351#       发表于 2019-7-29 09:15
 
 
@@ -9150,7 +9145,7 @@ av60894558
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68352#       发表于 2019-7-29 09:40
 
 
@@ -9162,7 +9157,7 @@ av60894558
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68353#       发表于 2019-7-29 09:44
 
 
@@ -9173,7 +9168,7 @@ av60894558
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68354#       发表于 2019-7-29 09:50
 
 
@@ -9184,7 +9179,7 @@ av60894558
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68355#       发表于 2019-7-29 10:18
 
 
@@ -9193,7 +9188,7 @@ av60894558
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68356#       发表于 2019-7-29 10:51
 
 
@@ -9204,7 +9199,7 @@ av60894558
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68357#       发表于 2019-7-29 11:01
 
 
@@ -9215,7 +9210,7 @@ av60894558
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68358#       发表于 2019-7-29 14:15
 
 
@@ -9224,7 +9219,7 @@ av60894558
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68359#       发表于 2019-7-29 21:00
 
 
@@ -9233,7 +9228,7 @@ av60894558
 
 *****
 
-####  落とされ神  
+####  落とされ神
 ##### 68360#       发表于 2019-7-30 04:31
 
 
@@ -9244,7 +9239,7 @@ iOS？安卓不是ban了这个
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68361#       发表于 2019-7-30 05:34
 
 
@@ -9253,7 +9248,7 @@ iOS？安卓不是ban了这个
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68362#       发表于 2019-7-30 07:41
 
 
@@ -9264,7 +9259,7 @@ iOS？安卓不是ban了这个</blockquote>
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68363#       发表于 2019-7-30 08:46
 
 
@@ -9276,7 +9271,7 @@ iOS？安卓不是ban了这个</blockquote>
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68364#       发表于 2019-7-30 09:48
 
 
@@ -9289,7 +9284,7 @@ iOS？安卓不是ban了这个</blockquote>
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68365#       发表于 2019-7-30 10:01
 
 
@@ -9301,7 +9296,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 68366#       发表于 2019-7-30 13:42
 
 
@@ -9310,7 +9305,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68367#       发表于 2019-7-30 14:25
 
 
@@ -9319,7 +9314,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  消失的兰斯  
+####  消失的兰斯
 ##### 68368#       发表于 2019-7-30 17:10
 
 
@@ -9368,7 +9363,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68369#       发表于 2019-7-30 17:18
 
 
@@ -9377,7 +9372,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68370#       发表于 2019-7-30 18:32
 
 
@@ -9386,7 +9381,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68371#       发表于 2019-7-30 18:39
 
 
@@ -9395,7 +9390,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68372#       发表于 2019-7-30 18:39
 
 
@@ -9410,7 +9405,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68373#       发表于 2019-7-30 18:44
 
 
@@ -9422,7 +9417,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68374#       发表于 2019-7-30 18:55
 
 
@@ -9431,7 +9426,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68375#       发表于 2019-7-30 18:55
 
 
@@ -9442,7 +9437,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  areklose  
+####  areklose
 ##### 68376#       发表于 2019-7-30 18:56
 
 
@@ -9451,7 +9446,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68377#       发表于 2019-7-30 18:57
 
 
@@ -9460,16 +9455,16 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68378#       发表于 2019-7-30 19:00
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了我点数还没毕业才260w 最近回去干ff14了快忘记什么是手游了 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了我点数还没毕业才260w 最近回去干ff14了快忘记什么是手游了
 
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68379#       发表于 2019-7-30 21:09
 
 
@@ -9478,7 +9473,7 @@ BAN的是非本地服余额，所以别的服礼品卡也没用，当然日服�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68380#       发表于 2019-7-30 21:24
 
 
@@ -9487,7 +9482,7 @@ KMR是真的懂科学养猪，知道只要送石头就能让母猪叫好<img src
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68381#       发表于 2019-7-30 21:58
 
 
@@ -9496,7 +9491,7 @@ KMR是真的懂科学养猪，知道只要送石头就能让母猪叫好<img src
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68382#       发表于 2019-7-30 22:24
 
 
@@ -9507,11 +9502,11 @@ KMR是真的懂科学养猪，知道只要送石头就能让母猪叫好<img src
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68383#       发表于 2019-7-30 22:49
 
 
- 本帖最后由 khxooo 于 2019-7-30 22:52 编辑 
+ 本帖最后由 khxooo 于 2019-7-30 22:52 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44727878&amp;ptid=1085254" target="_blank">dante888 发表于 2019-7-30 22:24</a>
 
 说好的吴克呢，别学我啊</blockquote>
@@ -9520,7 +9515,7 @@ KMR是真的懂科学养猪，知道只要送石头就能让母猪叫好<img src
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68384#       发表于 2019-7-30 22:50
 
 
@@ -9532,7 +9527,7 @@ KMR起码给母猪吃东西，废狗<img src="https://static.saraba1st.com/image
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68385#       发表于 2019-7-30 22:53
 
 
@@ -9544,7 +9539,7 @@ KMR起码给母猪吃东西，废狗</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68386#       发表于 2019-7-31 01:02
 
 
@@ -9556,7 +9551,7 @@ KMR起码给母猪吃东西，废狗</blockquote>
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68387#       发表于 2019-7-31 01:17
 
 
@@ -9565,7 +9560,7 @@ KMR起码给母猪吃东西，废狗</blockquote>
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68388#       发表于 2019-7-31 06:56
 
 
@@ -9574,7 +9569,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68389#       发表于 2019-7-31 08:19
 
 
@@ -9585,7 +9580,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68390#       发表于 2019-7-31 15:36
 
 
@@ -9596,7 +9591,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68391#       发表于 2019-7-31 15:41
 
 
@@ -9605,7 +9600,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  quanlix  
+####  quanlix
 ##### 68392#       发表于 2019-7-31 16:21
 
 
@@ -9614,7 +9609,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68393#       发表于 2019-7-31 17:06
 
 
@@ -9623,7 +9618,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68394#       发表于 2019-7-31 17:09
 
 
@@ -9632,7 +9627,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68395#       发表于 2019-7-31 17:15
 
 
@@ -9641,7 +9636,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68396#       发表于 2019-7-31 17:22
 
 
@@ -9656,7 +9651,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68397#       发表于 2019-7-31 17:24
 
 
@@ -9665,7 +9660,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  angelooo  
+####  angelooo
 ##### 68398#       发表于 2019-7-31 17:30
 
 
@@ -9674,7 +9669,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68399#       发表于 2019-7-31 17:31
 
 
@@ -9688,7 +9683,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68400#       发表于 2019-7-31 17:33
 
 
@@ -9699,7 +9694,7 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  newfaceryo  
+####  newfaceryo
 ##### 68401#       发表于 2019-7-31 17:49
 
 
@@ -9708,11 +9703,11 @@ cy游戏玩了几个没一个存活的
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68402#       发表于 2019-7-31 18:55
 
 
- 本帖最后由 eilot 于 2019-7-31 19:21 编辑 
+ 本帖最后由 eilot 于 2019-7-31 19:21 编辑
 
 XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫拉跑了數分鐘都入不到遊戲
 
@@ -9724,7 +9719,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 68403#       发表于 2019-7-31 19:25
 
 
@@ -9733,7 +9728,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  Kirihara  
+####  Kirihara
 ##### 68404#       发表于 2019-7-31 19:31
 
 
@@ -9742,7 +9737,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68405#       发表于 2019-7-31 19:37
 
 
@@ -9751,7 +9746,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  D．Va  
+####  D．Va
 ##### 68406#       发表于 2019-7-31 19:41
 
 
@@ -9760,11 +9755,11 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  newfaceryo  
+####  newfaceryo
 ##### 68407#       发表于 2019-7-31 19:47
 
 
- 本帖最后由 newfaceryo 于 2019-7-31 20:05 编辑 
+ 本帖最后由 newfaceryo 于 2019-7-31 20:05 编辑
 
 和网络问题无关，是json解析的数据结构报错。
 
@@ -9781,7 +9776,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 68408#       发表于 2019-7-31 20:09
 
 
@@ -9797,7 +9792,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  丘萤之光  
+####  丘萤之光
 ##### 68409#       发表于 2019-7-31 20:41
 
 
@@ -9812,7 +9807,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68410#       发表于 2019-7-31 20:48
 
 
@@ -9821,7 +9816,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68411#       发表于 2019-7-31 20:51
 
 
@@ -9830,7 +9825,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68412#       发表于 2019-7-31 21:20
 
 
@@ -9839,7 +9834,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68413#       发表于 2019-7-31 21:27
 
 
@@ -9848,7 +9843,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  喇叭  
+####  喇叭
 ##### 68414#       发表于 2019-7-31 21:30
 
 
@@ -9857,7 +9852,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68415#       发表于 2019-7-31 21:45
 
 
@@ -9869,7 +9864,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68416#       发表于 2019-7-31 21:53
 
 
@@ -9880,7 +9875,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68417#       发表于 2019-7-31 22:26
 
 
@@ -9889,7 +9884,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68418#       发表于 2019-7-31 23:46
 
 
@@ -9901,7 +9896,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  卡蓮  
+####  卡蓮
 ##### 68419#       发表于 2019-7-31 23:56
 
 
@@ -9913,7 +9908,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68420#       发表于 2019-7-31 23:56
 
 
@@ -9925,7 +9920,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68421#       发表于 2019-8-1 00:04
 
 
@@ -9937,7 +9932,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68422#       发表于 2019-8-1 00:48
 
 
@@ -9948,7 +9943,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68423#       发表于 2019-8-1 06:11
 
 
@@ -9960,7 +9955,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68424#       发表于 2019-8-1 07:09
 
 
@@ -9971,7 +9966,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68425#       发表于 2019-8-1 07:58
 
 
@@ -9986,7 +9981,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68426#       发表于 2019-8-1 08:36
 
 
@@ -9999,7 +9994,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68427#       发表于 2019-8-1 08:39
 
 
@@ -10014,7 +10009,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68428#       发表于 2019-8-1 08:57
 
 
@@ -10027,7 +10022,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68429#       发表于 2019-8-1 09:57
 
 
@@ -10041,7 +10036,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68430#       发表于 2019-8-1 10:15
 
 
@@ -10054,7 +10049,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68431#       发表于 2019-8-1 12:08
 
 
@@ -10065,7 +10060,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  jy02394668  
+####  jy02394668
 ##### 68432#       发表于 2019-8-1 13:03
 
 
@@ -10077,7 +10072,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68433#       发表于 2019-8-1 13:15
 
 
@@ -10088,7 +10083,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68434#       发表于 2019-8-1 13:47
 
 
@@ -10097,7 +10092,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  saintsimpler  
+####  saintsimpler
 ##### 68435#       发表于 2019-8-1 14:26
 
 
@@ -10106,11 +10101,11 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68436#       发表于 2019-8-1 15:19
 
 
- 本帖最后由 真红眼教授 于 2019-8-1 15:24 编辑 
+ 本帖最后由 真红眼教授 于 2019-8-1 15:24 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44750152&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-8-1 13:47</a>
 
 草，舟游抄到育碧头上了，舟虫群赶紧死</blockquote>
@@ -10123,7 +10118,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68437#       发表于 2019-8-1 15:57
 
 
@@ -10132,7 +10127,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68438#       发表于 2019-8-1 16:12
 
 
@@ -10143,7 +10138,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68439#       发表于 2019-8-1 16:17
 
 
@@ -10152,7 +10147,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68440#       发表于 2019-8-1 16:50
 
 
@@ -10161,7 +10156,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  虎克别音  
+####  虎克别音
 ##### 68441#       发表于 2019-8-1 17:15
 
 
@@ -10170,7 +10165,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68442#       发表于 2019-8-1 17:17
 
 
@@ -10179,7 +10174,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68443#       发表于 2019-8-1 18:06
 
 
@@ -10190,7 +10185,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68444#       发表于 2019-8-1 18:09
 
 
@@ -10199,7 +10194,7 @@ XR機，更新本體後，一直都卡在FGO主頁中now loading，可憐的夫�
 
 *****
 
-####  hylq2100  
+####  hylq2100
 ##### 68445#       发表于 2019-8-1 18:12
 
 
@@ -10211,7 +10206,7 @@ yls：请求收到，下次出货预定
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68446#       发表于 2019-8-1 18:35
 
 
@@ -10220,7 +10215,7 @@ yls：请求收到，下次出货预定
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68447#       发表于 2019-8-1 18:53
 
 
@@ -10233,7 +10228,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  TestPmGo  
+####  TestPmGo
 ##### 68448#       发表于 2019-8-1 19:06
 
 
@@ -10248,7 +10243,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68449#       发表于 2019-8-1 19:26
 
 
@@ -10263,7 +10258,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68450#       发表于 2019-8-1 19:27
 
 
@@ -10278,7 +10273,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68451#       发表于 2019-8-1 19:47
 
 
@@ -10287,7 +10282,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68452#       发表于 2019-8-1 19:59
 
 
@@ -10299,7 +10294,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68453#       发表于 2019-8-1 22:04
 
 
@@ -10311,7 +10306,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68454#       发表于 2019-8-1 22:25
 
 
@@ -10320,7 +10315,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68455#       发表于 2019-8-1 23:54
 
 
@@ -10331,7 +10326,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  克图格亚  
+####  克图格亚
 ##### 68456#       发表于 2019-8-2 00:00
 
 
@@ -10340,7 +10335,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 68457#       发表于 2019-8-2 11:07
 
 
@@ -10354,7 +10349,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68458#       发表于 2019-8-2 12:16
 
 
@@ -10363,7 +10358,7 @@ yls：请求收到，下次出货预定</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68459#       发表于 2019-8-2 12:26
 
 
@@ -10374,7 +10369,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68460#       发表于 2019-8-2 12:28
 
 
@@ -10383,7 +10378,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68461#       发表于 2019-8-2 13:47
 
 
@@ -10392,7 +10387,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68462#       发表于 2019-8-2 13:47
 
 
@@ -10401,7 +10396,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68463#       发表于 2019-8-2 13:48
 
 
@@ -10412,7 +10407,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68464#       发表于 2019-8-2 13:54
 
 
@@ -10424,7 +10419,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68465#       发表于 2019-8-2 18:54
 
 
@@ -10433,7 +10428,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68466#       发表于 2019-8-2 20:18
 
 
@@ -10442,7 +10437,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68467#       发表于 2019-8-2 21:18
 
 
@@ -10454,7 +10449,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68468#       发表于 2019-8-2 21:19
 
 
@@ -10466,7 +10461,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68469#       发表于 2019-8-2 21:46
 
 
@@ -10477,7 +10472,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68470#       发表于 2019-8-3 08:20
 
 
@@ -10486,7 +10481,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68471#       发表于 2019-8-3 09:05
 
 
@@ -10495,7 +10490,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68472#       发表于 2019-8-3 09:14
 
 
@@ -10504,7 +10499,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68473#       发表于 2019-8-3 09:28
 
 
@@ -10513,11 +10508,11 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68474#       发表于 2019-8-3 09:34
 
 
- 本帖最后由 瘦猫标题学 于 2019-8-3 09:38 编辑 
+ 本帖最后由 瘦猫标题学 于 2019-8-3 09:38 编辑
 
 有杀生院的？我扫了一圈没看见啊
 
@@ -10526,11 +10521,11 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  jackyhuang  
+####  jackyhuang
 ##### 68475#       发表于 2019-8-3 10:00
 
 
- 本帖最后由 jackyhuang 于 2019-8-3 10:03 编辑 
+ 本帖最后由 jackyhuang 于 2019-8-3 10:03 编辑
 
 艾蕾的手<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
@@ -10539,7 +10534,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68476#       发表于 2019-8-3 10:11
 
 
@@ -10551,7 +10546,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  xpisces  
+####  xpisces
 ##### 68477#       发表于 2019-8-3 10:19
 
 
@@ -10560,7 +10555,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68478#       发表于 2019-8-3 10:20
 
 
@@ -10571,7 +10566,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 68479#       发表于 2019-8-3 10:35
 
 
@@ -10580,7 +10575,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68480#       发表于 2019-8-3 10:36
 
 
@@ -10589,7 +10584,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  saintsimpler  
+####  saintsimpler
 ##### 68481#       发表于 2019-8-3 10:47
 
 
@@ -10598,7 +10593,7 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  炙热之狐  
+####  炙热之狐
 ##### 68482#       发表于 2019-8-3 10:49
 
 
@@ -10609,11 +10604,11 @@ zuihou的3石也砸了进去无事发生  萌新的伯爵凉了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68483#       发表于 2019-8-3 11:34
 
 
- 本帖最后由 rooarr 于 2019-8-3 11:47 编辑 
+ 本帖最后由 rooarr 于 2019-8-3 11:47 编辑
 
 还没通关2.4的感觉被坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逼着去打主线啊
 
@@ -10622,7 +10617,7 @@ lily和布妹的礼装分别挂到saber和lancer下面了<img src="https://stati
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68484#       发表于 2019-8-3 12:01
 
 
@@ -10634,7 +10629,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68485#       发表于 2019-8-3 12:25
 
 
@@ -10643,7 +10638,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68486#       发表于 2019-8-3 13:20
 
 
@@ -10654,7 +10649,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68487#       发表于 2019-8-3 13:44
 
 
@@ -10663,7 +10658,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68488#       发表于 2019-8-3 13:59
 
 
@@ -10672,7 +10667,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68489#       发表于 2019-8-3 14:58
 
 
@@ -10681,7 +10676,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68490#       发表于 2019-8-3 15:03
 
 
@@ -10693,7 +10688,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  炙热之狐  
+####  炙热之狐
 ##### 68491#       发表于 2019-8-3 15:04
 
 
@@ -10704,7 +10699,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68492#       发表于 2019-8-3 15:08
 
 
@@ -10713,7 +10708,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  jy02394668  
+####  jy02394668
 ##### 68493#       发表于 2019-8-3 15:11
 
 
@@ -10722,7 +10717,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68494#       发表于 2019-8-3 15:11
 
 
@@ -10737,7 +10732,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68495#       发表于 2019-8-3 15:12
 
 
@@ -10752,7 +10747,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68496#       发表于 2019-8-3 15:12
 
 
@@ -10764,7 +10759,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68497#       发表于 2019-8-3 15:16
 
 
@@ -10773,7 +10768,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68498#       发表于 2019-8-3 15:20
 
 
@@ -10785,7 +10780,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  ckl80  
+####  ckl80
 ##### 68499#       发表于 2019-8-3 15:23
 
 
@@ -10794,7 +10789,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68500#       发表于 2019-8-3 15:28
 
 
@@ -10803,7 +10798,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  angelooo  
+####  angelooo
 ##### 68501#       发表于 2019-8-3 15:59
 
 
@@ -10812,7 +10807,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68502#       发表于 2019-8-3 16:03
 
 
@@ -10821,7 +10816,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68503#       发表于 2019-8-3 16:05
 
 
@@ -10830,7 +10825,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  Blackson  
+####  Blackson
 ##### 68504#       发表于 2019-8-3 16:06
 
 
@@ -10839,7 +10834,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68505#       发表于 2019-8-3 16:07
 
 
@@ -10848,7 +10843,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68506#       发表于 2019-8-3 16:20
 
 
@@ -10857,7 +10852,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68507#       发表于 2019-8-3 16:26
 
 
@@ -10866,11 +10861,11 @@ FGO七章动画情报现场限定
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68508#       发表于 2019-8-3 16:42
 
 
- 本帖最后由 khxooo 于 2019-8-3 16:43 编辑 
+ 本帖最后由 khxooo 于 2019-8-3 16:43 编辑
 
 今年还是冲田小姐大失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -10879,7 +10874,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68509#       发表于 2019-8-3 16:49
 
 
@@ -10888,7 +10883,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68510#       发表于 2019-8-3 16:58
 
 
@@ -10897,7 +10892,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68511#       发表于 2019-8-3 16:59
 
 
@@ -10908,7 +10903,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68512#       发表于 2019-8-3 17:34
 
 
@@ -10917,7 +10912,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68513#       发表于 2019-8-3 17:42
 
 
@@ -10929,7 +10924,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68514#       发表于 2019-8-3 17:42
 
 
@@ -10941,7 +10936,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68515#       发表于 2019-8-3 17:42
 
 
@@ -10953,7 +10948,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68516#       发表于 2019-8-3 18:07
 
 
@@ -10962,7 +10957,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68517#       发表于 2019-8-3 18:13
 
 
@@ -10971,7 +10966,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68518#       发表于 2019-8-3 18:37
 
 
@@ -10980,7 +10975,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68519#       发表于 2019-8-3 19:06
 
 
@@ -10989,7 +10984,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68520#       发表于 2019-8-3 19:12
 
 
@@ -11001,7 +10996,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68521#       发表于 2019-8-3 19:37
 
 
@@ -11013,7 +11008,7 @@ FGO七章动画情报现场限定
 
 *****
 
-####  sadakawa  
+####  sadakawa
 ##### 68522#       发表于 2019-8-3 19:45
 
 
@@ -11022,7 +11017,7 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68523#       发表于 2019-8-3 19:48
 
 
@@ -11031,7 +11026,7 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  saintsimpler  
+####  saintsimpler
 ##### 68524#       发表于 2019-8-3 20:47
 
 
@@ -11040,7 +11035,7 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  angelooo  
+####  angelooo
 ##### 68525#       发表于 2019-8-3 21:04
 
 
@@ -11052,7 +11047,7 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68526#       发表于 2019-8-3 21:08
 
 
@@ -11064,7 +11059,7 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68527#       发表于 2019-8-3 22:08
 
 
@@ -11073,7 +11068,7 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68528#       发表于 2019-8-3 22:12
 
 
@@ -11084,11 +11079,11 @@ FGO周边居然出美甲了，还很好看
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68529#       发表于 2019-8-3 22:22
 
 
- 本帖最后由 dante888 于 2019-8-3 22:30 编辑 
+ 本帖最后由 dante888 于 2019-8-3 22:30 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44782597&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-8-3 22:12</a>
 
 你挂啥了</blockquote>
@@ -11097,7 +11092,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68530#       发表于 2019-8-3 23:11
 
 
@@ -11106,7 +11101,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  悲铃空幻  
+####  悲铃空幻
 ##### 68531#       发表于 2019-8-4 09:02
 
 
@@ -11115,7 +11110,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68532#       发表于 2019-8-4 11:18
 
 
@@ -11124,7 +11119,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  D．Va  
+####  D．Va
 ##### 68533#       发表于 2019-8-4 13:56
 
 
@@ -11136,7 +11131,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68534#       发表于 2019-8-4 14:42
 
 
@@ -11145,7 +11140,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68535#       发表于 2019-8-4 15:29
 
 
@@ -11154,7 +11149,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68536#       发表于 2019-8-4 16:13
 
 
@@ -11163,7 +11158,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68537#       发表于 2019-8-4 16:14
 
 
@@ -11172,7 +11167,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  虎克别音  
+####  虎克别音
 ##### 68538#       发表于 2019-8-4 16:19
 
 
@@ -11181,7 +11176,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68539#       发表于 2019-8-4 16:40
 
 
@@ -11190,7 +11185,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68540#       发表于 2019-8-4 16:40
 
 
@@ -11199,7 +11194,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68541#       发表于 2019-8-4 16:41
 
 
@@ -11208,7 +11203,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68542#       发表于 2019-8-4 16:42
 
 
@@ -11217,7 +11212,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68543#       发表于 2019-8-4 16:43
 
 
@@ -11226,7 +11221,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68544#       发表于 2019-8-4 16:46
 
 
@@ -11235,7 +11230,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68545#       发表于 2019-8-4 16:47
 
 
@@ -11244,7 +11239,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68546#       发表于 2019-8-4 16:50
 
 
@@ -11253,7 +11248,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68547#       发表于 2019-8-4 16:50
 
 
@@ -11262,7 +11257,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68548#       发表于 2019-8-4 16:50
 
 
@@ -11273,7 +11268,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68549#       发表于 2019-8-4 16:54
 
 
@@ -11282,7 +11277,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68550#       发表于 2019-8-4 16:59
 
 
@@ -11291,7 +11286,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68551#       发表于 2019-8-4 16:59
 
 
@@ -11300,7 +11295,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68552#       发表于 2019-8-4 17:04
 
 
@@ -11309,7 +11304,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68553#       发表于 2019-8-4 17:05
 
 
@@ -11318,7 +11313,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68554#       发表于 2019-8-4 17:09
 
 
@@ -11327,7 +11322,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68555#       发表于 2019-8-4 17:09
 
 
@@ -11336,7 +11331,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68556#       发表于 2019-8-4 17:10
 
 
@@ -11345,7 +11340,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68557#       发表于 2019-8-4 17:10
 
 
@@ -11354,7 +11349,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68558#       发表于 2019-8-4 17:11
 
 
@@ -11363,7 +11358,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68559#       发表于 2019-8-4 17:12
 
 
@@ -11372,7 +11367,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68560#       发表于 2019-8-4 17:12
 
 
@@ -11381,7 +11376,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68561#       发表于 2019-8-4 17:12
 
 
@@ -11390,7 +11385,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68562#       发表于 2019-8-4 17:13
 
 
@@ -11399,7 +11394,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68563#       发表于 2019-8-4 17:13
 
 
@@ -11410,7 +11405,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68564#       发表于 2019-8-4 17:15
 
 
@@ -11419,7 +11414,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68565#       发表于 2019-8-4 17:15
 
 
@@ -11428,7 +11423,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68566#       发表于 2019-8-4 17:16
 
 
@@ -11437,18 +11432,18 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68567#       发表于 2019-8-4 17:17
 
 
- 本帖最后由 khxooo 于 2019-8-4 17:33 编辑 
+ 本帖最后由 khxooo 于 2019-8-4 17:33 编辑
 
 没保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  stefanie张  
+####  stefanie张
 ##### 68568#       发表于 2019-8-4 17:17
 
 
@@ -11459,7 +11454,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68569#       发表于 2019-8-4 17:18
 
 
@@ -11468,7 +11463,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68570#       发表于 2019-8-4 17:18
 
 
@@ -11477,7 +11472,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68571#       发表于 2019-8-4 17:19
 
 
@@ -11486,7 +11481,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68572#       发表于 2019-8-4 17:19
 
 
@@ -11498,7 +11493,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68573#       发表于 2019-8-4 17:19
 
 
@@ -11507,7 +11502,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68574#       发表于 2019-8-4 17:20
 
 
@@ -11516,16 +11511,16 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68575#       发表于 2019-8-4 17:20
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就没啦？  还差个4周年纪念卡池 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就没啦？  还差个4周年纪念卡池
 
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68576#       发表于 2019-8-4 17:20
 
 
@@ -11534,7 +11529,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68577#       发表于 2019-8-4 17:22
 
 
@@ -11543,7 +11538,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68578#       发表于 2019-8-4 17:22
 
 
@@ -11558,7 +11553,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68579#       发表于 2019-8-4 17:23
 
 
@@ -11567,7 +11562,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68580#       发表于 2019-8-4 17:23
 
 
@@ -11576,7 +11571,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68581#       发表于 2019-8-4 17:24
 
 
@@ -11585,7 +11580,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68582#       发表于 2019-8-4 17:24
 
 
@@ -11594,7 +11589,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68583#       发表于 2019-8-4 17:26
 
 
@@ -11603,7 +11598,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68584#       发表于 2019-8-4 17:26
 
 
@@ -11612,7 +11607,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  shimotsuki14  
+####  shimotsuki14
 ##### 68585#       发表于 2019-8-4 17:26
 
 
@@ -11621,7 +11616,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68586#       发表于 2019-8-4 17:27
 
 
@@ -11630,7 +11625,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68587#       发表于 2019-8-4 17:27
 
 
@@ -11639,7 +11634,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68588#       发表于 2019-8-4 17:27
 
 
@@ -11648,7 +11643,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68589#       发表于 2019-8-4 17:27
 
 
@@ -11657,7 +11652,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68590#       发表于 2019-8-4 17:27
 
 
@@ -11666,7 +11661,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68591#       发表于 2019-8-4 17:28
 
 
@@ -11675,7 +11670,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68592#       发表于 2019-8-4 17:28
 
 
@@ -11686,7 +11681,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68593#       发表于 2019-8-4 17:28
 
 
@@ -11695,7 +11690,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68594#       发表于 2019-8-4 17:29
 
 
@@ -11704,7 +11699,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 68595#       发表于 2019-8-4 17:29
 
 
@@ -11713,7 +11708,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68596#       发表于 2019-8-4 17:29
 
 
@@ -11722,7 +11717,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68597#       发表于 2019-8-4 17:29
 
 
@@ -11731,7 +11726,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68598#       发表于 2019-8-4 17:29
 
 
@@ -11743,7 +11738,7 @@ CBA和SSY啊，通常助战<img src="https://static.saraba1st.com/image/smiley/f
 
 *****
 
-####  Kirihara  
+####  Kirihara
 ##### 68599#       发表于 2019-8-4 17:29
 
 
@@ -11752,7 +11747,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  jy02394668  
+####  jy02394668
 ##### 68600#       发表于 2019-8-4 17:29
 
 
@@ -11761,7 +11756,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68601#       发表于 2019-8-4 17:31
 
 
@@ -11770,7 +11765,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68602#       发表于 2019-8-4 17:31
 
 
@@ -11779,7 +11774,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68603#       发表于 2019-8-4 17:32
 
 
@@ -11788,7 +11783,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  angelooo  
+####  angelooo
 ##### 68604#       发表于 2019-8-4 17:32
 
 
@@ -11797,16 +11792,16 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68605#       发表于 2019-8-4 17:32
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">靠 5星 不要啊 
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">靠 5星 不要啊
 
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68606#       发表于 2019-8-4 17:32
 
 
@@ -11815,7 +11810,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68607#       发表于 2019-8-4 17:33
 
 
@@ -11824,7 +11819,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68608#       发表于 2019-8-4 17:34
 
 
@@ -11833,7 +11828,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68609#       发表于 2019-8-4 17:34
 
 
@@ -11845,7 +11840,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  KOBI  
+####  KOBI
 ##### 68610#       发表于 2019-8-4 17:35
 
 
@@ -11854,7 +11849,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68611#       发表于 2019-8-4 17:37
 
 
@@ -11866,7 +11861,7 @@ rider达芬奇终于是来了么<img src="https://static.saraba1st.com/image/smi
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68612#       发表于 2019-8-4 17:38
 
 
@@ -11875,7 +11870,7 @@ CBA没复刻，充的钱可以暂时不用了<img src="https://static.saraba1st.
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68613#       发表于 2019-8-4 17:39
 
 
@@ -11887,7 +11882,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  KOBI  
+####  KOBI
 ##### 68614#       发表于 2019-8-4 17:39
 
 
@@ -11901,7 +11896,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68615#       发表于 2019-8-4 17:40
 
 
@@ -11913,7 +11908,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68616#       发表于 2019-8-4 17:40
 
 
@@ -11925,7 +11920,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68617#       发表于 2019-8-4 17:41
 
 
@@ -11936,7 +11931,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68618#       发表于 2019-8-4 17:41
 
 
@@ -11948,7 +11943,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68619#       发表于 2019-8-4 17:46
 
 
@@ -11957,7 +11952,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68620#       发表于 2019-8-4 17:46
 
 
@@ -11968,7 +11963,7 @@ CBA没复刻，充的钱可以暂时不用了</blockquote>
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68621#       发表于 2019-8-4 17:49
 
 
@@ -11977,7 +11972,7 @@ winter，我懂的，明年2月<img src="https://static.saraba1st.com/image/smil
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68622#       发表于 2019-8-4 17:49
 
 
@@ -11986,7 +11981,7 @@ winter，我懂的，明年2月<img src="https://static.saraba1st.com/image/smil
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68623#       发表于 2019-8-4 17:49
 
 
@@ -11995,7 +11990,7 @@ winter，我懂的，明年2月<img src="https://static.saraba1st.com/image/smil
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68624#       发表于 2019-8-4 17:49
 
 
@@ -12004,7 +11999,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68625#       发表于 2019-8-4 17:51
 
 
@@ -12013,7 +12008,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68626#       发表于 2019-8-4 17:54
 
 
@@ -12025,7 +12020,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68627#       发表于 2019-8-4 17:55
 
 
@@ -12034,7 +12029,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68628#       发表于 2019-8-4 18:00
 
 
@@ -12043,7 +12038,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68629#       发表于 2019-8-4 18:01
 
 
@@ -12052,7 +12047,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68630#       发表于 2019-8-4 18:01
 
 
@@ -12063,7 +12058,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68631#       发表于 2019-8-4 18:02
 
 
@@ -12072,7 +12067,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 68632#       发表于 2019-8-4 18:02
 
 
@@ -12081,7 +12076,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68633#       发表于 2019-8-4 18:03
 
 
@@ -12092,7 +12087,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68634#       发表于 2019-8-4 18:06
 
 
@@ -12103,7 +12098,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68635#       发表于 2019-8-4 18:06
 
 
@@ -12112,7 +12107,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68636#       发表于 2019-8-4 18:07
 
 
@@ -12121,7 +12116,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68637#       发表于 2019-8-4 18:08
 
 
@@ -12130,7 +12125,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68638#       发表于 2019-8-4 18:08
 
 
@@ -12139,7 +12134,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  ualiant  
+####  ualiant
 ##### 68639#       发表于 2019-8-4 18:09
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -12147,7 +12142,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68640#       发表于 2019-8-4 18:10
 
 
@@ -12156,7 +12151,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68641#       发表于 2019-8-4 18:11
 
 
@@ -12165,7 +12160,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68642#       发表于 2019-8-4 18:12
 
 
@@ -12174,7 +12169,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68643#       发表于 2019-8-4 18:13
 
 
@@ -12186,7 +12181,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68644#       发表于 2019-8-4 18:14
 
 
@@ -12198,7 +12193,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68645#       发表于 2019-8-4 18:14
 
 
@@ -12207,7 +12202,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68646#       发表于 2019-8-4 18:15
 
 
@@ -12219,16 +12214,16 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68647#       发表于 2019-8-4 18:15
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个小达芬奇我本来天天盼着赶紧出 怎么真出了五星看看卡图突然不想抽了 居然感觉不到吸引力 
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个小达芬奇我本来天天盼着赶紧出 怎么真出了五星看看卡图突然不想抽了 居然感觉不到吸引力
 
 
 *****
 
-####  唯一指定用户名  
+####  唯一指定用户名
 ##### 68648#       发表于 2019-8-4 18:16
 
 
@@ -12239,7 +12234,7 @@ winter……无敌的队长要见到明年的太阳了吗
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68649#       发表于 2019-8-4 18:16
 
 
@@ -12248,7 +12243,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68650#       发表于 2019-8-4 18:17
 
 
@@ -12260,7 +12255,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68651#       发表于 2019-8-4 18:19
 
 
@@ -12269,7 +12264,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68652#       发表于 2019-8-4 18:20
 
 
@@ -12278,7 +12273,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68653#       发表于 2019-8-4 18:20
 
 
@@ -12287,7 +12282,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68654#       发表于 2019-8-4 18:20
 
 
@@ -12296,7 +12291,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68655#       发表于 2019-8-4 18:21
 
 
@@ -12305,7 +12300,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68656#       发表于 2019-8-4 18:21
 
 
@@ -12314,7 +12309,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68657#       发表于 2019-8-4 18:22
 
 
@@ -12323,7 +12318,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68658#       发表于 2019-8-4 18:22
 
 
@@ -12332,7 +12327,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68659#       发表于 2019-8-4 18:22
 
 
@@ -12344,7 +12339,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68660#       发表于 2019-8-4 18:22
 
 
@@ -12354,7 +12349,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68661#       发表于 2019-8-4 18:22
 
 
@@ -12363,7 +12358,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68662#       发表于 2019-8-4 18:23
 
 
@@ -12374,7 +12369,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68663#       发表于 2019-8-4 18:23
 
 
@@ -12386,7 +12381,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68664#       发表于 2019-8-4 18:24
 
 
@@ -12397,7 +12392,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68665#       发表于 2019-8-4 18:25
 
 
@@ -12406,7 +12401,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68666#       发表于 2019-8-4 18:25
 
 
@@ -12415,7 +12410,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  闽明  
+####  闽明
 ##### 68667#       发表于 2019-8-4 18:26
 
 
@@ -12424,18 +12419,18 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68668#       发表于 2019-8-4 18:26
 
 
- 本帖最后由 kiralzb 于 2019-8-4 18:27 编辑 
+ 本帖最后由 kiralzb 于 2019-8-4 18:27 编辑
 
 友情点抽完了，最后一个是伊阿宋，服了还有这开裆裤真是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68669#       发表于 2019-8-4 18:26
 
 
@@ -12447,7 +12442,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68670#       发表于 2019-8-4 18:26
 
 
@@ -12456,7 +12451,7 @@ bb..行吧,往好了想至少不是大象<img src="https://static.saraba1st.com/
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68671#       发表于 2019-8-4 18:30
 
 
@@ -12465,7 +12460,7 @@ new莱尼斯还行
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68672#       发表于 2019-8-4 18:32
 
 
@@ -12474,7 +12469,7 @@ new莱尼斯还行
 
 *****
 
-####  angelooo  
+####  angelooo
 ##### 68673#       发表于 2019-8-4 18:32
 
 
@@ -12488,7 +12483,7 @@ new莱尼斯还行
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68674#       发表于 2019-8-4 18:35
 
 
@@ -12499,7 +12494,7 @@ new莱尼斯还行
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68675#       发表于 2019-8-4 18:36
 
 
@@ -12511,7 +12506,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68676#       发表于 2019-8-4 18:38
 
 
@@ -12522,7 +12517,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  KOBI  
+####  KOBI
 ##### 68677#       发表于 2019-8-4 18:39
 
 
@@ -12533,7 +12528,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  eden_hazard  
+####  eden_hazard
 ##### 68678#       发表于 2019-8-4 18:40
 
 
@@ -12542,7 +12537,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68679#       发表于 2019-8-4 18:40
 
 
@@ -12551,7 +12546,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  sosgame67  
+####  sosgame67
 ##### 68680#       发表于 2019-8-4 18:41
 
 
@@ -12560,7 +12555,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  共和政治文彦博  
+####  共和政治文彦博
 ##### 68681#       发表于 2019-8-4 18:42
 
 
@@ -12571,7 +12566,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68682#       发表于 2019-8-4 18:45
 
 
@@ -12580,7 +12575,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68683#       发表于 2019-8-4 18:48
 
 
@@ -12589,7 +12584,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68684#       发表于 2019-8-4 18:48
 
 
@@ -12601,7 +12596,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  katun  
+####  katun
 ##### 68685#       发表于 2019-8-4 18:53
 
 
@@ -12610,7 +12605,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68686#       发表于 2019-8-4 18:54
 
 
@@ -12619,7 +12614,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68687#       发表于 2019-8-4 18:56
 
 
@@ -12628,7 +12623,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68688#       发表于 2019-8-4 18:59
 
 
@@ -12637,7 +12632,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  sin.yugi  
+####  sin.yugi
 ##### 68689#       发表于 2019-8-4 19:02
 
 
@@ -12650,7 +12645,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68690#       发表于 2019-8-4 19:03
 
 
@@ -12659,7 +12654,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68691#       发表于 2019-8-4 19:06
 
 
@@ -12668,7 +12663,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  reader  
+####  reader
 ##### 68692#       发表于 2019-8-4 19:09
 
 
@@ -12677,7 +12672,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  fantuanhtr  
+####  fantuanhtr
 ##### 68693#       发表于 2019-8-4 19:10
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -12685,7 +12680,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  香蜂草  
+####  香蜂草
 ##### 68694#       发表于 2019-8-4 19:10
 
 
@@ -12696,7 +12691,7 @@ CBA估计留后面的DL活动单UP了，应该快了<img src="https://static.sar
 
 *****
 
-####  debrisvector  
+####  debrisvector
 ##### 68695#       发表于 2019-8-4 19:11
 
 
@@ -12705,7 +12700,7 @@ cba这个今年还up么
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68696#       发表于 2019-8-4 19:15
 
 
@@ -12714,7 +12709,7 @@ cba这个今年还up么
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68697#       发表于 2019-8-4 19:23
 
 
@@ -12723,7 +12718,7 @@ cba这个今年还up么
 
 *****
 
-####  悲铃空幻  
+####  悲铃空幻
 ##### 68698#       发表于 2019-8-4 19:28
 
 
@@ -12732,11 +12727,11 @@ cba这个今年还up么
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68699#       发表于 2019-8-4 19:33
 
 
- 本帖最后由 eilot 于 2019-8-4 19:38 编辑 
+ 本帖最后由 eilot 于 2019-8-4 19:38 编辑
 
 90石+35符
 
@@ -12746,7 +12741,7 @@ cba这个今年还up么
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68700#       发表于 2019-8-4 19:40
 
 
@@ -12755,7 +12750,7 @@ cba这个今年还up么
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68701#       发表于 2019-8-4 19:46
 
 
@@ -12768,7 +12763,7 @@ cba这个今年还up么
 
 *****
 
-####  在海岸  
+####  在海岸
 ##### 68702#       发表于 2019-8-4 19:46
 
 
@@ -12777,7 +12772,7 @@ cba这个今年还up么
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68703#       发表于 2019-8-4 19:48
 
 
@@ -12786,7 +12781,7 @@ cba这个今年还up么
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68704#       发表于 2019-8-4 19:50
 
 
@@ -12798,7 +12793,7 @@ cba这个今年还up么
 
 *****
 
-####  冰狼芬里尔  
+####  冰狼芬里尔
 ##### 68705#       发表于 2019-8-4 19:52
 
 
@@ -12807,7 +12802,7 @@ cba这个今年还up么
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68706#       发表于 2019-8-4 19:53
 
 
@@ -12821,18 +12816,18 @@ cba这个今年还up么
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68707#       发表于 2019-8-4 19:56
 
 
- 本帖最后由 白清羽 于 2019-8-4 20:03 编辑 
+ 本帖最后由 白清羽 于 2019-8-4 20:03 编辑
 
 福袋new了X毛，四个十连出了小达芬奇，new就行，可惜cba材料都准备好了结果没得抽
 
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68708#       发表于 2019-8-4 20:04
 
 
@@ -12849,7 +12844,7 @@ cba这个今年还up么
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 68709#       发表于 2019-8-4 20:05
 
 
@@ -12860,7 +12855,7 @@ cba这个今年还up么
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68710#       发表于 2019-8-4 20:07
 
 
@@ -12874,7 +12869,7 @@ cba这个今年还up么
 
 *****
 
-####  在海岸  
+####  在海岸
 ##### 68711#       发表于 2019-8-4 20:07
 
 
@@ -12886,7 +12881,7 @@ cba这个今年还up么
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 68712#       发表于 2019-8-4 20:10
 
 
@@ -12897,7 +12892,7 @@ cba这个今年还up么
 
 *****
 
-####  D．Va  
+####  D．Va
 ##### 68713#       发表于 2019-8-4 20:10
 
 
@@ -12909,7 +12904,7 @@ cba这个今年还up么
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68714#       发表于 2019-8-4 20:15
 
 
@@ -12921,7 +12916,7 @@ cba这个今年还up么
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68715#       发表于 2019-8-4 20:18
 
 
@@ -12934,7 +12929,7 @@ cba这个今年还up么
 
 *****
 
-####  任天索尼子  
+####  任天索尼子
 ##### 68716#       发表于 2019-8-4 20:22
 
 
@@ -12943,7 +12938,7 @@ cba这个今年还up么
 
 *****
 
-####  katun  
+####  katun
 ##### 68717#       发表于 2019-8-4 20:22
 
 
@@ -12955,7 +12950,7 @@ cba这个今年还up么
 
 *****
 
-####  jackyhuang  
+####  jackyhuang
 ##### 68718#       发表于 2019-8-4 20:24
 
 
@@ -12966,7 +12961,7 @@ cba这个今年还up么
 
 *****
 
-####  bwjx88  
+####  bwjx88
 ##### 68719#       发表于 2019-8-4 20:40
 
 
@@ -12974,14 +12969,14 @@ cba这个今年还up么
 福袋闪闪，三宝了
 
 然后210石才出小达芬奇</blockquote>
-福袋艳后 bx 宝具+1 
-30石头 达芬奇 +阿周那宝具+1 
+福袋艳后 bx 宝具+1
+30石头 达芬奇 +阿周那宝具+1
 两双黄
 
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68720#       发表于 2019-8-4 20:46
 
 
@@ -12990,7 +12985,7 @@ cba这个今年还up么
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 68721#       发表于 2019-8-4 20:49
 
 
@@ -12999,7 +12994,7 @@ cba这个今年还up么
 
 *****
 
-####  jackyhuang  
+####  jackyhuang
 ##### 68722#       发表于 2019-8-4 21:02
 
 
@@ -13008,7 +13003,7 @@ cba这个今年还up么
 
 *****
 
-####  debrisvector  
+####  debrisvector
 ##### 68723#       发表于 2019-8-4 21:06
 
 
@@ -13019,7 +13014,7 @@ cba这个今年还up么
 
 *****
 
-####  霖星  
+####  霖星
 ##### 68724#       发表于 2019-8-4 21:12
 
 
@@ -13028,7 +13023,7 @@ cba这个今年还up么
 
 *****
 
-####  jackyhuang  
+####  jackyhuang
 ##### 68725#       发表于 2019-8-4 21:26
 
 
@@ -13037,7 +13032,7 @@ cba这个今年还up么
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68726#       发表于 2019-8-4 21:36
 
 
@@ -13046,17 +13041,17 @@ cba这个今年还up么
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68727#       发表于 2019-8-4 21:38
 
 
-福袋new雷弟 这也太强了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 20%的踩雷率 被我踩到了 
+福袋new雷弟 这也太强了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 20%的踩雷率 被我踩到了
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不过1020+10符就把小番茄解决了 中和一下还挺爽的
 
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68728#       发表于 2019-8-4 21:45
 
 
@@ -13068,7 +13063,7 @@ cba这个今年还up么
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68729#       发表于 2019-8-4 21:51
 
 
@@ -13080,7 +13075,7 @@ cba这个今年还up么
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68730#       发表于 2019-8-4 21:59
 
 
@@ -13092,7 +13087,7 @@ cba这个今年还up么
 
 *****
 
-####  Kirihara  
+####  Kirihara
 ##### 68731#       发表于 2019-8-4 22:01
 
 
@@ -13107,11 +13102,11 @@ cba这个今年还up么
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68732#       发表于 2019-8-4 22:36
 
 
- 本帖最后由 khxooo 于 2019-8-4 22:37 编辑 
+ 本帖最后由 khxooo 于 2019-8-4 22:37 编辑
 
 你们都好啊， 我出了大帝，5星骑光炮都溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
@@ -13121,7 +13116,7 @@ cba这个今年还up么
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68733#       发表于 2019-8-4 23:13
 
 
@@ -13130,7 +13125,7 @@ tls给我死!
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68734#       发表于 2019-8-4 23:13
 
 
@@ -13139,7 +13134,7 @@ tls给我死!
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68735#       发表于 2019-8-4 23:15
 
 
@@ -13148,7 +13143,7 @@ tls给我死!
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68736#       发表于 2019-8-4 23:57
 
 
@@ -13159,7 +13154,7 @@ tls给我死!
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68737#       发表于 2019-8-5 00:29
 
 
@@ -13168,7 +13163,7 @@ tls给我死!
 
 *****
 
-####  KOBI  
+####  KOBI
 ##### 68738#       发表于 2019-8-5 00:47
 
 
@@ -13181,7 +13176,7 @@ tls给我死!
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68739#       发表于 2019-8-5 00:51
 
 
@@ -13192,7 +13187,7 @@ tls给我死!
 
 *****
 
-####  斜阳中的落叶  
+####  斜阳中的落叶
 ##### 68740#       发表于 2019-8-5 01:00
 
 
@@ -13203,7 +13198,7 @@ tls给我死!
 
 *****
 
-####  34789  
+####  34789
 ##### 68741#       发表于 2019-8-5 01:08
 
 
@@ -13212,7 +13207,7 @@ tls给我死!
 
 *****
 
-####  ronac  
+####  ronac
 ##### 68742#       发表于 2019-8-5 01:10
 
 
@@ -13244,7 +13239,7 @@ tls给我死!
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68743#       发表于 2019-8-5 01:15
 
 
@@ -13253,7 +13248,7 @@ tls给我死!
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68744#       发表于 2019-8-5 01:17
 
 
@@ -13265,7 +13260,7 @@ tls给我死!
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68745#       发表于 2019-8-5 01:24
 
 
@@ -13277,7 +13272,7 @@ tls给我死!
 
 *****
 
-####  我爱喵喵  
+####  我爱喵喵
 ##### 68746#       发表于 2019-8-5 01:41
 
 
@@ -13292,7 +13287,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68747#       发表于 2019-8-5 03:07
 
 
@@ -13301,7 +13296,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68748#       发表于 2019-8-5 05:04
 
 
@@ -13314,18 +13309,18 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  Kirihara  
+####  Kirihara
 ##### 68749#       发表于 2019-8-5 05:52
 
 
- 本帖最后由 Kirihara 于 2019-8-5 06:01 编辑 
+ 本帖最后由 Kirihara 于 2019-8-5 06:01 编辑
 
 福袋gg，给个伯爵都好过给师酱啊，虽然师酱二宝也不算太亏就是了；福袋不开自选，抽卡没有保底，送再多石头都是木大，这波送的石头，基本都还回去了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68750#       发表于 2019-8-5 05:57
 
 
@@ -13334,7 +13329,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  麻花疼  
+####  麻花疼
 ##### 68751#       发表于 2019-8-5 06:43
 
 
@@ -13343,7 +13338,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  anakin-x  
+####  anakin-x
 ##### 68752#       发表于 2019-8-5 07:02
 
 
@@ -13352,7 +13347,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  唯一指定用户名  
+####  唯一指定用户名
 ##### 68753#       发表于 2019-8-5 07:23
 
 
@@ -13364,7 +13359,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  白金口袋  
+####  白金口袋
 ##### 68754#       发表于 2019-8-5 07:23
 
 
@@ -13380,7 +13375,7 @@ FGO此前的剧情上对主线里的时间一直跟现实对的很齐，不应�
 
 *****
 
-####  六步走天下  
+####  六步走天下
 ##### 68755#       发表于 2019-8-5 07:58
 
 
@@ -13393,7 +13388,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68756#       发表于 2019-8-5 08:55
 
 
@@ -13409,7 +13404,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  xiongxingyu  
+####  xiongxingyu
 ##### 68757#       发表于 2019-8-5 09:07
 
 
@@ -13418,7 +13413,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68758#       发表于 2019-8-5 09:42
 
 
@@ -13430,7 +13425,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68759#       发表于 2019-8-5 09:58
 
 
@@ -13441,7 +13436,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  督战政委  
+####  督战政委
 ##### 68760#       发表于 2019-8-5 10:00
 
 
@@ -13456,7 +13451,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68761#       发表于 2019-8-5 10:12
 
 
@@ -13467,7 +13462,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68762#       发表于 2019-8-5 10:15
 
 
@@ -13476,7 +13471,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68763#       发表于 2019-8-5 10:21
 
 
@@ -13485,7 +13480,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68764#       发表于 2019-8-5 10:23
 
 
@@ -13494,7 +13489,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68765#       发表于 2019-8-5 10:47
 
 
@@ -13505,7 +13500,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68766#       发表于 2019-8-5 11:10
 
 
@@ -13516,7 +13511,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68767#       发表于 2019-8-5 11:16
 
 
@@ -13525,7 +13520,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68768#       发表于 2019-8-5 11:23
 
 
@@ -13536,7 +13531,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 68769#       发表于 2019-8-5 12:13
 
 
@@ -13545,7 +13540,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68770#       发表于 2019-8-5 12:29
 
 
@@ -13554,7 +13549,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  debrisvector  
+####  debrisvector
 ##### 68771#       发表于 2019-8-5 12:35
 
 
@@ -13563,7 +13558,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  s1s234s  
+####  s1s234s
 ##### 68772#       发表于 2019-8-5 12:42
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -13571,7 +13566,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68773#       发表于 2019-8-5 12:45
 
 
@@ -13580,7 +13575,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  新吾  
+####  新吾
 ##### 68774#       发表于 2019-8-5 12:47
 
 
@@ -13589,7 +13584,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  任天索尼子  
+####  任天索尼子
 ##### 68775#       发表于 2019-8-5 12:52
 
 
@@ -13601,7 +13596,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  红丽  
+####  红丽
 ##### 68776#       发表于 2019-8-5 12:52
 
 
@@ -13612,7 +13607,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68777#       发表于 2019-8-5 12:55
 
 
@@ -13621,7 +13616,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  deviljz  
+####  deviljz
 ##### 68778#       发表于 2019-8-5 12:59
 
 
@@ -13633,7 +13628,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68779#       发表于 2019-8-5 13:08
 
 
@@ -13644,7 +13639,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68780#       发表于 2019-8-5 13:10
 
 
@@ -13658,7 +13653,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  閻魔愛  
+####  閻魔愛
 ##### 68781#       发表于 2019-8-5 13:17
 
 
@@ -13668,7 +13663,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  heyfly  
+####  heyfly
 ##### 68782#       发表于 2019-8-5 13:46
 
 
@@ -13677,7 +13672,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  s1s234s  
+####  s1s234s
 ##### 68783#       发表于 2019-8-5 13:52
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -13685,7 +13680,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  eilot  
+####  eilot
 ##### 68784#       发表于 2019-8-5 13:53
 
 
@@ -13696,7 +13691,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  枫紫  
+####  枫紫
 ##### 68785#       发表于 2019-8-5 14:02
 
 
@@ -13705,7 +13700,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68786#       发表于 2019-8-5 14:05
 
 
@@ -13718,7 +13713,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68787#       发表于 2019-8-5 14:14
 
 
@@ -13727,7 +13722,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  xpisces  
+####  xpisces
 ##### 68788#       发表于 2019-8-5 14:32
 
 
@@ -13738,7 +13733,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68789#       发表于 2019-8-5 14:32
 
 
@@ -13749,7 +13744,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  heyfly  
+####  heyfly
 ##### 68790#       发表于 2019-8-5 14:46
 
 
@@ -13761,7 +13756,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68791#       发表于 2019-8-5 14:55
 
 
@@ -13770,7 +13765,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  枫紫  
+####  枫紫
 ##### 68792#       发表于 2019-8-5 15:46
 
 
@@ -13785,7 +13780,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68793#       发表于 2019-8-5 16:14
 
 
@@ -13796,7 +13791,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  s1s234s  
+####  s1s234s
 ##### 68794#       发表于 2019-8-5 16:19
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -13804,7 +13799,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  真红眼教授  
+####  真红眼教授
 ##### 68795#       发表于 2019-8-5 16:23
 
 
@@ -13816,7 +13811,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68796#       发表于 2019-8-5 16:23
 
 
@@ -13827,7 +13822,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68797#       发表于 2019-8-5 16:49
 
 
@@ -13839,7 +13834,7 @@ nga是唯一指定孝子论坛
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68798#       发表于 2019-8-5 17:03
 
 
@@ -13848,7 +13843,7 @@ r姐和r姐。。
 
 *****
 
-####  zechins  
+####  zechins
 ##### 68799#       发表于 2019-8-5 17:03
 
 
@@ -13857,7 +13852,7 @@ r姐和r姐。。
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68800#       发表于 2019-8-5 17:04
 
 
@@ -13868,7 +13863,7 @@ r姐和r姐。。
 
 *****
 
-####  katun  
+####  katun
 ##### 68801#       发表于 2019-8-5 17:05
 
 
@@ -13879,7 +13874,7 @@ r姐和r姐。。
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68802#       发表于 2019-8-5 17:07
 
 
@@ -13888,7 +13883,7 @@ r姐和r姐。。
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68803#       发表于 2019-8-5 17:07
 
 
@@ -13897,7 +13892,7 @@ r姐和r姐。。
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68804#       发表于 2019-8-5 17:13
 
 
@@ -13909,7 +13904,7 @@ r姐和r姐。。
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68805#       发表于 2019-8-5 17:17
 
 
@@ -13918,7 +13913,7 @@ r姐和r姐。。
 
 *****
 
-####  deadog  
+####  deadog
 ##### 68806#       发表于 2019-8-5 17:24
 
 
@@ -13927,7 +13922,7 @@ r姐和r姐。。
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68807#       发表于 2019-8-5 17:55
 
 
@@ -13936,7 +13931,7 @@ r姐和r姐。。
 
 *****
 
-####  里村紅葉  
+####  里村紅葉
 ##### 68808#       发表于 2019-8-5 17:55
 
 
@@ -13945,7 +13940,7 @@ r姐和r姐。。
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68809#       发表于 2019-8-5 17:57
 
 
@@ -13959,7 +13954,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68810#       发表于 2019-8-5 17:57
 
 
@@ -13978,7 +13973,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68811#       发表于 2019-8-5 18:05
 
 
@@ -13989,7 +13984,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68812#       发表于 2019-8-5 18:11
 
 
@@ -14000,7 +13995,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68813#       发表于 2019-8-5 18:28
 
 
@@ -14012,7 +14007,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68814#       发表于 2019-8-5 18:49
 
 
@@ -14023,7 +14018,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  白夜羽  
+####  白夜羽
 ##### 68815#       发表于 2019-8-5 19:06
 
 
@@ -14032,7 +14027,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68816#       发表于 2019-8-5 19:06
 
 
@@ -14041,7 +14036,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68817#       发表于 2019-8-5 19:10
 
 
@@ -14052,7 +14047,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68818#       发表于 2019-8-5 19:14
 
 
@@ -14061,7 +14056,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  giddenslee  
+####  giddenslee
 ##### 68819#       发表于 2019-8-5 19:22
 
 
@@ -14073,16 +14068,16 @@ r司马懿 a刑部鸡
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68820#       发表于 2019-8-5 19:33
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们宝石这么难出的么 我每次不出货就出宝石 吴克都八张了 
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们宝石这么难出的么 我每次不出货就出宝石 吴克都八张了
 
 
 *****
 
-####  任天索尼子  
+####  任天索尼子
 ##### 68821#       发表于 2019-8-5 19:41
 
 
@@ -14094,7 +14089,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68822#       发表于 2019-8-5 19:42
 
 
@@ -14106,7 +14101,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  v22325  
+####  v22325
 ##### 68823#       发表于 2019-8-5 19:42
 
 
@@ -14118,7 +14113,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68824#       发表于 2019-8-5 20:08
 
 
@@ -14130,7 +14125,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68825#       发表于 2019-8-5 20:10
 
 
@@ -14139,7 +14134,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68826#       发表于 2019-8-5 20:14
 
 
@@ -14151,7 +14146,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68827#       发表于 2019-8-5 20:21
 
 
@@ -14160,7 +14155,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68828#       发表于 2019-8-5 20:22
 
 
@@ -14171,7 +14166,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68829#       发表于 2019-8-5 20:24
 
 
@@ -14180,7 +14175,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68830#       发表于 2019-8-5 20:27
 
 
@@ -14189,7 +14184,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68831#       发表于 2019-8-5 20:29
 
 
@@ -14201,7 +14196,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68832#       发表于 2019-8-5 20:30
 
 
@@ -14215,7 +14210,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68833#       发表于 2019-8-5 20:31
 
 
@@ -14227,7 +14222,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68834#       发表于 2019-8-5 20:35
 
 
@@ -14240,7 +14235,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68835#       发表于 2019-8-5 20:37
 
 
@@ -14252,7 +14247,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  ネロ  
+####  ネロ
 ##### 68836#       发表于 2019-8-5 20:45
 
 
@@ -14264,7 +14259,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  aono  
+####  aono
 ##### 68837#       发表于 2019-8-5 20:47
 
 
@@ -14275,7 +14270,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68838#       发表于 2019-8-5 20:59
 
 
@@ -14286,7 +14281,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68839#       发表于 2019-8-5 21:47
 
 
@@ -14298,7 +14293,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68840#       发表于 2019-8-5 22:16
 
 
@@ -14307,7 +14302,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68841#       发表于 2019-8-5 22:31
 
 
@@ -14319,7 +14314,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68842#       发表于 2019-8-5 22:32
 
 
@@ -14331,7 +14326,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  gulant  
+####  gulant
 ##### 68843#       发表于 2019-8-5 22:51
 
 
@@ -14340,7 +14335,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68844#       发表于 2019-8-6 01:19
 
 
@@ -14352,7 +14347,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68845#       发表于 2019-8-6 02:26
 
 
@@ -14361,7 +14356,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  qixinno2  
+####  qixinno2
 ##### 68846#       发表于 2019-8-6 07:10
 
 
@@ -14370,7 +14365,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  saintsimpler  
+####  saintsimpler
 ##### 68847#       发表于 2019-8-6 07:36
 
 
@@ -14379,7 +14374,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68848#       发表于 2019-8-6 08:48
 
 
@@ -14388,7 +14383,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68849#       发表于 2019-8-6 18:01
 
 
@@ -14397,7 +14392,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68850#       发表于 2019-8-6 18:22
 
 
@@ -14406,7 +14401,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68851#       发表于 2019-8-6 18:30
 
 
@@ -14415,7 +14410,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68852#       发表于 2019-8-6 19:35
 
 
@@ -14424,7 +14419,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68853#       发表于 2019-8-6 19:38
 
 
@@ -14436,11 +14431,11 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68854#       发表于 2019-8-6 19:43
 
 
- 本帖最后由 rooarr 于 2019-8-6 20:05 编辑 
+ 本帖最后由 rooarr 于 2019-8-6 20:05 编辑
 
 为了陈宫3连，我3个10绊的拐都上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -14451,7 +14446,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68855#       发表于 2019-8-6 20:05
 
 
@@ -14461,12 +14456,12 @@ r司马懿 a刑部鸡
 
 
 不行啊，2面白字伤害才7w，无限池不太 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用不换人的简易版试了把伤害还行啊 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用不换人的简易版试了把伤害还行啊
 
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68856#       发表于 2019-8-6 20:05
 
 
@@ -14477,11 +14472,11 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68857#       发表于 2019-8-6 20:07
 
 
- 本帖最后由 alucardcz 于 2019-8-6 20:08 编辑 
+ 本帖最后由 alucardcz 于 2019-8-6 20:08 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44816364&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-8-6 20:05</a>
 
 我就是不换人5加成啊</blockquote>
@@ -14495,7 +14490,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68858#       发表于 2019-8-6 20:08
 
 
@@ -14509,7 +14504,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68859#       发表于 2019-8-6 20:09
 
 
@@ -14523,7 +14518,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68860#       发表于 2019-8-6 20:10
 
 
@@ -14535,7 +14530,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68861#       发表于 2019-8-6 20:11
 
 
@@ -14546,7 +14541,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68862#       发表于 2019-8-6 20:13
 
 
@@ -14558,7 +14553,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68863#       发表于 2019-8-6 20:14
 
 
@@ -14570,7 +14565,7 @@ r司马懿 a刑部鸡
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68864#       发表于 2019-8-6 20:15
 
 
@@ -14583,7 +14578,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68865#       发表于 2019-8-6 20:16
 
 
@@ -14594,7 +14589,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68866#       发表于 2019-8-6 20:16
 
 
@@ -14609,7 +14604,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68867#       发表于 2019-8-6 20:17
 
 
@@ -14620,7 +14615,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68868#       发表于 2019-8-6 20:18
 
 
@@ -14632,7 +14627,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68869#       发表于 2019-8-6 20:19
 
 
@@ -14643,7 +14638,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68870#       发表于 2019-8-6 20:19
 
 
@@ -14660,11 +14655,11 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68871#       发表于 2019-8-6 20:20
 
 
- 本帖最后由 rooarr 于 2019-8-6 20:24 编辑 
+ 本帖最后由 rooarr 于 2019-8-6 20:24 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44816555&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-8-6 20:19</a>
 你逗爸技能点满了？
 
@@ -14676,7 +14671,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68872#       发表于 2019-8-6 20:20
 
 
@@ -14688,7 +14683,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68873#       发表于 2019-8-6 20:25
 
 
@@ -14699,7 +14694,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68874#       发表于 2019-8-6 20:26
 
 
@@ -14711,7 +14706,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68875#       发表于 2019-8-6 20:27
 
 
@@ -14722,7 +14717,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68876#       发表于 2019-8-6 20:28
 
 
@@ -14734,7 +14729,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  katun  
+####  katun
 ##### 68877#       发表于 2019-8-6 20:50
 
 
@@ -14748,7 +14743,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68878#       发表于 2019-8-6 21:05
 
 
@@ -14761,7 +14756,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  katun  
+####  katun
 ##### 68879#       发表于 2019-8-6 21:29
 
 
@@ -14776,7 +14771,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  heyfly  
+####  heyfly
 ##### 68880#       发表于 2019-8-6 21:59
 
 
@@ -14793,7 +14788,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68881#       发表于 2019-8-6 22:33
 
 
@@ -14804,7 +14799,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68882#       发表于 2019-8-6 22:34
 
 
@@ -14817,7 +14812,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68883#       发表于 2019-8-6 23:05
 
 
@@ -14828,11 +14823,11 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  heyfly  
+####  heyfly
 ##### 68884#       发表于 2019-8-6 23:21
 
 
- 本帖最后由 heyfly 于 2019-8-6 23:30 编辑 
+ 本帖最后由 heyfly 于 2019-8-6 23:30 编辑
 
 6连发还没想过，5加成的话，可以考虑CBA换成美游，cost是够的，少一个降防，np20由兰陵王补，抱孔明试试
 
@@ -14842,7 +14837,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68885#       发表于 2019-8-6 23:32
 
 
@@ -14853,7 +14848,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  katun  
+####  katun
 ##### 68886#       发表于 2019-8-6 23:32
 
 
@@ -14865,7 +14860,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68887#       发表于 2019-8-7 00:17
 
 
@@ -14877,7 +14872,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  kiralzb  
+####  kiralzb
 ##### 68888#       发表于 2019-8-7 00:21
 
 
@@ -14886,7 +14881,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  黑上シグマ  
+####  黑上シグマ
 ##### 68889#       发表于 2019-8-7 00:26
 
 
@@ -14895,7 +14890,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  katun  
+####  katun
 ##### 68890#       发表于 2019-8-7 00:48
 
 
@@ -14907,7 +14902,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  johnkamsar  
+####  johnkamsar
 ##### 68891#       发表于 2019-8-7 02:03
 
 
@@ -14916,7 +14911,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68892#       发表于 2019-8-7 02:33
 
 
@@ -14928,7 +14923,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68893#       发表于 2019-8-7 02:56
 
 
@@ -14937,7 +14932,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  麻花疼  
+####  麻花疼
 ##### 68894#       发表于 2019-8-7 08:24
 
 
@@ -14949,7 +14944,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  麻花疼  
+####  麻花疼
 ##### 68895#       发表于 2019-8-7 08:24
 
 
@@ -14961,14 +14956,14 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 68896#       发表于 2019-8-7 08:39
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44819855&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-8-7 02:56</a>
 上nga学习了陈宫的各种用法，真是毫无意义，跟我考虑的根本不同，各种换人和不考虑cost做不到5加成 ...</blockquote>
 要换人做啥？起手c狐+豆爸 带件充电10的衣服
-一炮下去回收40 
+一炮下去回收40
 2T陈宫自己点2 上来的拐50充电
 3T点衣服 上来的拐50充电
 不就完了？
@@ -14977,7 +14972,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68897#       发表于 2019-8-7 08:41
 
 
@@ -14988,7 +14983,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68898#       发表于 2019-8-7 08:51
 
 
@@ -14999,20 +14994,20 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68899#       发表于 2019-8-7 08:53
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44820639&amp;ptid=1085254" target="_blank">eyeego 发表于 2019-8-7 08:39</a>
 要换人做啥？起手c狐+豆爸 带件充电10的衣服
-一炮下去回收40 
+一炮下去回收40
 2T陈宫自己点2 上来的拐50充电</blockquote>
 没看上面是测试结果？这一套只能用来打克制，2,3面伤害不足，白字大概率打不了
 
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 68900#       发表于 2019-8-7 08:58
 
 
@@ -15023,11 +15018,11 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68901#       发表于 2019-8-7 09:03
 
 
- 本帖最后由 rooarr 于 2019-8-7 09:06 编辑 
+ 本帖最后由 rooarr 于 2019-8-7 09:06 编辑
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=44820868&amp;ptid=1085254" target="_blank">eyeego 发表于 2019-8-7 08:58</a>
 拿free本试了下非克制没问题啊 起手白字都能打10w+ 后面伤害只会越叠越高</blockquote>
 说的是对单体伤害，我2面8w，3面10w啊，你1面就超过我2面了？什么组合配置
@@ -15035,7 +15030,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  eyeego  
+####  eyeego
 ##### 68902#       发表于 2019-8-7 09:12
 
 
@@ -15046,7 +15041,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68903#       发表于 2019-8-7 09:20
 
 
@@ -15057,7 +15052,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68904#       发表于 2019-8-7 09:53
 
 
@@ -15068,7 +15063,7 @@ cba又不下场，3面双cba在场的
 
 *****
 
-####  koei327  
+####  koei327
 ##### 68905#       发表于 2019-8-7 09:56
 
 
@@ -15081,7 +15076,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  heyfly  
+####  heyfly
 ##### 68906#       发表于 2019-8-7 10:07
 
 
@@ -15093,7 +15088,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68907#       发表于 2019-8-7 10:19
 
 
@@ -15104,7 +15099,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68908#       发表于 2019-8-7 10:22
 
 
@@ -15115,7 +15110,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  heyfly  
+####  heyfly
 ##### 68909#       发表于 2019-8-7 10:25
 
 
@@ -15127,7 +15122,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68910#       发表于 2019-8-7 10:26
 
 
@@ -15138,7 +15133,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  johnkamsar  
+####  johnkamsar
 ##### 68911#       发表于 2019-8-7 11:30
 
 
@@ -15150,7 +15145,7 @@ appmedia攻略班那边上了一个编成研究，看了一下有不上宝石用
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68912#       发表于 2019-8-7 11:35
 
 
@@ -15161,7 +15156,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68913#       发表于 2019-8-7 11:36
 
 
@@ -15170,7 +15165,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68914#       发表于 2019-8-7 11:48
 
 
@@ -15181,7 +15176,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68915#       发表于 2019-8-7 14:20
 
 
@@ -15207,7 +15202,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68916#       发表于 2019-8-7 14:44
 
 
@@ -15216,7 +15211,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68917#       发表于 2019-8-7 14:47
 
 
@@ -15228,7 +15223,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68918#       发表于 2019-8-7 14:49
 
 
@@ -15237,7 +15232,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  瘦猫标题学  
+####  瘦猫标题学
 ##### 68919#       发表于 2019-8-7 14:51
 
 
@@ -15249,7 +15244,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  J-002  
+####  J-002
 ##### 68920#       发表于 2019-8-7 15:06
 
 
@@ -15263,7 +15258,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  johnkamsar  
+####  johnkamsar
 ##### 68921#       发表于 2019-8-7 15:09
 
 
@@ -15277,7 +15272,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68922#       发表于 2019-8-7 15:21
 
 
@@ -15288,7 +15283,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68923#       发表于 2019-8-7 15:24
 
 
@@ -15301,7 +15296,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  johnkamsar  
+####  johnkamsar
 ##### 68924#       发表于 2019-8-7 15:33
 
 
@@ -15313,16 +15308,16 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68925#       发表于 2019-8-7 15:45
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新经过深思熟虑最终还是把宝石满破了   
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新经过深思熟虑最终还是把宝石满破了
 
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68926#       发表于 2019-8-7 16:30
 
 
@@ -15331,7 +15326,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68927#       发表于 2019-8-7 16:34
 
 
@@ -15340,7 +15335,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  落とされ神  
+####  落とされ神
 ##### 68928#       发表于 2019-8-7 16:40
 
 
@@ -15351,7 +15346,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  落とされ神  
+####  落とされ神
 ##### 68929#       发表于 2019-8-7 16:41
 
 
@@ -15362,7 +15357,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68930#       发表于 2019-8-7 16:45
 
 
@@ -15373,7 +15368,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68931#       发表于 2019-8-7 16:45
 
 
@@ -15388,7 +15383,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68932#       发表于 2019-8-7 16:50
 
 
@@ -15400,7 +15395,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68933#       发表于 2019-8-7 16:51
 
 
@@ -15410,12 +15405,12 @@ Rider啦。水黑呆看三破也看不出职介
 
 
 其实一直想找个高配版的陈宫卖拐流，现在能看到的基本都是低配的，老年人脑子不好想不出 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高配就是双狐狸换人礼装 必须..满破宝石 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高配就是双狐狸换人礼装 必须..满破宝石
 
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68934#       发表于 2019-8-7 16:55
 
 
@@ -15424,7 +15419,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  hououmon  
+####  hououmon
 ##### 68935#       发表于 2019-8-7 16:57
 
 
@@ -15433,7 +15428,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68936#       发表于 2019-8-7 16:57
 
 
@@ -15442,7 +15437,7 @@ Rider啦。水黑呆看三破也看不出职介
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68937#       发表于 2019-8-7 17:03
 
 
@@ -15454,7 +15449,7 @@ C子小太郎...
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68938#       发表于 2019-8-7 17:05
 
 
@@ -15468,7 +15463,7 @@ C子小太郎...
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68939#       发表于 2019-8-7 17:10
 
 
@@ -15477,7 +15472,7 @@ C子小太郎...
 
 *****
 
-####  阿提拉  
+####  阿提拉
 ##### 68940#       发表于 2019-8-7 17:38
 
 
@@ -15486,7 +15481,7 @@ C子小太郎...
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68941#       发表于 2019-8-7 17:49
 
 
@@ -15495,7 +15490,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了<img
 
 *****
 
-####  麻花疼  
+####  麻花疼
 ##### 68942#       发表于 2019-8-7 17:54
 
 
@@ -15506,7 +15501,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68943#       发表于 2019-8-7 17:57
 
 
@@ -15517,7 +15512,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68944#       发表于 2019-8-7 18:01
 
 
@@ -15529,7 +15524,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68945#       发表于 2019-8-7 18:06
 
 
@@ -15540,7 +15535,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68946#       发表于 2019-8-7 18:09
 
 
@@ -15552,7 +15547,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68947#       发表于 2019-8-7 18:10
 
 
@@ -15564,7 +15559,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alex_chow  
+####  alex_chow
 ##### 68948#       发表于 2019-8-7 18:13
 
 
@@ -15573,7 +15568,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68949#       发表于 2019-8-7 18:21
 
 
@@ -15584,7 +15579,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68950#       发表于 2019-8-7 18:23
 
 
@@ -15596,7 +15591,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68951#       发表于 2019-8-7 18:23
 
 
@@ -15615,7 +15610,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alex_chow  
+####  alex_chow
 ##### 68952#       发表于 2019-8-7 18:25
 
 
@@ -15630,7 +15625,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68953#       发表于 2019-8-7 19:17
 
 
@@ -15639,7 +15634,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68954#       发表于 2019-8-7 19:25
 
 
@@ -15651,7 +15646,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68955#       发表于 2019-8-7 19:40
 
 
@@ -15664,7 +15659,7 @@ MD我的BOX就差狂和特殊职介没有5星了， 石头可能保不住了</bl
 
 *****
 
-####  Jamaisvu  
+####  Jamaisvu
 ##### 68956#       发表于 2019-8-7 19:43
 
 
@@ -15683,7 +15678,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  高木なつめ  
+####  高木なつめ
 ##### 68957#       发表于 2019-8-7 19:46
 
 
@@ -15692,7 +15687,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68958#       发表于 2019-8-7 19:48
 
 
@@ -15703,7 +15698,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68959#       发表于 2019-8-7 19:50
 
 
@@ -15716,7 +15711,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68960#       发表于 2019-8-7 19:52
 
 
@@ -15729,7 +15724,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68961#       发表于 2019-8-7 19:54
 
 
@@ -15741,7 +15736,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  yangun22  
+####  yangun22
 ##### 68962#       发表于 2019-8-7 21:09
 
 
@@ -15750,7 +15745,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68963#       发表于 2019-8-7 21:15
 
 
@@ -15759,7 +15754,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68964#       发表于 2019-8-7 21:33
 
 
@@ -15771,7 +15766,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  LOLITA  
+####  LOLITA
 ##### 68965#       发表于 2019-8-7 22:13
 
 
@@ -15783,7 +15778,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  高木なつめ  
+####  高木なつめ
 ##### 68966#       发表于 2019-8-8 00:44
 
 
@@ -15795,7 +15790,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  alucardcz  
+####  alucardcz
 ##### 68967#       发表于 2019-8-8 01:07
 
 
@@ -15807,7 +15802,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  武の炽羽  
+####  武の炽羽
 ##### 68968#       发表于 2019-8-8 01:11
 
 
@@ -15818,7 +15813,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  金曜日のバトル  
+####  金曜日のバトル
 ##### 68969#       发表于 2019-8-8 03:50
 
 提示: 作者被禁止或删除 内容自动屏蔽
@@ -15826,7 +15821,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  jacatay  
+####  jacatay
 ##### 68970#       发表于 2019-8-8 10:40
 
 
@@ -15837,7 +15832,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  suibiankk  
+####  suibiankk
 ##### 68971#       发表于 2019-8-8 10:47
 
 
@@ -15846,7 +15841,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  DARKGRAY  
+####  DARKGRAY
 ##### 68972#       发表于 2019-8-8 11:02
 
 
@@ -15858,7 +15853,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68973#       发表于 2019-8-8 11:21
 
 
@@ -15867,7 +15862,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  Nozzy  
+####  Nozzy
 ##### 68974#       发表于 2019-8-8 13:44
 
 
@@ -15876,7 +15871,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  落とされ神  
+####  落とされ神
 ##### 68975#       发表于 2019-8-8 14:48
 
 
@@ -15888,7 +15883,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  落とされ神  
+####  落とされ神
 ##### 68976#       发表于 2019-8-8 14:51
 
 
@@ -15900,7 +15895,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68977#       发表于 2019-8-8 16:06
 
 
@@ -15909,7 +15904,7 @@ B站看到的，这职业。。。。狂武藏、弓刑部、骑卡米，除了�
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68978#       发表于 2019-8-8 16:41
 
 
@@ -15921,7 +15916,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68979#       发表于 2019-8-8 17:02
 
 
@@ -15930,7 +15925,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  日紫月银  
+####  日紫月银
 ##### 68980#       发表于 2019-8-8 17:04
 
 
@@ -15939,7 +15934,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68981#       发表于 2019-8-8 17:04
 
 
@@ -15948,7 +15943,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  khxooo  
+####  khxooo
 ##### 68982#       发表于 2019-8-8 17:05
 
 
@@ -15957,7 +15952,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  Friede-  
+####  Friede-
 ##### 68983#       发表于 2019-8-8 17:06
 
 
@@ -15966,7 +15961,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68984#       发表于 2019-8-8 17:08
 
 
@@ -15975,7 +15970,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  dragonfalls  
+####  dragonfalls
 ##### 68985#       发表于 2019-8-8 17:12
 
 
@@ -15984,7 +15979,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68986#       发表于 2019-8-8 17:12
 
 
@@ -15995,7 +15990,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  仰望神的括约肌  
+####  仰望神的括约肌
 ##### 68987#       发表于 2019-8-8 17:14
 
 
@@ -16004,7 +15999,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68988#       发表于 2019-8-8 17:18
 
 
@@ -16013,7 +16008,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  selfcest  
+####  selfcest
 ##### 68989#       发表于 2019-8-8 17:20
 
 
@@ -16022,7 +16017,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  花枝鱿鱼面  
+####  花枝鱿鱼面
 ##### 68990#       发表于 2019-8-8 17:25
 
 
@@ -16033,7 +16028,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  plok201  
+####  plok201
 ##### 68991#       发表于 2019-8-8 17:26
 
 
@@ -16042,7 +16037,7 @@ fgo是不需要隐藏真名系统的<img src="https://static.saraba1st.com/image
 
 *****
 
-####  上坂莲华  
+####  上坂莲华
 ##### 68992#       发表于 2019-8-8 17:29
 
 
@@ -16055,7 +16050,7 @@ LGA吹陈宫吹得我都要PTSD了
 
 *****
 
-####  faxi  
+####  faxi
 ##### 68993#       发表于 2019-8-8 17:29
 
 
@@ -16066,7 +16061,7 @@ LGA吹陈宫吹得我都要PTSD了
 
 *****
 
-####  rooarr  
+####  rooarr
 ##### 68994#       发表于 2019-8-8 17:35
 
 
@@ -16079,7 +16074,7 @@ LGA吹陈宫吹得我都要PTSD了
 
 *****
 
-####  dante888  
+####  dante888
 ##### 68995#       发表于 2019-8-8 17:37
 
 
@@ -16088,7 +16083,7 @@ lga真好看，连配对也要喷
 
 *****
 
-####  J-002  
+####  J-002
 ##### 68996#       发表于 2019-8-8 17:37
 
 
@@ -16097,7 +16092,7 @@ lga真好看，连配对也要喷
 
 *****
 
-####  白清羽  
+####  白清羽
 ##### 68997#       发表于 2019-8-8 17:45
 
 
@@ -16106,7 +16101,7 @@ lga真好看，连配对也要喷
 
 *****
 
-####  千叶铁矢  
+####  千叶铁矢
 ##### 68998#       发表于 2019-8-8 17:47
 
 
@@ -16119,7 +16114,7 @@ LGA吹陈宫吹得我都要PTSD了
 
 *****
 
-####  deadog  
+####  deadog
 ##### 68999#       发表于 2019-8-8 17:51
 
 
@@ -16131,7 +16126,7 @@ LGA吹陈宫吹得我都要PTSD了
 
 *****
 
-####  katun  
+####  katun
 ##### 69000#       发表于 2019-8-8 17:56
 
 
@@ -16143,5 +16138,3 @@ LGA吹陈宫吹得我都要PTSD了
 我68879楼做过测试，陈宫也就比伯爵多10秒而已
 
 不过我用ipad pro玩的，可能某些安卓机种换人延迟会高些？
-
-
