@@ -16249,3 +16249,47 @@ PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
 动画配信是指视频投稿啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 配信就是直播的意思啊，你在想什么
 
+
+
+*****
+
+####  Enakina  
+##### 5840#       发表于 2022-2-28 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54859738&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-02-28 10:34:01</a>
+动画配信是指视频投稿啊</blockquote>動画配信就是生放送的意思啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 5841#       发表于 2022-2-28 11:27
+
+我只能说，星团危<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5842#       发表于 2022-2-28 11:28
+
+官方说的是在ll基础上围绕游戏，直播，cd，live去开展活动。基本上是个新团了，星团最速前辈，鲤鱼并行发展个人这个决定太明智了，其他人也在做了，holypeak你得给劲啊！
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 5843#       发表于 2022-2-28 11:33
+
+连星团都没游戏，难怪推进的这么快，合着打算恰一波快钱的，虽然觉得动画拉，但是看全员一年级设定，还在想动画是不是来三季，现在不敢想了，剧场版都有点不敢想了，感情是打算见好就收<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5844#       发表于 2022-2-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54860478&amp;ptid=2036367" target="_blank">lanslort 发表于 2022-2-28 11:16</a>
+配信就是直播的意思啊，你在想什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">这是那种在某个固定时间投视频的模式。。。。看着确实像直播
+
