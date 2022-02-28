@@ -16090,3 +16090,38 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5824#       发表于 2022-2-28 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54858713&amp;ptid=2036367" target="_blank">soranoguiji 发表于 2022-02-28 09:20:34</a></blockquote>那能一样吗，她要不是法元明菜你会去看吗，她有没有那个皮都一样的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 5825#       发表于 2022-2-28 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">企划你这还不如直接让菜宝顶个懒猪皮直播呢，正好配合虹二期动画，培训都不用培训，就菜宝油管杂谈读信教中文唱歌那套，直接上岗好嘛
+
+*****
+
+####  starring  
+##### 5826#       发表于 2022-2-28 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857353&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-2-28 01:55</a>
+
+深夜做个调查:一专买两个版本的人多吗(</blockquote>
+只买了a店特典的photo版
+
+*****
+
+####  优妮可  
+##### 5827#       发表于 2022-2-28 09:35
+
+菜宝不如让妃喵来吧，侑还是个动画限定，之后就没妃喵什么事了，不如给妃喵这个机会正式加入ll
+
