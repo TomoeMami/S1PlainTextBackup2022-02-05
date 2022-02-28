@@ -16201,3 +16201,21 @@ live viewing 在叔叔家卖水6th的线上票了，汇率 ...</blockquote>
 那图上左下角就写的投视频为主啊  小剧场这种玩意已经品鉴的够多了 被扫进垃圾堆的东西 ...</blockquote>
 动画配信为主体明显是直播势啊
 
+
+
+*****
+
+####  稀勢のささ  
+##### 5835#       发表于 2022-2-28 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54859392&amp;ptid=2036367" target="_blank">lanslort 发表于 2022-2-28 10:09</a>
+动画配信为主体明显是直播势啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">动画配信是指视频投稿啊
+
+*****
+
+####  cybernetics31  
+##### 5836#       发表于 2022-2-28 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这企划追两个团太费钱了，这几天不知不觉小1000又没了
+

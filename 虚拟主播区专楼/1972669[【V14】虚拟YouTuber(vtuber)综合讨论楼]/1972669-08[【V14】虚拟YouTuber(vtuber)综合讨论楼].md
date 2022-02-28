@@ -6568,3 +6568,23 @@ mimi的mc算是拿手绝活了
 
 Tf2遗老那还行啊，我是觉得摁男二期还行的，虽然比不上一期人人专武，但有了歌力的补充还是能很好和一期互补的
 
+
+
+*****
+
+####  fastary  
+##### 11091#       发表于 2022-2-28 10:29
+
+但是听2.0sonny很像素人啊，难道前世是纯视频势？
+
+*****
+
+####  藤原银  
+##### 11092#       发表于 2022-2-28 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54856485&amp;ptid=1972669" target="_blank">free 发表于 2022-2-28 00:02</a>
+如何评价今天lovelive的新企划</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">做自己家的看板娘或者宣传？
+
+感觉现在市场都红海了
+
