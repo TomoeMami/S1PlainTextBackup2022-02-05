@@ -2610,3 +2610,48 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 
 5号充电电池主要是充电器比较麻烦，锂电包需要改壳，不然就只能买预先做好的电池盖，壳遇到店家没有的颜色就比较纠结
 
+
+
+*****
+
+####  ayumizxj  
+##### 195#       发表于 2022-2-28 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54832814&amp;ptid=2049173" target="_blank">保科智子 发表于 2022-2-25 22:08</a>
+
+有没有折腾饭盒nds的？想收个下半截改gba的体验原生色彩。哪家有改得好的吗？原厂按键屏幕不发黄存在吗？[f ...</blockquote>
+建议别搞，老NDS的屏幕真的很差，NDSL的还行，就是手感的确没饭盒机来的好
+
+*****
+
+####  oidoid  
+##### 196#       发表于 2022-2-28 14:18
+
+ 本帖最后由 oidoid 于 2022-2-28 14:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54862850&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-28 13:50</a>
+
+那肩键你焊上去嘛，还是咋安装上去
+
+—— 来自 S1Fun</blockquote>
+我只换了内部的弹片而已
+
+<img src="https://img.saraba1st.com/forum/202202/28/142534dn0y7y0wcnc7qxcc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220228142515.png</strong> (28.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 14:25 上传
+
+SP的除开按键矮点，结构应该是一样的。
+
+*****
+
+####  zris  
+##### 197#         楼主| 发表于 2022-2-28 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54863208&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-28 14:18</a>
+
+我只换了内部的弹片而已</blockquote>
+好的，谢谢分享。我现在横板GBA 肩键手感还行，就是SP有点软了，啥时候不行再说<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
