@@ -6535,3 +6535,17 @@ mimi的mc算是拿手绝活了
 
 传闻EN新人那个金毛男前世是作TF2视频的，做烦了直接作假死亡信息来逃离TF2圈，乐死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  撕叁  
+##### 11088#       发表于 2022-2-28 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857859&amp;ptid=1972669" target="_blank">purdre 发表于 2022-2-28 06:55</a>
+
+传闻EN新人那个金毛男前世是作TF2视频的，做烦了直接作假死亡信息来逃离TF2圈，乐死我了 ...</blockquote>
+如果真是sketchek的话那确实是个代明星，管人毕业的时候可以再死亡一次
+
+不过游戏力岂不是很高
+
