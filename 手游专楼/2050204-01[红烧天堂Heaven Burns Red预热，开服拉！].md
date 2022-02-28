@@ -2484,3 +2484,18 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 ios登顶了，但是还是要说一句飞机社飞马
 
+
+
+*****
+
+####  barca  
+##### 222#       发表于 2022-2-28 23:59
+
+李映夏和华村正好都3凸，有给后排加sp的被动，螃蟹戴上初期加2sp以上的饰品的话，2t就可以放大招了
+
+拿到竞技场中3试了下，自动技能设定只设两个buffer的buff技能和螃蟹大招，突和打系都可以一击必杀。开auto35秒左右就能搞定，省电模式一周也可以在1分内。
+
+最近缺星沙，放置时正好可以拿来用，只可惜中三星沙掉率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
