@@ -16342,3 +16342,30 @@ PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
 
 我就不明白，难道星团是没达到预期吗？
 
+
+
+*****
+
+####  x分裂者  
+##### 5851#       发表于 2022-2-28 12:26
+
+应该和星没关系，星开始活动才半年多，哪里能这么快敲定一个新企划，应该是拿来顶as的
+
+*****
+
+####  cybernetics31  
+##### 5852#       发表于 2022-2-28 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不如猜因为疫情追加的企划，拿来顶as的话让星团人上就行，不需要招新人。
+推特上趋势了，普遍都是觉得迷……………………
+
+*****
+
+####  csolfans  
+##### 5853#       发表于 2022-2-28 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857403&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-2-28 02:08</a>
+
+就买了真人封面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来都是真人多
+

@@ -6620,3 +6620,41 @@ wtmxs为什么这里会联想到黑客，虽然我也没法想象黑客看片的
 
 希望bora转生哈弟箱回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11095#       发表于 2022-2-28 12:39
+
+<strong>Sonny Brisko—— Sketchek
+</strong>
+
+一名传奇的TF2 Pyro main youtuber，自称被诊断出患有绝症后想要更多陪伴家人于2015年退出TF2；
+
+18年3月，TF2官方在游戏中为Axtinguisher添加了新技能Sketchek’s Bequest来纪念他。
+
+19年2月5日@Sketchek发推“kept you waiting huh.” ，并于一天后上传道歉视频，称他之前的行为是“a sick joke”，承认他编造了整个事情，当时他生活中社交活动占比逐渐增加而且厌倦了TF2。尽管15年视频中Sketchek称即便康复也不会再回归，19年他还是想要再次玩这个游戏并为其制作视频。（据说其中有一年是在日本度过，并且15年时他只有14,15岁）
+
+相关链接
+[退出声明](https://www.youtube.com/watch?v=mRBKIDwq3A4&amp;list=PLvstrBMvHcUSq6PxGxoVG6ewr9D75SBxd&amp;index=14)
+
+[TF论坛中本人发言](https://www.teamfortress.tv/51273/sketchek-is-back#25)
+
+<img src="https://img.saraba1st.com/forum/202202/28/123923iq88vp887vxosrss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Axtinguisher-Sketches Bequest .jpeg</strong> (46.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 12:39 上传
+
+MIAA-452.png
+(142.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202202/28/124125t3zgnn7nn7y74dl0.png" referrerpolicy="no-referrer">
+
