@@ -6848,3 +6848,49 @@ Yugo Asuma—— MasaeBation
 
 虽然好笑但是如果条子真烧的比较厉害的话，估计要吃禁闭了
 
+
+
+*****
+
+####  rzrbtk  
+##### 11112#       发表于 2022-2-28 15:26
+
+yugo跟画师妈的互动一板一眼还蛮可爱的，日语也不错<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+省一楼，感觉lr至今的炎上都用梗化混过去了，这回会真格被喷吗...？（没有希望他被炎上的意思）
+
+*****
+
+####  生麦之发杀  
+##### 11113#       发表于 2022-2-28 15:30
+
+ 本帖最后由 生麦之发杀 于 2022-2-28 15:32 编辑 
+
+有人能编辑这个表格吗？
+[https://docs.google.com/spreadsh ... 60e5CQic/edit#gid=0](https://docs.google.com/spreadsheets/d/1RNEdFffeBXVsjXDY4JEKzeirCwMhCBFJbdl60e5CQic/edit#gid=0)
+
+麻烦把nijisanji kr的wiffy（위피）转生写进去
+
+我记得我当时是找到yuya转生后没几天发现和她玩的好的几个liver里有人声音特熟悉发现的，后面忘记往你楼发了（
+
+原：
+[https://twitter.com/Wiffy2434](https://twitter.com/Wiffy2434)
+
+转生：
+[https://twitter.com/yona_whale](https://twitter.com/yona_whale)
+[https://www.youtube.com/c/chyona/](https://www.youtube.com/c/chyona/)
+[https://www.twitch.tv/iotayona](https://www.twitch.tv/iotayona)
+
+证据：
+
+[https://www.youtube.com/watch?v=yMDRFWSZq_o](https://www.youtube.com/watch?v=yMDRFWSZq_o)
+
+把前世翻唱pv描改了下转生后接着用，顺便删了前世的翻唱（
+
+*****
+
+####  fastary  
+##### 11114#       发表于 2022-2-28 15:42
+
+yugo是泰国长大的日本人？好不en啊草
+
