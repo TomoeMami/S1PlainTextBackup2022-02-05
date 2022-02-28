@@ -2368,3 +2368,25 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 每一章都更新2g这么下来，这游戏容量要上天了。。。
 
+
+
+*****
+
+####  barca  
+##### 211#       发表于 2022-2-28 13:54
+
+<img src="https://p.sda1.dev/5/92b61c61679d80172bc59de95162457f/Screenshot_20220228-131618.png" referrerpolicy="no-referrer">
+
+10连竟然捞出了星罗，从某种意义上来说是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+后来氪了必得，把月城也捞到了，实在圆满的不敢相信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 6 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  poor  
+##### 212#       发表于 2022-2-28 13:59
+
+有原版惠惠了这池子是不是不用抽了？
+

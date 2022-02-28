@@ -2557,3 +2557,56 @@ EZODE到了，结果库存太久那颗CR1025早没电了，我还在奇怪为啥
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  oidoid  
+##### 192#       发表于 2022-2-28 13:46
+
+ 本帖最后由 oidoid 于 2022-2-28 13:48 编辑 
+
+记录一下给gba换肩键锅仔片的过程好了，其实也不复杂
+<img src="https://p.sda1.dev/5/18908ccd34bb5cdad6113593d684a017/IMG_CMP_74580913.jpeg" referrerpolicy="no-referrer">
+
+肩键微动开关上面的四个小点剪掉，然后就可以撬开盖板
+<img src="https://p.sda1.dev/5/b7b1be013b3184d53d776b2c698a1e61/IMG_CMP_215908512.jpeg" referrerpolicy="no-referrer">
+
+新旧内部零件对比，可以看到旧的锅仔片已经磨损很严重了，而且失去了弹性，肩键的主要弹性和手感都来源于它
+
+黑色的塑料按键本身不提供弹性，不过也有磨损索性一起换了
+<img src="https://p.sda1.dev/5/aedaf1e7eba72866a721567f8ad393a3/IMG_CMP_192121736.jpeg" referrerpolicy="no-referrer">
+
+新旧开关的内部对比，新的开关内部触点更大，如果会用烙铁的坛友也许直接换了比较好
+
+另外拆开才明白这个结构CRC是难以流入流出又难以摩擦清洁到触点的，之前喷了也不太有效的原因大致如此，总之建议不想重焊的坛友也是拆开用棉签加各种洗剂清洁触点
+
+装回去也很简单，锅仔片凸面向上放进去，按键套着盖片对着四个小点的桩一拼了事
+
+如果你怕掉&amp;短时间内不会再拆开它可以滴一点502固定，我是没粘上，感觉桩的摩檫力还是够的
+
+*****
+
+####  zris  
+##### 193#         楼主| 发表于 2022-2-28 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54862802&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-2-28 13:46</a>
+记录一下给gba换肩键锅仔片的过程好了，其实也不复杂
+
+肩键微动开关上面的四个小点剪掉，然后就可以撬开盖 ...</blockquote>
+那肩键你焊上去嘛，还是咋安装上去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oidoid  
+##### 194#       发表于 2022-2-28 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54853103&amp;ptid=2049173" target="_blank">zris 发表于 2022-2-27 19:42</a>
+
+我折腾下来替换的那些，我都打算到时候当零件卖了。电池我最近在搞sp，gba的还没弄，你打算用啥，到时候 ...</blockquote>
+说实话目前我还在考虑
+
+5号充电电池主要是充电器比较麻烦，锂电包需要改壳，不然就只能买预先做好的电池盖，壳遇到店家没有的颜色就比较纠结
+

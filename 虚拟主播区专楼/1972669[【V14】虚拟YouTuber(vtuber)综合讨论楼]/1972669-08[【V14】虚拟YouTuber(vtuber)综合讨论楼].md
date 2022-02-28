@@ -6721,3 +6721,30 @@ MIAA-452.png
 盗版这事只能说懂的都懂了
 还有不少画师自己都下盗版本子来参考，虽然暴露了以后马上各种道歉
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11102#       发表于 2022-2-28 13:53
+
+Yugo Asuma—— MasaeBation
+
+一位 1.8M followers的TikToker，诸多生活习惯、多语言（及语言水平）对得上但无法确认，直到被发现TA无意用MasaeBation的账号喜欢了Noctyx的FA（已取消）；推及油管同名，虽然都锁了但在任意平台输入关键词都能查到大量搬运/合作视频（声音见：[https://www.youtube.com/watch?v=8sne4CggglU](https://www.youtube.com/watch?v=8sne4CggglU)）
+
+<img src="https://img.saraba1st.com/forum/202202/28/134713ligtg7esj7ess8oj.png" referrerpolicy="no-referrer">
+
+<strong>masaebation .png</strong> (32.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202202/28/135243fwg3pf0glrwlvgz2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>masaebation -2.jpeg</strong> (142.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 13:52 上传
+
