@@ -2655,3 +2655,20 @@ SP的除开按键矮点，结构应该是一样的。
 我只换了内部的弹片而已</blockquote>
 好的，谢谢分享。我现在横板GBA 肩键手感还行，就是SP有点软了，啥时候不行再说<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JasonBourne  
+##### 198#       发表于 2022-2-28 21:05
+
+现在的高亮GBP+EZJ烧录卡用1.2v的电池居然带不动了，看了一圈1.2v的7号电池貌似就只能选南孚了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/28/210603ad1wm4kqhd1am0ym.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2493.JPEG</strong> (448.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-28 21:06 上传
+

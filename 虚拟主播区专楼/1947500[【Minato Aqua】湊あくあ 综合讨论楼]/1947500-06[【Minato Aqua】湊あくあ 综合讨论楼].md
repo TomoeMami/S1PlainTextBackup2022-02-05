@@ -7675,3 +7675,23 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 夸宝不要担心，好好休养，我会等你的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 <img src="https://s4.ax1x.com/2022/02/28/bMZOiV.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 8392#       发表于 2022-2-28 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54867557&amp;ptid=1947500" target="_blank">面具13 发表于 2022-2-28 20:09</a>
+精神状态不好，恢复好状态前，没法正常直播，为鸽会限道歉。无法取消的工作会去做，还有可能会有在别的地 ...</blockquote>
+nene3d呗 syl还是楼友乐子多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  乌鸦绅士  
+##### 8393#       发表于 2022-2-28 20:41
+
+每次复活后的结局都是玉玉吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
