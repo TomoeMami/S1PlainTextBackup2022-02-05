@@ -2419,3 +2419,15 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 月城的token点在迷宫居然是可以继承的，月城最中，迷宫的神，基本上爬个2层就是10层token毁天灭地了。
 
+
+
+*****
+
+####  rsa1zc  
+##### 216#       发表于 2022-2-28 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54863094&amp;ptid=2050204" target="_blank">terry666 发表于 2022-2-28 14:09</a>
+
+有人用模拟器玩过这游戏吗？？如果我在家用模拟器，出门用手机玩，会被判定为频繁换端登录给封号吗？ ...</blockquote>
+我一直这样玩的，没啥事，注意别用免费加速器就行，可能会因为tb号贩子连坐封ip<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

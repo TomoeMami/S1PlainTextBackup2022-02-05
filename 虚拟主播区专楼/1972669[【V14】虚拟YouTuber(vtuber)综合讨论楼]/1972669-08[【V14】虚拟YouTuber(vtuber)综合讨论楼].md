@@ -6920,3 +6920,12 @@ yugo是泰国长大的日本人？好不en啊草
 
 有点好笑又有点羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 11117#       发表于 2022-2-28 16:33
+
+本尊下场了，红毛把握好机会说不定能把火灭了留个梗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
