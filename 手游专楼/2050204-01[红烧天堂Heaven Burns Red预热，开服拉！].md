@@ -2410,3 +2410,12 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 —— 来自 OPPO PEYM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  xiongxingyu  
+##### 215#       发表于 2022-2-28 16:17
+
+月城的token点在迷宫居然是可以继承的，月城最中，迷宫的神，基本上爬个2层就是10层token毁天灭地了。
+
