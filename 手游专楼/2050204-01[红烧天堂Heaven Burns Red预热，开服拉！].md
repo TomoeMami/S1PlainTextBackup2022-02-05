@@ -2440,3 +2440,14 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 毛妹这个S卡的核弹有点意思，毛妹人气还挺高的，可能过几天会有一个核弹视频
 
+
+
+*****
+
+####  leitingkai  
+##### 218#       发表于 2022-2-28 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54865483&amp;ptid=2050204" target="_blank">角龙大剑 发表于 2022-2-28 17:01</a>
+毛妹这个S卡的核弹有点意思，毛妹人气还挺高的，可能过几天会有一个核弹视频 ...</blockquote>
+毛妹是主角gachi 这种主角gachi的角色一般人气都不会低
+

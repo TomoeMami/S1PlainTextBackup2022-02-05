@@ -6938,3 +6938,14 @@ yugo是泰国长大的日本人？好不en啊草
 
 能拉本人联动吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">他这个定位能聊下三路吗
 
+
+
+*****
+
+####  poipanchao  
+##### 11119#       发表于 2022-2-28 17:08
+
+倒是没怎么看过条子，切片云起来的感觉，直播基本上不走正统路线吧
+比如之前valo队内，输了基本就是各种怪队友菜
+这种风格玩一下梗倒不是不行
+
