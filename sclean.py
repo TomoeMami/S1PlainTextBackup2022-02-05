@@ -18,3 +18,4 @@ for i in thdata.keys():
             newthdata.pop(i)
 with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
         f.write(json.dumps(newthdata,indent=2,ensure_ascii=False))
+print("finish")
