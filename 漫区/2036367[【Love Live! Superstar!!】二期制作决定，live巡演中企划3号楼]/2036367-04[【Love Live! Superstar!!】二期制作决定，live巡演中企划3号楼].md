@@ -16179,3 +16179,25 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 live viewing 在叔叔家卖水6th的线上票了，汇率 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实最大的问题是E+有海外而且直接支持zfb搞了很久了，无延迟无IP限制，叔叔家现在唯一的优势的便宜20，码率不知道有没有提升，要是没提升的话等于是用晚半小时省20块钱
 
+
+
+*****
+
+####  Enakina  
+##### 5833#       发表于 2022-2-28 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54859243&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-02-28 10:00:09</a>
+其实最大的问题是E+有海外而且直接支持zfb搞了很久了，无延迟无IP限制，叔叔家现在唯一的优势的便宜20， ...</blockquote>昨天那破事我只觉得延迟是有必要的，在国内平台播，还是小心使得万年船，谁知道会发生什么意外
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lanslort  
+##### 5834#       发表于 2022-2-28 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857081&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-2-28 01:10</a>
+
+那图上左下角就写的投视频为主啊  小剧场这种玩意已经品鉴的够多了 被扫进垃圾堆的东西 ...</blockquote>
+动画配信为主体明显是直播势啊
+
