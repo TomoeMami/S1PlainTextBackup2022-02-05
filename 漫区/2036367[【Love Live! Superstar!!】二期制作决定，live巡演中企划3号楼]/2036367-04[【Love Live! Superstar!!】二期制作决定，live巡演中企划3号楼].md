@@ -16413,3 +16413,28 @@ PV里有一个人声了，是新人声优吗？好是哪路管人再就业？
 ----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
 这必然是个新人声优啊，而且是基本没有任何配音经验、没有经过任何专业训练的那种
 
+
+
+*****
+
+####  山岚夜雨  
+##### 5858#       发表于 2022-2-28 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54859062&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-28 09:47</a>
+只认识刚刚办完葬礼的始皇爱，看你们的讨论觉得管人圈像过街老鼠那样人人喊打
+
+只要不占用水虹星的资源和发 ...</blockquote>
+就是因为管人圈味道太大所以才人人喊打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 5859#       发表于 2022-2-28 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他大概不会滚的
+
+我觉得官方的思路挺明显的，星走缪水路线，总体偏保守，就按一直以来的路子做，就是要那股传统LL臭，保传统受众
+
+V走虹路线，搞新东西去冒险，吸新受众
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你们等着追飞机扇巴掌得了
+

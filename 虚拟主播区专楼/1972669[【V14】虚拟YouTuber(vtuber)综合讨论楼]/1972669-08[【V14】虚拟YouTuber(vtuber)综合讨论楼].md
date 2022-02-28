@@ -6693,3 +6693,31 @@ MIAA-452.png
 
 他都第几次了，之前还输入法直接关联おばくん
 
+
+
+*****
+
+####  Porsche  
+##### 11099#       发表于 2022-2-28 13:35
+
+如果不是割れ厨行为只是暴露这两个av的话甚至可以成为大肆扩散的neta<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但是日本对于看盗版这件事看得很严重，这事不好说了
+
+*****
+
+####  Porsche  
+##### 11100#       发表于 2022-2-28 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54862015&amp;ptid=1972669" target="_blank">purdre 发表于 2022-2-28 12:45</a>
+去看了下ovagong的那两个号码，都是乳○責め 多来点这种乐子事故我也不会觉得无聊了 ...</blockquote>
+而且是女攻男受啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我个人觉得人设丰满了许多
+
+
+
+*****
+
+####  poipanchao  
+##### 11101#       发表于 2022-2-28 13:45
+
+盗版这事只能说懂的都懂了
+还有不少画师自己都下盗版本子来参考，虽然暴露了以后马上各种道歉
+
