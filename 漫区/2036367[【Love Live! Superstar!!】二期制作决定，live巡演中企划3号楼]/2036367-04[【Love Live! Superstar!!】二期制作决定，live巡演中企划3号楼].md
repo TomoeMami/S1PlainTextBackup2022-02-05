@@ -16006,3 +16006,29 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 不过这种偶像索尼的，爱回的都整过了live歌也好一个不少。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 5814#       发表于 2022-2-28 08:24
+
+要是和猴楼合作。鲤鱼怕是得退团跑路了。
+
+*****
+
+####  cybernetics31  
+##### 5815#       发表于 2022-2-28 08:35
+
+秋季再看了，参考快糊了的227，联动估计不会。企划现有资源这么多，像隔壁黄金船那样直接搞一个不也行，何苦再另起炉灶。
+
+*****
+
+####  Skyline_R  
+##### 5816#       发表于 2022-2-28 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54857152&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-2-28 01:19</a>
+
+不太了解以前的情况，话说企划之前有过什么比较重要的消息是先公布在杂志上的吗 ...</blockquote>
+缪水最早就是杂志上宣的，虹星是线下活动宣的（虹是SIF感谢祭/星是FES）
+
