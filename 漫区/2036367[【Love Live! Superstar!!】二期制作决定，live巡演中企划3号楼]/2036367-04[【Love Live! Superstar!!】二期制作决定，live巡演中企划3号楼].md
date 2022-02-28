@@ -16065,3 +16065,28 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 
 我觉得官方还没放出更多的信息，个人感觉那张图还有点看不清楚企划方到底准备干啥，怎么干，不如等官方发多一点消息再看
 
+
+
+*****
+
+####  A0171050  
+##### 5821#       发表于 2022-2-28 09:13
+
+虽然我1专photo版和动画版封面都买了，但说实话对photo版不是很感兴趣，liella现在从歌曲什么的，这些cd什么的，太偏向三次元了。。
+
+*****
+
+####  cybernetics31  
+##### 5822#       发表于 2022-2-28 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54858335&amp;ptid=2036367" target="_blank">Skyline_R 发表于 2022-2-28 08:46</a>
+我觉得把缪的几位老偶像拉回来可能是最皆大欢喜的；不过资本家嘛想要开辟新市场，招揽新粉丝，那新企化几乎 ...</blockquote>
+缪那几位完全不需要带皮套啊，直接上真人就行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肯定是新人，这割韭菜目的太明显了
+
+*****
+
+####  soranoguiji  
+##### 5823#       发表于 2022-2-28 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
