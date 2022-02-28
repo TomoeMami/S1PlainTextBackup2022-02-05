@@ -2359,3 +2359,12 @@ nanamin是怎么回答的？我没看过这段<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看来以后都没必要赶主线进度了，挂个1年半载后再来推
 
+
+
+*****
+
+####  蕾丝  
+##### 210#       发表于 2022-2-28 10:04
+
+每一章都更新2g这么下来，这游戏容量要上天了。。。
+

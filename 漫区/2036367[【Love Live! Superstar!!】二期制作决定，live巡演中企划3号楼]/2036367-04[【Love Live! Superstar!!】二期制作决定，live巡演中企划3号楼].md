@@ -16125,3 +16125,57 @@ Aqours和Liella的披露与征名算不算重磅<img src="https://static.saraba1
 
 菜宝不如让妃喵来吧，侑还是个动画限定，之后就没妃喵什么事了，不如给妃喵这个机会正式加入ll
 
+
+
+*****
+
+####  player3960  
+##### 5828#       发表于 2022-2-28 09:44
+
+一专只买了photo盘，星团动画太拉了，而且二次元供给根本不够啊，我的快乐基本都来源于三次元<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 5829#       发表于 2022-2-28 09:47
+
+只认识刚刚办完葬礼的始皇爱，看你们的讨论觉得管人圈像过街老鼠那样人人喊打
+
+只要不占用水虹星的资源和发展，这管人企划怎么都没所谓
+
+*****
+
+####  星降る森  
+##### 5830#       发表于 2022-2-28 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54858713&amp;ptid=2036367" target="_blank">soranoguiji 发表于 2022-2-28 09:20</a>
+
+好不容易不当管人痴了，你拉也搞这？不过法元明菜不是套了个皮在播嘛，我也经常去看的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜宝套皮理由是懒得化妆....自己说的
+
+*****
+
+####  稀勢のささ  
+##### 5831#       发表于 2022-2-28 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54859062&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-28 09:47</a>
+只认识刚刚办完葬礼的始皇爱，看你们的讨论觉得管人圈像过街老鼠那样人人喊打
+
+只要不占用水虹星的资源和发 ...</blockquote>
+除了趴着吸血我是看不到别的结局
+ 除非他真能靠着ll这块牌子跟皮套搞出什么奇怪的化学反应
+
+*****
+
+####  星降る森  
+##### 5832#       发表于 2022-2-28 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54836798&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-2-26 10:33</a>
+
+叔叔家没那么大能耐的，本来签叔叔家也仅限国内事务
+
+live viewing 在叔叔家卖水6th的线上票了，汇率 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实最大的问题是E+有海外而且直接支持zfb搞了很久了，无延迟无IP限制，叔叔家现在唯一的优势的便宜20，码率不知道有没有提升，要是没提升的话等于是用晚半小时省20块钱
+
