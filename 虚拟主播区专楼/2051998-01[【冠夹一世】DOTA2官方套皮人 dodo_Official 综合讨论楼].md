@@ -4005,3 +4005,26 @@ bot名字完美改的？
 
 笑死 永恒翻脸了 想玩老头环了
 
+
+
+*****
+
+####  mkii量产型  
+##### 477#       发表于 2022-3-1 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天拍到的这四川大哥把dodo和小男友都给整懵逼了，节目效果炸裂
+
+*****
+
+####  Fstt  
+##### 478#       发表于 2022-3-1 18:57
+
+这补刀，看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  caupollen  
+##### 479#       发表于 2022-3-1 18:59
+
+这小狗喜剧效果拉满，dodo给干无语了
+
