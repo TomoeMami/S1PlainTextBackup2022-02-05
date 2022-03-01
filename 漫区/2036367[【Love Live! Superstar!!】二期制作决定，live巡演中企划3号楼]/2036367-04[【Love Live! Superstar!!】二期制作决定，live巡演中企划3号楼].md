@@ -16622,3 +16622,12 @@ V走虹路线，搞新东西去冒险，吸新受众
 
 看到壁吧专楼的大佬说了点看法，这里推荐一下   1174楼：[https://tieba.baidu.com/p/7434617737](https://tieba.baidu.com/p/7434617737)
 
+
+
+*****
+
+####  Norkey1  
+##### 5876#       发表于 2022-3-1 09:16
+
+这团消息出来楼里比星团一巡的时候还热闹，vtb果然是现版本顶流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

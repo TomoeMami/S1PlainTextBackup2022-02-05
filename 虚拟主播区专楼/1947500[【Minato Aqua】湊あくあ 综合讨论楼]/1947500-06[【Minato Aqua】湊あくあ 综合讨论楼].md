@@ -7728,3 +7728,12 @@ syl 社区评论怎么都是结晶mmr crew🤮 就没有人跳脸黑屁吗
 
 只要夸夸拾起老头环，那就是大主播了，巴别塔都会捡起来的
 
+
+
+*****
+
+####  面具13  
+##### 8397#       发表于 2022-3-1 09:18
+
+1月会限里的谜语“有人在挑拨holomen之间的关系”，不会夸宝真的是在给るしあ打抱不平吧，不会这么蠢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
