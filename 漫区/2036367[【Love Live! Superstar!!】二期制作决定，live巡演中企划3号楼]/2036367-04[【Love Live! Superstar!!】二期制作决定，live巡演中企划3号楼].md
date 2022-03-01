@@ -16777,3 +16777,37 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  梶原ひかり  
+##### 5889#       发表于 2022-3-1 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878799&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-1 17:57</a>
+避免误会说一下，不是销量100多，是周榜100名之外，所以没有具体数据
+
+  -- 来自 有消息提醒的 Stage1官方  ...</blockquote>
+周榜100多位 应该连300销量都不到吧
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  cat1230  
+##### 5890#       发表于 2022-3-1 18:32
+
+熊田茜音这没有动画加成果然难出头啊，这么一对比鲤鱼一专数据还挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5891#       发表于 2022-3-1 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54879142&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-03-01 18:21:45</a>
+周榜100多位 应该连300销量都不到吧
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的  v2.2.2 ...</blockquote>最后有两个99名，是600出头。所以我只能说是600以下，具体数字就不知道了，具体o榜数据我也不太了解，不知道有没有机会看到了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
