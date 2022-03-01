@@ -4053,3 +4053,21 @@ bot名字完美改的？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像错过了很精彩的东西
 
+
+
+*****
+
+####  一品堂官  
+##### 483#       发表于 2022-3-1 23:10
+
+这前期优势有多大呀有钱去出林肯 **弹幕舔狗还在说林肯有用 笑死了 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loneyuki  
+##### 484#       发表于 2022-3-1 23:18
+
+这盘两次fuck和一次他妈的听的我很开心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然知道多半是团打完死了切出去看一看但这紫猫“偷听弹幕”也太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

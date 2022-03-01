@@ -7117,3 +7117,25 @@ king昨晚建完号连续刮死腐烂树精加大树守卫，然后摔死两次�
 
 嗯……lll3左上角那个异色阿卡丽是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 11136#       发表于 2022-3-1 23:05
+
+德比子好久不见<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 11137#       发表于 2022-3-1 23:20
+
+sonny直播声线真的有点可爱所以去听了下Sketchek视频，但是实际上Sketchek声音和情绪更像vox？
+
+如果不是声线相似以外还有很多特征重合感觉都特不死<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+不过他笑起来真的有点可爱（再次）还是现在这个比较好<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+说起来这次几个特这么快但是好像除了dj都没人挖出塔照诶
+
