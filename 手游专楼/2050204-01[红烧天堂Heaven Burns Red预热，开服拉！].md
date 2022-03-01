@@ -2551,3 +2551,14 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  蕾丝  
+##### 227#       发表于 2022-3-1 20:54
+
+啊这，惠惠的新皮在战斗中穿的是新衣服，但是地图界面还是旧的那套啊……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
