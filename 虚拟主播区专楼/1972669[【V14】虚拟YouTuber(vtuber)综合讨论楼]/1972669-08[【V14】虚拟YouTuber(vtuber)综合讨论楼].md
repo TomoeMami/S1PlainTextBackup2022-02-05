@@ -7026,3 +7026,12 @@ king是不是有点阴，看了攻略来打老头环的吧
 
 [https://youtu.be/C1Gr-_8RdnE?t=9224](https://youtu.be/C1Gr-_8RdnE?t=9224)<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">叶山这建号2个半小时拿短刀刮死大树守卫，有点东西啊
 
+
+
+*****
+
+####  poipanchao  
+##### 11128#       发表于 2022-3-1 09:40
+
+king昨晚建完号连续刮死腐烂树精加大树守卫，然后摔死两次，全白给了
+
