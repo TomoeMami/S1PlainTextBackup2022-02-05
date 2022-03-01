@@ -16694,3 +16694,26 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 题外可以顺便提一下，这周末就是水6TH最后一场了，大新闻不知道会不会是FL，这个时间点公布V挺耐人寻味
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5882#       发表于 2022-3-1 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54875712&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-1 14:08</a>
+
+星粉丝基础还真不薄弱，中之人fo数全破10万了，虹团没喝到跨企划因素汤的（喝到汤的比如马娘的前 ...</blockquote>
+有个说法好像不对，从目前放出来的信息里提到了“従来のラブライブ！シリーズにおいて実施してきたコンテンツは引き続き展開しつつ”，这个表现出来的可能是三次元活动和以前的企划一样，那么就可能不存在不占用三次元资源的问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5883#       发表于 2022-3-1 14:32
+
+ 本帖最后由 Enakina 于 2022-3-1 14:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54875712&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-03-01 14:08:55</a>
+星粉丝基础还真不薄弱，中之人fo数全破10万了，虹团没喝到跨企划因素汤的（喝到汤的比如马娘的前田）也就 ...</blockquote>虽然但是，说的对不对先不说，还好这星专楼看的人少，单推其他团粉也少，不然你这几句早就打起来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
