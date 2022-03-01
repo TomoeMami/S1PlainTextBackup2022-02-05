@@ -987,3 +987,43 @@ dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquo
 草了，狂那灵衣自带圣晶石特效笑死，突然想抽，敢不开池子吗23333</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然这还不复课的可能行非常小 但是不要放弃希望！
 
+
+
+*****
+
+####  khxooo  
+##### 87091#       发表于 2022-3-1 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878480&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-3-1 17:34</a>
+草了，狂那灵衣自带圣晶石特效笑死，突然想抽，敢不开池子吗23333</blockquote>
+如果没猜错，应该是玩氪长扔石头那个视频的梗。
+
+*****
+
+####  qixinno2  
+##### 87092#       发表于 2022-3-1 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的石头已经变成28了 看我二宝芭娜娜
+
+*****
+
+####  Jamaisvu  
+##### 87093#       发表于 2022-3-1 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54855966&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-2-27 23:20</a>
+
+还有法拉第的确是眼镜相关
+
+圣遗物，法拉第博物馆收藏的法拉第生前佩戴的安全眼镜</blockquote>
+这个D型眼镜挺有特点的，真做法拉第的话应该会还原出来吧...
+
+我感觉不大像呢...
+
+<img src="https://img.saraba1st.com/forum/202203/01/223314fmtz5so3z60g05z0.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1gzs6h2hk3ej223w1kwkjl.jpg</strong> (270.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-1 22:33 上传
+
