@@ -16857,3 +16857,24 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 国区要到12点才有的
 
+
+
+*****
+
+####  lj205  
+##### 5898#       发表于 2022-3-1 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54882447&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2022-3-1 23:38</a>
+国区要到12点才有的</blockquote>
+我的是日区啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 5899#       发表于 2022-3-1 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54882544&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-1 23:49</a>
+
+我的是日区啊</blockquote>
+那就等着吧，反正Spotify已经上了，不用担心不上流媒<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
