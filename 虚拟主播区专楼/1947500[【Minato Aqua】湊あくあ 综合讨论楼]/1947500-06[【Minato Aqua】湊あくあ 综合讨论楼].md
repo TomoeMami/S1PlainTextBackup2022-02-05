@@ -7783,3 +7783,12 @@ syl 社区评论怎么都是结晶mmr crew🤮 就没有人跳脸黑屁吗
 syl 社区评论怎么都是结晶mmr cr ...</blockquote>
 湊阿夸tag下面不管多久没播每天晚上都有几页同样的内容，看得瘆人
 
+
+
+*****
+
+####  andeloz  
+##### 8402#       发表于 2022-3-1 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">crew确实喜欢刷一样的东西 不管是推上还是评论栏
+
