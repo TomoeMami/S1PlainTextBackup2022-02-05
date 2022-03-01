@@ -16811,3 +16811,26 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 5892#       发表于 2022-3-1 21:26
+
+一转这特典图太鬼片了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5893#       发表于 2022-3-1 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">md，看群友发的日亚这特典图，寄了呀，要知道定g的了
+
+*****
+
+####  lj205  
+##### 5894#       发表于 2022-3-1 21:40
+
+定了a-on的单人生写组，还好还好
+

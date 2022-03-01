@@ -10393,3 +10393,28 @@ co宝狡辩时的语气越来越静化了 ↗↘
 
 文静的10w粉纪念回和嘉然生日回同一天。
 
+
+
+*****
+
+####  nishazhiyang  
+##### 5595#       发表于 2022-3-1 21:34
+
+主播怎么被切断了
+
+*****
+
+####  人民de救星  
+##### 5596#       发表于 2022-3-1 21:34
+
+永失我静<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nishazhiyang  
+##### 5597#       发表于 2022-3-1 21:37
+
+很喜欢文静刚开播的一句话 三月铁烂不了
+
