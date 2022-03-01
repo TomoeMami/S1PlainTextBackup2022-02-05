@@ -16668,3 +16668,52 @@ pay宝这料理水平<img src="https://static.saraba1st.com/image/smiley/face201
 
 官网维护了，是要公布新团了吗来自: iPhone客户端
 
+
+
+*****
+
+####  星降る森  
+##### 5881#       发表于 2022-3-1 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54872709&amp;ptid=2036367" target="_blank">player3960 发表于 2022-3-1 10:08</a>
+
+我和他看法基本一致，三团都没玩明白就搞四团，星团现在本来粉丝基础就最弱，这再一分流，未来不乐观啊.. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星粉丝基础还真不薄弱，中之人fo数全破10万了，虹团没喝到跨企划因素汤的（喝到汤的比如马娘的前田）也就12万左右，想想两个团这差了几年呢。
+
+目前几个团挤兑最严重的其实是live，高密度live抽选导致大家的CD销量都难看，开第四个团这个问题会更严重。
+
+其他方面仔细观察的话，影响真的不大，虹团初期招人的时候是说明没有动画化企划的，后来改变了主意，填彼此空档期。虹二期结束后基本就不可能再出三期了，后年动画空档期找谁填就是个问题。目前选择用V团解决。
+
+V团有一个很明显的好处，就是不占用三次元资源，之前我也有说，虹三次元方面就是完全被放弃的。星团上young jump，上BLT，甚至出了声优封面专，地上波方面才一年就独自上了4次，虹至今不算三团一起去的是0次。
+
+水团现在是末期，半截入土，只能靠联动单续续命的样子，明年FC都不知道还有没有。
+
+虹团还有一年活跃期，这期间差不多就是给V团添砖加瓦，动画结束大几率也就靠偶尔出一张专和小组续着。
+
+未来重心肯定是在星和V团上，一个主三次元一个主二次元，受众都不见得是一批人了。
+
+题外可以顺便提一下，这周末就是水6TH最后一场了，大新闻不知道会不会是FL，这个时间点公布V挺耐人寻味
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 5882#       发表于 2022-3-1 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54875712&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-1 14:08</a>
+
+星粉丝基础还真不薄弱，中之人fo数全破10万了，虹团没喝到跨企划因素汤的（喝到汤的比如马娘的前 ...</blockquote>
+有个说法好像不对，从目前放出来的信息里提到了“従来のラブライブ！シリーズにおいて実施してきたコンテンツは引き続き展開しつつ”，这个表现出来的可能是三次元活动和以前的企划一样，那么就可能不存在不占用三次元资源的问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5883#       发表于 2022-3-1 14:32
+
+ 本帖最后由 Enakina 于 2022-3-1 14:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54875712&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-03-01 14:08:55</a>
+星粉丝基础还真不薄弱，中之人fo数全破10万了，虹团没喝到跨企划因素汤的（喝到汤的比如马娘的前田）也就 ...</blockquote>虽然但是，说的对不对先不说，还好这星专楼看的人少，单推其他团粉也少，不然你这几句早就打起来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
