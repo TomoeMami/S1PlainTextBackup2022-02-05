@@ -2536,3 +2536,18 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 如果这个副本难度膨胀不控制下的，以后ssr可能0破都没法上场了
 
+
+
+*****
+
+####  barca  
+##### 226#       发表于 2022-3-1 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878663&amp;ptid=2050204" target="_blank">terry666 发表于 2022-3-1 17:47</a>
+这游戏角色数值算上装备啥的才3位数，突破后的等级差距是显而易见的
+
+如果这个副本难度膨胀不控制下的，以 ...</blockquote>
+是啊，目前通第三章即使全员是满级零凸ssr也已经不是很轻松了
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -975,3 +975,15 @@ dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquo
 
 草了，狂那灵衣自带圣晶石特效笑死，突然想抽，敢不开池子吗23333
 
+
+
+*****
+
+####  alucardcz  
+##### 87090#       发表于 2022-3-1 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878480&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-3-1 17:34</a>
+
+草了，狂那灵衣自带圣晶石特效笑死，突然想抽，敢不开池子吗23333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然这还不复课的可能行非常小 但是不要放弃希望！
+
