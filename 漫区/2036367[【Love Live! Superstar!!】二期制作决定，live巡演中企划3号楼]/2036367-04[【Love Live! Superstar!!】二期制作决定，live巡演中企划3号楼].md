@@ -16631,3 +16631,22 @@ V走虹路线，搞新东西去冒险，吸新受众
 
 这团消息出来楼里比星团一巡的时候还热闹，vtb果然是现版本顶流<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 5877#       发表于 2022-3-1 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54871550&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-1 08:26</a>
+
+看上去好像没毛病，这里其实还是有人担心三团并行-&gt;四团并行可能出现的资源分配等等问题，个人觉得现在三 ...</blockquote>
+我和他看法基本一致，三团都没玩明白就搞四团，星团现在本来粉丝基础就最弱，这再一分流，未来不乐观啊....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5878#       发表于 2022-3-1 10:13
+
+………………哎，反正我是没钱dd 了，追星加虹就已经很费钱了。
+
