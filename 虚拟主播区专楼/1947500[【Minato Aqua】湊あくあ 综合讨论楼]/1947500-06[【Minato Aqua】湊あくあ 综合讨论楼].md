@@ -7751,3 +7751,35 @@ syl 社区评论怎么都是结晶mmr crew🤮 就没有人跳脸黑屁吗
 
 夸啊...快点吃药吧
 
+
+
+*****
+
+####  Scardy  
+##### 8399#       发表于 2022-3-1 09:53
+
+我不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  梅斯之围  
+##### 8400#       发表于 2022-3-1 09:55
+
+看到了润润和老爱的离场，想到自己也终究会迎来那一天，四年的虚拟偶像生涯也不过是大梦一场空<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Maonpuyo  
+##### 8401#       发表于 2022-3-1 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54870796&amp;ptid=1947500" target="_blank">andeloz 发表于 2022-3-1 02:05</a>
+
+才看到邮箱里的会限文 为什么又又又玉玉了 我真的不明白 这次又要遁多久呢
+
+syl 社区评论怎么都是结晶mmr cr ...</blockquote>
+湊阿夸tag下面不管多久没播每天晚上都有几页同样的内容，看得瘆人
+
