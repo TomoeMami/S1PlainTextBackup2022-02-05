@@ -54,6 +54,7 @@ def parse_html(html):
     titles = re.sub(r'<','＜',titles)
     titles = re.sub(r'>','＞',titles)
     titles = re.sub(r'\.\.\.','…',titles)
+    titles = re.sub(r'\n',' ',titles)
     titles = '['+titles+']'
     return namelist,replylist,total_page,titles
 # \d{4}-\d{1}-\d{1}\s\d{2}\:\d{2}
