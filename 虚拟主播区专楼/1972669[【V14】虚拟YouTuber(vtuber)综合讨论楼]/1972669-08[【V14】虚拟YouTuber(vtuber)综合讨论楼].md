@@ -7139,3 +7139,19 @@ sonny直播声线真的有点可爱所以去听了下Sketchek视频，但是实�
 
 说起来这次几个特这么快但是好像除了dj都没人挖出塔照诶
 
+
+
+*****
+
+####  撕叁  
+##### 11138#       发表于 2022-3-2 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54882294&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-1 23:20</a>
+
+sonny直播声线真的有点可爱所以去听了下Sketchek视频，但是实际上Sketchek声音和情绪更像vox？
+
+如果不是声 ...</blockquote>
+除了sonny和fulgur都有照片吧，看到有人说sonny前世直播风格又冷又玉玉，毕竟是为了不播tf2能干出假死这种事的人，现在可能是营业人格吧
+
+r/tf2又开始到处找他也是蛮乐的，“Sketchek died Vol. 2”<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
