@@ -16753,3 +16753,27 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  megapikachu  
+##### 5887#       发表于 2022-3-1 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878296&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-1 17:23</a>
+
+一专14才开始的抽选内容还没没说，说的是13号才发表，就是2nd的第二天，会有多大就不知道了。
+
+顺带一提，小 ...</blockquote>
+100多也的确太惨了点
+
+*****
+
+####  Enakina  
+##### 5888#       发表于 2022-3-1 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878714&amp;ptid=2036367" target="_blank">megapikachu 发表于 2022-03-01 17:51:36</a>
+100多也的确太惨了点</blockquote>避免误会说一下，不是销量100多，是周榜100名之外，所以没有具体数据
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

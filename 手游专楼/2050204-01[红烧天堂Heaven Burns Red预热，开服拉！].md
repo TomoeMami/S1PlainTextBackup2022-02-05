@@ -2513,3 +2513,26 @@ ios登顶了，但是还是要说一句飞机社飞马
 我全部的石头库存啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  barca  
+##### 224#       发表于 2022-3-1 17:44
+
+油管上已有氪佬拿lv130的满凸山脇单挑棱镜10的boss。简直无任何压力，直接面板碾压，boss打山脇就跟刮痧似的，同样是ssr自己的和氪佬的差距也太大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  terry666  
+##### 225#       发表于 2022-3-1 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878628&amp;ptid=2050204" target="_blank">barca 发表于 2022-3-1 17:44</a>
+
+油管上已有氪佬拿lv130的满凸山脇单挑棱镜10的boss。简直无任何压力，直接面板碾压，boss打山脇就跟刮痧似 ...</blockquote>
+这游戏角色数值算上装备啥的才3位数，突破后的等级差距是显而易见的
+
+如果这个副本难度膨胀不控制下的，以后ssr可能0破都没法上场了
+
