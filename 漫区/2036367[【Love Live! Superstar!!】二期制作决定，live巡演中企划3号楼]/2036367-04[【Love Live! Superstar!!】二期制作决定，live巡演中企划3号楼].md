@@ -16608,3 +16608,17 @@ V走虹路线，搞新东西去冒险，吸新受众
 
 2022-3-1 02:24 上传
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5875#       发表于 2022-3-1 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54870864&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-3-1 02:25</a>
+
+这么看这个时间点推出新团很正常</blockquote>
+看上去好像没毛病，这里其实还是有人担心三团并行-&gt;四团并行可能出现的资源分配等等问题，个人觉得现在三团并行其实搞的就不是太好的样子。
+
+看到壁吧专楼的大佬说了点看法，这里推荐一下   1174楼：[https://tieba.baidu.com/p/7434617737](https://tieba.baidu.com/p/7434617737)
+
