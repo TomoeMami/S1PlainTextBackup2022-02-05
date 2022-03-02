@@ -4071,3 +4071,12 @@ bot名字完美改的？
 
 虽然知道多半是团打完死了切出去看一看但这紫猫“偷听弹幕”也太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梓鲨小分队  
+##### 485#       发表于 2022-3-2 16:43
+
+暗灭头！！！！！！！！！！！！
+

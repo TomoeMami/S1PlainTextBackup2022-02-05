@@ -3084,3 +3084,14 @@ fami这评价跟没评价一样
 
 另外走铁国路线的话是不是在铁国也能搜集到
 
+
+
+*****
+
+####  ff2077  
+##### 274#       发表于 2022-3-2 16:39
+
+看起来剧情过多了？
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
