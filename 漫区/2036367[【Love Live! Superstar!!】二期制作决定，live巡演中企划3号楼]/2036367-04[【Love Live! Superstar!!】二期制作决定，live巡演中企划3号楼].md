@@ -16943,3 +16943,25 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 水色和unison循环中，不过说道鲤鱼循环最多的还是across the world和ミラールージュ这两首，真是宝藏歌曲<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 5906#       发表于 2022-3-2 15:52
+
+ 本帖最后由 星降る森 于 2022-3-2 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54875983&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-1 14:32</a>
+
+虽然但是，说的对不对先不说，还好这星专楼看的人少，单推其他团粉也少，不然你这几句早就打起来了
+
+  --  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在虹专楼也发过，在微博也发过，没见几个冲上来喷的人。当然，不服可以用事实说话，无论fo数增长趋势还是各团联动/番组/广告，官推上都能找到，自己统计一下不难得出结论。泥潭确实有个喷我的，反驳的证据是手游，那我只能笑笑。
+
+*****
+
+####  lj205  
+##### 5907#       发表于 2022-3-2 15:57
+
+鲤鱼这是实诚干饭人，身边人评价全是跟吃有关系
+
