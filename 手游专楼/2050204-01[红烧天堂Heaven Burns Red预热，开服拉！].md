@@ -2589,3 +2589,21 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 可以摆了，反正这游戏95%的内容都在剧情，当云玩家也不损失啥
 
+
+
+*****
+
+####  particle  
+##### 231#       发表于 2022-3-2 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54874121&amp;ptid=2050204" target="_blank">particle 发表于 2022-3-1 11:50</a>
+
+我服了，缺打属性打手，一看池子更新了俩就开抽了
+
+然后70抽0ss
+
+我全部的石头库存啊</blockquote>
+把送的3000石头也抽了
+
+还是没出<img src="https://static.saraba1st.com/image/smiley/face2017/230.gif" referrerpolicy="no-referrer">
+
