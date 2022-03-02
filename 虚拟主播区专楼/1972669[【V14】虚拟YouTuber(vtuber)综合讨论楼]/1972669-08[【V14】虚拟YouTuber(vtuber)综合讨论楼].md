@@ -7282,3 +7282,32 @@ syl
 
 我是觉得没啥必要自肃，你虹还是一如既往的不行
 
+
+
+*****
+
+####  winda  
+##### 11148#       发表于 2022-3-2 16:59
+
+[https://twitter.com/KiruShin2434/status/1498908893472124929](https://twitter.com/KiruShin2434/status/1498908893472124929)
+
+<img src="https://img.saraba1st.com/forum/202203/02/165717vpy4c0squqp66q6c.jpg" referrerpolicy="no-referrer">
+
+<strong>FM0xreZVUAAiM2C.jpg</strong> (439.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 16:57 上传
+
+https://twitter.com/LeeOn2434/status/1498908461265915904
+
+<img src="https://img.saraba1st.com/forum/202203/02/165822q1t7p65qls25vv5g.jpg" referrerpolicy="no-referrer">
+
+<strong>FM0v34iUcAQnJUh.jpg</strong> (539.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 16:58 上传
+
+KiruShin，LeeOn毕业，算上siu lee 3月kr有3个人要毕业
+
