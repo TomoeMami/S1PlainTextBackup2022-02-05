@@ -7186,3 +7186,46 @@ syl
 
 以我对腐男的刻板印象总觉得fulgur前世会cos原耽角色卖腐吸女粉，然而并没有，反而感觉有点失礼()
 
+
+
+*****
+
+####  Porsche  
+##### 11141#       发表于 2022-3-2 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878110&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-3-1 17:09</a>
+嗯……lll3左上角那个异色阿卡丽是什么鬼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">里人格啊，ココロヤミ
+
+*****
+
+####  free  
+##### 11142#       发表于 2022-3-2 10:19
+
+ 本帖最后由 free 于 2022-3-2 10:20 编辑 
+
+[https://twitter.com/nico_channel/status/1498236672302931968](https://twitter.com/nico_channel/status/1498236672302931968)
+
+📢3/17（木）20:00〜
+
+／
+
+　 #まらしぃ × #加賀美ハヤト 
+
+　3DバーチャルコラボLIVE #加賀しぃ 
+
+　放送決定‼️
+
+＼
+
+ピアニスト「まらしぃ」とバーチャルライバー「加賀美ハヤト」が3D空間でコラボライブを行います🎹
+
+生演奏ライブをぜひお楽しみに✨
+
+ご視聴はコチラから👇
+[https://live.nicovideo.jp/watch/lv335840647](https://live.nicovideo.jp/watch/lv335840647)
+
+触手猴联动社长，前两次联动烂货圆脸和小红帽看这里
+[https://www.bilibili.com/video/BV1sf4y1r7gF](https://www.bilibili.com/video/BV1sf4y1r7gF)
+[https://www.bilibili.com/video/BV1CC4y1b7Ca](https://www.bilibili.com/video/BV1CC4y1b7Ca)
+
