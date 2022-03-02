@@ -12724,3 +12724,35 @@ X·德雷克vsCP0小队长，德雷克刺中了对手，CP0转身，用指枪击
 要走特殊条件胜利
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这几话下来感觉cp0也太辛苦了
 
+
+
+*****
+
+####  灰狼  
+##### 56526#       发表于 2022-3-2 09:20
+
+感觉戏里戏外的人心态都炸了😂
+
+*****
+
+####  天使的日曜日  
+##### 56527#       发表于 2022-3-2 09:25
+
+看来凯多要学卡二自残了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+顺便德雷克这仰卧起坐是为了什么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  管他三俗  
+##### 56528#       发表于 2022-3-2 09:29
+
+2年后的硬角色都是主角被第三方打断 敌人相惜的桥段啊 有没有点病
+
+*****
+
+####  谢皮利男爵  
+##### 56529#       发表于 2022-3-2 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凯多这不给自己一棒子还说的过去吗
+
