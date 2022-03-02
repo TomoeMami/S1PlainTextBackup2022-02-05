@@ -25,3 +25,5 @@ list index out of range
 !!error:id=2052702
 list index out of range
 !!error:id=2052966
+'lastedit'
+!!error:id=2055218
