@@ -17029,3 +17029,71 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 前面基本0宣传，完全看不懂他们这个策略
 
+
+
+*****
+
+####  stygian  
+##### 5915#       发表于 2022-3-2 17:41
+
+拉拉现在就这个水平。。。或者说看到这个数字你也能理解为什么要搞风口上的虚拟了
+
+烂铁本来就是个anisong公司，别对三次元资源有啥幻想
+
+*****
+
+####  优妮可  
+##### 5916#       发表于 2022-3-2 17:42
+
+为啥磨皮搞滤镜啊啊啊啊
+
+*****
+
+####  iuhehc  
+##### 5917#       发表于 2022-3-2 17:47
+
+ 本帖最后由 iuhehc 于 2022-3-2 17:49 编辑 
+
+这MV拍的挺三次元偶像的（好韩！
+
+就是没什么故事性，很多很单纯的镜头
+
+*****
+
+####  lj205  
+##### 5918#       发表于 2022-3-2 17:49
+
+慢慢来吧，但是就现在这个莫名其妙的策略，真的无语，再怎么自信也不至于这样吧
+
+*****
+
+####  player3960  
+##### 5919#       发表于 2022-3-2 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891656&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-03-02 17:47:25</a>
+就是没什么故事性，很多很单纯的镜头</blockquote>不是在疯狂致敬动画吗？香音（打铁）d遍全团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5920#       发表于 2022-3-2 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">便宜mv，就几个场景之间来回切。不过慢慢来，希望以后来点大的
+
+*****
+
+####  stygian  
+##### 5921#       发表于 2022-3-2 17:53
+
+<img src="https://img.saraba1st.com/forum/202203/02/175329i9lq1exir7i97q7c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 17:53 上传
+
+某种程度上我挺认同这个思路
+
