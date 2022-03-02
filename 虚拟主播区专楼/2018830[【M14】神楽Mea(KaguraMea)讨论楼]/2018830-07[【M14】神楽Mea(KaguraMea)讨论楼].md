@@ -4954,3 +4954,14 @@ hapi女人
 
 这人应该是最后出场吧
 
+
+
+*****
+
+####  呓亘  
+##### 9546#       发表于 2022-3-2 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892575&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-3-2 18:59</a>
+ 算工资变动时候计算器上按了个+714忽然想起这个人，没什么其他意思。 话说经常喜欢回忆往昔是不是老了的 ...</blockquote>
+或许只是因为现在已经门前冷落鞍马稀了....
+
