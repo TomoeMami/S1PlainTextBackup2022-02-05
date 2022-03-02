@@ -12896,3 +12896,12 @@ cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是�
 
 这剧情真抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 56546#       发表于 2022-3-2 22:34
+
+先骑墙，后面凯多一发雷鸣八卦秒CP0就能圆回来
+
