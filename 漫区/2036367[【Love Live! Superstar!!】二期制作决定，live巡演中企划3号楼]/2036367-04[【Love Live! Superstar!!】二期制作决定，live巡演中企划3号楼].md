@@ -16927,3 +16927,19 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  starring  
+##### 5904#       发表于 2022-3-2 15:21
+
+还有ミラールージュ，这首和めたもるふぉーぜ可以循环一天也不腻
+
+*****
+
+####  player3960  
+##### 5905#       发表于 2022-3-2 15:25
+
+水色和unison循环中，不过说道鲤鱼循环最多的还是across the world和ミラールージュ这两首，真是宝藏歌曲<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
