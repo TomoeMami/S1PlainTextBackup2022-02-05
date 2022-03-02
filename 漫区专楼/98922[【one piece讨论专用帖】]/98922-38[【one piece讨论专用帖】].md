@@ -12710,3 +12710,17 @@ X·德雷克vsCP0小队长，德雷克刺中了对手，CP0转身，用指枪击
 
 路飞也要关东煮了吗
 
+
+
+*****
+
+####  klzxs  
+##### 56525#       发表于 2022-3-2 09:13
+
+和之前大妈一样吧
+
+单纯够快够强是打不赢四皇的
+
+要走特殊条件胜利
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这几话下来感觉cp0也太辛苦了
+
