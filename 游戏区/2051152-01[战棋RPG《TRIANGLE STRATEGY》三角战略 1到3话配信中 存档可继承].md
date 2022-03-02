@@ -3031,3 +3031,15 @@ demo1是6、7章，投票是选择是否把王子送给公国当俘虏，选择�
 
 这游戏港服是23点还是24点解锁啊？
 
+
+
+*****
+
+####  kirito_wst  
+##### 270#       发表于 2022-3-2 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54887309&amp;ptid=2051152" target="_blank">thez 发表于 2022-3-2 12:15</a>
+
+这游戏港服是23点还是24点解锁啊？</blockquote>
+港服一般是0点或者当天上午解锁
+
