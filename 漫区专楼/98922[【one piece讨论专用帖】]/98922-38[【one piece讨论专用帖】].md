@@ -12887,3 +12887,12 @@ cp0:早知道我摸鱼算了
 
 cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是被偷袭倒是能圆一下…
 
+
+
+*****
+
+####  南条一间  
+##### 56545#       发表于 2022-3-2 22:15
+
+这剧情真抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
