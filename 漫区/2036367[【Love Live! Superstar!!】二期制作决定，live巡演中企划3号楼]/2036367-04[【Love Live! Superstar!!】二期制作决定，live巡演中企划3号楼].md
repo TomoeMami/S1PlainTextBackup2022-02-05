@@ -17184,3 +17184,45 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 AG店又缺货，服气
 
+
+
+*****
+
+####  Enakina  
+##### 5931#       发表于 2022-3-2 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892181&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-03-02 18:26:02</a></blockquote>那就证明两者都有喽，这不就完全意料之中嘛
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  x分裂者  
+##### 5932#       发表于 2022-3-2 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892138&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 18:23</a>
+我是觉得哪怕虹现在已经回归传统模式了，也不可能按照水星那样推进了。就说成员吧，基本聚齐一次都很难，先 ...</blockquote>
+这就是当初选人要求带来的结果啊
+
+*****
+
+####  stygian  
+##### 5933#       发表于 2022-3-2 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892349&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 18:41</a>
+
+那就证明两者都有喽，这不就完全意料之中嘛
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+除了抱怨不够二次元企划偏离初心更多的是水信虹信大乱斗
+
+*****
+
+####  Enakina  
+##### 5934#       发表于 2022-3-2 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892425&amp;ptid=2036367" target="_blank">stygian 发表于 2022-03-02 18:46:56</a>
+除了抱怨不够二次元企划偏离初心更多的是水信虹信大乱斗</blockquote>太典了，经典借着星来互相开战，5ch还是那个味，感动
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
