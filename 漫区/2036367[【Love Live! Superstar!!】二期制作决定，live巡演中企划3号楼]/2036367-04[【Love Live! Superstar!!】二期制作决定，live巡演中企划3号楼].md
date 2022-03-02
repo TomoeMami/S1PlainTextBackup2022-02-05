@@ -17126,3 +17126,61 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 无法认同，虹的前身是pdp，明显就是手游先行，而且一开始就说了不做动画。水星都是动画+真人live的形式，总不可能手游和vtb比动画还二次元。
 虹明显是那边搞不下去了又回归传统模式，现在的情况是果不是因，没像水星这样可能只是因为当初选人的时候没那么多要求。
 
+
+
+*****
+
+####  Enakina  
+##### 5925#       发表于 2022-3-2 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892007&amp;ptid=2036367" target="_blank">stygian 发表于 2022-03-02 18:14:44</a>
+拉板疯狂在疯狂车新pv</blockquote>让我猜猜看，是觉得背离二次元了还是为水虹打抱不平呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 5926#       发表于 2022-3-2 18:21
+
+本来免费的东西要啥好车的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 5927#       发表于 2022-3-2 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892066&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-03-02 18:19:14</a>
+无法认同，虹的前身是pdp，明显就是手游先行，而且一开始就说了不做动画。水星都是动画+真人live的形式，总 ...</blockquote>我是觉得哪怕虹现在已经回归传统模式了，也不可能按照水星那样推进了。就说成员吧，基本聚齐一次都很难，先不说大忙人鬼头，还有灯这个情况，让虹去像水星那么走？根本不现实的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5928#       发表于 2022-3-2 18:25
+
+真人又不是第一个，不明白车什么
+
+*****
+
+####  iuhehc  
+##### 5929#       发表于 2022-3-2 18:26
+
+ 本帖最后由 iuhehc 于 2022-3-2 18:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892097&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 18:20</a>
+
+让我猜猜看，是觉得背离二次元了还是为水虹打抱不平呢
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+目前看下来是觉得不够二次元的比打抱不平的多点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5930#       发表于 2022-3-2 18:35
+
+AG店又缺货，服气
+
