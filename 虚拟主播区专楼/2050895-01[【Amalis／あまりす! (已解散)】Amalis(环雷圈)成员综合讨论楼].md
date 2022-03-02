@@ -1670,3 +1670,21 @@ koni的BID
 
 <img src="https://p.sda1.dev/5/3b1774c1072c0f32ce13949a8aed7df1/IMG_CMP_243557031.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gffdg  
+##### 166#       发表于 2022-3-2 19:05
+
+玲子这是咋了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  请问有猪扒饭吗  
+##### 167#       发表于 2022-3-2 19:06
+
+抗不住压了呗，这才是正常人
+
