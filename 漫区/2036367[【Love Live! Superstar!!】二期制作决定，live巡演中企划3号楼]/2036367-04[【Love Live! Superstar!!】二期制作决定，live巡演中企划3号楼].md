@@ -17573,3 +17573,22 @@ youtube之前的数字真的很怪，拉板狂暴车才这么点数字属实想�
 虽然这张碟名义上叫【一专】，但实际是 ...</blockquote>
 毕竟名字首专，加上还有talk和活动抽选，不过目前A和G好像都缺货，只能看看后劲能去到哪
 
+
+
+*****
+
+####  csolfans  
+##### 5954#       发表于 2022-3-2 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893190&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-3-2 19:52</a>
+
+这个星一专真人MV油管播放量是不是有点惨，虽然没有提前通知，但两个小时才过一万怎么也说不过去吧  ...</blockquote>
+BUG了
+
+*****
+
+####  qty  
+##### 5955#       发表于 2022-3-2 23:03
+
+这mv的磨皮滤镜至于搞得这么夸张吗？
+
