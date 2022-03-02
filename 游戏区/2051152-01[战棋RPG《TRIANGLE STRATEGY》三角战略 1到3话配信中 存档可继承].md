@@ -3124,3 +3124,12 @@ fami这评价跟没评价一样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">交互过于让人不适，雪藏了等半年补丁再玩
 
+
+
+*****
+
+####  西多士  
+##### 278#       发表于 2022-3-3 02:28
+
+血条按一个键好像可以显示的
+
