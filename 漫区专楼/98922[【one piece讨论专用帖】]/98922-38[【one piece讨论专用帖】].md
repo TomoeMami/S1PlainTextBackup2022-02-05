@@ -12756,3 +12756,30 @@ X·德雷克vsCP0小队长，德雷克刺中了对手，CP0转身，用指枪击
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凯多这不给自己一棒子还说的过去吗
 
+
+
+*****
+
+####  klzxs  
+##### 56530#       发表于 2022-3-2 09:45
+
+我觉得不会复刻卡二吧
+
+就算真给自己一棒子继续打也只能算是普通的打赢了
+
+*****
+
+####  仟音一心  
+##### 56531#       发表于 2022-3-2 09:47
+
+哪怕没复刻卡二自残这剧情都够蠢了，有必要吗？凯多觉得赢不光彩不爽了？
+
+*****
+
+####  klzxs  
+##### 56532#       发表于 2022-3-2 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这又要回到一个基础问题了
+
+凯多是不是真的想死
+

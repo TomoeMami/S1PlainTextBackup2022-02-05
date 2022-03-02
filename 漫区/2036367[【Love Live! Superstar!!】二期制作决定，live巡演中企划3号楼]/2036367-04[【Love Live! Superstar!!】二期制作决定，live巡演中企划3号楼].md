@@ -16878,3 +16878,16 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 我的是日区啊</blockquote>
 那就等着吧，反正Spotify已经上了，不用担心不上流媒<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 5900#       发表于 2022-3-2 09:59
+
+新歌全首听完
+
+水色星期天仍然最佳，然后是恋solo/unison&gt;其他
+
+说实话弦乐配的实在太多了。。。liella现在路线看来不太会弄王道中高速系偶像曲，下季希望多点groovy歌
+
