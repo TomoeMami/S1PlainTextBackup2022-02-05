@@ -1148,3 +1148,31 @@ c狗终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/
 您好，不够的，我当年抽了3宝</blockquote>
 应该够了吧，一般不都是靠暴击的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 87107#       发表于 2022-3-2 17:32
+
+没出，再见，话说pako是不是不太会画侧脸，这狂那灵衣卡面比当年仇信满破看着还奇怪了
+
+*****
+
+####  alucardcz  
+##### 87108#       发表于 2022-3-2 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891330&amp;ptid=1085254" target="_blank">zakki 发表于 2022-3-2 17:24</a>
+
+应该够了吧，一般不都是靠暴击的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 1宝100级+2000 是够的 
+
+*****
+
+####  yzj134100  
+##### 87109#       发表于 2022-3-2 17:43
+
+礼 装 在 说 话
+
+吓死人了
+

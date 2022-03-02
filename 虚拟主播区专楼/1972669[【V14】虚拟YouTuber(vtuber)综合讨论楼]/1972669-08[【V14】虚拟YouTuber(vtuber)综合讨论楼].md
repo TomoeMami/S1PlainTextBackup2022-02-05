@@ -7311,3 +7311,28 @@ https://twitter.com/LeeOn2434/status/1498908461265915904
 
 KiruShin，LeeOn毕业，算上siu lee 3月kr有3个人要毕业
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11149#       发表于 2022-3-2 17:28
+
+（图片重复，编辑）
+
+NIJISANJIKR所属的신기루/シン・ギル与이온/Lee On宣布于本月月底先后毕业，截止今天两人的登陆数分别为1.51W和9660；
+
+你虹总有观众说是因为KR没市场，KR分部不好做，但实际上除了이세계 아이돌这种性质特殊的大物，1W+的个人势KR V也有不少
+
+按照DC的说法「kr인데왜한국어안함」明明是KR却不做韩语直播，结果staff除了拉垮什么也没做，毕业的也大都是没依附上本社或EN的人
+
+实话说对他们来说毕业反倒是卸下负重，期待各位未来的工作一帆风顺，前程似锦
+
+<img src="https://img.saraba1st.com/forum/202203/02/172757ae5r4tejg52pjjz9.jpg" referrerpolicy="no-referrer">
+
+<strong>씨발.jpg</strong> (4.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 17:27 上传
+
