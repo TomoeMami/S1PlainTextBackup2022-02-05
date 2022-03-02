@@ -17601,3 +17601,84 @@ BUG了
 
 不是专业的，这个mv 还有之前那个真人封面色调感觉怪怪的，但又说不上来
 
+
+
+*****
+
+####  starring  
+##### 5957#       发表于 2022-3-3 00:24
+
+这回nagi居然还没发返照
+
+FM181AjaIAAjRk-.jpg
+(591.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002242jppb9mzkk6wpm9hx.jpg" referrerpolicy="no-referrer">
+
+FM2Z_cvaQAAMxee.jpg
+(157.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002255a6eip4c7vyjycczc.jpg" referrerpolicy="no-referrer">
+
+FM11RI1aUAEIpVo.jpg
+(301.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002311igo5ka3xo04sgt4g.jpg" referrerpolicy="no-referrer">
+
+FM11RI6aUAQ-pJw.jpg
+(205.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002315b9co9j9mim8g6mo6.jpg" referrerpolicy="no-referrer">
+
+FM2Gax5agAAK_4M.jpg
+(301.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002321mbi73uzdufit3sf3.jpg" referrerpolicy="no-referrer">
+
+FM2Gax4akAIQA9O.jpg
+(219.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002327lvho62v72o7n9m73.jpg" referrerpolicy="no-referrer">
+
+FM1ixyXacAECbpo.jpg
+(332.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002344sz82yy5sn2gak53d.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5958#       发表于 2022-3-3 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893289&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-3-2 20:00</a>
+看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我印象里水不是一直被车2.99吗 指不定现在这波人里不少跟我一样是个云人 这mv一出想起这茬就随口说了 其实并不了解
+
