@@ -3893,3 +3893,14 @@ MC 12家媒体84
 一方面我会默认：自由关卡可以随意练级的话，主线关卡的设计会变得很不精彩。毕竟设计师可以无 ...</blockquote>
 你说的这个在这游戏里不存在啊。。。不都是有推荐等级的吗，这还能不清楚自己是不是练度不够吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  allenz3  
+##### 353#       发表于 2022-3-4 03:15
+
+[https://www.rpgsite.net/review/12464-triangle-strategy-review](https://www.rpgsite.net/review/12464-triangle-strategy-review)
+
+看了RPGSite的测评，虽然只打了7分但内文的评价够高了，主要问题还是战前剧情操作部分过长，然后就是一个有多分支剧情难写的问题，特别是主角很难塑造。
+

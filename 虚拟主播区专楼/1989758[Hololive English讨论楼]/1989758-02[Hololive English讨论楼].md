@@ -1685,3 +1685,85 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">确实也猜得到，之前病的那么久那么严重，又在美国这地儿，多半是新冠了。没事康复就好
 
+
+
+*****
+
+####  被子十三  
+##### 1655#       发表于 2022-3-4 02:05
+
+这次off collab有比较全的切片可以看吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+看Kiara说自己不能去（没被通知）很可惜，不过如果她真的去了的话这么显眼的形象会把其他人暴露出来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  M1NG  
+##### 1656#       发表于 2022-3-4 02:33
+
+ 本帖最后由 M1NG 于 2022-3-4 02:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54909740&amp;ptid=1989758" target="_blank">被子十三 发表于 2022-3-4 02:05</a>
+
+这次off collab有比较全的切片可以看吗
+
+看Kiara说自己不能去（没被通知）很可惜，不过如果她真的去 ...</blockquote>
+关注的几个没看到有做长切片的，不知道有没有神龙在烤，可以贴几个我看过的小片段给你看看，大致可以了解。歌回部分国内直接看全程就好
+<strong>
+
+联动花絮：</strong>
+[https://www.youtube.com/watch?v=8MFsyR30Dwg](https://www.youtube.com/watch?v=8MFsyR30Dwg)
+[https://www.youtube.com/watch?v=gCIft3G6ACE](https://www.youtube.com/watch?v=gCIft3G6ACE)
+[https://www.youtube.com/watch?v=CsZXrpuFpw8](https://www.youtube.com/watch?v=CsZXrpuFpw8)
+[https://www.youtube.com/watch?v=wmn9xNzHEXM](https://www.youtube.com/watch?v=wmn9xNzHEXM)
+[https://www.youtube.com/watch?v=FYUsqVjI97c](https://www.youtube.com/watch?v=FYUsqVjI97c)
+[https://www.youtube.com/watch?v=eFDVWGB1ZNk](https://www.youtube.com/watch?v=eFDVWGB1ZNk)       .[https://www.youtube.com/watch?v=UBi2I30yGWc](https://www.youtube.com/watch?v=mt3Srf98bo4)
+
+<strong>Gura的杂谈相关：</strong>
+
+为什么没去线下联动，[https://www.youtube.com/watch?v=2-leqFNEZkw](https://www.youtube.com/watch?v=2-leqFNEZkw)
+
+   
+<strong>Kiwawa杂谈相关：</strong>
+想去但没得到消息，[https://www.youtube.com/watch?v=_QixUsWLpic&amp;t=29s](https://www.youtube.com/watch?v=_QixUsWLpic&amp;t=29s)
+
+<strong>Bae杂谈相关：</strong>
+
+嫉妒，[https://www.youtube.com/watch?v=Eb-qEY9PaD4](https://www.youtube.com/watch?v=Eb-qEY9PaD4)
+
+<strong>Mumei杂谈相关：</strong>
+相认，[https://www.youtube.com/watch?v=O382kvFc3MY](https://www.youtube.com/watch?v=O382kvFc3MY)
+kiwawa不知道的原因，[https://www.youtube.com/watch?v=4qWp8_6R67Y](https://www.youtube.com/watch?v=4qWp8_6R67Y)
+大家的味道，[https://www.youtube.com/watch?v=SxYDaOTBDrE](https://www.youtube.com/watch?v=SxYDaOTBDrE)
+与Ina相认，[https://www.youtube.com/watch?v=nm-lfZsGPdc](https://www.youtube.com/watch?v=nm-lfZsGPdc)
+Kronii糖和恶作剧，[https://www.youtube.com/watch?v=NMPhnq0Eg-E](https://www.youtube.com/watch?v=NMPhnq0Eg-E)
+
+<strong>Kronii杂谈相关：</strong>
+about Ina，[https://www.youtube.com/watch?v=CzkR46OCYwM](https://www.youtube.com/watch?v=CzkR46OCYwM)
+about Fauna，[https://www.youtube.com/watch?v=DxoXD3o1QKo](https://www.youtube.com/watch?v=DxoXD3o1QKo)
+联动花絮，[https://www.youtube.com/watch?v=wpA-ujwkIh4](https://www.youtube.com/watch?v=wpA-ujwkIh4)
+Mumei糖，[https://www.youtube.com/watch?v=irySGeMrNSg](https://www.youtube.com/watch?v=irySGeMrNSg)
+
+社交担当Kronii，[https://www.youtube.com/watch?v=KzlF1TJ_Aos](https://www.youtube.com/watch?v=KzlF1TJ_Aos)
+打游戏的Fauna，[https://www.youtube.com/watch?v=kE5k6rYuCM8](https://www.youtube.com/watch?v=kE5k6rYuCM8)
+
+关于称呼，[https://www.youtube.com/watch?v=NEZzlKYH4CI](https://www.youtube.com/watch?v=NEZzlKYH4CI)
+
+<strong>Ina杂谈相关：</strong>
+狡猾，[https://www.youtube.com/watch?v=44REkvCbSM4](https://www.youtube.com/watch?v=44REkvCbSM4)
+抱抱，[https://www.youtube.com/watch?v=xfMdBnLZuQU](https://www.youtube.com/watch?v=xfMdBnLZuQU)
+水洒了，[https://www.youtube.com/watch?v=mt3Srf98bo4](https://www.youtube.com/watch?v=mt3Srf98bo4)
+关于称呼和代号，[https://www.youtube.com/watch?v=4Qm0kc6eIOo](https://www.youtube.com/watch?v=4Qm0kc6eIOo)
+关于吃饭的趣事，[https://www.youtube.com/watch?v=1Yf5BzNzJv8](https://www.youtube.com/watch?v=1Yf5BzNzJv8)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 被子十三| + 1|好评加鹅|
+
+查看全部评分
+
