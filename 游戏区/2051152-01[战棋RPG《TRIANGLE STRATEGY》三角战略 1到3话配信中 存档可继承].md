@@ -3840,3 +3840,15 @@ MC 12家媒体84
 
 感觉媒体对剧情的好坏的判断确实有问题，也不知道是不是欧美审美和国人审美对冲
 
+
+
+*****
+
+####  睡不醒的虾米  
+##### 348#       发表于 2022-3-3 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54908180&amp;ptid=2051152" target="_blank">卡奥斯·克斯拉 发表于 2022-3-3 22:52</a>
+
+那你怎么看SFC版的皇骑2自带练习模式呢</blockquote>
+我没玩过皇骑2……
+
