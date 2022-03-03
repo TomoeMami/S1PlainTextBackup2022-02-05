@@ -7983,3 +7983,19 @@ needy gamer overload，ame落下来就成了aqua
 
 阿夸取关了mfmf<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 8418#       发表于 2022-3-3 21:51
+
+清关注罢了 那还取关了faker呢 不知道她有多久没碰lol了(
+
+*****
+
+####  ylssb10438  
+##### 8419#       发表于 2022-3-3 21:58
+
+别尬黑，等dlc出了直播全boss rush罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

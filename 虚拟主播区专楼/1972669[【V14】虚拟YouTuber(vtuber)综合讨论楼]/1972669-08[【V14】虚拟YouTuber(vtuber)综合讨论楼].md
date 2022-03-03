@@ -7684,3 +7684,29 @@ inui新发型---&gt;皇女
 
 j1工商发表推迟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是紧急换下条子，换别的edens组男人吧
 
+
+
+*****
+
+####  purdre  
+##### 11179#       发表于 2022-3-3 21:50
+
+换教授吧，eden组里最有安心感的一个
+
+*****
+
+####  溴麝香草酚蓝  
+##### 11180#       发表于 2022-3-3 22:04
+
+<img src="https://img.saraba1st.com/forum/202203/03/220245b37m3lr7mm6n3mrr.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-03-03 220226.png</strong> (23.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 22:02 上传
+
+有人介绍一下这位吗，关注挺久了，说话是机器人一样，没有感情起伏，节奏一致
+
+我看到外面的讨论说是先是人声输入到软件，然后软件再输出机器人一样的语音
+

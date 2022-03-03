@@ -69,3 +69,37 @@ nagi毁我键盘！
 —— 来自 HUAWEI SPN-AL00, Android 10上的 S1Nex ...</blockquote>
 [https://www.bilibili.com/video/B ... _id_from=444.41.0.0](https://www.bilibili.com/video/BV1dL4y1g7p4?spm_id_from=444.41.0.0)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 6009#       发表于 2022-3-3 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54907308&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-3-3 21:34</a>
+https://www.bilibili.com/video/B ... _id_from=444.41.0.0
+
+等下你要下载的，nyaa上我翻了下还真 ...</blockquote>
+我现在也是靠这up解渴呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ykyin09  
+##### 6010#       发表于 2022-3-3 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">虽然有点不太可能，宫城day2的弹唱版小星星能不能录一版进专辑啊。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6011#       发表于 2022-3-3 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54907517&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-3-3 21:51</a>
+
+我现在也是靠这up解渴呢
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
