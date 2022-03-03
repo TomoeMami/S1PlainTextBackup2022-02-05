@@ -3349,3 +3349,33 @@ tox2tob不是还不错嘛
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">观望了
 
+
+
+*****
+
+####  繭  
+##### 300#       发表于 2022-3-3 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54902239&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-3 14:26</a>
+大家会买限定版吗？我很好奇那个大盒子里有啥。如果是类似于八方旅人的那种立体书的话我就买了，如果限定版 ...</blockquote>
+骰子是欧美版 日版送的是实物的天平、人物像素小人半透明扑克（和欧美版材质不一样）、ost4张
+
+
+
+*****
+
+####  riin1  
+##### 301#       发表于 2022-3-3 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54902928&amp;ptid=2051152" target="_blank">繭 发表于 2022-3-2 23:25</a>
+
+骰子是欧美版 日版送的是实物的天平、人物像素小人半透明扑克（和欧美版材质不一样）、ost4张 ...</blockquote>
+对我八方就买的欧美限定，感觉欧版一直都不错。反正这次也是全语言的吧。。。
+
+*****
+
+####  flyzzhj  
+##### 302#       发表于 2022-3-3 15:36
+
+什么？这个游戏居然没转职的？？？
+
