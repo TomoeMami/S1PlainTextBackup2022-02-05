@@ -3701,3 +3701,16 @@ mc的评分什么时候出啊，明天就发售了
 并不是，可以去看看活动细则，是要额外买一套豪华版的钱的周边才给欧版限定的铁盒之类。
 [https://bbs.saraba1st.com/2b/for ... ;page=2#pid54625045](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2051186&amp;page=2#pid54625045)
 
+
+
+*****
+
+####  繭  
+##### 334#       发表于 2022-3-3 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54905739&amp;ptid=2051152" target="_blank">h122h 发表于 2022-3-3 19:01</a>
+并不是，可以去看看活动细则，是要额外买一套豪华版的钱的周边才给欧版限定的铁盒之类。
+
+https://bbs.sar ...</blockquote>
+草 这也太坑了
+
