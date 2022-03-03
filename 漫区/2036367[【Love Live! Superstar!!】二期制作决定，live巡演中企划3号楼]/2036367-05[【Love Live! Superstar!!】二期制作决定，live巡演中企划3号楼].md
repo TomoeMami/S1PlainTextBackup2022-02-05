@@ -30,3 +30,19 @@ nagi毁我键盘！
 
 笑死了，だまれ
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6005#       发表于 2022-3-3 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">继跳绳之后又出了瑜伽带这种奇怪的周边，真的会有人买吗
+
+*****
+
+####  lj205  
+##### 6006#       发表于 2022-3-3 20:14
+
+挺好的，但是贵，我还是买弹力带吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
