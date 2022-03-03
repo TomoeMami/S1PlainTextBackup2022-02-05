@@ -18031,3 +18031,15 @@ yami今年24岁…………就是不知道她日语咋样，真走鱼那条路�
 要不就是我记错了，去年末上他官网，我还记得很清楚MUSICIAN那栏是奇数位艺人，最后那位是抱着小提琴的小 ...</blockquote>
 这个说法其实没意义，鲤鱼都歌手出道了不分在MUSICIAN那里也说不过去吧
 
+
+
+*****
+
+####  nufawneafg  
+##### 5990#       发表于 2022-3-3 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904237&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-3 16:58</a>
+这个说法其实不能说明什么，鲤鱼都歌手出道了不分在MUSICIAN那里也说不过去吧 ...</blockquote>
+这也是我当初记得清楚的原因，我当初就想多少是发行单曲的艺人为什么不分到这一栏呢，就有点疑惑。后来说服自己的答案是日本网站维护拉胯的传统艺能，有点延迟很正常
+你说的这个理由确实，这个分类也就是作为对外的一个看板有点参考意义，但没啥必要较真<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

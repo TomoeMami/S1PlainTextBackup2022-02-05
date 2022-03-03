@@ -3552,3 +3552,35 @@ tox2tob不是还不错嘛
 
 刚看了A9的一个帖子说了一些后期队友的职业设定，看起来本作职业之间差异还是挺大的，特别是那个技能取决于地形的职业我很喜欢，就是不知道实际上手以后怎么样
 
+
+
+*****
+
+####  minysun  
+##### 320#       发表于 2022-3-3 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904146&amp;ptid=2051152" target="_blank">feizong 发表于 2022-3-3 16:52</a>
++1，我就特别不喜欢能随意转职后的FE，没有特色。</blockquote>
+很多玩家把这玩意儿当做TO和FFT的精神续作了，自然期待系统层面的还原了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  77is77  
+##### 321#       发表于 2022-3-3 17:06
+
+只想知道有没有吃屎剧情，是不是一路苦大仇深
+
+*****
+
+####  逆旅行客  
+##### 322#       发表于 2022-3-3 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904065&amp;ptid=2051152" target="_blank">Humpy 发表于 2022-3-3 16:47</a>
+
+英杰传我怎么记得是可以平转的……
+
+当初关公走麦城那关我记得有攻略是推荐关羽转成步兵系然后从森林走的 ...</blockquote>
+我记得英杰传好像是本身没有横转系统，但是可以通过流程中得到的几个道具书转成其他兵种
+
+曹操传就彻底没这个途径了
+
