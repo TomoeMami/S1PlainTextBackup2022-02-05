@@ -4889,3 +4889,157 @@ hapi女人
 
 好 今天要播
 
+
+
+*****
+
+####  往世雷书  
+##### 9540#       发表于 2022-3-2 17:10
+
+以前是不是有个天狗叫714
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  aisakahammer  
+##### 9541#       发表于 2022-3-2 17:13
+
+[https://bbs.saraba1st.com/2b/space-uid-512543.html](https://bbs.saraba1st.com/2b/space-uid-512543.html)
+
+
+
+*****
+
+####  呓亘  
+##### 9542#       发表于 2022-3-2 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891117&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-3-2 17:10</a>
+ 以前是不是有个天狗叫714  —— 来自 S1Fun</blockquote>
+是 怎么突然提起他了 
+
+
+
+*****
+
+####  pei23333  
+##### 9543#       发表于 2022-3-2 17:50
+
+要摸
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  往世雷书  
+##### 9544#       发表于 2022-3-2 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891305&amp;ptid=2018830" target="_blank">呓亘 发表于 2022-3-2 17:22</a>
+是 怎么突然提起他了</blockquote>
+算工资变动时候计算器上按了个+714忽然想起这个人，没什么其他意思。
+话说经常喜欢回忆往昔是不是老了的表现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  专业划水人员  
+##### 9545#       发表于 2022-3-2 22:30
+
+这人应该是最后出场吧
+
+
+
+*****
+
+####  呓亘  
+##### 9546#       发表于 2022-3-2 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892575&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-3-2 18:59</a>
+ 算工资变动时候计算器上按了个+714忽然想起这个人，没什么其他意思。 话说经常喜欢回忆往昔是不是老了的 ...</blockquote>
+或许只是因为现在已经门前冷落鞍马稀了....
+
+
+
+*****
+
+####  路人庚  
+##### 9547#       发表于 2022-3-2 23:13
+
+你咩姐确实被安排到最后一个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  路人庚  
+##### 9548#       发表于 2022-3-2 23:55
+
+最后三个了，伊东-苔苔-你咩，你咩姐应该快来了（没昏睡的话
+
+
+
+*****
+
+####  专业划水人员  
+##### 9549#       发表于 2022-3-3 00:04
+
+来了！开场吓到我
+
+*****
+
+####  T_Hb  
+##### 9550#       发表于 2022-3-3 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">组长发出邀请
+
+
+
+*****
+
+####  路人庚  
+##### 9551#       发表于 2022-3-3 00:27
+
+ 本帖最后由 路人庚 于 2022-3-3 00:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了，迷糊状态的你咩姐就是最强状态（早上4点起熬到现在参加联动
+
+有事，不过没具体说是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+中间一段，你咩姐被怼委屈了说要找男朋友哭哭结果被苔苔和黄兔子光速反驳说“你有个鬼的男朋友”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 9552#       发表于 2022-3-3 00:28
+
+他在熬什么？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  路人庚  
+##### 9553#       发表于 2022-3-3 00:32
+
+<img src="https://img.saraba1st.com/forum/202203/03/003213zg7avpkc4p48k6pa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5D92151D-EB3D-42D5-B428-472C299E92A2.jpeg</strong> (84.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:32 上传
+
+*****
+
+####  T_Hb  
+##### 9554#       发表于 2022-3-3 00:35
+
+这个颜文字有点意思
+

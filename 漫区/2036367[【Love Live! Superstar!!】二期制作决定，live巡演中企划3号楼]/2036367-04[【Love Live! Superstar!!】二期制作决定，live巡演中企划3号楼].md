@@ -16984,3 +16984,701 @@ V团有一个很明显的好处，就是不占用三次元资源，之前我也�
 
 官网把各企划标签颜色改了搞得怪怪的，本来用各团印象色挺好的，不知道改回去干啥
 
+
+
+*****
+
+####  lj205  
+##### 5910#       发表于 2022-3-2 17:03
+
+这首日数字是怎么回事？星团1万不到
+
+
+
+*****
+
+####  starring  
+##### 5911#       发表于 2022-3-2 17:19
+
+真人MV！
+
+每个人所在的地方都和角色对应起来了。
+
+
+
+*****
+
+####  megapikachu  
+##### 5912#       发表于 2022-3-2 17:21
+
+正常，去年虹团4专也就1万8初动。
+
+*****
+
+####  player3960  
+##### 5913#       发表于 2022-3-2 17:33
+
+烂铁也是捂得住，这都开卖一天了，才公开真人MV，不过MV真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5914#       发表于 2022-3-2 17:35
+
+前面基本0宣传，完全看不懂他们这个策略
+
+
+
+*****
+
+####  stygian  
+##### 5915#       发表于 2022-3-2 17:41
+
+拉拉现在就这个水平。。。或者说看到这个数字你也能理解为什么要搞风口上的虚拟了
+
+烂铁本来就是个anisong公司，别对三次元资源有啥幻想
+
+*****
+
+####  优妮可  
+##### 5916#       发表于 2022-3-2 17:42
+
+为啥磨皮搞滤镜啊啊啊啊
+
+*****
+
+####  iuhehc  
+##### 5917#       发表于 2022-3-2 17:47
+
+ 本帖最后由 iuhehc 于 2022-3-2 17:49 编辑 
+
+这MV拍的挺三次元偶像的（好韩！
+
+就是没什么故事性，很多很单纯的镜头
+
+*****
+
+####  lj205  
+##### 5918#       发表于 2022-3-2 17:49
+
+慢慢来吧，但是就现在这个莫名其妙的策略，真的无语，再怎么自信也不至于这样吧
+
+*****
+
+####  player3960  
+##### 5919#       发表于 2022-3-2 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891656&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-03-02 17:47:25</a>
+就是没什么故事性，很多很单纯的镜头</blockquote>不是在疯狂致敬动画吗？香音（打铁）d遍全团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5920#       发表于 2022-3-2 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">便宜mv，就几个场景之间来回切。不过慢慢来，希望以后来点大的
+
+*****
+
+####  stygian  
+##### 5921#       发表于 2022-3-2 17:53
+
+<img src="https://img.saraba1st.com/forum/202203/02/175329i9lq1exir7i97q7c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 17:53 上传
+
+某种程度上我挺认同这个思路
+
+
+
+*****
+
+####  iuhehc  
+##### 5922#       发表于 2022-3-2 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891709&amp;ptid=2036367" target="_blank">player3960 发表于 2022-3-2 17:52</a>
+
+不是在疯狂致敬动画吗？香音（打铁）d遍全团
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+我大概是想指没有单独做mv曲子的故事
+
+*****
+
+####  stygian  
+##### 5923#       发表于 2022-3-2 18:14
+
+拉板疯狂在疯狂车新pv
+
+*****
+
+####  x分裂者  
+##### 5924#       发表于 2022-3-2 18:19
+
+无法认同，虹的前身是pdp，明显就是手游先行，而且一开始就说了不做动画。水星都是动画+真人live的形式，总不可能手游和vtb比动画还二次元。
+虹明显是那边搞不下去了又回归传统模式，现在的情况是果不是因，没像水星这样可能只是因为当初选人的时候没那么多要求。
+
+
+
+*****
+
+####  Enakina  
+##### 5925#       发表于 2022-3-2 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892007&amp;ptid=2036367" target="_blank">stygian 发表于 2022-03-02 18:14:44</a>
+拉板疯狂在疯狂车新pv</blockquote>让我猜猜看，是觉得背离二次元了还是为水虹打抱不平呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 5926#       发表于 2022-3-2 18:21
+
+本来免费的东西要啥好车的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Enakina  
+##### 5927#       发表于 2022-3-2 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892066&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-03-02 18:19:14</a>
+无法认同，虹的前身是pdp，明显就是手游先行，而且一开始就说了不做动画。水星都是动画+真人live的形式，总 ...</blockquote>我是觉得哪怕虹现在已经回归传统模式了，也不可能按照水星那样推进了。就说成员吧，基本聚齐一次都很难，先不说大忙人鬼头，还有灯这个情况，让虹去像水星那么走？根本不现实的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 5928#       发表于 2022-3-2 18:25
+
+真人又不是第一个，不明白车什么
+
+*****
+
+####  iuhehc  
+##### 5929#       发表于 2022-3-2 18:26
+
+ 本帖最后由 iuhehc 于 2022-3-2 18:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892097&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 18:20</a>
+
+让我猜猜看，是觉得背离二次元了还是为水虹打抱不平呢
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+目前看下来是觉得不够二次元的比打抱不平的多点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5930#       发表于 2022-3-2 18:35
+
+AG店又缺货，服气
+
+
+
+*****
+
+####  Enakina  
+##### 5931#       发表于 2022-3-2 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892181&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-03-02 18:26:02</a></blockquote>那就证明两者都有喽，这不就完全意料之中嘛
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  x分裂者  
+##### 5932#       发表于 2022-3-2 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892138&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 18:23</a>
+我是觉得哪怕虹现在已经回归传统模式了，也不可能按照水星那样推进了。就说成员吧，基本聚齐一次都很难，先 ...</blockquote>
+这就是当初选人要求带来的结果啊
+
+*****
+
+####  stygian  
+##### 5933#       发表于 2022-3-2 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892349&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 18:41</a>
+
+那就证明两者都有喽，这不就完全意料之中嘛
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+除了抱怨不够二次元企划偏离初心更多的是水信虹信大乱斗
+
+*****
+
+####  Enakina  
+##### 5934#       发表于 2022-3-2 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892425&amp;ptid=2036367" target="_blank">stygian 发表于 2022-03-02 18:46:56</a>
+除了抱怨不够二次元企划偏离初心更多的是水信虹信大乱斗</blockquote>太典了，经典借着星来互相开战，5ch还是那个味，感动
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  星降る森  
+##### 5935#       发表于 2022-3-2 19:13
+
+比较意外的是这MV不塞在碟里卖，不过水dreamy color也是这么放出来了，AC那个加长版也没什么变化
+
+
+
+*****
+
+####  星降る森  
+##### 5936#       发表于 2022-3-2 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878714&amp;ptid=2036367" target="_blank">megapikachu 发表于 2022-3-1 17:51</a>
+
+100多也的确太惨了点</blockquote>
+熊田fo数才7000不到，甚至比菜宝微博的粉还少，一般20个人里有一个掏钱的就不错了.....个活又是纯看个人的，tie不到什么就只能这样了
+
+*****
+
+####  黑雪姫  
+##### 5937#       发表于 2022-3-2 19:27
+
+我也喜欢二刺螈，整个拉拉我也是因为纸片人入坑的，而不是中之人，我也希望能给纸片人多点出场机会，当然这不代表我不喜欢中之人，我不知道拉拉的受众里只喜欢纸片人的占比有多少，但我个人认为不低。
+
+
+
+*****
+
+####  星降る森  
+##### 5938#       发表于 2022-3-2 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54878799&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-1 17:57</a>
+
+避免误会说一下，不是销量100多，是周榜100名之外，所以没有具体数据
+
+  -- 来自 有消息提醒的 Stage1官方  ...</blockquote>
+销量确实是100多，O榜能看到300位的，鲤鱼这周又卖了202张，累计3866。
+
+300位是174，熊田这是直接300开外，小于174
+
+*****
+
+####  lj205  
+##### 5939#       发表于 2022-3-2 19:46
+
+说起来mv那个舞有几个动作就特别微妙…………
+
+*****
+
+####  星降る森  
+##### 5940#       发表于 2022-3-2 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891029&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-2 17:03</a>
+
+这首日数字是怎么回事？星团1万不到</blockquote>
+挺正常的销量啊，现在市场本来就萎缩，企划还互相分流就这样了。
+
+虽然这张碟名义上叫【一专】，但实际是星团第三张专辑了，前两张以专辑形式发售的碟——动画一期OST和liella之歌，加起来也就12000出头，而且这个12000还不是指首日，是到出不了数字为止的累计销量。
+
+当然，那2张碟没抽选，正经来说不能这么比
+
+
+
+*****
+
+####  黑雪姫  
+##### 5941#       发表于 2022-3-2 19:52
+
+这个星一专真人MV油管播放量是不是有点惨，虽然没有提前通知，但两个小时才过一万怎么也说不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  水团当时一个小时就八万播放量
+
+*****
+
+####  x分裂者  
+##### 5942#       发表于 2022-3-2 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺，就上了电视拍了真人mv就是2.9次元，如果说不给真人资源就是二次元的话那我没话说。虹比水星多了啥，就多了as，我不觉得这算什么二次元偏重。而且就效果来说，虹动画的带动力非常一般，没记错的话水一期结束的时候一单销量翻了一倍，国内的话没夹脚虹动画播放量可能还不如水2。
+
+水星的根源在于花田大老师拉胯，而不是动画资源没给够。现在二次元资源还没水星多的虹和东西都没出来的疑似vtb都能说水星背离初心了，一个手游企划和一个线上企划（暂定）都直接说你动画为主的企划不够二了，我实在无法理解。
+
+打个比方，BF牛逼是因为黑田牛逼，而不是因为胶达牛逼。BF说AGE不是高达可以理解，毕竟日野搞这个是真的拉，胶达说AGE不是高达那就搞笑了。你能保证你下一个动画还是BF，而不是BFT或者是GBN？花田大老师已经算稳的了，要是新企划给你整个木村畅还敢说高达正统在胶达吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 5943#       发表于 2022-3-2 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893118&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-03-02 19:46:02</a>
+销量确实是100多，O榜能看到300位的，鲤鱼这周又卖了202张，累计3866。
+
+300位是174，熊田这是直接300开外 ...</blockquote>熊田好惨，话说o榜是得开会员才能看见300吗，那平常的日榜只能看前三，如果开会员能看全吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星降る森  
+##### 5944#       发表于 2022-3-2 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893304&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-2 20:01</a>
+
+熊田好惨，话说o榜是得开会员才能看见300吗，那平常的日榜只能看前三，如果开会员能看全吗
+
+  -- 来自 能看 ...</blockquote>
+我看oricon贴吧的，每周会更新
+
+*****
+
+####  player3960  
+##### 5945#       发表于 2022-3-2 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893190&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-03-02 19:52:29</a>
+这个星一专真人MV油管播放量是不是有点惨，虽然没有提前通知，但两个小时才过一万怎么也说不过去吧  水团当 ...</blockquote>你水发展了多少年，才出个真人MV，还是系列首部，体量和关注度当然不一样啦，要不我怎么说星团粉丝基础弱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑雪姫  
+##### 5946#       发表于 2022-3-2 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893328&amp;ptid=2036367" target="_blank">player3960 发表于 2022-3-2 20:03</a>
+
+你水发展了多少年，才出个真人MV，还是系列首部，体量和关注度当然不一样啦，要不我怎么说星团粉丝基础弱[f ...</blockquote>
+我知道，但水团一小时7.9W 星一小时6356... 这零头都没赶上...要是哪怕有2W多我就不会有怨言了。
+
+不过貌似不知道是因为下班了还是怎么了，现在播放量开始快速增长了，在等等看吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 5947#       发表于 2022-3-2 20:08
+
+youtube之前的数字真的很怪，拉板狂暴车才这么点数字属实想不通
+
+*****
+
+####  Enakina  
+##### 5948#       发表于 2022-3-2 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893324&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-03-02 20:02:59</a>
+我看oricon贴吧的，每周会更新</blockquote>我有看啊，好像他只更前100的，原来会更300的吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  黑雪姫  
+##### 5949#       发表于 2022-3-2 20:21
+
+ 本帖最后由 黑雪姫 于 2022-3-2 20:29 编辑 
+
+紧跟时事艹
+
+<img src="https://p.sda1.dev/5/9b016540b8c9734f4db85431513ff2e6/02029B5DB5369212A604FC10E22363C0.jpg" referrerpolicy="no-referrer">
+
+19d6bfc27d1ed21bb8ad3b36e86eddc450da3fbb.jpg
+(77.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/02/202140caofrbio3nraftk4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5950#       发表于 2022-3-2 20:29
+
+为何要和水那个比啊 哎 这次周冠是没希望了 刀男人卖得是真好，，，，，，，，，
+
+*****
+
+####  蜜梨柑  
+##### 5951#       发表于 2022-3-2 21:34
+
+照拉拉运营这个万物皆可销售的尿性，等一个导演剪辑版<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  megapikachu  
+##### 5952#       发表于 2022-3-2 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893289&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-3-2 20:00</a>
+
+看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺 ...</blockquote>
+其实他们说的什么2.99次元啊，没在二次元发力啊，就是指动画（二次元）的部分不行，而不是真的指没有二次元方面的资源。例如有些虹团粉就因为觉得as不好玩、二期剧情烂，所以认为手游不算资源的。
+
+
+
+*****
+
+####  黑雪姫  
+##### 5949#       发表于 2022-3-2 20:21
+
+ 本帖最后由 黑雪姫 于 2022-3-2 20:29 编辑 
+
+紧跟时事艹
+
+<img src="https://p.sda1.dev/5/9b016540b8c9734f4db85431513ff2e6/02029B5DB5369212A604FC10E22363C0.jpg" referrerpolicy="no-referrer">
+
+19d6bfc27d1ed21bb8ad3b36e86eddc450da3fbb.jpg
+(77.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/02/202140caofrbio3nraftk4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5950#       发表于 2022-3-2 20:29
+
+为何要和水那个比啊 哎 这次周冠是没希望了 刀男人卖得是真好，，，，，，，，，
+
+*****
+
+####  蜜梨柑  
+##### 5951#       发表于 2022-3-2 21:34
+
+照拉拉运营这个万物皆可销售的尿性，等一个导演剪辑版<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  megapikachu  
+##### 5952#       发表于 2022-3-2 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893289&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-3-2 20:00</a>
+
+看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺 ...</blockquote>
+其实他们说的什么2.99次元啊，没在二次元发力啊，就是指动画（二次元）的部分不行，而不是真的指没有二次元方面的资源。例如有些虹团粉就因为觉得as不好玩、二期剧情烂，所以认为手游不算资源的。
+
+
+
+*****
+
+####  黑雪姫  
+##### 5949#       发表于 2022-3-2 20:21
+
+ 本帖最后由 黑雪姫 于 2022-3-2 20:29 编辑 
+
+紧跟时事艹
+
+<img src="https://p.sda1.dev/5/9b016540b8c9734f4db85431513ff2e6/02029B5DB5369212A604FC10E22363C0.jpg" referrerpolicy="no-referrer">
+
+19d6bfc27d1ed21bb8ad3b36e86eddc450da3fbb.jpg
+(77.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/02/202140caofrbio3nraftk4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5950#       发表于 2022-3-2 20:29
+
+为何要和水那个比啊 哎 这次周冠是没希望了 刀男人卖得是真好，，，，，，，，，
+
+*****
+
+####  蜜梨柑  
+##### 5951#       发表于 2022-3-2 21:34
+
+照拉拉运营这个万物皆可销售的尿性，等一个导演剪辑版<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  megapikachu  
+##### 5952#       发表于 2022-3-2 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893289&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-3-2 20:00</a>
+
+看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺 ...</blockquote>
+其实他们说的什么2.99次元啊，没在二次元发力啊，就是指动画（二次元）的部分不行，而不是真的指没有二次元方面的资源。例如有些虹团粉就因为觉得as不好玩、二期剧情烂，所以认为手游不算资源的。
+
+
+
+*****
+
+####  黑雪姫  
+##### 5949#       发表于 2022-3-2 20:21
+
+ 本帖最后由 黑雪姫 于 2022-3-2 20:29 编辑 
+
+紧跟时事艹
+
+<img src="https://p.sda1.dev/5/9b016540b8c9734f4db85431513ff2e6/02029B5DB5369212A604FC10E22363C0.jpg" referrerpolicy="no-referrer">
+
+19d6bfc27d1ed21bb8ad3b36e86eddc450da3fbb.jpg
+(77.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/02/202140caofrbio3nraftk4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 5950#       发表于 2022-3-2 20:29
+
+为何要和水那个比啊 哎 这次周冠是没希望了 刀男人卖得是真好，，，，，，，，，
+
+*****
+
+####  蜜梨柑  
+##### 5951#       发表于 2022-3-2 21:34
+
+照拉拉运营这个万物皆可销售的尿性，等一个导演剪辑版<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  megapikachu  
+##### 5952#       发表于 2022-3-2 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893289&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-3-2 20:00</a>
+
+看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺 ...</blockquote>
+其实他们说的什么2.99次元啊，没在二次元发力啊，就是指动画（二次元）的部分不行，而不是真的指没有二次元方面的资源。例如有些虹团粉就因为觉得as不好玩、二期剧情烂，所以认为手游不算资源的。
+
+
+
+*****
+
+####  lj205  
+##### 5953#       发表于 2022-3-2 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893178&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-2 19:51</a>
+挺正常的销量啊，现在市场本来就萎缩，企划还互相分流就这样了。
+
+虽然这张碟名义上叫【一专】，但实际是 ...</blockquote>
+毕竟名字首专，加上还有talk和活动抽选，不过目前A和G好像都缺货，只能看看后劲能去到哪
+
+
+
+*****
+
+####  csolfans  
+##### 5954#       发表于 2022-3-2 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893190&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-3-2 19:52</a>
+
+这个星一专真人MV油管播放量是不是有点惨，虽然没有提前通知，但两个小时才过一万怎么也说不过去吧  ...</blockquote>
+BUG了
+
+*****
+
+####  qty  
+##### 5955#       发表于 2022-3-2 23:03
+
+这mv的磨皮滤镜至于搞得这么夸张吗？
+
+
+
+*****
+
+####  Norkey1  
+##### 5956#       发表于 2022-3-3 00:07
+
+不是专业的，这个mv 还有之前那个真人封面色调感觉怪怪的，但又说不上来
+
+
+
+*****
+
+####  starring  
+##### 5957#       发表于 2022-3-3 00:24
+
+这回nagi居然还没发返照
+
+FM181AjaIAAjRk-.jpg
+(591.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002242jppb9mzkk6wpm9hx.jpg" referrerpolicy="no-referrer">
+
+FM2Z_cvaQAAMxee.jpg
+(157.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002255a6eip4c7vyjycczc.jpg" referrerpolicy="no-referrer">
+
+FM11RI1aUAEIpVo.jpg
+(301.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002311igo5ka3xo04sgt4g.jpg" referrerpolicy="no-referrer">
+
+FM11RI6aUAQ-pJw.jpg
+(205.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002315b9co9j9mim8g6mo6.jpg" referrerpolicy="no-referrer">
+
+FM2Gax5agAAK_4M.jpg
+(301.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002321mbi73uzdufit3sf3.jpg" referrerpolicy="no-referrer">
+
+FM2Gax4akAIQA9O.jpg
+(219.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002327lvho62v72o7n9m73.jpg" referrerpolicy="no-referrer">
+
+FM1ixyXacAECbpo.jpg
+(332.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/002344sz82yy5sn2gak53d.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 5958#       发表于 2022-3-3 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54893289&amp;ptid=2036367" target="_blank">x分裂者 发表于 2022-3-2 20:00</a>
+看NGA有点绷不住了，我是没觉得水星哪里不够二了，拉拉二次元的传统铁三角，动画、杂志、漫画都没缺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我印象里水不是一直被车2.99吗 指不定现在这波人里不少跟我一样是个云人 这mv一出想起这茬就随口说了 其实并不了解
+

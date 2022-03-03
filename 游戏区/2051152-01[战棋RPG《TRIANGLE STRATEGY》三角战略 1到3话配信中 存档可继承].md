@@ -3095,3 +3095,118 @@ fami这评价跟没评价一样
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  jimclack  
+##### 275#       发表于 2022-3-2 16:55
+
+玩家处于只是在看并没有太多操作的时间较长，可能会令人感到烦躁
+
+这个是玩就有体现，虽然细致的剧情刻画我是鼓励的，可是真的有点太多了，打十分钟关卡看三十分钟剧情，还是2d小人对话，很难不让人昏睡
+
+
+
+*****
+
+####  anmdrree  
+##### 276#       发表于 2022-3-2 23:35
+
+偷跑了
+
+
+
+*****
+
+####  johanliebert  
+##### 277#       发表于 2022-3-3 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">交互过于让人不适，雪藏了等半年补丁再玩
+
+
+
+*****
+
+####  西多士  
+##### 278#       发表于 2022-3-3 02:28
+
+血条按一个键好像可以显示的
+
+
+
+*****
+
+####  fxz1986  
+##### 279#       发表于 2022-3-3 06:27
+
+素质难比ffta
+
+
+
+*****
+
+####  黑爪爪  
+##### 280#       发表于 2022-3-3 07:48
+
+ 本帖最后由 黑爪爪 于 2022-3-3 07:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54889217&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-2 15:05</a>
+
+打到第三章才在盐国收集到了一本什么游记の三（描写世界观的）。问一下是不是前两章也可以搜刮到这套书的前 ...</blockquote>
+
+只摸过前几天的试玩版开头，手头已经有诺泽利亚游记的8和12卷了
+
+应该是在第一次城内散步时翻到的
+
+*****
+
+####  a2276382  
+##### 281#       发表于 2022-3-3 07:49
+
+这作是ns独占么
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  艾特娜  
+##### 282#       发表于 2022-3-3 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54896176&amp;ptid=2051152" target="_blank">johanliebert 发表于 2022-3-3 00:48</a>
+
+都正式版了操作还这么蹩脚，加个血条不行，摆个地图棋盘格子也不行，播片剧情可以skip，战斗剧情可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按Y就能显示血条和行动顺序啊
+
+*****
+
+####  蓮華  
+##### 283#       发表于 2022-3-3 08:17
+
+ 本帖最后由 蓮華 于 2022-3-3 08:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54897127&amp;ptid=2051152" target="_blank">a2276382 发表于 2022-3-3 07:49</a>
+
+这作是ns独占么
+
+—— 来自 realme RMX3310, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+最近se给ns出的几个比如八方和bdff2什么的后来都出PC版了，我看这个也是
+
+
+
+*****
+
+####  稲穂信  
+##### 284#       发表于 2022-3-3 08:23
+
+预载完毕。
+
+感觉系统还很难看出是否能玩出花来，至于剧情……日本人写的国家政治斗争就别指望了吧。
+
+*****
+
+####  稲穂信  
+##### 285#       发表于 2022-3-3 08:26
+
+以及现在看来每个角色只有一种升级路线，也只有一件武器？会有隐藏职业和隐藏武器之类的设定吗？
+

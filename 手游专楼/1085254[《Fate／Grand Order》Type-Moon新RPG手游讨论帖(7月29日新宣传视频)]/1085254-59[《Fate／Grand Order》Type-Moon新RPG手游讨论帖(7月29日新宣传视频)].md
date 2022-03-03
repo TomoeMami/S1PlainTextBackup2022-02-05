@@ -1027,3 +1027,236 @@ dps已经够了 现在需要一个50-100充来重新定义红卡光炮</blockquo
 
 2022-3-1 22:33 上传
 
+
+
+*****
+
+####  alucardcz  
+##### 87094#       发表于 2022-3-2 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没意思 怎么能真复课呢 但是没有新角色 这波55开？
+
+*****
+
+####  rooarr  
+##### 87095#       发表于 2022-3-2 17:06
+
+c狗终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  angelooo  
+##### 87096#       发表于 2022-3-2 17:09
+
+没整活，复刻了，没意思+65535
+
+*****
+
+####  zakki  
+##### 87097#       发表于 2022-3-2 17:13
+
+ 本帖最后由 zakki 于 2022-3-2 17:18 编辑 
+
+我草，一发十连，new高文，new斋藤一，new梅林奥伯龙礼装，还特么出了狂娜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87098#       发表于 2022-3-2 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891158&amp;ptid=1085254" target="_blank">zakki 发表于 2022-3-2 17:13</a>
+
+我草，一发十连，new高文，new斋藤一，，new梅林奥伯龙礼装，还特么出了狂娜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好狗
+
+*****
+
+####  alucardcz  
+##### 87099#       发表于 2022-3-2 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新已凉 再见了
+
+*****
+
+####  exiaexa  
+##### 87100#       发表于 2022-3-2 17:18
+
+草，这礼装带CV
+
+是新的营销方式吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是不是下次再出个什么纯礼装池，知道玩家不想抽就塞个全配音骗你花钱
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 87101#       发表于 2022-3-2 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891176&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-2 17:14</a>
+
+好狗</blockquote>
+只是出货的那一发十连而已，前面还扔了很多石头，不是只抽了一发十连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 87102#       发表于 2022-3-2 17:19
+
+一宝狂娜应该够用了吧，不接着抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87103#       发表于 2022-3-2 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891245&amp;ptid=1085254" target="_blank">zakki 发表于 2022-3-2 17:18</a>
+
+只是出货的那一发十连而已，前面还扔了很多石头，不是只抽了一发十连 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">非洲人的十连全是礼装
+
+*****
+
+####  黑上シグマ  
+##### 87104#       发表于 2022-3-2 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891256&amp;ptid=1085254" target="_blank">zakki 发表于 2022-3-2 17:19</a>
+
+一宝狂娜应该够用了吧，不接着抽了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您好，不够的，我当年抽了3宝
+
+*****
+
+####  rooarr  
+##### 87105#       发表于 2022-3-2 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891256&amp;ptid=1085254" target="_blank">zakki 发表于 2022-3-2 17:19</a>
+
+一宝狂娜应该够用了吧，不接着抽了</blockquote>
+其实不太够，可以等福袋再摸一个
+
+*****
+
+####  zakki  
+##### 87106#       发表于 2022-3-2 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891309&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-2 17:22</a>
+
+您好，不够的，我当年抽了3宝</blockquote>
+应该够了吧，一般不都是靠暴击的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  angelooo  
+##### 87107#       发表于 2022-3-2 17:32
+
+没出，再见，话说pako是不是不太会画侧脸，这狂那灵衣卡面比当年仇信满破看着还奇怪了
+
+*****
+
+####  alucardcz  
+##### 87108#       发表于 2022-3-2 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54891330&amp;ptid=1085254" target="_blank">zakki 发表于 2022-3-2 17:24</a>
+
+应该够了吧，一般不都是靠暴击的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 1宝100级+2000 是够的 
+
+*****
+
+####  yzj134100  
+##### 87109#       发表于 2022-3-2 17:43
+
+礼 装 在 说 话
+
+吓死人了
+
+
+
+*****
+
+####  里村紅葉  
+##### 87110#       发表于 2022-3-2 18:12
+
+这礼装加CV是怕你们认不出上面画的是谁吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 87111#       发表于 2022-3-2 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨 自暴弓15羁绊了  然后 ，无事发生
+
+这辣鸡游戏还能玩？
+
+
+
+*****
+
+####  qixinno2  
+##### 87112#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好非啊 最后一个五星还是去年的妖兰 
+
+*****
+
+####  zore  
+##### 87113#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">够用?5宝请
+
+
+
+*****
+
+####  qixinno2  
+##### 87112#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好非啊 最后一个五星还是去年的妖兰 
+
+*****
+
+####  zore  
+##### 87113#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">够用?5宝请
+
+
+
+*****
+
+####  qixinno2  
+##### 87112#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好非啊 最后一个五星还是去年的妖兰 
+
+*****
+
+####  zore  
+##### 87113#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">够用?5宝请
+
+
+
+*****
+
+####  qixinno2  
+##### 87112#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好非啊 最后一个五星还是去年的妖兰 
+
+*****
+
+####  zore  
+##### 87113#       发表于 2022-3-2 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">够用?5宝请
+

@@ -7282,3 +7282,158 @@ syl
 
 我是觉得没啥必要自肃，你虹还是一如既往的不行
 
+
+
+*****
+
+####  winda  
+##### 11148#       发表于 2022-3-2 16:59
+
+[https://twitter.com/KiruShin2434/status/1498908893472124929](https://twitter.com/KiruShin2434/status/1498908893472124929)
+
+<img src="https://img.saraba1st.com/forum/202203/02/165717vpy4c0squqp66q6c.jpg" referrerpolicy="no-referrer">
+
+<strong>FM0xreZVUAAiM2C.jpg</strong> (439.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 16:57 上传
+
+https://twitter.com/LeeOn2434/status/1498908461265915904
+
+<img src="https://img.saraba1st.com/forum/202203/02/165822q1t7p65qls25vv5g.jpg" referrerpolicy="no-referrer">
+
+<strong>FM0v34iUcAQnJUh.jpg</strong> (539.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 16:58 上传
+
+KiruShin，LeeOn毕业，算上siu lee 3月kr有3个人要毕业
+
+
+
+*****
+
+####  alcoholic1000  
+##### 11149#       发表于 2022-3-2 17:28
+
+（图片重复，编辑）
+
+NIJISANJIKR所属的신기루/シン・ギル与이온/Lee On宣布于本月月底先后毕业，截止今天两人的登陆数分别为1.51W和9660；
+
+你虹总有观众说是因为KR没市场，KR分部不好做，但实际上除了이세계 아이돌这种性质特殊的大物，1W+的个人势KR V也有不少
+
+按照DC的说法「kr인데왜한국어안함」明明是KR却不做韩语直播，结果staff除了拉垮什么也没做，毕业的也大都是没依附上本社或EN的人
+
+实话说对他们来说毕业反倒是卸下负重，期待各位未来的工作一帆风顺，前程似锦
+
+<img src="https://img.saraba1st.com/forum/202203/02/172757ae5r4tejg52pjjz9.jpg" referrerpolicy="no-referrer">
+
+<strong>씨발.jpg</strong> (4.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-2 17:27 上传
+
+
+
+*****
+
+####  OldGlory  
+##### 11150#       发表于 2022-3-2 20:14
+
+wactor到底是不是中资箱啊，真名开示有点搞的
+
+
+
+*****
+
+####  OldGlory  
+##### 11150#       发表于 2022-3-2 20:14
+
+wactor到底是不是中资箱啊，真名开示有点搞的
+
+
+
+*****
+
+####  OldGlory  
+##### 11150#       发表于 2022-3-2 20:14
+
+wactor到底是不是中资箱啊，真名开示有点搞的
+
+
+
+*****
+
+####  OldGlory  
+##### 11150#       发表于 2022-3-2 20:14
+
+wactor到底是不是中资箱啊，真名开示有点搞的
+
+
+
+*****
+
+####  rzrbtk  
+##### 11151#       发表于 2022-3-2 22:55
+
+看了今晚组长的凸待发现有帕特又想了下最近的联系，这eden组，两个枪男被抓去大会，🍵归犬山，帕特归组长，豆猫自闭，基本被分完了诶？
+
+
+
+*****
+
+####  毛头小希  
+##### 11152#       发表于 2022-3-2 23:33
+
+<blockquote>rzrbtk 发表于 2022-3-2 22:55
+看了今晚组长的凸待发现有帕特又想了下最近的联系，这eden组，两个枪男被抓去大会，🍵归犬山，帕特归组长， ...</blockquote>
+有种“因为公司安排（半周年）和工商而聚在一起的频率已经够高了所以没必要私下再搞个伊甸组五人联动了”的感觉，赛艇工商还没搞完，距离ahamo工商也没过几天，ahamo推特头图还是条子的那个40度迷惑豆猫呢
+
+说到近况
+
+条子大家都懂
+
+axia今天刚跟pt玩了分手厨房
+
+教授最近与其说是归犬山不如说是归谁叔
+
+至于豆猫架子……希望早日治好自闭
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11153#       发表于 2022-3-2 23:49
+
+[https://www.nicovideo.jp/watch/sm40105152](https://www.nicovideo.jp/watch/sm40105152)
+
+かわいいっす。
+
+
+
+*****
+
+####  alcoholic1000  
+##### 11154#       发表于 2022-3-3 00:27
+
+ 本帖最后由 alcoholic1000 于 2022-3-3 00:30 编辑 
+
+被工商紧密联系的同期，很牢固而又稳定啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我们gamers感觉就没真正熟起来过，却又不像夜王国一样坦率摆烂（好健康的关系）
+
+Syl，Masae姐贵（Yugo Asuma）的乐队经历？...视觉不错
+[https://www.youtube.com/watch?v=iJ74kvMN6hY](https://www.youtube.com/watch?v=iJ74kvMN6hY)
+[https://www.youtube.com/watch?v=QE7YWKnBu0s](https://www.youtube.com/watch?v=QE7YWKnBu0s)
+
+*****
+
+####  fastary  
+##### 11155#       发表于 2022-3-3 00:42
+
+bls一个几乎不播一个刚休两个月
+
