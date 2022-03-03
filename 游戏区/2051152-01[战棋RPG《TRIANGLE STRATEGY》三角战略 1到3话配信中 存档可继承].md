@@ -3379,3 +3379,84 @@ tox2tob不是还不错嘛
 
 什么？这个游戏居然没转职的？？？
 
+
+
+*****
+
+####  feizong  
+##### 303#       发表于 2022-3-3 15:43
+
+问问哪家店有实体发货吗？看了一圈不光涨价厉害，发货时间都是各种晚。是不是想尽早玩到只有数字版一个选择
+
+*****
+
+####  战狼PTSD  
+##### 304#       发表于 2022-3-3 15:43
+
+没转职可以，至少打磨下关卡设计
+
+我最近最沉迷的战旗反而是INTO THE BREACH
+
+*****
+
+####  战狼PTSD  
+##### 305#       发表于 2022-3-3 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903150&amp;ptid=2051152" target="_blank">feizong 发表于 2022-3-3 15:43</a>
+
+问问哪家店有实体发货吗？看了一圈不光涨价厉害，发货时间都是各种晚。是不是想尽早玩到只有数字版一个选择 ...</blockquote>
+最近HK那边爆炸，实体晚发货很正常，等着就行了，没必要加价吃现和买数字版，这游戏肯定要上PC，到时候卡带会掉价很快
+
+*****
+
+####  minysun  
+##### 306#       发表于 2022-3-3 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903063&amp;ptid=2051152" target="_blank">flyzzhj 发表于 2022-3-3 15:36</a>
+
+什么？这个游戏居然没转职的？？？</blockquote>
+有上位职业的老FE式转职，没有剑客变法师的TO类的平转。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1|多谢！|
+
+查看全部评分
+
+*****
+
+####  kirito_wst  
+##### 307#       发表于 2022-3-3 15:50
+
+还有一点就是，好像只有初始8人有第三种最终职业，通过轶事收的角色都只有一个上位职业
+
+*****
+
+####  TheOccuria  
+##### 308#       发表于 2022-3-3 15:56
+
+系统只要能玩就行了，主要想看一下剧情评价，观望看你们的感受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  feizong  
+##### 309#       发表于 2022-3-3 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903160&amp;ptid=2051152" target="_blank">战狼PTSD 发表于 2022-3-3 15:44</a>
+
+最近HK那边爆炸，实体晚发货很正常，等着就行了，没必要加价吃现和买数字版，这游戏肯定要上PC，到时候卡 ...</blockquote>
+最近时间比较少，还不想开始玩老头环，本来想着玩玩switch轻松些，现在看来只能等了
+
+*****
+
+####  Petilil  
+##### 310#       发表于 2022-3-3 16:00
+
+反正从试玩版来看系统上可以说是集众家之所短，剧情再不行那就是雷作了
+

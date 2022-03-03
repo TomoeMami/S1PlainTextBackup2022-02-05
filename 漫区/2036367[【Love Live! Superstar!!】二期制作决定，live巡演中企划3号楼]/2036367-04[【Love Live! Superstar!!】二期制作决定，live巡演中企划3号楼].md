@@ -17835,3 +17835,25 @@ FM1ixyXacAECbpo.jpg
 
 要是不进ll企划，感觉也没啥好留意的了，说不定以后会上鲤鱼的节目?但是两中国人在一起说日语感觉怪怪的...<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 5976#       发表于 2022-3-3 15:53
+
+yami看了下，之前不认识，身材真好啊。有这身材就走一只萌路线不亏啊。或者本来就一直和一只萌路线差不多。
+
+*****
+
+####  一个陆仁贾  
+##### 5977#       发表于 2022-3-3 15:54
+
+ 本帖最后由 一个陆仁贾 于 2022-3-3 15:57 编辑 
+
+你们说的这人是不是在微博也有号那个？
+
+看了一下，有时候照片的脸感觉和鱼有点像，说不出来哪里像
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
