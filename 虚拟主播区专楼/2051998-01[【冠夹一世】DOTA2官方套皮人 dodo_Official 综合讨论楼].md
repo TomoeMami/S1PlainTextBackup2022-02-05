@@ -4105,3 +4105,14 @@ do子今天还可以
 
 一点进来就是pa+snk的阵容。。。。
 
+
+
+*****
+
+####  lpsquirrel  
+##### 489#       发表于 2022-3-3 19:42
+
+这把pa为啥不更一个大毒球呢？
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
