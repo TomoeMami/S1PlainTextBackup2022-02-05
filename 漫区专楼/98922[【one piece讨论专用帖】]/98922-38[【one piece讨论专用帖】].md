@@ -13006,3 +13006,12 @@ cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是�
 所以说路飞和橡胶的区别的是路飞的拳头能拐弯？
 也许有一天路飞会遇到真正的橡胶果实能力者<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  刹那の劍  
+##### 56558#       发表于 2022-3-3 12:09
+
+CP0这么容易得手也是，请问德雷克重伤了个寂寞吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
