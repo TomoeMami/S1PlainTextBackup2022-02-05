@@ -3253,3 +3253,40 @@ fami这评价跟没评价一样
 驻扎所买的书说3个骑士或者3个鹰弓组队能发挥很强的作用，但目前看角色简介这俩职业都没3个人，可能有得 ...</blockquote>
 他的意思估计应该是骑士+鹰弓一共3个……后期入队个骑射不就够了吗233
 
+
+
+*****
+
+####  艾特娜  
+##### 290#       发表于 2022-3-3 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54898400&amp;ptid=2051152" target="_blank">逆旅行客 发表于 2022-3-3 09:49</a>
+
+他的意思估计应该是骑士+鹰弓一共3个……后期入队个骑射不就够了吗233</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">也不排除只是说说，连2骑+1鹰和1骑+2鹰都不给你
+
+TOB剧情还好吧，听偷跑的人说后面剧情不错
+
+*****
+
+####  makar0601  
+##### 291#       发表于 2022-3-3 10:18
+
+tox2tob不是还不错嘛
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  六至九  
+##### 292#       发表于 2022-3-3 10:24
+
+等一周风评，稳的话玩一玩，上次玩带时间轴SRPG还是星光幻歌了
+
+*****
+
+####  thez  
+##### 293#       发表于 2022-3-3 10:26
+
+系统就别指望转职了，只能多收集一下同伴吧
+
