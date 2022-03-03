@@ -18043,3 +18043,22 @@ yami今年24岁…………就是不知道她日语咋样，真走鱼那条路�
 这也是我当初记得清楚的原因，我当初就想多少是发行单曲的艺人为什么不分到这一栏呢，就有点疑惑。后来说服自己的答案是日本网站维护拉胯的传统艺能，有点延迟很正常
 你说的这个理由确实，这个分类也就是作为对外的一个看板有点参考意义，但没啥必要较真<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5991#       发表于 2022-3-3 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904351&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-3-3 17:05</a>
+这也是我当初记得清楚的原因，我当初就想多少是发行单曲的艺人为什么不分到这一栏呢，就有点疑惑。后来说 ...</blockquote>
+对事务所不太了解，我挺好奇事务所这种艺人的界面一般是给普通人（粉丝）看，还是给有需求的甲方看。
+（或者说主要服务人群是啥）
+
+*****
+
+####  lj205  
+##### 5992#       发表于 2022-3-3 17:30
+
+鲤鱼我记得一开始只在cos栏
+

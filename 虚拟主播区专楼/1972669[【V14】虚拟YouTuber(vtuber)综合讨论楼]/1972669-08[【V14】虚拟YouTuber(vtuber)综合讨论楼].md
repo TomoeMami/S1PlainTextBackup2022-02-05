@@ -7609,3 +7609,15 @@ smc两人联动一直没断过，已经赢过不知道多少人了，而且还�
 
 彩虹男v看有盗版黄片木口女v被扒描图抄袭，大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11171#       发表于 2022-3-3 17:44
+
+<blockquote>[ymen：](https://twitter.com/Yamien_san/status/1499147758476791809?s=20&amp;t=78Asw9OtQAKUFCfXUoD9fw)
+
+とても迷いに迷ったのですが、どうしても何もせずに居るということができず、誠に勝手ながら皆さまからいただいたYouTubeメンバーシップ及びTwitchの収益からの一部を、侵攻の被害に遭われている方々への人道的支援に繋がるよう祈って、寄付金として使用させていただければと思います……</blockquote>
+怎么又捐了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
