@@ -3142,3 +3142,28 @@ fami这评价跟没评价一样
 
 素质难比ffta
 
+
+
+*****
+
+####  黑爪爪  
+##### 280#       发表于 2022-3-3 07:48
+
+ 本帖最后由 黑爪爪 于 2022-3-3 07:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54889217&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-2 15:05</a>
+
+打到第三章才在盐国收集到了一本什么游记の三（描写世界观的）。问一下是不是前两章也可以搜刮到这套书的前 ...</blockquote>
+
+只摸过前几天的试玩版开头，手头已经有诺泽利亚游记的8和12卷了
+
+应该是在第一次城内散步时翻到的
+
+*****
+
+####  a2276382  
+##### 281#       发表于 2022-3-3 07:49
+
+这作是ns独占么
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
