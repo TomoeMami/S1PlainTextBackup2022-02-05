@@ -13127,3 +13127,12 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 
 这NM都三连跪了，比沙鳄那次还离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Zcjy023  
+##### 56571#       发表于 2022-3-4 00:10
+
+前面的铁块用法都错了，原来是个控，直接把皇级霸王缠绕给定住了，就离谱
+
