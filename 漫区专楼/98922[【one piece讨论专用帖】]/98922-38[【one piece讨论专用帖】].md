@@ -13033,3 +13033,14 @@ CP0这么容易得手也是，请问德雷克重伤了个寂寞吗<img src="http
 
 接下来就是觉醒挂了吧
 
+
+
+*****
+
+####  bas3721  
+##### 56561#       发表于 2022-3-3 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54892808&amp;ptid=98922" target="_blank">yeluffy 发表于 2022-3-2 19:17</a>
+cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是被偷袭倒是能圆一下… ...</blockquote>
+图出来了 cp0已经贴路飞身了
+
