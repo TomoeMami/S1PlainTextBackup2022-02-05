@@ -3340,3 +3340,12 @@ tox2tob不是还不错嘛
 
 大家会买限定版吗？我很好奇那个大盒子里有啥。如果是类似于八方旅人的那种立体书的话我就买了，如果限定版只是扑克牌和骰子的话还是算了。。。
 
+
+
+*****
+
+####  反方向的波  
+##### 299#       发表于 2022-3-3 14:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">观望了
+
