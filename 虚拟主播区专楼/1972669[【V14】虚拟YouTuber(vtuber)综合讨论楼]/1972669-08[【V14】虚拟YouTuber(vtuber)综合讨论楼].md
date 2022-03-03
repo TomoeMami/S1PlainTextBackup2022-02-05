@@ -7648,3 +7648,12 @@ smc两人联动一直没断过，已经赢过不知道多少人了，而且还�
 
 你虹最red最in的几个retard别聊时政就问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 11175#       发表于 2022-3-3 18:53
+
+用管厕的说法就是 糊就是最好的保护色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

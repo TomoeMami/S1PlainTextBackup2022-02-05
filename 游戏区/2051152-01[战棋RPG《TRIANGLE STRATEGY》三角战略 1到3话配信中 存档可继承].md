@@ -3613,3 +3613,91 @@ tox2tob不是还不错嘛
 
 — from HUAWEI LYA-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  dren_zheng  
+##### 326#       发表于 2022-3-3 18:45
+
+横转乐趣在于收集其他职业的技能，增加培养的乐趣
+
+不能横转的乐趣在于如何精确分配资源培养出优秀角色
+
+乐趣点不同，各有利弊吧。现在似乎前者更流行被玩家接受一点，毕竟轻度玩家多
+
+如果一款游戏能反复刷刷刷自由关卡，或者各种资源，但又不能横转，那是很奇怪的，精分
+
+*****
+
+####  何处分可  
+##### 327#       发表于 2022-3-3 18:48
+
+mc的评分什么时候出啊，明天就发售了
+
+*****
+
+####  Niyah  
+##### 328#       发表于 2022-3-3 18:49
+
+只希望个性化的技能能多一些，玩起来可以脑补更多内容
+
+*****
+
+####  Winder07  
+##### 329#       发表于 2022-3-3 18:50
+
+战旗真不喜欢刷刷刷，太累了
+
+*****
+
+####  caine1992  
+##### 330#       发表于 2022-3-3 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54905578&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-3 18:45</a>
+
+横转乐趣在于收集其他职业的技能，增加培养的乐趣
+
+不能横转的乐趣在于如何精确分配资源培养出优秀角色
+
+乐趣 ...</blockquote>
+自由关卡一次给2个石头，技能三层，每层5-6个，点到后面需要15个石头点一次技能
+
+玩到现在没有超大范围aoe，过一次自由关卡最少也需要5分钟左右
+
+感觉刷是可以刷，但没必要
+
+
+
+*****
+
+####  繭  
+##### 331#       发表于 2022-3-3 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903026&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-3 15:33</a>
+对我八方就买的欧美限定，感觉欧版一直都不错。反正这次也是全语言的吧。。。 ...</blockquote>
+这次语言都可以直接调的
+以及刚刚才知道se日本之前搞过一个满赠活动相当于买一套日版豪华版就送欧版除了外壳之外的特典<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mqnwbeebwnqm  
+##### 332#       发表于 2022-3-3 18:51
+
+自由关卡不是拿来保底练角色的吗，算经验击杀那一套我觉得是糟粕
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  h122h  
+##### 333#       发表于 2022-3-3 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54905641&amp;ptid=2051152" target="_blank">繭 发表于 2022-3-3 18:51</a>
+
+这次语言都可以直接调的
+
+以及刚刚才知道se日本之前搞过一个满赠活动相当于买一套日版豪华版就送欧版除了 ...</blockquote>
+并不是，可以去看看活动细则，是要额外买一套豪华版的钱的周边才给欧版限定的铁盒之类。
+[https://bbs.saraba1st.com/2b/for ... ;page=2#pid54625045](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2051186&amp;page=2#pid54625045)
+

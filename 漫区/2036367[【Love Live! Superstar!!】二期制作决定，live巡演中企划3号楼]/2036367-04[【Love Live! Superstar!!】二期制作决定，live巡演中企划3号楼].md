@@ -18075,3 +18075,59 @@ yami今年24岁…………就是不知道她日语咋样，真走鱼那条路�
 
 能不能奶一个唐姐
 
+
+
+*****
+
+####  ykyin09  
+##### 5994#       发表于 2022-3-3 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特地搜了一下yami的ins，头像一眼鲤鱼，但是多看两眼又不像了。
+
+*****
+
+####  优妮可  
+##### 5995#       发表于 2022-3-3 18:49
+
+<img src="https://img.saraba1st.com/forum/202203/03/184901kn9f669a3f3t3fee.jpg" referrerpolicy="no-referrer">
+
+<strong>20220303_183921.jpg</strong> (157.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/184902kysyb7gggbztbbh4.jpg" referrerpolicy="no-referrer">
+
+<strong>20220303_183926.jpg</strong> (63.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/184902seg48x02puezg5qw.jpg" referrerpolicy="no-referrer">
+
+<strong>20220303_184137.jpg</strong> (66.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/03/184903utdfnv18jyfytogn.jpg" referrerpolicy="no-referrer">
+
+<strong>20220303_184141.jpg</strong> (56.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-3 18:49 上传
+
+*****
+
+####  nufawneafg  
+##### 5996#       发表于 2022-3-3 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904618&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-3 17:21</a>
+对事务所不太了解，我挺好奇事务所这种艺人的界面一般是给普通人（粉丝）看，还是给有需求的甲方看。
+（ ...</blockquote>
+这我也不太清楚，官网里唯一对甲方有点参考意义的就是声音样本了，但这年头真有听声音样本主动出击的甲方？不多吧应该
+
