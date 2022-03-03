@@ -17941,3 +17941,26 @@ nagi:我的穿衣也和恋有点像。第一次公开私服的时候，当时就
 
 看hori pro官网把yami在模特 coser 部分，应该就是往这方面发展了，不像鱼是放在歌手和coser栏目。
 
+
+
+*****
+
+####  nufawneafg  
+##### 5982#       发表于 2022-3-3 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903610&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-3-3 16:19</a>
+看hori pro官网把yami在模特 coser 部分，应该就是往这方面发展了，不像鱼是放在歌手和coser栏目。 ...</blockquote>
+鲤鱼也是最近放进去的，以前一直是孤零零在coser栏里，似乎就前一段时间官网更新放进去的。
+不过我觉得他前段时间官网更新最大的亮点是machico的新公式照，多少年没换了终于给换了，挺漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 5983#       发表于 2022-3-3 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903708&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-03-03 16:24:58</a>
+鲤鱼也是最近放进去的，以前一直是孤零零在coser栏里，似乎就前一段时间官网更新放进去的。
+不过我觉得他 ...</blockquote>不是吧，cos这一栏都是后面才加的，之前她是只在歌手里？还是后来才给她的分的类？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

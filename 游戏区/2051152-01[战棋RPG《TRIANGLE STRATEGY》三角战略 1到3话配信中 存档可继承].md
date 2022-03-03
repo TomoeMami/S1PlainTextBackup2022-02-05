@@ -3486,3 +3486,26 @@ tox2tob不是还不错嘛
 
 先观望了，等楼友评价再做判断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windtrack  
+##### 314#       发表于 2022-3-3 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903437&amp;ptid=2051152" target="_blank">hhgjf 发表于 2022-3-3 16:06</a>
+
+不明白为什么要在意平转。我就是希望各单位之间独特性强点，战术基于这些独特性的有机配合。现代FE搞平转， ...</blockquote>
+自由BUILD的乐趣刷刷刷到烂强花式吊打 
+
+非自由BUILD的乐趣是资源分配攻略难点
+
+本游戏从试玩感受上是非自由build资源无限攻略无难点可随意死亡的关卡
+
+*****
+
+####  先生空气  
+##### 315#       发表于 2022-3-3 16:44
+
+别惦记平转了，英杰传老火纹不能平转的srpg太多了，我只担心剧情垃圾
+

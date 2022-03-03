@@ -2628,3 +2628,16 @@ ios登顶了，但是还是要说一句飞机社飞马
 自由时间只有一个约会，但是还差1领导力开，前面的各种选项都开完了，迷宫任务也没有，有什么办法可以不浪 ...</blockquote>
 没有，而且点了不亏，3章最后一天30G队长的交流要35领导力，你不用体力加属性怎么也不可能凑到的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 234#       发表于 2022-3-3 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903404&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2022-3-3 16:04</a>
+没有，而且点了不亏，3章最后一天30G队长的交流要35领导力，你不用体力加属性怎么也不可能凑到的 ...</blockquote>
+我就是在说这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
