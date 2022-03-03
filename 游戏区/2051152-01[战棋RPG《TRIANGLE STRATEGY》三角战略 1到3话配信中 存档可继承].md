@@ -3460,3 +3460,29 @@ tox2tob不是还不错嘛
 
 反正从试玩版来看系统上可以说是集众家之所短，剧情再不行那就是雷作了
 
+
+
+*****
+
+####  caine1992  
+##### 311#       发表于 2022-3-3 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903303&amp;ptid=2051152" target="_blank">TheOccuria 发表于 2022-3-3 15:56</a>
+
+系统只要能玩就行了，主要想看一下剧情评价，观望看你们的感受了</blockquote>
+7章以后差不多每章一个分支，玩到第九章感觉还行
+
+*****
+
+####  hhgjf  
+##### 312#       发表于 2022-3-3 16:06
+
+不明白为什么要在意平转。我就是希望各单位之间独特性强点，战术基于这些独特性的有机配合。现代FE搞平转，往RPG靠拢的路线我不认为是维持genre生命力的唯一选择。
+
+*****
+
+####  齿轮轴君  
+##### 313#       发表于 2022-3-3 16:08
+
+先观望了，等楼友评价再做判断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
