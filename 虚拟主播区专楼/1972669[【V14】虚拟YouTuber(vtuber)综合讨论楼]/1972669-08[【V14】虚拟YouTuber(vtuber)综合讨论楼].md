@@ -7437,3 +7437,14 @@ Syl，Masae姐贵（Yugo Asuma）的乐队经历？...视觉不错
 
 bls一个几乎不播一个刚休两个月
 
+
+
+*****
+
+####  winda  
+##### 11156#       发表于 2022-3-3 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mnnt因为nrk骨折的原因2周年纪念直播也没了，至于什么时候补遥遥无期
+
+12月在圭利那玩panicube时候还打赌让他来参加mnnt的企划，现在看来根本用不上www
+
