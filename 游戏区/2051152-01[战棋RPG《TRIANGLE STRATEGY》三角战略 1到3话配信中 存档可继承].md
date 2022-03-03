@@ -3852,3 +3852,21 @@ MC 12家媒体84
 那你怎么看SFC版的皇骑2自带练习模式呢</blockquote>
 我没玩过皇骑2……
 
+
+
+*****
+
+####  leachiman  
+##### 349#         楼主| 发表于 2022-3-3 23:23
+
+关于RPG部分搜东西记得多转转视角
+
+*****
+
+####  oskneo  
+##### 350#       发表于 2022-3-3 23:39
+
+现在哪家有现货
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -13118,3 +13118,12 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 情报是cp0从背后抓住了路飞胳臂，路飞站着挨了抡圆的一下。这剧情发展好歹算有一点意思吧，不过感觉下一 ...</blockquote>
 看文字情报和看漫画差别真是大
 
+
+
+*****
+
+####  saturnus  
+##### 56570#       发表于 2022-3-3 23:32
+
+这NM都三连跪了，比沙鳄那次还离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
