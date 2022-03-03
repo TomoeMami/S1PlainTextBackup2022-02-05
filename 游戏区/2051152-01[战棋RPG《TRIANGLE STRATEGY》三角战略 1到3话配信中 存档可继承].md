@@ -3509,3 +3509,46 @@ tox2tob不是还不错嘛
 
 别惦记平转了，英杰传老火纹不能平转的srpg太多了，我只担心剧情垃圾
 
+
+
+*****
+
+####  Humpy  
+##### 316#       发表于 2022-3-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904011&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-3 16:44</a>
+别惦记平转了，英杰传老火纹不能平转的srpg太多了，我只担心剧情垃圾</blockquote>
+英杰传我怎么记得是可以平转的……
+当初关公走麦城那关我记得有攻略是推荐关羽转成步兵系然后从森林走的。
+
+*****
+
+####  feizong  
+##### 317#       发表于 2022-3-3 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903437&amp;ptid=2051152" target="_blank">hhgjf 发表于 2022-3-3 16:06</a>
+
+不明白为什么要在意平转。我就是希望各单位之间独特性强点，战术基于这些独特性的有机配合。现代FE搞平转， ...</blockquote>
++1，我就特别不喜欢能随意转职后的FE，没有特色。
+
+*****
+
+####  allenz3  
+##### 318#       发表于 2022-3-3 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903668&amp;ptid=2051152" target="_blank">windtrack 发表于 2022-3-3 16:22</a>
+
+自由BUILD的乐趣刷刷刷到烂强花式吊打 
+
+非自由BUILD的乐趣是资源分配攻略难点</blockquote>
+这东西自己调控了，至少困难模式很容易两三刀就死角色，在意这个的（比如我）直接读档，悠闲玩家直接刷级走起就行。近年来的火纹和机战为了迁就轻度玩家都变什么难度了，从两个demo看三角战略在关卡设计上还是在线的。
+
+*****
+
+####  逆旅行客  
+##### 319#       发表于 2022-3-3 16:59
+
+不喜欢横转的设定+1，横转最后结果往往就是一堆同质化滥强角色
+
+刚看了A9的一个帖子说了一些后期队友的职业设定，看起来本作职业之间差异还是挺大的，特别是那个技能取决于地形的职业我很喜欢，就是不知道实际上手以后怎么样
+

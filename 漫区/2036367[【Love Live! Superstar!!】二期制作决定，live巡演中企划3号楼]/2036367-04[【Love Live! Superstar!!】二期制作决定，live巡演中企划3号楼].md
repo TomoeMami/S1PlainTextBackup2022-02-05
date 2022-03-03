@@ -17964,3 +17964,70 @@ nagi:我的穿衣也和恋有点像。第一次公开私服的时候，当时就
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 5984#       发表于 2022-3-3 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903708&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-3-3 16:24</a>
+
+鲤鱼也是最近放进去的，以前一直是孤零零在coser栏里，似乎就前一段时间官网更新放进去的。
+
+不过我觉得他 ...</blockquote>
+最开始事务所官网就没有分类
+
+*****
+
+####  cat1230  
+##### 5985#       发表于 2022-3-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903431&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-3-3 16:06</a>
+
+yami今年24岁…………就是不知道她日语咋样，真走鱼那条路也不是不可能。自带百万rtc粉丝，优势真的 ...</blockquote>
+百度没找到她的歌，她以前有翻唱翻跳过啥日语歌么，或者跳韩团舞或者宅舞吗
+
+*****
+
+####  cybernetics31  
+##### 5986#       发表于 2022-3-3 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904063&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-3-3 16:47</a>
+百度没找到她的歌，她以前有翻唱翻跳过啥日语歌么，或者跳韩团舞或者宅舞吗 ...</blockquote>
+没，她基本就是cos，不像鱼，感觉应该就是模特和coser
+
+*****
+
+####  D麦林  
+##### 5987#       发表于 2022-3-3 16:50
+
+点进去一看发现和不少我关注的本子画师共同关注就感觉不一般
+
+刷了一下图
+
+要说大不大……确实大……<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 5988#       发表于 2022-3-3 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54903797&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-3 16:30</a>
+不是吧，cos这一栏都是后面才加的，之前她是只在歌手里？还是后来才给她的分的类？
+
+  -- 来自 能看大图的  ...</blockquote>
+要不就是我记错了，去年末上他官网，我还记得很清楚MUSICIAN那栏是奇数位艺人，最后那位是抱着小提琴的小姐姐yurika
+现在上鲤鱼就在她后面了，也有可能是我记错了？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+查了查网页快照可惜只有主页面快照
+
+*****
+
+####  aoaoaodedede  
+##### 5989#       发表于 2022-3-3 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54904184&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-3-3 16:54</a>
+
+要不就是我记错了，去年末上他官网，我还记得很清楚MUSICIAN那栏是奇数位艺人，最后那位是抱着小提琴的小 ...</blockquote>
+这个说法其实没意义，鲤鱼都歌手出道了不分在MUSICIAN那里也说不过去吧
+
