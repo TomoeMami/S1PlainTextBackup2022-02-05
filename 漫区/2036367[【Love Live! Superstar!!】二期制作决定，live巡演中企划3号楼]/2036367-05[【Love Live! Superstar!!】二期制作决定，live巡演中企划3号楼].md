@@ -229,3 +229,73 @@ nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 看样子是17年左右
 
+
+
+*****
+
+####  名津流  
+##### 6022#       发表于 2022-3-4 00:46
+
+ 本帖最后由 名津流 于 2022-3-4 00:56 编辑 
+
+鲤鱼那次上 anisong神曲 节目的时候说，原本不喜欢吃拉面，但是被朋友推荐一起去吃一兰拉面，吃了后觉得这家店很不错
+
+<img src="https://img.saraba1st.com/forum/202203/04/003802h828692nq59swsdn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220304003633.png</strong> (125.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:38 上传
+
+<img src="https://img.saraba1st.com/forum/202203/04/003802yjtt4odiz4eqn9tl.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20220304003720.png</strong> (134.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:38 上传
+
+那么，这个好友是谁呢？
+
+<img src="https://img.saraba1st.com/forum/202203/04/004233ogf27wbg2fy2g07f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220304004213.png</strong> (86.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:42 上传
+
+找了下鲤鱼发这张照片的17年的原推，这里她@的这个chanbaekkailu1，就是今天成了同事的yami所以这个推荐liyuu吃一兰拉面，并最后拍了这张上节目的照片的人应该就是yami
+
+<img src="https://img.saraba1st.com/forum/202203/04/004437thmk9d790ndr49r4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:44 上传
+
+我合理怀疑，horipro签yami这件事，没有liyuu这个好闺蜜从中牵线搭桥我是不信的
+
+*****
+
+####  优妮可  
+##### 6023#       发表于 2022-3-4 00:46
+
+<img src="https://img.saraba1st.com/forum/202203/04/004631qkdzqzzqwwiggqso.jpg" referrerpolicy="no-referrer">
+
+<strong>20220304_004439.jpg</strong> (337.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/04/004631mam3w934o9togz4b.jpg" referrerpolicy="no-referrer">
+
+<strong>20220304_004434.jpg</strong> (321.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:46 上传
+
