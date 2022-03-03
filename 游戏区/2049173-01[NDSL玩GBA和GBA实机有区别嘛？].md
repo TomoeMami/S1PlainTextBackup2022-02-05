@@ -2681,3 +2681,41 @@ SP的除开按键矮点，结构应该是一样的。
 
 刚好在EZ的群里，他们群友说ezjr对电压要求比较高，GBP又本来天生弱电体质，如果想用gbp玩ezjr，最好改锂电不然续航什么的就比较惨
 
+
+
+*****
+
+####  zris  
+##### 200#         楼主| 发表于 2022-3-4 00:26
+
+<img src="https://img.saraba1st.com/forum/202203/04/002543j3j3ff39nnj1fo85.jpg" referrerpolicy="no-referrer">
+
+<strong>6ca906c0-549b-4978-9ec2-e08368e3ac0e.jpg</strong> (147.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202203/04/002543iyublvbmd029j90u.jpg" referrerpolicy="no-referrer">
+
+<strong>9e310440-23b5-4167-a4ff-43be16326150.jpg</strong> (149.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202203/04/002543owq1w02uqczqt29v.jpg" referrerpolicy="no-referrer">
+
+<strong>6fbd3bb8-0fd2-44ba-8ff6-2c364226e021.jpg</strong> (237.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-4 00:25 上传
+
+把之前一个屏幕有瑕疵的101改成ips加绿宝石壳了
+还是有点酸爽。
+
+镜面贴的一般，但是就这样凑合吧<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
