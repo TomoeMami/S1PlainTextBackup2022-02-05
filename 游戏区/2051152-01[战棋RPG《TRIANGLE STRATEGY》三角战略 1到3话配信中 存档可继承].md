@@ -3241,3 +3241,15 @@ fami这评价跟没评价一样
 
 提醒下这作主要剧本是山本尚基，代表作：tox2、toz、tob<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逆旅行客  
+##### 289#       发表于 2022-3-3 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54898041&amp;ptid=2051152" target="_blank">艾特娜 发表于 2022-3-3 09:27</a>
+
+驻扎所买的书说3个骑士或者3个鹰弓组队能发挥很强的作用，但目前看角色简介这俩职业都没3个人，可能有得 ...</blockquote>
+他的意思估计应该是骑士+鹰弓一共3个……后期入队个骑射不就够了吗233
+
