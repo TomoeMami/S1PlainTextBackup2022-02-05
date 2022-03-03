@@ -3904,3 +3904,12 @@ MC 12家媒体84
 
 看了RPGSite的测评，虽然只打了7分但内文的评价够高了，主要问题还是战前剧情操作部分过长，然后就是一个有多分支剧情难写的问题，特别是主角很难塑造。
 
+
+
+*****
+
+####  riin1  
+##### 354#       发表于 2022-3-4 06:08
+
+之前八方的问题是剧情比重太小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看来SE已经失去了做出好的2d rpg的能力了
+
