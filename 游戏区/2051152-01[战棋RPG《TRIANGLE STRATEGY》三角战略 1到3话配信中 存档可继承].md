@@ -3210,3 +3210,34 @@ fami这评价跟没评价一样
 
 以及现在看来每个角色只有一种升级路线，也只有一件武器？会有隐藏职业和隐藏武器之类的设定吗？
 
+
+
+*****
+
+####  艾特娜  
+##### 286#       发表于 2022-3-3 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54897348&amp;ptid=2051152" target="_blank">稲穂信 发表于 2022-3-3 08:26</a>
+
+以及现在看来每个角色只有一种升级路线，也只有一件武器？会有隐藏职业和隐藏武器之类的设定吗？ ...</blockquote>
+驻扎所买的书说3个骑士或者3个鹰弓组队能发挥很强的作用，但目前看角色简介这俩职业都没3个人，可能有得转职？不太确定
+
+*****
+
+####  riin1  
+##### 287#       发表于 2022-3-3 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54897121&amp;ptid=2051152" target="_blank">黑爪爪 发表于 2022-3-2 15:48</a>
+
+只摸过前几天的试玩版开头，手头已经有诺泽利亚游记的8和12卷了
+
+应该是在第一次城内散步时翻到的 ...</blockquote>
+原来不是按顺序的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 我感觉我强迫症应该收集不齐了
+
+*****
+
+####  zikimi  
+##### 288#       发表于 2022-3-3 09:34
+
+提醒下这作主要剧本是山本尚基，代表作：tox2、toz、tob<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
