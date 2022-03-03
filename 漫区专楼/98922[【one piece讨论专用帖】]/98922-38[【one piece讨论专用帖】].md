@@ -13053,3 +13053,12 @@ cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是�
 
 才尽才尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 56563#       发表于 2022-3-3 14:41
+
+尾田就别遮遮掩掩了，直接说五黄什么牛逼轰轰的果实就得了
+
