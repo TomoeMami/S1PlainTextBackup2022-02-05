@@ -3167,3 +3167,28 @@ fami这评价跟没评价一样
 
 —— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  艾特娜  
+##### 282#       发表于 2022-3-3 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54896176&amp;ptid=2051152" target="_blank">johanliebert 发表于 2022-3-3 00:48</a>
+
+都正式版了操作还这么蹩脚，加个血条不行，摆个地图棋盘格子也不行，播片剧情可以skip，战斗剧情可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按Y就能显示血条和行动顺序啊
+
+*****
+
+####  蓮華  
+##### 283#       发表于 2022-3-3 08:17
+
+ 本帖最后由 蓮華 于 2022-3-3 08:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54897127&amp;ptid=2051152" target="_blank">a2276382 发表于 2022-3-3 07:49</a>
+
+这作是ns独占么
+
+—— 来自 realme RMX3310, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+最近se给ns出的几个比如八方和bdff2什么的后来都出PC版了，我看这个也是
+
