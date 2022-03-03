@@ -7637,3 +7637,14 @@ smc两人联动一直没断过，已经赢过不知道多少人了，而且还�
 
 不至于吧，捐给的是民众又不是()…而且国内黑客又没啥粉也没几个人没事去看他魂号
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11174#       发表于 2022-3-3 18:30
+
+没人翻译没人懂，经常看魂号的也没多少人
+
+你虹最red最in的几个retard别聊时政就问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -18062,3 +18062,16 @@ yami今年24岁…………就是不知道她日语咋样，真走鱼那条路�
 
 鲤鱼我记得一开始只在cos栏
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5993#       发表于 2022-3-3 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yami
+
+还没公布CV的时候我一开始觉得这人可能也是候选之一，记得也是上海人
+
+能不能奶一个唐姐
+
