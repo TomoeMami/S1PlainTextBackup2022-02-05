@@ -12968,3 +12968,31 @@ cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是�
 
 这次路飞是真没力气打了，但是看情报好像路飞要觉醒啊
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56554#       发表于 2022-3-3 10:43
+
+情报这路飞不还是完全打不过凯多
+凯老师又一棒教学了，这次要教什么，觉醒还是五档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  天使的日曜日  
+##### 56555#       发表于 2022-3-3 10:47
+
+处处透露着四档副作用，“要在四档时间内干掉他”这是我最后的四档”“堵住嘴以防漏气四档要消失了”
+下一话估计真的要觉醒了来自: iPhone客户端
+
+*****
+
+####  武男  
+##### 56556#       发表于 2022-3-3 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54884510&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-3-2 08:57</a>
+
+路飞也要关东煮了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你听说过路飞行的故事嘛
+

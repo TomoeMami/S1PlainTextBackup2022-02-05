@@ -3290,3 +3290,35 @@ tox2tob不是还不错嘛
 
 系统就别指望转职了，只能多收集一下同伴吧
 
+
+
+*****
+
+####  稲穂信  
+##### 294#       发表于 2022-3-3 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54898995&amp;ptid=2051152" target="_blank">thez 发表于 2022-3-3 10:26</a>
+
+系统就别指望转职了，只能多收集一下同伴吧</blockquote>
+那感觉系统可挖掘程度就不太值得期待了啊
+
+*****
+
+####  艾特娜  
+##### 295#       发表于 2022-3-3 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54898995&amp;ptid=2051152" target="_blank">thez 发表于 2022-3-3 10:26</a>
+
+系统就别指望转职了，只能多收集一下同伴吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了解包的小人，没DLC的话肯定是没得转职了，鹰弓总共还只有2个
+
+*****
+
+####  稲穂信  
+##### 296#       发表于 2022-3-3 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54899472&amp;ptid=2051152" target="_blank">艾特娜 发表于 2022-3-3 10:57</a>
+
+看了解包的小人，没DLC的话肯定是没得转职了，鹰弓总共还只有2个</blockquote>
+那只能指望大规模的敌方人数来增加乐趣了……
+
