@@ -8029,7 +8029,7 @@
     "newtitle": "[]",
     "lastedit": 1646107670,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2055006": {
     "totalreply": 73,
@@ -8421,7 +8421,7 @@
     "newtitle": "[]",
     "lastedit": 1646267052,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2055594": {
     "totalreply": 113,
@@ -8509,7 +8509,7 @@
     "newtitle": "[]",
     "lastedit": 1646269587,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2055527": {
     "totalreply": 67,
@@ -8525,6 +8525,6 @@
     "newtitle": "[]",
     "lastedit": 1646269470,
     "category": "外野",
-    "active": false
+    "active": true
   }
 }
