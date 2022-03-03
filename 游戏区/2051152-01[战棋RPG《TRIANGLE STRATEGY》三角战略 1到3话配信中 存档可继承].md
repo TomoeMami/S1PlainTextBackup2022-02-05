@@ -3322,3 +3322,12 @@ tox2tob不是还不错嘛
 看了解包的小人，没DLC的话肯定是没得转职了，鹰弓总共还只有2个</blockquote>
 那只能指望大规模的敌方人数来增加乐趣了……
 
+
+
+*****
+
+####  thez  
+##### 297#       发表于 2022-3-3 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我现在期待就是剧情别喂屎的情况下有一些设计不错的关卡打完就行
+

@@ -12996,3 +12996,13 @@ cp0偷袭攻击了吗？为啥就路飞分神凯多不分神？卡二那次是�
 路飞也要关东煮了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你听说过路飞行的故事嘛
 
+
+
+*****
+
+####  24k纯帅  
+##### 56557#       发表于 2022-3-3 11:01
+
+所以说路飞和橡胶的区别的是路飞的拳头能拐弯？
+也许有一天路飞会遇到真正的橡胶果实能力者<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
