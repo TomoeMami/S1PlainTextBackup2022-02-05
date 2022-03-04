@@ -1610,3 +1610,15 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 有没有推荐的主机服务器啊，日服打不下去了，转换器大佐队打不过啊
 
+
+
+*****
+
+####  X9999  
+##### 94#       发表于 2022-3-4 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54827345&amp;ptid=2046838" target="_blank">全装甲夏亚 发表于 2022-2-25 13:52</a>
+
+有没有推荐的主机服务器啊，日服打不下去了，转换器大佐队打不过啊</blockquote>
+去欧服玩，欧服的就喜欢打架
+

@@ -4036,3 +4036,71 @@ Hard真的难，第7关将军一刀砍我150，见谁秒谁，最后只能靠铁
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hard难度下不死人是真的很难，不过死亡没惩罚，死就死了。女将军砍我这里除了拿盾的壮壮其他所有人都是一刀秒，好在gameover了也能继承经验，就当练级了。
 
+
+
+*****
+
+####  Bani82  
+##### 367#       发表于 2022-3-4 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54912000&amp;ptid=2051152" target="_blank">桐道悠 发表于 2022-3-4 10:34</a>
+
+hard难度下不死人是真的很难，不过死亡没惩罚，死就死了。女将军砍我这里除了拿盾的壮壮其他所有人 ...</blockquote>
+那说明其实关卡还是有设计的咯，但是死亡没惩罚以及GO大法很难让人管住手啊
+
+*****
+
+####  allenz3  
+##### 368#       发表于 2022-3-4 10:48
+
+ 本帖最后由 allenz3 于 2022-3-4 10:49 编辑 
+
+玩游戏最重要是开心嘛，我买的实体不知道啥时候才能发货<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，很急
+
+还是有做点打磨的，测试版第7关开不开机关战后没有区别
+
+*****
+
+####  WINDDEVIL86  
+##### 369#       发表于 2022-3-4 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这作这个战斗内容的比例显然就以剧情为主了
+
+然而这个剧情认真的吗。。。
+
+又臭又长，看着就是一帮缺心眼儿互相算计，抖机灵，假深沉，装逼…
+
+就单说开头，以下剧透：
+第一话里那个劫匪缺心眼儿一样自曝姓名，而且港口的居民还知道他。我以为后面得全国通缉抓他呢，结果我都打4话了，再没人提这个事儿了。劫持他国公主未遂这是个不值一提的小事儿么？
+
+大陆上3大强国之一的2公主去另一个国家和亲，居然不带护卫，下船的时候和护卫们说你们走吧，我和一个女仆我俩就行...
+
+然后就男主带着管家也不带护卫，甚至没准备马车啥的，走着就去港口迎亲了，我是想如果这样那是不是表示男主国家至少港口特安全啊，结果连劫匪都知道公主到港的日子，居然还能埋伏在港口，这治安是有多差啊？
+
+后面这种弱智桥段真的是越来越多，又破坏气氛又拖时间。
+
+反正玩到现在感觉就是一群人在那过家家，一股子小家子气扑面而来，说好的国家博弈最后变成一群人叨逼叨卖蠢卖萌卖人设。
+
+就这剧本质量还碰瓷皇家骑士团？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+你要说扩大战斗部分的比例，让人打爽了研究爽了也行，偏偏这作的意思还真就剧情主导，就差告诉你是AVG了，然后这剧情整成这样……
+
+*****
+
+####  先生空气  
+##### 370#       发表于 2022-3-4 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">GAMEOVER还会继承经验？那我只能每次GAMEOVER退出主菜单了。。
+
+希望不要GAME OVER，之前试玩版火烧自家那关我个人是打的挺痛苦的
+
+*****
+
+####  天妇罗  
+##### 371#       发表于 2022-3-4 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54912000&amp;ptid=2051152" target="_blank">桐道悠 发表于 2022-3-4 10:34</a>
+
+hard难度下不死人是真的很难，不过死亡没惩罚，死就死了。女将军砍我这里除了拿盾的壮壮其他所有人 ...</blockquote>
+gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
+
