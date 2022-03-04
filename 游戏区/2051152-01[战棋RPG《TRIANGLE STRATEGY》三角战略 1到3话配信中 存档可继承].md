@@ -4027,3 +4027,12 @@ Hard真的难，第7关将军一刀砍我150，见谁秒谁，最后只能靠铁
 
 剧透：好像是隐藏章节的条件
 
+
+
+*****
+
+####  桐道悠  
+##### 366#       发表于 2022-3-4 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hard难度下不死人是真的很难，不过死亡没惩罚，死就死了。女将军砍我这里除了拿盾的壮壮其他所有人都是一刀秒，好在gameover了也能继承经验，就当练级了。
+
