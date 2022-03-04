@@ -4145,3 +4145,19 @@ gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
 
 土匪父女能收吗
 
+
+
+*****
+
+####  PigMourne  
+##### 376#       发表于 2022-3-4 12:09
+
+这次是全区都有中文+日配吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  听风不是雨  
+##### 377#       发表于 2022-3-4 12:15
+
+这个三选一不显示具体加的是什么性格属性还挺怪的，想控都没法控
+
