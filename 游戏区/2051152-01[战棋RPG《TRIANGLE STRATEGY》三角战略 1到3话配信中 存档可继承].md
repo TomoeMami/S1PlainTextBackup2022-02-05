@@ -4255,3 +4255,31 @@ mc84怎么也不会很粪吧<img src="https://static.saraba1st.com/image/smiley/
  ...</blockquote>
 对，demo1就是这个关卡
 
+
+
+*****
+
+####  caine1992  
+##### 387#       发表于 2022-3-4 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54914421&amp;ptid=2051152" target="_blank">minysun 发表于 2022-3-4 13:42</a>
+
+第七章选了不送基友路线，有选送出基友路线的坛友讲讲另一条线发生了啥故事？打另一支忠犬家？
+
+ ...</blockquote>
+被铁国按头打法库斯家，然后基友黑化
+
+*****
+
+####  caine1992  
+##### 388#       发表于 2022-3-4 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54912286&amp;ptid=2051152" target="_blank">WINDDEVIL86 发表于 2022-3-4 10:56</a>
+
+这作这个战斗内容的比例显然就以剧情为主了
+
+然而这个剧情认真的吗。。。
+
+又臭又长，看着就是一帮缺 ...</blockquote>
+解释过了本来是个秘密消息，结果盾卫大嘴巴四处宣扬所以才导致泄密的
+
