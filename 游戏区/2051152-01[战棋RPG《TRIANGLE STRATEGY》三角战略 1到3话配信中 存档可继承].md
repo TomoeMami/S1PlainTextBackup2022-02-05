@@ -4283,3 +4283,17 @@ mc84怎么也不会很粪吧<img src="https://static.saraba1st.com/image/smiley/
 又臭又长，看着就是一帮缺 ...</blockquote>
 解释过了本来是个秘密消息，结果盾卫大嘴巴四处宣扬所以才导致泄密的
 
+
+
+*****
+
+####  riin1  
+##### 389#       发表于 2022-3-4 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54905641&amp;ptid=2051152" target="_blank">繭 发表于 2022-3-3 02:51</a>
+
+这次语言都可以直接调的
+
+以及刚刚才知道se日本之前搞过一个满赠活动相当于买一套日版豪华版就送欧版除了 ...</blockquote>
+我看了欧版开箱了，那个盒子还真的就是个外壳。和八方的那个立体画差远了。不买限定了，直接数字版走起
+
