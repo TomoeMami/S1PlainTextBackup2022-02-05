@@ -4436,3 +4436,21 @@ https:// ...</blockquote>
 
 火纹厨真的。。。很爱来踩一脚
 
+
+
+*****
+
+####  Piano-Forest  
+##### 401#       发表于 2022-3-4 22:29
+
+<img src="https://p.sda1.dev/5/6c77d9b1ada77fa7ccb31d092ef0ee9c/013.jpg" referrerpolicy="no-referrer">
+
+OST封面
+<img src="https://p.sda1.dev/5/b1e3a7ef078e88591c2fd7b1bb0e6b8c/20220304_221843.jpg" referrerpolicy="no-referrer">
+
+发售贺图（漆原）
+<img src="https://p.sda1.dev/5/5d1681e949ca393d167f1622bb38100c/20220304_221834.jpg" referrerpolicy="no-referrer">
+
+デザイナー生島直樹
+<img src="https://p.sda1.dev/5/c2348b962e18d67a7fd27a9415513e59/20220304_222037.jpg" referrerpolicy="no-referrer">
+
