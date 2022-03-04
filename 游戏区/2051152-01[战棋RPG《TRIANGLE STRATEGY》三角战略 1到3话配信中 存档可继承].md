@@ -4357,3 +4357,22 @@ mc84怎么也不会很粪吧<img src="https://static.saraba1st.com/image/smiley/
 
 第一个剧透非常有用，已经下单
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 395#       发表于 2022-3-4 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54916265&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-4 16:19</a>
+
+感谢，不引用了，不然反白会失效
+
+第一个剧透非常有用，已经下单</blockquote>
+二周目继承要素也算剧透的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我还在贴吧找了通关继承要素的图打算贴出来，那还是算了……
+[https://tieba.baidu.com/p/7746581871](https://tieba.baidu.com/p/7746581871)
+
+贴个链接好了，帖子里有二周目的继承要素。
+
