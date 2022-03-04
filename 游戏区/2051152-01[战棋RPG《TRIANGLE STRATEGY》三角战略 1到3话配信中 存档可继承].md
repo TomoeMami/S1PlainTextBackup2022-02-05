@@ -3993,3 +3993,16 @@ MC 12家媒体84
 
 Hard真的难，第7关将军一刀砍我150，见谁秒谁，最后只能靠铁匠搭梯子，几个法师和射手龟到上层屋顶打过了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kirito_wst  
+##### 363#       发表于 2022-3-4 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54910529&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-3-4 08:27</a>
+Hard真的难，第7关将军一刀砍我150，见谁秒谁，最后只能靠铁匠搭梯子，几个法师和射手龟到上层屋顶打过了[f ...</blockquote>
+将军好像回合数没到或者不触发罗兰叫阵的剧情不会动的？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
