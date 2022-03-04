@@ -7949,3 +7949,12 @@ VTuber事務所「ホロライブプロダクション」は、英語圏で活�
 
 希望EN STAR能活到出一个50W订阅的吧。
 
+
+
+*****
+
+####  OldGlory  
+##### 11202#       发表于 2022-3-4 23:29
+
+属于不撞南墙不回头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
