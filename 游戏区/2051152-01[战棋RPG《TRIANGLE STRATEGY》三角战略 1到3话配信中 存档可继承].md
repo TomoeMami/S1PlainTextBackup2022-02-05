@@ -4396,3 +4396,21 @@ mc84怎么也不会很粪吧<img src="https://static.saraba1st.com/image/smiley/
 
 等盘中，试玩版感觉srpg部分虽有亮点但也远达不到惊艳，希望后续的关卡能做的宏大一些
 
+
+
+*****
+
+####  dren_zheng  
+##### 398#       发表于 2022-3-4 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54916356&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-4 16:27</a>
+
+二周目继承要素也算剧透的吗
+
+我还在贴吧找了通关继承要素的图打算贴出来，那还是算了……
+
+https:// ...</blockquote>
+毕竟别人觉得是剧透反白了，我不好再反黑。我是无所谓的
+
+太好了，我就喜欢刷刷刷游戏
+
