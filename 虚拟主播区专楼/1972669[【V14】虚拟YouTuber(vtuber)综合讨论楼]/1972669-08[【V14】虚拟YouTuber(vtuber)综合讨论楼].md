@@ -7884,3 +7884,16 @@ obsydia: 8 months</blockquote>看4ch也在说5ch喜欢en（最近海外串刷的
 
 机台要完结了 半年加速
 
+
+
+*****
+
+####  fastary  
+##### 11196#       发表于 2022-3-4 19:22
+
+草昨天我还在虹楼说虹谜暂时没有要完结的迹象，今天机台就先宣布要完结了
+
+怕不是下期虹谜也要宣布完结了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+希望只是想减少线下收录的危险，要是打算转型偶像事务所大搞特搞live赚钱我只能说赶紧倒了算了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
