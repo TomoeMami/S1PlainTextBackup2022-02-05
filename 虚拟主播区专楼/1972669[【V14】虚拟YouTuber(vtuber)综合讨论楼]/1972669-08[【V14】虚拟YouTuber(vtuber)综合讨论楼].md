@@ -7852,3 +7852,26 @@ ngo前几天重投，说要减少歌回的chima也开了新歌回，多少回到
 
 Eden组毕竟你虹工商主力，有太多工商都和条子有关了，所以都停了看上去就觉得多了。这样子这种合作提前终止你虹要赔钱的吧，估计条子自己也要赔不少，或者是扣积分
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11194#       发表于 2022-3-4 18:06
+
+没想到这么严重，看5ch之前也只是嘻嘻哈哈的
+
+Syl，也许夏天en6期就来了<blockquote>time between audition and debut
+
+ethyria: 3 months
+
+luxiem: 4.5 months
+
+lazulight: 6 months
+
+noctyx: 6.5 months
+
+obsydia: 8 months</blockquote>看4ch也在说5ch喜欢en（最近海外串刷的飞快），是因为en让他们想起了旧seeds，回到了突发联动和随时出现在其他人频道的旧日时光
+
+看来大家都是同感<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
