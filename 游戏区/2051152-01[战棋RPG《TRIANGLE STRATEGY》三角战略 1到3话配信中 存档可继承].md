@@ -3913,3 +3913,83 @@ MC 12家媒体84
 
 之前八方的问题是剧情比重太小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看来SE已经失去了做出好的2d rpg的能力了
 
+
+
+*****
+
+####  kirito_wst  
+##### 355#       发表于 2022-3-4 08:05
+
+ 本帖最后由 kirito_wst 于 2022-3-4 08:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">速推到了第8章，唯一印象比较深的就是守城那关用不用机关战后剧情会不一样。
+
+还有就是特殊的饰品基本上都是探索模式找到的，最好不要错过（虽然不知道我有没有错过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）不想上班！！！
+
+*****
+
+####  Petilil  
+##### 356#       发表于 2022-3-4 08:07
+
+<blockquote>kirito_wst 发表于 2022-3-4 08:05
+速推到了第8章，唯一印象比较深的就是守城那关用不用机关战后剧情会不一样。
+
+还有就是特殊的饰品基 ...</blockquote>
+与试玩版相比，策略和打法方面有很大变化么
+
+*****
+
+####  艾特娜  
+##### 357#       发表于 2022-3-4 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54910379&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-4 08:07</a>
+
+与试玩版相比，策略和打法方面有很大变化么</blockquote>
+个人觉得最大的变化在于，试玩中一些很强的1费技能，比如冰墙、隐身、+1TP，全都变成2费了
+
+*****
+
+####  先生空气  
+##### 358#       发表于 2022-3-4 08:16
+
+然而第四話两个战前场景直接把我按死在了梦乡
+
+*****
+
+####  kirito_wst  
+##### 359#       发表于 2022-3-4 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54910379&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-4 08:07</a>
+
+与试玩版相比，策略和打法方面有很大变化么</blockquote>
+我没打高难度，感受不到多少策略和打法的变化
+
+不过根据流程会招到更多有特色的角色，用好了应该会很有意思
+
+还有就是现在拿到了开局必定第一个行动的饰品和吸血饰品，如果后面还有更多有特色的饰品，应该搭配也是一个学问。
+
+*****
+
+####  kirito_wst  
+##### 360#       发表于 2022-3-4 08:24
+
+昨天还有一个地方说错了。应该是只有初始8人+第一个分支收到的人物是基础职业，需要用二等勋章晋级高级职业。后面加入的角色直接就是高级职业。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  稲穂信  
+##### 361#       发表于 2022-3-4 08:27
+
+战斗中死亡有什么惩罚吗
+
+*****
+
+####  leachiman  
+##### 362#         楼主| 发表于 2022-3-4 08:27
+
+Hard真的难，第7关将军一刀砍我150，见谁秒谁，最后只能靠铁匠搭梯子，几个法师和射手龟到上层屋顶打过了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
