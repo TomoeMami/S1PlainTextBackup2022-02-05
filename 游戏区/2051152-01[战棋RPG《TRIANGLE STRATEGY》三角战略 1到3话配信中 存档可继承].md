@@ -4161,3 +4161,41 @@ gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
 
 这个三选一不显示具体加的是什么性格属性还挺怪的，想控都没法控
 
+
+
+*****
+
+####  Guildenstern  
+##### 378#       发表于 2022-3-4 12:32
+
+<blockquote>引用第368楼WINDDEVIL86于2022-03-04 10:56发表的  :
+
+这作这个战斗内容的比例显然就以剧情为主了然而这个剧情认真的吗。。。又臭又长，看着就是一帮缺心眼儿互相......</blockquote>
+日本三流编剧的味道扑面而来
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  艾特娜  
+##### 379#       发表于 2022-3-4 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54912286&amp;ptid=2051152" target="_blank">WINDDEVIL86 发表于 2022-3-4 10:56</a>
+
+这作这个战斗内容的比例显然就以剧情为主了
+
+然而这个剧情认真的吗。。。
+
+又臭又长，看着就是一帮缺 ...</blockquote>
+公主是不受待见的侧室女儿，铁国想找个借口攻打王国，她如果死了就正好
+
+*****
+
+####  艾特娜  
+##### 380#       发表于 2022-3-4 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54913450&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-4 12:15</a>
+
+这个三选一不显示具体加的是什么性格属性还挺怪的，想控都没法控</blockquote>
+二周目会显示的，一周目让你根据自己喜好选
+
