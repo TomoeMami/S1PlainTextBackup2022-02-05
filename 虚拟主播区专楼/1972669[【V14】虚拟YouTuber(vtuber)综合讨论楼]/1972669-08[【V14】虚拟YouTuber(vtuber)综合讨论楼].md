@@ -8042,3 +8042,12 @@ cali这破烂裤裆偏偏其他可喷的地方不够多我没法狠狠的弹劾
 
 ↑你查过杏星的订阅增长吗，不然你以为我们为啥不看好enstar
 
+
+
+*****
+
+####  purdre  
+##### 11212#       发表于 2022-3-5 07:42
+
+那我就限制在en这块吧，在订阅这块杏EN基本一直都是在暴打虹EN的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
