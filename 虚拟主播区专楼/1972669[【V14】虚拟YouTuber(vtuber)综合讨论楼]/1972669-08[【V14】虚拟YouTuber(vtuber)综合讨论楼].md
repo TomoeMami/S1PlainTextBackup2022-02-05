@@ -7915,3 +7915,37 @@ obsydia: 8 months</blockquote>看4ch也在说5ch喜欢en（最近海外串刷的
 
 我怎么觉得是ysss其中一个要毕业了？毕竟今年第四年了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 11199#       发表于 2022-3-4 22:53
+
+[https://twitter.com/hololivetv/status/1499746658996813824](https://twitter.com/hololivetv/status/1499746658996813824)
+
+【✨お知らせ✨】
+
+VTuber事務所「ホロライブプロダクション」は、英語圏で活躍する男性タレントVTuberの募集をオーディション形式で開始しました‼️
+
+🔽詳細はこちら🔽
+[https://prtimes.jp/main/html/rd/p/000000632.000030268.html](https://prtimes.jp/main/html/rd/p/000000632.000030268.html)…
+
+*****
+
+####  fastary  
+##### 11200#       发表于 2022-3-4 22:58
+
+虹en男赚大钱cover坐不住了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+看看杏星都死成什么样了，赫赫，虹en男必秒杏en男<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 11201#       发表于 2022-3-4 23:02
+
+正常人都看得出来是这个道理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望EN STAR能活到出一个50W订阅的吧。
+
