@@ -4220,3 +4220,38 @@ gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
 这楼里情报看下来又是个大粪作...?真就是个自嗨厕纸作家硬塞了个三流战旗么? 我还想亏SE居然还愿意出新的战 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个结论得出的挺快的啊，不知玩了几个小时了啊？
 
+
+
+*****
+
+####  minysun  
+##### 383#       发表于 2022-3-4 13:42
+
+第七章选了不送基友路线，有选送出基友路线的坛友讲讲另一条线发生了啥故事？打另一支忠犬家？
+
+*****
+
+####  蓮華  
+##### 384#       发表于 2022-3-4 13:52
+
+mc84怎么也不会很粪吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 385#       发表于 2022-3-4 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头mc也很不靠谱，我只能走下策先云一遍了
+
+*****
+
+####  艾特娜  
+##### 386#       发表于 2022-3-4 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54914421&amp;ptid=2051152" target="_blank">minysun 发表于 2022-3-4 13:42</a>
+
+第七章选了不送基友路线，有选送出基友路线的坛友讲讲另一条线发生了啥故事？打另一支忠犬家？
+
+ ...</blockquote>
+对，demo1就是这个关卡
+
