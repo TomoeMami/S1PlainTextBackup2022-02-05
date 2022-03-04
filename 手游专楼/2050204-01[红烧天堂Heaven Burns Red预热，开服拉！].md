@@ -2641,3 +2641,14 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  poor  
+##### 235#       发表于 2022-3-4 21:18
+
+我真是服了这破池子了，出了3个SS全是初始刷的，我猜你下一个要出国见了吧，可惜我没有石头了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
