@@ -7967,3 +7967,42 @@ VTuber事務所「ホロライブプロダクション」は、英語圏で活�
 
 不懂就问,杏en女主播gachi多吗?招男的会不会一堆人破防
 
+
+
+*****
+
+####  藤原银  
+##### 11204#       发表于 2022-3-5 00:31
+
+ 本帖最后由 藤原银 于 2022-3-5 00:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">cover真是忍不住要发力了
+
+并不看好，虹男必秒杏男！
+
+*****
+
+####  Suzutsuki  
+##### 11205#       发表于 2022-3-5 00:37
+
+EN怎么又要招人，不会又是男人吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11206#       发表于 2022-3-5 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">反正不出enstar，cali这种也会去找vox和coner的
+那至少得出一批不能光让虹en独享这片市场了
+
+*****
+
+####  fastary  
+##### 11207#       发表于 2022-3-5 00:44
+
+ 本帖最后由 fastary 于 2022-3-5 00:45 编辑 
+
+忍不住去看了那个sketchek的观众破防？视频，有种见证小众圈高冷游戏大神突然删号主流偶像出道的感觉……我还挺喜欢sonny说话的，莫名感觉自己像看被抛弃的苦主表演的黄毛一样，有点爽<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+甚至想买份音声听听(
+

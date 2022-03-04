@@ -5205,3 +5205,19 @@ phantom of kill 这游戏真够老的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">停服前公费追星一哈
 
+
+
+*****
+
+####  clvan_  
+##### 9573#       发表于 2022-3-5 00:21
+
+不管停不停服，这联动组合也挺怪的，还能搞好友组合的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 9574#       发表于 2022-3-5 00:37
+
+我是不明白为什么这些游戏都喜欢停服前来一下
+
