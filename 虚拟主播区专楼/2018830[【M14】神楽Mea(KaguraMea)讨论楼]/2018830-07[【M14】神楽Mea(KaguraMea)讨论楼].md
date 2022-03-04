@@ -5180,3 +5180,28 @@ phantom of kill 这游戏真够老的
 
 14年的手游了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rosevalley46  
+##### 9570#       发表于 2022-3-4 23:43
+
+等一个联动完就停服
+
+
+
+*****
+
+####  暗心舞踏  
+##### 9571#       发表于 2022-3-4 23:57
+
+确实是快停服了，这联动搞不好是最后一个更新
+
+*****
+
+####  T_Hb  
+##### 9572#       发表于 2022-3-4 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">停服前公费追星一哈
+

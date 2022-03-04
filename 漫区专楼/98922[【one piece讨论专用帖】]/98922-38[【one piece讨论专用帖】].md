@@ -13184,3 +13184,12 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 御田大概是第一cjb高手了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看你是不是认为他算贝克曼了
 
+
+
+*****
+
+####  少年包工头  
+##### 56577#       发表于 2022-3-4 23:58
+
+看懂的人能不能说一下cp0铁块到底做了什么？我看来看去都像是空大
+

@@ -4472,3 +4472,40 @@ OST封面
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我靠，举报走私这一战难度有点离谱
 
+
+
+*****
+
+####  heseran  
+##### 404#       发表于 2022-3-4 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54920329&amp;ptid=2051152" target="_blank">jimclack 发表于 2022-3-4 22:42</a>
+讨论度有点低，不放心买啊</blockquote>
+先玩体验版呗，能玩三章的内容
+
+*****
+
+####  古畑任三郎2015  
+##### 405#       发表于 2022-3-4 23:48
+
+开头两章剧情不错啊，不知道后面如何
+
+*****
+
+####  ff2077  
+##### 406#       发表于 2022-3-4 23:57
+
+等谭友玩到后面吧，主角看着一副深明大义的样子，不知道能不能来点混沌邪恶的路线<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  jimclack  
+##### 407#       发表于 2022-3-5 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54920954&amp;ptid=2051152" target="_blank">heseran 发表于 2022-3-4 23:44</a>
+
+先玩体验版呗，能玩三章的内容</blockquote>
+玩了，剧情细腻挺喜欢的，但是细腻不等于剧情好，而且太啰嗦有点催眠，而且战斗部分占比太少，还是等网友评价后面的吧
+
