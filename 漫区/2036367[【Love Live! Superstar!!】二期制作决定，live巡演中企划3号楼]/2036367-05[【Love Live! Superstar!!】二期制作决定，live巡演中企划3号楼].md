@@ -310,3 +310,12 @@ nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/
 鲤鱼那次上 anisong神曲 节目的时候说，原本不喜欢吃拉面，但是被朋友推荐一起去吃一兰拉面，吃了后觉得这 ...</blockquote>
 感觉没必要过多猜测吧。
 
+
+
+*****
+
+####  cybernetics31  
+##### 6025#       发表于 2022-3-4 09:08
+
+没必要猜，鱼和yami很早就认识，都拍过天麻的cos，嘴唇都快亲上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
