@@ -4104,3 +4104,19 @@ hard难度下不死人是真的很难，不过死亡没惩罚，死就死了。�
 hard难度下不死人是真的很难，不过死亡没惩罚，死就死了。女将军砍我这里除了拿盾的壮壮其他所有人 ...</blockquote>
 gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
 
+
+
+*****
+
+####  稲穂信  
+##### 372#       发表于 2022-3-4 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54912286&amp;ptid=2051152" target="_blank">WINDDEVIL86 发表于 2022-3-4 10:56</a>
+
+这作这个战斗内容的比例显然就以剧情为主了
+
+然而这个剧情认真的吗。。。
+
+又臭又长，看着就是一帮缺 ...</blockquote>
+比勇气默示录3还是好多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

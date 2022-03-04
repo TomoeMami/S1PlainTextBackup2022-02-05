@@ -349,3 +349,27 @@ nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 看以后能拿出啥作品再说吧，还不知道走不走音乐这条路呢，粉鲤鱼也不是因为她是coser<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6029#       发表于 2022-3-4 11:06
+
+ 本帖最后由 Enakina 于 2022-3-4 11:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54912139&amp;ptid=2036367" target="_blank">player3960 发表于 2022-03-04 10:45:20</a>
+看以后能拿出啥作品再说吧，还不知道走不走音乐这条路呢，粉鲤鱼也不是因为她是coser ...</blockquote>Yami明显是要走模特和coser的，能不能成先不说，应该会像是伊织萌或者enako那种。她的拍照风格就是那种特别大尺度的感觉，也靠这种吸了不少粉，推特都100w了，放着自己的优势不用，去和卷的不能在卷的声优，歌手卷，那也太怪了。而且鲤鱼如果没加入企划的话，那个惨烈的粉丝转换率应该给horipro一个教训了。鲤鱼应该是一直想做歌手的，早年一直就在投翻唱，cos做的也特别保守，青纯，明显是她的一个兴趣和爱好。虽然身材上肯定没法和她们比，但如果她真的想，还是可能收获比现在更多的粉丝数的，但她明显没那个打算。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nufawneafg  
+##### 6030#       发表于 2022-3-4 11:11
+
+ 本帖最后由 nufawneafg 于 2022-3-4 11:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54911975&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-4 10:33</a>
+果然成熟后的🐟吸引我，要是还是上面这样我估计直接绕道了</blockquote>
+早年间化妆突出一个乱画，是我这种外行人也能看出来的不合适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+十五六岁学化妆更多的重心就在尝试和玩上
+
