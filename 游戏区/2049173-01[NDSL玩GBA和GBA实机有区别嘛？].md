@@ -2736,3 +2736,18 @@ SP的除开按键矮点，结构应该是一样的。
 
 不过毕竟是60多块的东西…也许档次高的锂电池能坚持更久，但对我来说已经够用了
 
+
+
+*****
+
+####  zris  
+##### 202#         楼主| 发表于 2022-3-4 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54914012&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-3-4 13:09</a>
+结果还是随便买了四节锂电池
+标称1900mah
+武馆屏最大亮度，最大音量，运行老任自己的烤机rom</blockquote>
+7个小时可以了，我之前用那个尼玛的两个小时就扛不住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

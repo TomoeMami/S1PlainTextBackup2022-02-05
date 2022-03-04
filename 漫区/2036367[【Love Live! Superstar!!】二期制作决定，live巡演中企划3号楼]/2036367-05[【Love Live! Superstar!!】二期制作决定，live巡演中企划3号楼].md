@@ -420,3 +420,14 @@ nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 2022-3-4 16:23 上传
 
+
+
+*****
+
+####  musicat  
+##### 6034#       发表于 2022-3-4 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54911599&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-3-4 10:03</a>
+这张原来是yami...不太了解coser，以前还真不认识...小姑娘真是长开了，不过那个时候就能看出差距了啊[f: ...</blockquote>
+大魔王与小和和<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
