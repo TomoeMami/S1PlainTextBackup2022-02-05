@@ -13161,3 +13161,26 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 
 感觉玲玲年轻时的样子和幼年中年存在着巨大的认知断层啊…………………………
 
+
+
+*****
+
+####  Van夫膜开  
+##### 56575#       发表于 2022-3-4 09:21
+
+有个解析说橡胶果实可能是第一个被造出来的恶魔果实，现在想想还挺合理的。
+
+看着恶魔果实图鉴，橡胶果实的样子感觉跟橡胶一点关系都没有，从观感上有点暗暗果实的。
+
+当然要说尾田一开始的时候恶魔果实设计和现在的设计思路不一样，那么没啥说的。
+
+*****
+
+####  武男  
+##### 56576#       发表于 2022-3-4 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54909656&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2022-3-4 01:45</a>
+
+御田大概是第一cjb高手了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">看你是不是认为他算贝克曼了
+
