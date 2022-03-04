@@ -4120,3 +4120,19 @@ gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
 又臭又长，看着就是一帮缺 ...</blockquote>
 比勇气默示录3还是好多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zzzeven  
+##### 373#       发表于 2022-3-4 11:39
+
+想要下单了，不知道现在剧情的评价怎么样
+
+*****
+
+####  HGCG3  
+##### 374#       发表于 2022-3-4 11:41
+
+第一个三选一就遇到一个巨魔选项……
+
