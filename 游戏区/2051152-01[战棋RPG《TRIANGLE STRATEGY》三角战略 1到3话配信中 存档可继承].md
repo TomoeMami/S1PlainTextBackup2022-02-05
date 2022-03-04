@@ -4006,3 +4006,24 @@ Hard真的难，第7关将军一刀砍我150，见谁秒谁，最后只能靠铁
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  valas  
+##### 364#       发表于 2022-3-4 10:19
+
+第7关不烧房子剧情有啥不同吗？没刷级Hard难度试了两次都翻车，女将军砍我方都是一刀秒。
+
+*****
+
+####  kirito_wst  
+##### 365#       发表于 2022-3-4 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54911795&amp;ptid=2051152" target="_blank">valas 发表于 2022-3-4 10:19</a>
+
+第7关不烧房子剧情有啥不同吗？没刷级Hard难度试了两次都翻车，女将军砍我方都是一刀秒。 ...</blockquote>
+非剧透：领民会感谢你
+
+剧透：好像是隐藏章节的条件
+

@@ -319,3 +319,15 @@ nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 没必要猜，鱼和yami很早就认识，都拍过天麻的cos，嘴唇都快亲上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 6026#       发表于 2022-3-4 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54910901&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-3-4 09:08</a>
+没必要猜，鱼和yami很早就认识，都拍过天麻的cos，嘴唇都快亲上了</blockquote>
+这张原来是yami...不太了解coser，以前还真不认识...小姑娘真是长开了，不过那个时候就能看出差距了啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/c3775f3f10cd96c048a5099b7b1cdff0/IMG_CMP_145139483.jpeg" referrerpolicy="no-referrer">
+
