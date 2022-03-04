@@ -4208,3 +4208,15 @@ gameover继承经验这个我还以为是demo的bug，这个设计有点怪啊
 
 这楼里情报看下来又是个大粪作...?真就是个自嗨厕纸作家硬塞了个三流战旗么? 我还想亏SE居然还愿意出新的战旗IP...暂时不黑它手游厂呢
 
+
+
+*****
+
+####  桐道悠  
+##### 382#       发表于 2022-3-4 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54914095&amp;ptid=2051152" target="_blank">cih 发表于 2022-3-4 13:16</a>
+
+这楼里情报看下来又是个大粪作...?真就是个自嗨厕纸作家硬塞了个三流战旗么? 我还想亏SE居然还愿意出新的战 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个结论得出的挺快的啊，不知玩了几个小时了啊？
+
