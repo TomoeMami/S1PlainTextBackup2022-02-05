@@ -8033,3 +8033,12 @@ cali这破烂裤裆偏偏其他可喷的地方不够多我没法狠狠的弹劾
 
 放心，en star订阅必将爆杀大部分虹EN主播，在订阅增长这块杏不管是哪里都还是比虹强的，不过ccv嘛就得靠主播自己努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11211#       发表于 2022-3-5 06:24
+
+↑你查过杏星的订阅增长吗，不然你以为我们为啥不看好enstar
+
