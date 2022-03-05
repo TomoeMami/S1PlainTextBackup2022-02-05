@@ -8412,3 +8412,19 @@ zsyl
 
 怎么还有萌萌白皮破防哭“nijien和holoen为什么不能像nijijp和holojp一样多多联动而要对立呢”“holoen的姑娘持友好态度niji却当她们是敌人好可怜”的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 11255#       发表于 2022-3-5 18:40
+
+都说了仇恨教育没用了，，自己翻翻梓毛营收
+
+*****
+
+####  藤原银  
+##### 11256#       发表于 2022-3-5 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">炎不死就往死里炎，团建是双向的团建
+

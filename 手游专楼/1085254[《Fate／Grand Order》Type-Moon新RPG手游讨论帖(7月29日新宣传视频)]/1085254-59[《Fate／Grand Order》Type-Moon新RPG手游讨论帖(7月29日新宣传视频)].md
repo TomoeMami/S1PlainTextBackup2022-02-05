@@ -1327,3 +1327,34 @@ c狗终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 这次的问答大会太生草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87120#       发表于 2022-3-5 18:28
+
+ 本帖最后由 alucardcz 于 2022-3-5 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927395&amp;ptid=1085254" target="_blank">J-002 发表于 2022-3-5 17:25</a>
+
+还有别的APP所以肯定要做一次整机内容复制啊，所以想知道FGO账号是怎么算的
+
+  -- 来自 能看大图的 Stage1 ...</blockquote>
+我之前换１３ｐｍ的时候就是直接引继的。。。我怕。。万一出问题就不好玩了
+
+所以还是建议你保存好引继码　然后备份　恢复　　如果能直接登陆　那就好　　不能在通过引继码继承　留好后路　
+
+对了。我换机那天特意半夜起来搞的。。真的怕出事
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| J-002| + 2|感谢建议|
+
+查看全部评分
+
