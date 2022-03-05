@@ -8559,3 +8559,46 @@ u1s1，郡道现在的咖位应该比这位大<img src="https://static.saraba1st
 
 看到彩虹人这么阴湿我就放心了，什V什粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11269#       发表于 2022-3-6 01:41
+
+ 本帖最后由 alcoholic1000 于 2022-3-6 01:43 编辑 
+
+打一天游戏错过虹杏大战了...!
+
+<img src="https://img.saraba1st.com/forum/202203/06/012639feanli493bbi9jlj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>calli_personally.jpeg</strong> (46.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-6 01:26 上传
+
+谨代表自己向Calli及杏投降，I KNEEL🏳️
+
+顺便搬点4ch看5ch看4ch
+
+<img src="https://img.saraba1st.com/forum/202203/06/013929qie2eqb0m89eqa82.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2ch is enjoying it .jpeg</strong> (464.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-6 01:39 上传
+
+ <blockquote>&gt;"Like listeners, like livers"
+
+&gt;"Nijisanji is soooo warm!"
+
+&gt;"This is just like Niji"
+
+&gt;Nijifags deflecting and holofags striking back
+
+And funniest of all
+
+&gt;"Calli-nee kakkoii (for unfollowing all of them)"</blockquote>
+
