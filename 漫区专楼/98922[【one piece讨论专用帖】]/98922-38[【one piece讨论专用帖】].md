@@ -13280,3 +13280,15 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 那岂不是还可以变身成超赛</blockquote>
 四档的发型真的有点超赛那味的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 56586#       发表于 2022-3-5 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54929373&amp;ptid=98922" target="_blank">SNOWIMEA 发表于 2022-3-5 20:32</a>
+
+贴吧看到一个Monkey D. Luffy悟空果实说，转给大家看为什么果实几百年不觉醒，因为猴哥被镇压了500 ...</blockquote>
+笑死，希望他下次再编一篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

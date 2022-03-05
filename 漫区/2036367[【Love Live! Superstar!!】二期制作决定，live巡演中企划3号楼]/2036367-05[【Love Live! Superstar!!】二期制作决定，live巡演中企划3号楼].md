@@ -585,3 +585,13 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 今天水6，有说看到鱼也去了的，坐等返图</blockquote>
 关系席上看到了？
 
+
+
+*****
+
+####  lj205  
+##### 6051#       发表于 2022-3-5 21:22
+
+这个联动会玩
+这比赛要怎么看？网上有直播吗？
+
