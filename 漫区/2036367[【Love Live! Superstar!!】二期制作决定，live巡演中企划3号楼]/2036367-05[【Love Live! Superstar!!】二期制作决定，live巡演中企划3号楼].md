@@ -556,3 +556,21 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 
 养乐多粉丝本人激怒
 
+
+
+*****
+
+####  cybernetics31  
+##### 6048#       发表于 2022-3-5 20:20
+
+今天水6，有说看到鱼也去了的，坐等返图
+
+*****
+
+####  一个陆仁贾  
+##### 6049#       发表于 2022-3-5 20:22
+
+结果没什么字幕嘛，其实水后期的很多歌都有点听不进去，这次有点不想买bd了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
