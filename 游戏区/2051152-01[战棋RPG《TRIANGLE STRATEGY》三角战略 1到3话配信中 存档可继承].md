@@ -4925,3 +4925,23 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  听风不是雨  
+##### 452#       发表于 2022-3-6 04:10
+
+ 本帖最后由 听风不是雨 于 2022-3-6 05:16 编辑 
+
+玩到选完交不交罗兰，感觉这游戏像是拿着火纹经典王子复国记剧本的三国志加上类皇家骑士团的战棋系统<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稲穂信  
+##### 453#       发表于 2022-3-6 04:16
+
+ 本帖最后由 稲穂信 于 2022-3-6 04:17 编辑 
+
+如果系统中后期没啥大变化的话，有点没通关动力了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
