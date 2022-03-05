@@ -4848,3 +4848,16 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 打到13关，投票走的绿线，不知道是Hard难度还是选了个难关，被一顿乱秒，最后靠绝技把两个弓手送到塔顶龟过了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Byronli000  
+##### 444#       发表于 2022-3-5 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54928928&amp;ptid=2051152" target="_blank">Winder07 发表于 2022-3-5 19:54</a>
+那是你对应的信念值不够，多刷刷</blockquote>
+真结局条件是又要拿三个钥匙，信念又要足够高吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
