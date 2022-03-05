@@ -4817,3 +4817,14 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 练级就是去酒场？
 
+
+
+*****
+
+####  kirito_wst  
+##### 441#       发表于 2022-3-5 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好像被坑了，一周目就算拿到三把钥匙也进不了男主线，17话根本没有第四个选项。
+
+如果真是这样的话，一周目完全可以随心所欲地走路线，算是给大家踩雷了
+
