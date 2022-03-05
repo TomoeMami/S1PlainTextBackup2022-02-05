@@ -4767,3 +4767,14 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 4条线，其中3条19话，1条21话。达成条件也能在一周目进入21话的线</blockquote>
 完全是凭感觉瞎选的，大概只能等二周目了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拉姆扎  
+##### 436#       发表于 2022-3-5 16:37
+
+几个女的简直各种圣母，还不好说服，又不能送掉……等二周目了，先圣母路线<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

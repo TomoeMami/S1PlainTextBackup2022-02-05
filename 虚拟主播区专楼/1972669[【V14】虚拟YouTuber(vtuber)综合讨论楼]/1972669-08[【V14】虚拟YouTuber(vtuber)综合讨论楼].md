@@ -8139,3 +8139,44 @@ oreapo一周年也不搞活动，看来分手了<img src="https://static.saraba1
 
 什么时候开打
 
+
+
+*****
+
+####  OldGlory  
+##### 11222#       发表于 2022-3-5 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54926392&amp;ptid=1972669" target="_blank">空集 发表于 2022-3-5 15:42</a>
+我说什么来着，这下白皮绝好的教育素材来了</blockquote>
+白皮小孩子不懂事说着玩的，个别少数言论不应放大化！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 11223#       发表于 2022-3-5 16:41
+
+说的有什么不对吗
+
+*****
+
+####  fastary  
+##### 11224#       发表于 2022-3-5 16:41
+
+有没有中心思想提纯，我的大脑不支持长篇阅读理解了，我只看出来虹en在说杏看到威胁了所以也开始招男人挺好的？？？
+
+*****
+
+####  rzrbtk  
+##### 11225#       发表于 2022-3-5 16:44
+
+像我们清纯友爱的ike哥哥就不会参加这种丑陋的战争，希望杏星en来个人跟我们ike哥哥做跨越阵营的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 11226#       发表于 2022-3-5 16:47
+
+光pomu起手那句this is war就是表面人设加关系性的塌房了 ，可发散的点无穷无尽4ch大概是要不眠之夜了
+
