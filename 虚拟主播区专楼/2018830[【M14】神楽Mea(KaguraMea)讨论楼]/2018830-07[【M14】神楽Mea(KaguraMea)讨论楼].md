@@ -5327,3 +5327,23 @@ phantom of kill 这游戏真够老的
 你咩姐收到的皮肤（观众送的</blockquote>
 啊 原来如此 话说我第一眼理解成了观众送阿咩的新live2D 还在疑惑怎么没人发新live2D的图.....
 
+
+
+*****
+
+####  路人庚  
+##### 9585#       发表于 2022-3-5 19:01
+
+<img src="https://img.saraba1st.com/forum/202203/05/185939vl23pd3d02ixhvpz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B674D905-E65E-494B-9310-28720FECD04C.jpeg</strong> (386.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-5 18:59 上传
+
+【【熟肉／兔羊犬】因幡haneru生日会神乐mea部分-哔哩哔哩】
+[https://b23.tv/UcPkaOS](https://b23.tv/UcPkaOS)
+
+有能烤肉man的全熟（这次的联动也很推荐
+
