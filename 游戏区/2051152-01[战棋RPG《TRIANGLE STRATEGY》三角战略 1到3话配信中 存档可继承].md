@@ -4861,3 +4861,24 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  先生空气  
+##### 445#       发表于 2022-3-5 21:02
+
+<blockquote>minysun 发表于 2022-3-5 18:30
+后面去盐国主城记得多扫扫图搜集线索，直接去肥仔家里现场执法。</blockquote>
+我是在屋子里找到了秘密账本
+
+*****
+
+####  kirito_wst  
+##### 446#       发表于 2022-3-5 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">全流程不死人有饰品奖励
+老婆线结局挺无语的，慎入（虽然很可能其他线也差不多吧）
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -1358,3 +1358,40 @@ c狗终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 查看全部评分
 
+
+
+*****
+
+####  rooarr  
+##### 87121#       发表于 2022-3-5 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54928003&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-5 18:28</a>
+我之前换１３ｐｍ的时候就是直接引继的。。。我怕。。万一出问题就不好玩了
+
+所以还是建议你保存好引继码　 ...</blockquote>
+ios只要有icloud备份好换机都是直接继承的吧，不需要引继才对
+
+*****
+
+####  alucardcz  
+##### 87122#       发表于 2022-3-5 21:08
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 87123#       发表于 2022-3-5 21:08
+
+再翻
+
+*****
+
+####  alucardcz  
+##### 87124#       发表于 2022-3-5 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54929723&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-3-5 21:07</a>
+
+ios只要有icloud备份好换机都是直接继承的吧，不需要引继才对</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不备的　而且我是ｉｐａｄ上的　不是那种手机换手机
+
