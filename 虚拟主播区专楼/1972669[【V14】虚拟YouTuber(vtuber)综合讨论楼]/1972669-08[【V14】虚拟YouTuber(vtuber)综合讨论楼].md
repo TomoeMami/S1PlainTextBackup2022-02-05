@@ -8463,3 +8463,23 @@ zsyl
 
 oreapo一周年<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shpdw  
+##### 11260#       发表于 2022-3-5 20:48
+
+ 本帖最后由 shpdw 于 2022-3-5 20:54 编辑 
+
+前两年还有个人势色彩的时候还能说是意识形态战争，但到现在开战的话正义性已经完全不存在了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11261#       发表于 2022-3-5 20:50
+
+兄啊……别训了……太神秘了
+
+要不咱们还是分手吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
