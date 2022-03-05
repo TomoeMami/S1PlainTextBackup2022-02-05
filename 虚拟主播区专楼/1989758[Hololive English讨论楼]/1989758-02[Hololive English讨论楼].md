@@ -1767,3 +1767,18 @@ Mumei糖，[https://www.youtube.com/watch?v=irySGeMrNSg](https://www.youtube.com
 
 查看全部评分
 
+
+
+*****
+
+####  shimmy1996  
+##### 1657#       发表于 2022-3-5 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54909848&amp;ptid=1989758" target="_blank">M1NG 发表于 2022-3-4 02:33</a>
+关注的几个没看到有做长切片的，不知道有没有神龙在烤，可以贴几个我看过的小片段给你看看，大致可以了解 ...</blockquote>
+Ame今天还提到几个小片段：
+-（只有她看到）kronii走路撞到玻璃上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+-坐在地上吃taco bell 时不小心看到fauna胖次<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+-吃mumei咬了一口的椰子<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+-ame先发现了其他四人向她们挥手，过了一会儿才看到kronii扯ina衣角问那是不是ame<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
