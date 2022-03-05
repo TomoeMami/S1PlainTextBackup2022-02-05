@@ -4733,3 +4733,15 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 一共多少章来着
 
+
+
+*****
+
+####  角色扮演  
+##### 433#       发表于 2022-3-5 15:41
+
+一周目19话吧，二周目有个结局21话。
+目前到15话，三选一！<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
