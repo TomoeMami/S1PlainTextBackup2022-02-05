@@ -470,3 +470,36 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 
 价格还行 挺好的 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6039#       发表于 2022-3-5 16:46
+
+和水一样有延迟吗？
+
+*****
+
+####  aoaoaodedede  
+##### 6040#       发表于 2022-3-5 16:47
+
+换算一下好像差不多5000日元，定价估计都是一样的
+
+*****
+
+####  aoaoaodedede  
+##### 6041#       发表于 2022-3-5 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54926996&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-3-5 16:46</a>
+
+和水一样有延迟吗？</blockquote>
+对比了下官网的时间，也是差半个小时
+
+*****
+
+####  starring  
+##### 6042#       发表于 2022-3-5 16:56
+
+延迟半小时，回放迟一周，不知道会不会加字幕
+

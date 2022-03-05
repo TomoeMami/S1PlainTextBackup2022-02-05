@@ -8180,3 +8180,54 @@ oreapo一周年也不搞活动，看来分手了<img src="https://static.saraba1
 
 光pomu起手那句this is war就是表面人设加关系性的塌房了 ，可发散的点无穷无尽4ch大概是要不眠之夜了
 
+
+
+*****
+
+####  獅白ぼたん  
+##### 11227#       发表于 2022-3-5 16:53
+
+不打会社战争怎么提纯粉丝，争え、もっと争え<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头小希  
+##### 11228#       发表于 2022-3-5 16:53
+
+咋了？啥玩意？什么要开打了？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 11229#       发表于 2022-3-5 16:54
+
+仅代表自己向嗯解投降🏳️🏳️🏳️
+
+*****
+
+####  藤原银  
+##### 11230#       发表于 2022-3-5 16:55
+
+早打，大打，打箱战争
+
+*****
+
+####  _Ra1nMaker  
+##### 11231#       发表于 2022-3-5 16:55
+
+还挺乐的，打起来打起来，起码看到K岛里版变回了以前对立厨横行的时代了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 11232#       发表于 2022-3-5 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实也无所谓，当初vshojo和木口en都准备联动了，然后被扒出来有个成员直播喷木口，最后也没啥事，还是和vshojo别的成员联动了。虹en这本来就没啥和杏en联动的可能，最多就是以后死神再和vox互动可能得被粉丝推特下面直球骂娘罢了。
+
+*****
+
+####  あのん  
+##### 11233#       发表于 2022-3-5 16:59
+
+Factos
+
