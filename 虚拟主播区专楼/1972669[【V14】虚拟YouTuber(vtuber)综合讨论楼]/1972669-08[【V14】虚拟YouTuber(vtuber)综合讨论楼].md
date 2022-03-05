@@ -8365,3 +8365,50 @@ petra直播切屏失误露出来的</blockquote>
 
 只要不打成隔壁92w和29w的舆论结果我都无所谓
 
+
+
+*****
+
+####  OldGlory  
+##### 11250#       发表于 2022-3-5 18:08
+
+2992有什么不好吗，，从事实上看没伤到梓毛反而白送一堆流量，笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  越动天下  
+##### 11251#       发表于 2022-3-5 18:09
+
+2992的前提是木口EN男出来并且大获成功好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  獅白ぼたん  
+##### 11252#       发表于 2022-3-5 18:11
+
+零和竞争的核心就是与敌有害=与我有利
+
+*****
+
+####  _Ra1nMaker  
+##### 11253#       发表于 2022-3-5 18:13
+
+别奶了，虹EN男这么强怕是木口星EN都没人来应聘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 11254#       发表于 2022-3-5 18:24
+
+我说的是虹en和杏en整体……订阅数已经暴杀，虹en男再强感觉也无力回天，就差仇恨教育和白皮杏粉头铁送杏en上sc榜一然后就可以胜利宣言了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+syl
+
+杏女这么强也没见虹女没人应聘啊
+
+zsyl
+
+怎么还有萌萌白皮破防哭“nijien和holoen为什么不能像nijijp和holojp一样多多联动而要对立呢”“holoen的姑娘持友好态度niji却当她们是敌人好可怜”的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
