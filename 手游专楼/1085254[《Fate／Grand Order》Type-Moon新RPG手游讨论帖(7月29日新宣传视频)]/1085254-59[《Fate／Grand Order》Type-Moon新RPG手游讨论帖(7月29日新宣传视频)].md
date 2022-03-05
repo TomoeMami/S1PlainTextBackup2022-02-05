@@ -1269,3 +1269,12 @@ c狗终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 魔术师办企业还贷款啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87115#       发表于 2022-3-5 13:26
+
+穷B路人想搞大事业又打不赢圣杯战争，不就只能贷款了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
