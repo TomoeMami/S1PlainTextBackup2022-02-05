@@ -532,3 +532,27 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 估计没有吧。讲道理，当时水团那个购票页刚上线B站的时候，评论区不少人说的好像真的有字幕的样子，看到 ...</blockquote>
 这样的话还是eplus，毕竟不用梯子而且也能支付宝
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6046#       发表于 2022-3-5 18:49
+
+<img src="https://img.saraba1st.com/forum/202203/05/184931oqwf2ug6x14fssf2.png" referrerpolicy="no-referrer">
+
+<strong>{)}94ILE~E((H8EVYYSCH_E.png</strong> (190.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-5 18:49 上传
+
+*****
+
+####  stygian  
+##### 6047#       发表于 2022-3-5 18:56
+
+好气啊，又是洋联，这种好事永远轮不到央联，妈的星团应该和燕队联动才对的，神宫就在旁边
+
+养乐多粉丝本人激怒
+

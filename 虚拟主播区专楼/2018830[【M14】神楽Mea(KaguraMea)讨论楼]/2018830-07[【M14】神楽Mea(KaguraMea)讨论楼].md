@@ -5315,3 +5315,15 @@ phantom of kill 这游戏真够老的
 这是啥</blockquote>
 你咩姐收到的皮肤（观众送的
 
+
+
+*****
+
+####  呓亘  
+##### 9584#       发表于 2022-3-5 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927863&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-3-5 18:16</a>
+
+你咩姐收到的皮肤（观众送的</blockquote>
+啊 原来如此 话说我第一眼理解成了观众送阿咩的新live2D 还在疑惑怎么没人发新live2D的图.....
+
