@@ -4556,3 +4556,33 @@ OST封面
 
 我选择撤退！
 
+
+
+*****
+
+####  Lamas  
+##### 413#       发表于 2022-3-5 10:12
+
+跟三房比怎么样  有无懂哥
+
+*****
+
+####  稲穂信  
+##### 414#       发表于 2022-3-5 10:23
+
+普通难度开局，想等二周目再转困难的，有点后悔了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 415#       发表于 2022-3-5 10:25
+
+我的实体怎么还不发货，虽然但是我还在火山官邸挣扎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shiko  
+##### 416#       发表于 2022-3-5 10:27
+
+等一个通关剧情评价，只要主线剧情不像三房子那么无聊又尴尬就行，如果能有点感动之类的要素调动情绪就更好了
+

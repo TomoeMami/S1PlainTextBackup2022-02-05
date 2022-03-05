@@ -8069,3 +8069,16 @@ cali这破烂裤裆偏偏其他可喷的地方不够多我没法狠狠的弹劾
 
 最差也就当是新一期杏星呗，还能炸箱不成，而且出道估计还有vox带带，我看他挺喜欢杏的。而且说不定在外国人那里又能实现虹杏联合了捏
 
+
+
+*****
+
+####  fastary  
+##### 11215#       发表于 2022-3-5 10:18
+
+ 本帖最后由 fastary 于 2022-3-5 10:23 编辑 
+
+vox这种事业批要是甚至给外社同赛道竞争对手吸血我都要尊称一句圣人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总觉得看惯了cute anime girl tete 的白皮观众绝对很难接受同箱男人，这与en还是jp无关
+
