@@ -4914,3 +4914,14 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 451#       发表于 2022-3-6 00:27
+
+啊，我才打到demo1的位置，哪位好心人告诉我一下面具男子安到底挂了没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
