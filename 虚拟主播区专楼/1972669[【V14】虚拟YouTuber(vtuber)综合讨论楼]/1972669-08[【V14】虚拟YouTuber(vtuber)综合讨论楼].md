@@ -8231,3 +8231,64 @@ oreapo一周年也不搞活动，看来分手了<img src="https://static.saraba1
 
 Factos
 
+
+
+*****
+
+####  fastary  
+##### 11234#       发表于 2022-3-5 17:31
+
+ 本帖最后由 fastary 于 2022-3-5 17:37 编辑 
+
+推上简单搜了一下，以我的理解似乎是有人泄露了一张nijien的discord截图然后他们在调侃cover本来想保持杏偶像女团纯度结果看到虹en男收入都要超过杏jp又急着也搞en星？(虽然还是没get到怎么就war了)
+
+白皮觉得被瞧不起急了所以开始骂nijien说我们杏en才不偶像营业？
+
+那我好像也没体感错啊，以前当mmr不在乎只是单纯虹en毫无威胁罢了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+↓不是，主要是我没get到pomu为啥突然蹦了个war出来，也没个前情……
+
+*****
+
+####  天使的日曜日  
+##### 11235#       发表于 2022-3-5 17:33
+
+解解没get到是正确的，是杏奴嘴太凶的关系<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11236#       发表于 2022-3-5 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pomu是数字厨这点之前马里奥耐久就露出来过了，但是没想到虹endiscord大群直接聊斗虫，这就是狼性企业社风么
+
+*****
+
+####  ヒトニナル  
+##### 11237#       发表于 2022-3-5 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那么discord截图又是怎么流出来的呢
+
+*****
+
+####  gogomw  
+##### 11238#       发表于 2022-3-5 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还打呢,打得过集美吗
+
+*****
+
+####  毛头小希  
+##### 11239#       发表于 2022-3-5 17:44
+
+商业战也是war啊，没毛病
+
+*****
+
+####  空集  
+##### 11240#       发表于 2022-3-5 17:46
+
+<blockquote>ヒトニナル 发表于 2022-3-5 17:40
+那么discord截图又是怎么流出来的呢</blockquote>
+petra直播切屏失误露出来的  
+
