@@ -1278,3 +1278,43 @@ c狗终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 穷B路人想搞大事业又打不赢圣杯战争，不就只能贷款了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 87116#       发表于 2022-3-5 17:15
+
+旧手机电池快不行了想换个手机，过来问问用搬家助手复制数据后是以下哪个状况
+
+1，账号还在旧机，新机引继过去就行
+2，账号直接在新机，旧机直接空号
+3，新机旧机都是空号，新机要引继过去
+4，新机旧机都可以直接登录账号，不需要引继
+
+比较怕是3，我家网偶尔有点不稳定，怕万一赶上麻烦
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑上シグマ  
+##### 87117#       发表于 2022-3-5 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927287&amp;ptid=1085254" target="_blank">J-002 发表于 2022-3-5 17:15</a>
+
+旧手机电池快不行了想换个手机，过来问问用搬家助手复制数据后是以下哪个状况
+
+1，账号还在旧机，新机引继 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你就不能太平点，新机上下好app以后找个网好的地方引继下吗，也就重下趟一括啊……
+
+*****
+
+####  J-002  
+##### 87118#       发表于 2022-3-5 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927348&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-03-05 17:21:18</a>
+你就不能太平点，新机上下好app以后找个网好的地方引继下吗，也就重下趟一括啊…… ...</blockquote>还有别的APP所以肯定要做一次整机内容复制啊，所以想知道FGO账号是怎么算的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

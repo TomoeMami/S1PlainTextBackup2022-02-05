@@ -503,3 +503,32 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 
 延迟半小时，回放迟一周，不知道会不会加字幕
 
+
+
+*****
+
+####  iuhehc  
+##### 6043#       发表于 2022-3-5 17:05
+
+迟个10来分钟还能接受，迟半小时我还是更愿意在eplus买
+
+*****
+
+####  aoaoaodedede  
+##### 6044#       发表于 2022-3-5 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927107&amp;ptid=2036367" target="_blank">starring 发表于 2022-3-5 16:56</a>
+
+延迟半小时，回放迟一周，不知道会不会加字幕</blockquote>
+估计没有吧。讲道理，当时水团那个购票页刚上线B站的时候，评论区不少人说的好像真的有字幕的样子，看到有拿乃木坂的演唱会打比的，我去看了下，别人宣传页上是写明了“MC配中文字幕”，而这边啥也没写。
+
+*****
+
+####  starring  
+##### 6045#       发表于 2022-3-5 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927258&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-5 17:10</a>
+
+估计没有吧。讲道理，当时水团那个购票页刚上线B站的时候，评论区不少人说的好像真的有字幕的样子，看到 ...</blockquote>
+这样的话还是eplus，毕竟不用梯子而且也能支付宝
+
