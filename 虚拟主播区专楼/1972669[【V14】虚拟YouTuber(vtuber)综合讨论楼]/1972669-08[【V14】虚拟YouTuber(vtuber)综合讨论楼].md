@@ -8292,3 +8292,76 @@ Factos
 那么discord截图又是怎么流出来的呢</blockquote>
 petra直播切屏失误露出来的  
 
+
+
+*****
+
+####  rzrbtk  
+##### 11241#       发表于 2022-3-5 17:47
+
+你楼也佛了，出图几小时没人骂成员双面人也没有互相战争，都在投降，深切地感受到没什么真情实感en观众且虹杏本部早已狠狠割了
+
+*****
+
+####  fastary  
+##### 11242#       发表于 2022-3-5 17:47
+
+不是，集美有吵架对打的习惯吗，我怎么觉得最可能是“你打en男我就打钱，sc在手酸不死你们”的反应……
+
+*****
+
+####  真飞鸟i  
+##### 11243#       发表于 2022-3-5 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总之还是有效果的，死神取关vox了。
+
+*****
+
+####  adamtheo  
+##### 11244#       发表于 2022-3-5 17:50
+
+EN女这下都是男宝妈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 11245#       发表于 2022-3-5 17:51
+
+<blockquote>fastary 发表于 2022-3-5 17:31
+推上简单搜了一下，以我的理解似乎是有人泄露了一张nijien的discord截图然后他们在调侃cover本来想保持杏偶 ...</blockquote>
+也不是什么瞧不起急了的问题，而是觉得你私下嘴这些（比如说是war 说议会 等等）还不小心露出来不行，而且和pomu平时的人设和推上表现也有一定程度相悖，而且就是本身海外粉丝社区有一派很喜欢说一切对立都是部分粉丝自己脑补liver从不会这会想，这事出了后也是一种反攻倒算
+
+*****
+
+####  ヒトニナル  
+##### 11246#       发表于 2022-3-5 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54927573&amp;ptid=1972669" target="_blank">空集 发表于 2022-3-5 17:46</a>
+petra直播切屏失误露出来的</blockquote>
+无论有心无心，这操作总让我似曾相识啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  purdre  
+##### 11247#       发表于 2022-3-5 17:54
+
+嘿嘿，好，早看不惯EN萌萌人大家都是好朋友大家庭的气氛了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 早点认清事实对大家都好
+
+*****
+
+####  poipanchao  
+##### 11248#       发表于 2022-3-5 17:55
+
+有没有可能pomu是在对大毛二毛发表评论<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 11249#       发表于 2022-3-5 18:04
+
+<blockquote>空集 发表于 2022-3-5 17:51
+也不是什么瞧不起急了的问题，而是觉得你私下嘴这些（比如说是war 说议会 等等）还不小心露出来不行，而 ...</blockquote>
+啊这，那萌萌人好死(
+
+只要不打成隔壁92w和29w的舆论结果我都无所谓
+
