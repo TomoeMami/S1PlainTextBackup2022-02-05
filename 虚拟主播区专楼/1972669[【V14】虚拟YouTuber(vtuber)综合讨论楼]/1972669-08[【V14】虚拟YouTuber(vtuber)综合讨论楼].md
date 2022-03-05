@@ -8532,3 +8532,21 @@ syl
 
 比起这个，今天饭屋不知道时隔几个月的合体再次因为apex实现了，apex真是个好游戏啊（真心）<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Nieven  
+##### 11267#       发表于 2022-3-6 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54929020&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-3-5 20:01</a>
+
+想恭喜我郡追梦成功但百度一看这人是前j家且吸麻被抓还是吓脱了，希望对面只是在客气</blockquote>
+u1s1，郡道现在的咖位应该比这位大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 感觉跟田口比有点自降身价了
+
+田口帅确实挺帅的，KT巅峰期也是日本一流天团级（虽然后面一拉再拉）
+
+但田口退团后就直接糊到查无此人，麻药风波更是宣判了演艺生涯的死刑，现在大概就是跟地下偶像一样四处走穴赚赚老粉的钱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过他在中国知名度意外的还不错，因为演了legalhigh的兰丸<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
