@@ -8111,3 +8111,22 @@ vox这种事业批要是甚至给外社同赛道竞争对手吸血我都要尊�
 
 oreapo一周年也不搞活动，看来分手了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 11219#       发表于 2022-3-5 15:40
+
+这下真要开打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 11220#       发表于 2022-3-5 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54925982&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-3-5 14:49</a>
+
+血海深仇还行</blockquote>
+我说什么来着，这下白皮绝好的教育素材来了
+
