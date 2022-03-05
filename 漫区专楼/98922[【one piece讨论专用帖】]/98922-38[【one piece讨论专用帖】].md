@@ -13292,3 +13292,23 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 贴吧看到一个Monkey D. Luffy悟空果实说，转给大家看为什么果实几百年不觉醒，因为猴哥被镇压了500 ...</blockquote>
 笑死，希望他下次再编一篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 56587#       发表于 2022-3-5 21:51
+
+<blockquote>银翼的维罗西 发表于 2022-3-5 21:36
+笑死，希望他下次再编一篇</blockquote>
+太强了，我需要更多的脑洞，越胡扯的越好
+
+*****
+
+####  SNOWIMEA  
+##### 56588#       发表于 2022-3-5 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54930118&amp;ptid=98922" target="_blank">angelooo 发表于 2022-3-5 21:51</a>
+太强了，我需要更多的脑洞，越胡扯的越好</blockquote>
+贴吧很多脑洞的，看的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
