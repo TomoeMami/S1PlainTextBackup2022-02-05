@@ -4745,3 +4745,25 @@ Hard难度追求不死人的话不刷级也是挺有挑战性的
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  艾特娜  
+##### 434#       发表于 2022-3-5 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54926317&amp;ptid=2051152" target="_blank">稲穂信 发表于 2022-3-5 15:34</a>
+
+一共多少章来着</blockquote>
+4条线，其中3条19话，1条21话。达成条件也能在一周目进入21话的线
+
+*****
+
+####  稲穂信  
+##### 435#       发表于 2022-3-5 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54926689&amp;ptid=2051152" target="_blank">艾特娜 发表于 2022-3-5 16:15</a>
+
+4条线，其中3条19话，1条21话。达成条件也能在一周目进入21话的线</blockquote>
+完全是凭感觉瞎选的，大概只能等二周目了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
