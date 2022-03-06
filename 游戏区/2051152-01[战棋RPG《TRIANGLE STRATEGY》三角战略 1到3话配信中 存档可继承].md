@@ -5963,3 +5963,13 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 打到17章了，看到兄弟和女人的提议我只有这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，老头确实更靠谱
 
+
+
+*****
+
+####  繭  
+##### 550#       发表于 2022-3-6 23:09
+
+[https://m.imgur.com/a/V9gl0bp](https://m.imgur.com/a/V9gl0bp)
+红迪总结的路线选择图，目前好像没看到比这个更全的了
+
