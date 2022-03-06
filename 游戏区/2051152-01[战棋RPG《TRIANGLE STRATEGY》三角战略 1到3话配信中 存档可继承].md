@@ -5954,3 +5954,12 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  桐道悠  
+##### 549#       发表于 2022-3-6 22:58
+
+打到17章了，看到兄弟和女人的提议我只有这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，老头确实更靠谱
+
