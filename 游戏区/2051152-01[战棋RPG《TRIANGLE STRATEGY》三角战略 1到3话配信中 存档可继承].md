@@ -5339,3 +5339,24 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 超人会在第二波开始移动（把开局刷的那几个兵算第一波援军了）
 
+
+
+*****
+
+####  稲穂信  
+##### 490#       发表于 2022-3-6 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937028&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-6 15:17</a>
+
+3波，第三波会有3个兵直接上最上面的那个高台，
+
+超人会在第二波开始移动（把开局刷的那几个兵算第一波援 ...</blockquote>
+我又不打算死人又不打算动用机关的，是不是只能先去练级了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangchunsiyue  
+##### 491#       发表于 2022-3-6 15:40
+
+散步的时候都能捡到些什么饰品啊？有没有这种资讯搜集的网站？
+
