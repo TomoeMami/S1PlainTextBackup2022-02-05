@@ -5919,3 +5919,38 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 喷了，怎么这游戏里也有加钱哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kirito_wst  
+##### 546#       发表于 2022-3-6 22:04
+
+看了英文的路线图，15章陪老婆回村有两条分支，应该是分别可以收强盗爹或者强盗女儿。这样的话全人物就需要四周目才能达成了。如果有走这条线的朋友可以验证一下。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  shiko  
+##### 547#       发表于 2022-3-6 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54941308&amp;ptid=2051152" target="_blank">Marro 发表于 2022-3-6 21:08</a>
+你要是打真结局的话据说还挺甜的，有人打出来了</blockquote>
+流程中的糖不多吗，男女主那种讲话的时候相敬如宾的感觉还挺棒的。
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kirito_wst  
+##### 548#       发表于 2022-3-6 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54942491&amp;ptid=2051152" target="_blank">shiko 发表于 2022-3-6 22:05</a>
+流程中的糖不多吗，男女主那种讲话的时候相敬如宾的感觉还挺棒的。
+
+—— 来自 HUAWEI WLZ-AN00, Android ...</blockquote>
+后面可以和老婆贴爆（物理）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -722,3 +722,14 @@ E4F13112-F815-49BA-A188-1676FBC4FC1F.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/06/192711vlhnqmtyi00b2747.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6061#       发表于 2022-3-6 22:11
+
+塞东蛋的追加碟是1000的便宜碟啊，初动应该能挺高的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

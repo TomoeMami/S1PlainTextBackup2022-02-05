@@ -855,3 +855,12 @@ image.png
 
 北黑和光鑽大概是要留到動畫了吧
 
+
+
+*****
+
+####  isummon  
+##### 72#         楼主| 发表于 2022-3-6 22:18
+
+粗略看了下，是容易受伤的体质，后面还差点死了，感觉会是类似于目白阿尔丹的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
