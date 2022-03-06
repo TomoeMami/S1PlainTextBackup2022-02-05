@@ -5049,3 +5049,53 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 其实感觉这作不如火纹
 
+
+
+*****
+
+####  kevinausting  
+##### 463#       发表于 2022-3-6 11:31
+
+老头环刚通关想换个轻松的游戏玩，问下这个游戏有简单难度吗？
+
+*****
+
+####  古畑任三郎2015  
+##### 464#       发表于 2022-3-6 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54934821&amp;ptid=2051152" target="_blank">kevinausting 发表于 2022-3-6 11:31</a>
+老头环刚通关想换个轻松的游戏玩，问下这个游戏有简单难度吗？</blockquote>
+有的，简单难度随便打，还有个非常简单难度
+
+*****
+
+####  dren_zheng  
+##### 465#       发表于 2022-3-6 11:38
+
+这游戏，优点是战场上角色的特点分明，比如同样是弓，几个弓的差异巨大
+
+缺点嘛，剧情文本太多看剧30分钟打戏10分钟。每一章都是如此
+
+而且不是像传统火纹那样的自由战斗刷新在主线地图上，用主线战场来战斗，而是反复套用少数几个小战场（比如训练场、码头）来村斗，很敷衍
+
+总之，这游戏目前的体量只是个同人游戏水平，套了3D-2D的皮看起来高大上而已
+
+*****
+
+####  upisud20  
+##### 466#       发表于 2022-3-6 11:39
+
+云了一下觉得主线剧情是真的拉垮，放在愿望单里等打折了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dren_zheng  
+##### 467#       发表于 2022-3-6 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54934821&amp;ptid=2051152" target="_blank">kevinausting 发表于 2022-3-6 11:31</a>
+
+老头环刚通关想换个轻松的游戏玩，问下这个游戏有简单难度吗？</blockquote>
+还有非常简单难度
+
+困难难度下，同等级我方要砍对面三四刀才死，非常简单下我方一刀毙命
+
