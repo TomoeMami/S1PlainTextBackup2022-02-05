@@ -1455,3 +1455,25 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 狂娜拉到110级才发现 2宝不够120  得3宝  草泥马
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87130#       发表于 2022-3-6 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54936374&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-6 14:01</a>
+
+狂娜拉到110级才发现 2宝不够120  得3宝  草泥马</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不是说了要3宝吗
+
+*****
+
+####  alucardcz  
+##### 87131#       发表于 2022-3-6 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54936425&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-6 14:06</a>
+
+我不是说了要3宝吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早忘了  还以为15羁绊2宝能解决问题 告辞了
+
