@@ -8305,3 +8305,18 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 
 りんこ，我命令你立刻复活<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 8452#       发表于 2022-3-6 21:46
+
+ 本帖最后由 梅斯之围 于 2022-3-6 21:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你那个同事都在收大米了你还搁这玉玉呢
+
+讲真，要是真隐退的话，她这种热情燃尽了的隐退跟那两位还不太一样，就别指望后面还会有什么林檎小姐了
+
+不过也说不定，恐怕到时候体验两天社畜生活就又开始怀念起来直播生涯了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
