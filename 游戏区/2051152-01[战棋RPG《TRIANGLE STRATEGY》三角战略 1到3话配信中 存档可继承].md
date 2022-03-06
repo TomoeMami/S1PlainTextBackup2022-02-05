@@ -5466,3 +5466,40 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Troywest  
+##### 503#       发表于 2022-3-6 17:01
+
+不放火根本打不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  trumen  
+##### 504#       发表于 2022-3-6 17:01
+
+第七关我不管怎么选都是交出罗兰，而且对话完了城里的市民，刺客那里还有个对话带锁……是不是我之前的选择影响了这次的天平啊
+
+*****
+
+####  kirito_wst  
+##### 505#       发表于 2022-3-6 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937992&amp;ptid=2051152" target="_blank">trumen 发表于 2022-3-6 17:01</a>
+
+第七关我不管怎么选都是交出罗兰，而且对话完了城里的市民，刺客那里还有个对话带锁……是不是我之前的选择 ...</blockquote>
+队友能不能被说服也取决于你的信念值，挺草的。信念值高了就是无脑说得<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  trumen  
+##### 506#       发表于 2022-3-6 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54938027&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-6 17:05</a>
+队友能不能被说服也取决于你的信念值，挺草的。信念值高了就是无脑说得 ...</blockquote>
+无语……我的确是个自由主义者但是自由主义就不能忠君了么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏有毒
+
