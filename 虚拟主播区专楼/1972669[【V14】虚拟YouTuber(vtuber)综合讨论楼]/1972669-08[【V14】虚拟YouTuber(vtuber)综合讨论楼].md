@@ -8876,3 +8876,21 @@ levi和走能一起在舞台上这样3D全开了还是好感叹。  换气中�
 
 挺可爱的这首 就是西西这早期模型和两个新模型差距有点大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 11292#       发表于 2022-3-6 20:46
+
+ 本帖最后由 空集 于 2022-3-6 21:05 编辑 
+
+项羽和尊妈两个虹最会扭的人让我全程都在看扭了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 。传统众人encore 然后 唱VTL 
+
+*****
+
+####  rzrbtk  
+##### 11293#       发表于 2022-3-6 21:04
+
+听到vtl第一反应不是emo而是害怕run被喷19组有无资格独唱社歌<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

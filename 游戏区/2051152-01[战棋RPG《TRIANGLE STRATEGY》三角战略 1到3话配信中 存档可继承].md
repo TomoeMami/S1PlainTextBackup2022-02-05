@@ -5809,3 +5809,23 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  shiko  
+##### 535#       发表于 2022-3-6 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54940435&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-6 20:24</a>
+不如老头和男主甜</blockquote>
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那我等打折或者实体版降价吧
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  何处分可  
+##### 536#       发表于 2022-3-6 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说这游戏三个吃屎结局和一个真结局是不是真的，真的我就退了
+

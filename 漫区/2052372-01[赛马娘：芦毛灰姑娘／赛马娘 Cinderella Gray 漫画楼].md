@@ -837,3 +837,21 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">眼里都是樱花好吓人哦
 
+
+
+*****
+
+####  克罗夏  
+##### 70#       发表于 2022-3-6 20:44
+
+这张桂冠把我看官网图对桂冠人设很路人的印象改变了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nicholas30  
+##### 71#       发表于 2022-3-6 20:50
+
+竟然是櫻花桂冠，巔峰期有點短啊
+
+北黑和光鑽大概是要留到動畫了吧
+
