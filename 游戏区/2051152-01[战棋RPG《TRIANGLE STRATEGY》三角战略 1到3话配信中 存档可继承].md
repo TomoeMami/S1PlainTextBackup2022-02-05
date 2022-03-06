@@ -5591,3 +5591,69 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 编辑掉
 
+
+
+*****
+
+####  灰狼  
+##### 515#       发表于 2022-3-6 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54938720&amp;ptid=2051152" target="_blank">trumen 发表于 2022-3-6 18:16</a>
+
+我的确之前都是巨魔选项……那么问题来了以及以下剧透，如果交出去是不是罗兰就会死了？如果这样 ...</blockquote>
+感觉死了就没人投票了啊
+
+我看了下游戏路线路，基本上都是一个大分支走完再收回来重新走一个下一个分支，不是梦2 der那种剧情树
+
+我觉得是没事
+
+*****
+
+####  听风不是雨  
+##### 516#       发表于 2022-3-6 18:22
+
+<blockquote>trumen 发表于 2022-3-6 18:16
+我的确之前都是巨魔选项……那么问题来了以及以下剧透，如果交出去是不是罗兰就会死了？如果这样 ...</blockquote>
+我只看了交出去后面一章的剧情，主角家族暂时投降公国，罗兰当傀儡皇帝，公国逼罗兰签国王令让主角去打那个用弓的老将（他宁死不投），主角团就想修书一封偷偷送去希望能私下会面一起想办法反抗公国，结果公国出兵夹击让老将以为主角在骗他
+
+*****
+
+####  灰狼  
+##### 517#       发表于 2022-3-6 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54938705&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-6 18:14</a>
+
+然而这游戏打完了就可以改名叫《这个世界所有人全是巨魔和憨憨，只有主角我一个正常人该怎么办？》
+
+—— ...</blockquote>
+欸这样子么
+
+现在在走运盐的分支，如果说打女超人那段突出了一个弹尽粮绝（虽然也是因为我没放火），感觉这段的落魄表现真的挺不错
+
+*****
+
+####  古畑任三郎2015  
+##### 518#       发表于 2022-3-6 18:23
+
+招募的人果然性能无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  trumen  
+##### 519#       发表于 2022-3-6 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54938761&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-6 18:21</a>
+感觉死了就没人投票了啊
+
+我看了下游戏路线路，基本上都是一个大分支走完再收回来重新走一个下一个分支， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cih  
+##### 520#       发表于 2022-3-6 18:36
+
+找的画师不行啊，这安娜的立绘根本就是男人吧......
+

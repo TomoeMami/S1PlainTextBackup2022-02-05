@@ -657,3 +657,12 @@ Liella!×蜡笔小新的野原一家
 
 一转初动大概率卡9<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你备货好点过2万不好吗……
 
+
+
+*****
+
+####  任天索尼子  
+##### 6057#       发表于 2022-3-6 18:38
+
+水又东蛋了，牛逼，不过按照现在的情况来看上座率可能稍微有点堪忧？
+
