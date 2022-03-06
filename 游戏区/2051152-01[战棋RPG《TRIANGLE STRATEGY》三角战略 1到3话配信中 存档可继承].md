@@ -5997,3 +5997,15 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 兄弟在王室纯摆烂，老婆在娘家纯棋子，没有主角家武德充沛，这两人p都不是
 
+
+
+*****
+
+####  tonberry  
+##### 553#       发表于 2022-3-7 01:03
+
+这游戏目前感觉男主不能换下就是给玩家增加难度，技能体系太废了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+你说他物攻高但又不如同样物攻高的基友跑的远打的远
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
