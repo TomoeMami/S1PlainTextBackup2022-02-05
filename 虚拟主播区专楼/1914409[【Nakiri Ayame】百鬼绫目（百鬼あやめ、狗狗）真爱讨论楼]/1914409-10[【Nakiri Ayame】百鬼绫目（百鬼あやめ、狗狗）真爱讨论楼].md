@@ -5026,3 +5026,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 但是我感觉没多久，这是被阿绫pua出幻觉了么<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 14001#       发表于 2022-3-6 18:44
+
+可能是现在摆的人太多了，绫总的摆失去了独特性
+

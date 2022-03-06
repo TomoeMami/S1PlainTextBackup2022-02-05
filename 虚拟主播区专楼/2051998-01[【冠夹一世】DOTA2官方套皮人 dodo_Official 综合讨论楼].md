@@ -4170,3 +4170,15 @@ do子角色曲：不该<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">永恒娘：do子只会烧热水，屁用没有
 
+
+
+*****
+
+####  一品堂官  
+##### 496#       发表于 2022-3-6 18:48
+
+瞎**打有人阴阳两句被弹幕无脑护
+看不下去忍不住说了句真话被封了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
