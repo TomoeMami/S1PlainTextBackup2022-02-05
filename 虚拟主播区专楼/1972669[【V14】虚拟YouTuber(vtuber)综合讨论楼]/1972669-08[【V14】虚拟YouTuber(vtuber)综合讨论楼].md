@@ -8671,3 +8671,18 @@ And funniest of all
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帮木口团建就是反向帮虹团建，虹又赢！
 
+
+
+*****
+
+####  rzrbtk  
+##### 11277#       发表于 2022-3-6 11:57
+
+<blockquote>Nieven 发表于 2022-3-6 00:04
+u1s1，郡道现在的咖位应该比这位大 感觉跟田口比有点自降身价了
+
+田口帅确实挺帅的，KT巅峰期也是 ...</blockquote>
+我后面想起来了，是甜甜…
+
+跟前j家比咖位是无论如何都不敢的，我看郡连发几推基本上就是说田口是她悲惨幼小期的救星这样，虽然现在这个样子但届到了也…开心…吧
+

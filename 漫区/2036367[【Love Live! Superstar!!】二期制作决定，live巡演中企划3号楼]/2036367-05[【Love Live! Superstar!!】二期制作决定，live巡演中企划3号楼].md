@@ -595,3 +595,17 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 这个联动会玩
 这比赛要怎么看？网上有直播吗？
 
+
+
+*****
+
+####  DLAN  
+##### 6052#       发表于 2022-3-6 11:47
+
+ 本帖最后由 DLAN 于 2022-3-6 11:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54929876&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-5 21:22</a>
+这个联动会玩
+这比赛要怎么看？网上有直播吗？</blockquote>
+草看错了。
+当天晚上可以去油管 パTV 看看
+
