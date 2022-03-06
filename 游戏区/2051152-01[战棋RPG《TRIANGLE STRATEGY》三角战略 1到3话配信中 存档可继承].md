@@ -5666,3 +5666,31 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 唉，以后浅野组的游戏我真得观望一下了
 
+
+
+*****
+
+####  tonberry  
+##### 522#       发表于 2022-3-6 19:07
+
+ 本帖最后由 tonberry 于 2022-3-6 19:10 编辑 
+
+hard难度第七章打了差不多一个下午才成功不烧村过了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+反正我是在左侧靠盾哥站前嘲讽使用道具油加火制造火墙，一直苟下去，然后没想到敌人不讲武德，左侧家门口还出来第三波来偷袭，差点崩盘<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ryj  
+##### 523#       发表于 2022-3-6 19:08
+
+每个探索图的物品攻略有吗 找起来太瞎眼了
+
+*****
+
+####  艾特娜  
+##### 524#       发表于 2022-3-6 19:16
+
+一开始以为大舅子能力多强，其实根本不懂笼络人心
+
