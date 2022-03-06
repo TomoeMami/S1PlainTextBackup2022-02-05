@@ -5910,3 +5910,12 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 剑与魔法背景的JRPG就是这个醍醐味，不得不品尝
 
+
+
+*****
+
+####  蓮華  
+##### 545#       发表于 2022-3-6 21:29
+
+喷了，怎么这游戏里也有加钱哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

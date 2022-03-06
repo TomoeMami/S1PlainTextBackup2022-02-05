@@ -8296,3 +8296,12 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">最近事多，摆就摆吧
 
+
+
+*****
+
+####  ylssb10438  
+##### 8451#       发表于 2022-3-6 21:37
+
+りんこ，我命令你立刻复活<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
