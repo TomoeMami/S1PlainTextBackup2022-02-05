@@ -8351,3 +8351,34 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 我没搞懂？她这是替同事闹脾气？你收米又比不过人家，还是先可怜可怜自己吧 ...</blockquote>
 某种程度上是世界观收到了冲击，关于人与人之间的恶意的方面。短暂退网和中断与同事之间互动，主要是为了理顺一下自己的想法。现在其实精神状态还可以，就是对通常直播提不起劲，动机不足，重心还是放在偶像活动上。
 
+
+
+*****
+
+####  暗心舞踏  
+##### 8456#       发表于 2022-3-7 01:51
+
+这两年因为一系列的事件，整个人生信条都改变了，以前永远把努力就会有回报挂在嘴边，现在是尽人事听天命，对公司、同事和观众的看法也有了很大转变，还挺唏嘘的。
+希望能早点找回直播的动力吧
+
+*****
+
+####  Map-2  
+##### 8457#       发表于 2022-3-7 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54944745&amp;ptid=1947500" target="_blank">面具13 发表于 2022-3-7 00:40</a>
+
+某种程度上是世界观收到了冲击，关于人与人之间的恶意的方面。短暂退网和中断与同事之间互动，主要是为了 ...</blockquote>
+这说的，不会qsmf黑屁的是她吧<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 8458#       发表于 2022-3-7 03:59
+
+是自己的话那湊あくあ内心是有多么浓郁的幽暗啊 甚至这场直播也是单纯的表演<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+如果真的是说80事件 倾向于qsmf指向的是夸关系比较好的holomem吧 这样就和自己没什么朋友 holomem只是伙伴对上了
+
+不过夸其实还是有蛮多谜语的 只是不再像以前那样锁死心扉 把全部的秘密牢牢攥在心底里了
+
