@@ -5019,3 +5019,24 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 360的是港日版，320的是欧美版，欧美版可能发货晚一些，但都有中文。</blockquote>
 哪里买的这么便宜？
 
+
+
+*****
+
+####  kirito_wst  
+##### 460#       发表于 2022-3-6 10:06
+
+二周目第五章开信念表和人物加入需求
+
+一看我道德都造到1900了，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thez  
+##### 461#       发表于 2022-3-6 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54933490&amp;ptid=2051152" target="_blank">给您添麻烦了 发表于 2022-3-6 08:59</a>
+
+哪里买的这么便宜？</blockquote>
+两个月前淘宝都是这个价格，现在都涨了
+
