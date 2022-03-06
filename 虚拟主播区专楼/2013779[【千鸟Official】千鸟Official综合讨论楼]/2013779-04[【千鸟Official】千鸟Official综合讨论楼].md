@@ -11259,3 +11259,16 @@ syl 从泄漏出要3d我就料想到这种结局了 文静本身并不是什么�
 
 —— 来自 deltainno DT2002C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5700#       发表于 2022-3-7 07:35
+
+住院了没看。。。
+回去瞅了一眼除了心疼没啥别的感想
+灰姑娘大抵如此吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
