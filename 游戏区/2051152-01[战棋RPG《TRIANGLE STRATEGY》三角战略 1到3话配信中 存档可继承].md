@@ -5360,3 +5360,62 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 散步的时候都能捡到些什么饰品啊？有没有这种资讯搜集的网站？
 
+
+
+*****
+
+####  kirito_wst  
+##### 492#       发表于 2022-3-6 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937246&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-6 15:40</a>
+
+散步的时候都能捡到些什么饰品啊？有没有这种资讯搜集的网站？</blockquote>
+我拿到的几个，应该不全
+
+幸运臂饰，移动手环，先锋披肩，红色围巾，殿军披风，红色脚链，活力手环，复活耳钉，黑色脚链，异常状态护符，击退护符
+
+*****
+
+####  灰狼  
+##### 493#       发表于 2022-3-6 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937156&amp;ptid=2051152" target="_blank">稲穂信 发表于 2022-3-6 15:31</a>
+
+我又不打算死人又不打算动用机关的，是不是只能先去练级了</blockquote>
+我进场是大部分10级+9级加一个8级的贤者，死人是走位失误（以及药用光了）
+
+感觉多去刷点钱买够高级回复药会好一点
+
+*****
+
+####  先生空气  
+##### 494#       发表于 2022-3-6 15:54
+
+麻了，除了真结局不会是三条皇女线吧
+
+*****
+
+####  古畑任三郎2015  
+##### 495#       发表于 2022-3-6 15:55
+
+轶闻招的那些人性能比主角队强好多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  先生空气  
+##### 496#       发表于 2022-3-6 15:58
+
+打完家臣线只想把铁憨憨干死
+
+*****
+
+####  kirito_wst  
+##### 497#       发表于 2022-3-6 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937404&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-6 15:58</a>
+
+打完家臣线只想把铁憨憨干死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">果然，老婆线也是一言难尽
+
