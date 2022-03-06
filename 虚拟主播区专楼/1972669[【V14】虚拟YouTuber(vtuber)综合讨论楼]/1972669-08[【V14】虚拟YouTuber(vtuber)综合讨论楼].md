@@ -8702,3 +8702,117 @@ u1s1，郡道现在的咖位应该比这位大 感觉跟田口比有点自降身
 
 这看着是好多liver集资弄了一个花篮么 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11280#       发表于 2022-3-6 20:07
+
+<img src="https://img.saraba1st.com/forum/202203/06/200639n6f0p2lelcp0mw8q.png" referrerpolicy="no-referrer">
+
+<strong>【#早瀬走3D】3DLIVE『Hello, new me!』-1.png</strong> (86.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-6 20:06 上传
+
+背景这个「皮卡丘 」声是...?
+
+
+
+*****
+
+####  真飞鸟i  
+##### 11281#       发表于 2022-3-6 20:09
+
+ 本帖最后由 真飞鸟i 于 2022-3-6 20:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前bzml也有过和声啊，不知道是不是直接用的以前的还是新录的。走又专门提了下是bzml配的，所以应该是新录的吧。
+
+感觉走和以前差的有点大啊，之前是做的什么手术啊。
+
+*****
+
+####  空集  
+##### 11282#       发表于 2022-3-6 20:12
+
+虽然弹幕刷的挺多的但是感觉也不能确认 。 syl 本来有点担心数字 结果激昂的歌效果出来后还是上来了，不过感觉麦有点轻。
+
+*****
+
+####  Ketestrait  
+##### 11283#       发表于 2022-3-6 20:13
+
+船长？有力驱散虹杏战争的阴霾了<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 11284#       发表于 2022-3-6 20:14
+
+ 本帖最后由 alcoholic1000 于 2022-3-6 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54940167&amp;ptid=1972669" target="_blank">空集 发表于 2022-3-6 20:12</a>
+
+虽然弹幕刷的挺多的但是感觉也不能确认 。 syl 本来有点担心数字 结果激昂的歌效果出来后还是上来了，不过 ...</blockquote>
+还以为听错了！空集老哥确认了？
+
+麦确实有点问题 
+
+编辑：提到了
+
+<img src="https://img.saraba1st.com/forum/202203/06/201810auo13jxuj3nxnw77.png" referrerpolicy="no-referrer">
+
+<strong>【#早瀬走3D】3DLIVE『Hello, new me!』-2.png</strong> (151.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-6 20:18 上传
+
+这模型真不错，levi来了
+
+*****
+
+####  空集  
+##### 11285#       发表于 2022-3-6 20:17
+
+ 本帖最后由 空集 于 2022-3-6 20:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54940237&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-3-6 20:14</a>
+
+还以为听错了！空集老哥确认了？
+
+麦确实有点问题</blockquote>
+MC开始的时候直接说了确认是，麦太轻了我一开始声音开的小了没听见 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 第一个嘉宾 levi 也算意料之中
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|mc听见了，还挺意外的|
+
+查看全部评分
+
+*****
+
+####  布莱士·西伯利  
+##### 11286#       发表于 2022-3-6 20:19
+
+ 本帖最后由 布莱士·西伯利 于 2022-3-6 20:21 编辑 
+
+run姐这3d真不错，以及levi真的好可爱。<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+走姐气息比levi稳呢。
+
+*****
+
+####  rzrbtk  
+##### 11287#       发表于 2022-3-6 20:20
+
+好久没得看3D披露了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
