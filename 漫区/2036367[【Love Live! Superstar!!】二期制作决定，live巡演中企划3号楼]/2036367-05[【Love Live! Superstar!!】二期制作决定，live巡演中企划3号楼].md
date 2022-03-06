@@ -618,3 +618,24 @@ https://live.bilibili.com/blackboard/activity-superstarweb.html?is_live_webview=
 
 按以往经验联动比赛除了周边外一般是当日比赛前在棒球场外苑会有个小活动talk even之类的，这个一般没转播。然后比赛时候出席下开球式然后就结束了，当天比赛的球票可能会有特殊样式。开球式的话企鹅电竞那边日职转播up主挺多的，火腿国内人气蛮高肯定有人播，乐天就不一定有人播了
 
+
+
+*****
+
+####  仟音一心  
+##### 6054#       发表于 2022-3-6 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54908587&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-3 23:28</a>
+
+真实官方认证，双N是爹妈，鲤鱼是长女，打铁是爱犬，佩佩是末女</blockquote>
+Liella!×蜡笔小新的野原一家
+
+9F8D3E12-7EEA-44EE-A7FD-532444FF2C23.jpeg
+(250.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-6 14:20 上传
+
+<img src="https://img.saraba1st.com/forum/202203/06/142055gbn9a6787jq9799b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

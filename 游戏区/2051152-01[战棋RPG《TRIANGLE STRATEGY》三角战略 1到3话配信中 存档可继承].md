@@ -5272,3 +5272,24 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 抛去那个超人本身，对面海一样的兵确实压力也很大，虽然说是村斗但确实打出了弹尽粮绝
 
+
+
+*****
+
+####  Troywest  
+##### 484#       发表于 2022-3-6 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54936524&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-6 14:18</a>
+普通难度第七章打了3个小时终于在不放火的情况下打完了（王子死了一次，实在不想reload了），吃掉了我所有 ...</blockquote>
+不放火的情况下。我打到只剩修艾特一个人，靠着地势磨掉了所有敌人。然后转移阵地准备打女将军的时候，因为行动力不足，被她两刀砍死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几十分钟的努力化为了泡影。
+不过这一作死人没惩罚，献祭流没什么压力。
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  mrm4B  
+##### 485#       发表于 2022-3-6 14:31
+
+如果把王子给送走了是直接进另一条分支还是会绕回来啊
+

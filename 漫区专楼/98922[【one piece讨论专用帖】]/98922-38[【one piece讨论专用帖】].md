@@ -13379,3 +13379,17 @@ cp0面具掉下来，是科比！
 
 如果你说关于觉醒的设定，之前监狱里出现了动物系，明哥表演了超人系。
 
+
+
+*****
+
+####  lqchina  
+##### 56595#       发表于 2022-3-6 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54933485&amp;ptid=98922" target="_blank">wingzerocos 发表于 2022-3-6 08:57</a>
+
+基德的果实就是最近觉醒的。
+
+如果你说关于觉醒的设定，之前监狱里出现了动物系，明哥表演了超人系。 ...</blockquote>
+哦，多谢
+
