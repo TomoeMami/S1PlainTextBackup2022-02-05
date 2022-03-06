@@ -5973,3 +5973,18 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 [https://m.imgur.com/a/V9gl0bp](https://m.imgur.com/a/V9gl0bp)
 红迪总结的路线选择图，目前好像没看到比这个更全的了
 
+
+
+*****
+
+####  laputahao  
+##### 551#       发表于 2022-3-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54941603&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-3-6 21:24</a>
+你得想想日本人甚至看的是片假名
+
+剑与魔法背景的JRPG就是这个醍醐味，不得不品尝 ...</blockquote>
+片假名比汉字好记忆点 因为是纯读音
+
+—— 来自 Google Pixel 3, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
