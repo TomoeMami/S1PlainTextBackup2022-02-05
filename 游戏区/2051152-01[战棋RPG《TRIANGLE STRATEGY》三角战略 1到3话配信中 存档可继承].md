@@ -5523,3 +5523,71 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 反正酒场打训练关也能加信念，我就这么收到了一个能砍人蓝的四眼和一个绿色的法师
 
+
+
+*****
+
+####  灰狼  
+##### 509#       发表于 2022-3-6 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937992&amp;ptid=2051152" target="_blank">trumen 发表于 2022-3-6 17:01</a>
+
+第七关我不管怎么选都是交出罗兰，而且对话完了城里的市民，刺客那里还有个对话带锁……是不是我之前的选择 ...</blockquote>
+我猜大概就是
+
+军师：虽然你这次说得头头是道条理清晰，好像每一步都算计到了，但你之前一言一行要么是憨憨要么是巨魔，我真的不敢听啊
+
+*****
+
+####  灰狼  
+##### 510#       发表于 2022-3-6 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54937992&amp;ptid=2051152" target="_blank">trumen 发表于 2022-3-6 17:01</a>
+
+第七关我不管怎么选都是交出罗兰，而且对话完了城里的市民，刺客那里还有个对话带锁……是不是我之前的选择 ...</blockquote>
+带锁可能是看漏了可能是之前选了不同路线（虽然只是个小分支但去了2个地方收集的情报也不一样）
+
+那里我最后好像是说服王子自己留下来，安娜投哪边我忘了
+
+
+
+*****
+
+####  kirito_wst  
+##### 511#       发表于 2022-3-6 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54938637&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-6 18:07</a>
+我猜大概就是
+
+军师：虽然你这次说得头头是道条理清晰，好像每一步都算计到了，但你之前一言一行要么是憨 ...</blockquote>
+然而这游戏打完了就可以改名叫《这个世界所有人全是巨魔和憨憨，只有主角我一个正常人该怎么办？》
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  trumen  
+##### 512#       发表于 2022-3-6 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54938637&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-6 18:07</a>
+我猜大概就是
+
+军师：虽然你这次说得头头是道条理清晰，好像每一步都算计到了，但你之前一言一行要么是憨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我的确之前都是巨魔选项……那么问题来了以及以下剧透，如果交出去是不是罗兰就会死了？如果这样我没有心情二周目宁愿重新打。
+
+*****
+
+####  听风不是雨  
+##### 513#       发表于 2022-3-6 18:16
+
+<blockquote>trumen 发表于 2022-3-6 17:01
+第七关我不管怎么选都是交出罗兰，而且对话完了城里的市民，刺客那里还有个对话带锁……是不是我之前的选择 ...</blockquote>
+我是对刺客选第二个选项，然后就显示她的内心有极大动摇，她就投了保王子
+
+*****
+
+####  灰狼  
+##### 514#       发表于 2022-3-6 18:18
+
+编辑掉
+
