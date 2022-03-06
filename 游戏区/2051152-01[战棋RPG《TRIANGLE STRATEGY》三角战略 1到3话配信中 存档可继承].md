@@ -5988,3 +5988,12 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 —— 来自 Google Pixel 3, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  leachiman  
+##### 552#         楼主| 发表于 2022-3-6 23:42
+
+兄弟在王室纯摆烂，老婆在娘家纯棋子，没有主角家武德充沛，这两人p都不是
+
