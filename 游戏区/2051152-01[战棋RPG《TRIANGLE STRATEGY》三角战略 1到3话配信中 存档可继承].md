@@ -5503,3 +5503,14 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 队友能不能被说服也取决于你的信念值，挺草的。信念值高了就是无脑说得 ...</blockquote>
 无语……我的确是个自由主义者但是自由主义就不能忠君了么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏有毒
 
+
+
+*****
+
+####  kirito_wst  
+##### 507#       发表于 2022-3-6 17:26
+
+有收到强盗老爹的坛友吗？好像就差他不知道怎么收了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
