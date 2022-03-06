@@ -5829,3 +5829,84 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说这游戏三个吃屎结局和一个真结局是不是真的，真的我就退了
 
+
+
+*****
+
+####  Marro  
+##### 537#       发表于 2022-3-6 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54941109&amp;ptid=2051152" target="_blank">何处分可 发表于 2022-3-6 21:00</a>
+
+听说这游戏三个吃屎结局和一个真结局是不是真的，真的我就退了</blockquote>
+你要是想那三个结局全是好结局那不太行，但真结局是真的挺梦幻的已经有人打出来了。
+
+*****
+
+####  Marro  
+##### 538#       发表于 2022-3-6 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54940822&amp;ptid=2051152" target="_blank">shiko 发表于 2022-3-6 20:45</a>
+
+啊这那我等打折或者实体版降价吧
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 S1Next-鹅版 v2.5. ...</blockquote>
+你要是打真结局的话据说还挺甜的，有人打出来了
+
+*****
+
+####  艾特娜  
+##### 539#       发表于 2022-3-6 21:20
+
+还有一个全灭bad end
+
+*****
+
+####  白昼梦  
+##### 540#       发表于 2022-3-6 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">玩了几关，这不停蹦人名，还是干巴巴的文字太傻了，好歹对话加个像机战一样的名词索引，看对话的时候选中名字可以看立绘、像素小人造型和人物简介啊
+
+
+
+*****
+
+####  hellightning  
+##### 541#       发表于 2022-3-6 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54941527&amp;ptid=2051152" target="_blank">白昼梦 发表于 2022-3-6 21:20</a>
+
+玩了几关，这不停蹦人名，还是干巴巴的文字太傻了，好歹对话加个像机战一样的名词索引，看对话的时 ...</blockquote>
+卡带还没到，记得试玩版按x可以看人物立绘和简介
+
+*****
+
+####  古畑任三郎2015  
+##### 542#       发表于 2022-3-6 21:21
+
+突然发现这些选项设置的还挺科学，我之前都是无脑选解锁的那个，其实其他设身处地去思考，更有道理的选项才是正解
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白昼梦  
+##### 543#       发表于 2022-3-6 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54941545&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-3-6 21:21</a>
+
+卡带还没到，记得试玩版按x可以看人物立绘和简介</blockquote>
+能看到当前在说话的人的，对话里面提到的其他人名看不了，我已经放弃记忆了
+
+*****
+
+####  hellightning  
+##### 544#       发表于 2022-3-6 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54941567&amp;ptid=2051152" target="_blank">白昼梦 发表于 2022-3-6 21:22</a>
+
+能看到当前在说话的人的，对话里面提到的其他人名看不了，我已经放弃记忆了 ...</blockquote>
+你得想想日本人甚至看的是片假名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剑与魔法背景的JRPG就是这个醍醐味，不得不品尝
+

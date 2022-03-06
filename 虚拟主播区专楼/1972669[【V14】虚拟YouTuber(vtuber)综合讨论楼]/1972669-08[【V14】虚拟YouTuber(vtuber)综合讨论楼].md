@@ -8894,3 +8894,26 @@ levi和走能一起在舞台上这样3D全开了还是好感叹。  换气中�
 
 听到vtl第一反应不是emo而是害怕run被喷19组有无资格独唱社歌<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 11294#       发表于 2022-3-6 21:12
+
+らんねーちゃん大好きだよ<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> ， 虽然麦和渲染上有点小瑕疵，但是形式上确实很圆满完成度很高的live，个人拿手代表曲的乐队伴奏solo，茶番卡拉OK，可爱风，超会扭，燃向,最后回归encore VTL，应有尽有了。
+
+*****
+
+####  空集  
+##### 11295#       发表于 2022-3-6 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54940634&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-3-6 20:34</a>
+
+原来是新年录的
+
+三人醉酒是这个档https://www.youtube.com/watch?v=41O_6uylTrM
+
+恶意上分三人组来了（虹的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">郁金香组确实太真了，恰好走姐推特头图也是组合图。
+
