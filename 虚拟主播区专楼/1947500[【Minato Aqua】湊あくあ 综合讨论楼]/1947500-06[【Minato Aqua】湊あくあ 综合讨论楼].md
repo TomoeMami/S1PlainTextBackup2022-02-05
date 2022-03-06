@@ -8262,3 +8262,12 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 
 只要不是倒数第一就别叫！倒数第一了就发动奥义：爱玩玩不玩滚
 
+
+
+*****
+
+####  星の守  
+##### 8447#       发表于 2022-3-6 17:42
+
+本来就是爱看看不看滚的事啊，哪么多废话<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

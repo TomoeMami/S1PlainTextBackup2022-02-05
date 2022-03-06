@@ -1477,3 +1477,14 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 我不是说了要3宝吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早忘了  还以为15羁绊2宝能解决问题 告辞了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87132#       发表于 2022-3-6 17:52
+
+结果这周周常还要到活动外面打<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
