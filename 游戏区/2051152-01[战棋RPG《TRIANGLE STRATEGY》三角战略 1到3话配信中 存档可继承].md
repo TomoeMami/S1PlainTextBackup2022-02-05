@@ -5419,3 +5419,23 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 打完家臣线只想把铁憨憨干死</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">果然，老婆线也是一言难尽
 
+
+
+*****
+
+####  四级过了  
+##### 498#       发表于 2022-3-6 16:19
+
+剧情占比多还行吧，水剧情至少比每次战斗前还要逛街送礼强
+
+*****
+
+####  Byronli000  
+##### 499#       发表于 2022-3-6 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54936524&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-6 14:18</a>
+普通难度第七章打了3个小时终于在不放火的情况下打完了（王子死了一次，实在不想reload了），吃掉了我所有 ...</blockquote>
+我困难难度这边不放火感觉完全没法打，主角飞鹰剑砍弓兵只能打掉30%血，对面随便一个技能就打我半血，杀几个就出下一波支援。。。将军开始行动之后就崩盘了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
