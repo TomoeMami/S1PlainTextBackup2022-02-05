@@ -8382,3 +8382,14 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 
 不过夸其实还是有蛮多谜语的 只是不再像以前那样锁死心扉 把全部的秘密牢牢攥在心底里了
 
+
+
+*****
+
+####  面具13  
+##### 8459#       发表于 2022-3-7 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54945320&amp;ptid=1947500" target="_blank">Map-2 发表于 2022-3-7 01:55</a>
+这说的，不会qsmf黑屁的是她吧</blockquote>
+主要还是说推上的群魔乱舞的事。和同事大概只是不熟。露一些账号内容可能在内部开会的时候公开过，应该挺有攻击性，可能吓到了吧。
+
