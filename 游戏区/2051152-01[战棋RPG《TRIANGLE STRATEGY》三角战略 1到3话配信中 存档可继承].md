@@ -5238,3 +5238,24 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  kirito_wst  
+##### 481#       发表于 2022-3-6 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">原来这也是个找猫游戏
+
+*****
+
+####  dren_zheng  
+##### 482#       发表于 2022-3-6 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54935618&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-6 12:47</a>
+
+话说这作转职有什么讲究么？
+
+是越早越好还是刷够了再转？</blockquote>
+这作的经验值有等级补正的，得到转职道具时角色早超过最低等级了
+
