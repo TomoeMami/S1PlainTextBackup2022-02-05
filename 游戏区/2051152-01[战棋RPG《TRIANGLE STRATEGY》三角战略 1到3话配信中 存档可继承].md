@@ -5008,3 +5008,14 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 —— 来自 S1Fun ...</blockquote>
 师父能加入，但是好像需要特殊条件
 
+
+
+*****
+
+####  给您添麻烦了  
+##### 459#       发表于 2022-3-6 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54577377&amp;ptid=2051152" target="_blank">thez 发表于 2022-2-7 12:28</a>
+360的是港日版，320的是欧美版，欧美版可能发货晚一些，但都有中文。</blockquote>
+哪里买的这么便宜？
+

@@ -13363,3 +13363,19 @@ cp0面具掉下来，是科比！
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
 
+
+
+*****
+
+####  wingzerocos  
+##### 56594#       发表于 2022-3-6 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54932995&amp;ptid=98922" target="_blank">lqchina 发表于 2022-3-6 05:16</a>
+
+一直很好奇，大家总在说什么觉醒觉醒的，到底哪儿提到过觉醒？？
+
+可能是我看得太糙，但印象里属实不记得漫 ...</blockquote>
+基德的果实就是最近觉醒的。
+
+如果你说关于觉醒的设定，之前监狱里出现了动物系，明哥表演了超人系。
+
