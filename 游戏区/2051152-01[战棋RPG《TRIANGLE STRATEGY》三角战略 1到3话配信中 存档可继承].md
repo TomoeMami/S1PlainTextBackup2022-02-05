@@ -5717,3 +5717,72 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 我玩到现在，选项永远是7个硬币，3 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">最可怕的是反方永远都是4票，比如高道德的情况下运私盐，很难说服
 
+
+
+*****
+
+####  dren_zheng  
+##### 527#       发表于 2022-3-6 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54939663&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-6 19:39</a>
+
+最可怕的是反方永远都是4票，比如高道德的情况下运私盐，很难说服</blockquote>
+反正，这游戏收完全队友的话需要四五个周目，第一周目先瞎玩好了
+
+*****
+
+####  稲穂信  
+##### 528#       发表于 2022-3-6 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54939700&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-6 19:42</a>
+
+反正，这游戏收完全队友的话需要四五个周目，第一周目先瞎玩好了</blockquote>
+这……我都怀疑我能不能鼓起精神打二周目
+
+*****
+
+####  dren_zheng  
+##### 529#       发表于 2022-3-6 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54939794&amp;ptid=2051152" target="_blank">稲穂信 发表于 2022-3-6 19:49</a>
+
+这……我都怀疑我能不能鼓起精神打二周目</blockquote>
+我也是听说的，也许没那么多，以后有收人攻略的话估计能减少很多次数
+
+但至少开头出使国家收人不同至少2周目是肯定的
+
+*****
+
+####  kirito_wst  
+##### 530#       发表于 2022-3-6 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54939824&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-6 19:52</a>
+
+我也是听说的，也许没那么多，以后有收人攻略的话估计能减少很多次数
+
+但至少开头出使国家收人不同至少2周 ...</blockquote>
+其实是三周目，中后期有个三线分支，一条线能收一个专属角色
+
+*****
+
+####  dren_zheng  
+##### 531#       发表于 2022-3-6 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54939851&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-6 19:55</a>
+
+其实是三周目，中后期有个三线分支，一条线能收一个专属角色</blockquote>
+嗯，三周目
+
+不过考虑到玩家往往一周目时没做规划，最终可能需要4个周目才能完美
+
+*****
+
+####  shiko  
+##### 532#       发表于 2022-3-6 19:59
+
+打了一下试玩开头，感觉男主和老婆有点好磕啊，后面发糖多不多，发糖多的话我就买了，别的剧情差一点也无所谓。
+
+另外实体卡400算正常价格吗？
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
