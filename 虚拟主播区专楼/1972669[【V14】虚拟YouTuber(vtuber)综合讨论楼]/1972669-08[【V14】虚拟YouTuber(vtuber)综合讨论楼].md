@@ -8651,3 +8651,23 @@ And funniest of all
 
 作为人人都会把数字在直播里大谈特谈的nijien，私底下会聊什么我都不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真飞鸟i  
+##### 11275#       发表于 2022-3-6 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实算是帮木口团建了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤原银  
+##### 11276#       发表于 2022-3-6 11:21
+
+ 本帖最后由 藤原银 于 2022-3-6 11:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帮木口团建就是反向帮虹团建，虹又赢！
+
