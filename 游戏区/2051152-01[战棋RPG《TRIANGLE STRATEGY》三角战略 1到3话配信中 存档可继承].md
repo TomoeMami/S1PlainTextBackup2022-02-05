@@ -5448,3 +5448,21 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 
 卡带不知道什么时候才能发货，看起来这游戏困难模式会很折磨？
 
+
+
+*****
+
+####  源頼光  
+##### 501#       发表于 2022-3-6 16:43
+
+试着不放火被女将军打出屎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 502#       发表于 2022-3-6 17:00
+
+突然想到一个问题，扛着一把大剑武功天下第一的御姐将军，这个刻板印象最早是啥作品搞出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
