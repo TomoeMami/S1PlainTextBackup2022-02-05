@@ -5694,3 +5694,26 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 一开始以为大舅子能力多强，其实根本不懂笼络人心
 
+
+
+*****
+
+####  dren_zheng  
+##### 525#       发表于 2022-3-6 19:33
+
+这游戏的分歧选择没那么难啊，怎么你们一个个被游戏强按着头选的样子？
+
+我玩到现在，选项永远是7个硬币，3个正方3个反方，一个中立的安娜，说服安娜就行了啊
+
+*****
+
+####  kirito_wst  
+##### 526#       发表于 2022-3-6 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54939580&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-6 19:33</a>
+
+这游戏的分歧选择没那么难啊，怎么你们一个个被游戏强按着头选的样子？
+
+我玩到现在，选项永远是7个硬币，3 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">最可怕的是反方永远都是4票，比如高道德的情况下运私盐，很难说服
+

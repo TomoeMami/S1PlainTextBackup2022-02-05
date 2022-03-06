@@ -8271,3 +8271,19 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 
 本来就是爱看看不看滚的事啊，哪么多废话<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新磕娘  
+##### 8448#       发表于 2022-3-6 19:25
+
+哎，hololive快点死吧，多呆一天都是折磨
+
+*****
+
+####  lightsuger  
+##### 8449#       发表于 2022-3-6 19:39
+
+就她这抗压，毕业了肯定不会再活动了
+
