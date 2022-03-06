@@ -639,3 +639,12 @@ Liella!×蜡笔小新的野原一家
 
 <img src="https://img.saraba1st.com/forum/202203/06/142055gbn9a6787jq9799b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6055#       发表于 2022-3-6 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这狗放到中国语境中真的笑死了，哪怕sayu狗狗真的很可爱
+
