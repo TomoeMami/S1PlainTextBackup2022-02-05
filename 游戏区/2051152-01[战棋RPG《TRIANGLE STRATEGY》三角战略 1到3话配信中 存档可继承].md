@@ -5109,3 +5109,83 @@ SLG部分我很喜欢，能玩出来的花样很多，比如火冰雷法师连�
 按我目前的进度来说还可以吧，虽说不是为了踩一捧一本但至少有个平衡的尺度
 在剧情上还是比风花雪月强的，本作对话要是加上立绘剧情上体验应该更上一层。几个像素小人对话还是单薄了些<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Troywest  
+##### 469#       发表于 2022-3-6 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54931624&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-6 00:27</a>
+啊，我才打到demo1的位置，哪位好心人告诉我一下面具男子安到底挂了没
+
+—— 来自 S1Fun ...</blockquote>
+我也是才到第七章。但看这面具，枪兵，负伤掉河里的设定。联想到火纹初代三部曲的卡谬／吉克／西利乌斯。感觉应该是不会死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kevinausting  
+##### 470#       发表于 2022-3-6 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54934850&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-6 11:35</a>
+
+有的，简单难度随便打，还有个非常简单难度</blockquote>
+谢谢，非常简单难度很适合我了
+
+*****
+
+####  kevinausting  
+##### 471#       发表于 2022-3-6 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54934899&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-6 11:39</a>
+
+还有非常简单难度
+
+困难难度下，同等级我方要砍对面三四刀才死，非常简单下我方一刀毙命 ...</blockquote>
+太好了，我玩游戏就喜欢选最简单的那个<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hypnossz86  
+##### 472#       发表于 2022-3-6 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54934891&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-6 11:38</a>
+
+这游戏，优点是战场上角色的特点分明，比如同样是弓，几个弓的差异巨大
+
+缺点嘛，剧情文本太多看剧30分钟打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">意思是主线地图都是模板复用？
+
+这在slg里面可算是致命了吧......
+
+*****
+
+####  hellightning  
+##### 473#       发表于 2022-3-6 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54935226&amp;ptid=2051152" target="_blank">hypnossz86 发表于 2022-3-6 12:10</a>
+意思是主线地图都是模板复用？
+
+这在slg里面可算是致命了吧......</blockquote>
+说的是自由战斗地图复用吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  LamdaHT  
+##### 474#       发表于 2022-3-6 12:16
+
+自由战斗我感觉这样也挺好啊，本来就是用来刷级的，目前在第八章比较前期，每个自由战斗某种意义上还可以当成战斗指引。
+
+感觉泥潭对这游戏恶意有点大，演出水平确实被像素小人限制了很拉，但这个关卡数量说是同人游戏是不是有点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 475#       发表于 2022-3-6 12:18
+
+那么问题来了，同样是看剧30分钟打戏10分钟，和经典同人《姜维传》比如何<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

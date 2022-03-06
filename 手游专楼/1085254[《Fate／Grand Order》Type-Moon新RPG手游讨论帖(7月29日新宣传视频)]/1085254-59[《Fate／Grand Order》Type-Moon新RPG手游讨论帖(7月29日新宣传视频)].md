@@ -1424,3 +1424,25 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 一切突然变的很合理了　狂娜给了３０石出了狂娜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗 我已经三个月没出五星了
 
+
+
+*****
+
+####  alucardcz  
+##### 87127#       发表于 2022-3-6 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54933311&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-6 08:23</a>
+
+狗 我已经三个月没出五星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 萌新连同福袋 今年还没有new
+
+*****
+
+####  qixinno2  
+##### 87128#       发表于 2022-3-6 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54935245&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-6 12:12</a>
+
+虽然但是 萌新连同福袋 今年还没有new</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那也出货了啊 我三个月连个五星都没出过
+
