@@ -869,3 +869,31 @@ NHK FM
 
 2022-3-7 14:38 上传
 
+
+
+*****
+
+####  优妮可  
+##### 6069#       发表于 2022-3-7 14:50
+
+等多几个人采访再看看，现在这些根据第一季也是能猜出来的。这么快就出的剧本，我还是建议花田和企划多想想吧
+
+*****
+
+####  仟音一心  
+##### 6070#       发表于 2022-3-7 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54950786&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-3-7 14:38</a>
+
+鱼是不是拿到2期剧本了</blockquote>
+应该不是吧
+
+F770761E-849B-41A5-9ABB-0DDED0901AA0.jpeg
+(150.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-7 14:56 上传
+
+<img src="https://img.saraba1st.com/forum/202203/07/145649etq3tllptcgpcgcj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
