@@ -6075,3 +6075,88 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 问下，我每次酒场打完训练关都会说我主角信念升了，那么是三项一起升吗？
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 560#       发表于 2022-3-7 09:06
+
+看出来了，这也是和老头环一样，需要玩家社区群策群力的游戏
+可惜，这玩意的社区体量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  SEGA  
+##### 561#       发表于 2022-3-7 09:07
+
+这个游戏晋升早晚是否有影响？刚到第八章，手里两个勋章，火纹养成的习惯，现在不知道要不要给角色晋升。
+
+*****
+
+####  kirito_wst  
+##### 562#       发表于 2022-3-7 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946305&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-7 09:00</a>
+
+问下，我每次酒场打完训练关都会说我主角信念升了，那么是三项一起升吗？ ...</blockquote>
+不是，只上升一项，具体怎么判定的我没仔细看
+
+不过战斗每次只加2点，三选一选一次加50点，大头还是在选项上面
+
+*****
+
+####  艾特娜  
+##### 563#       发表于 2022-3-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946305&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-7 09:00</a>
+
+问下，我每次酒场打完训练关都会说我主角信念升了，那么是三项一起升吗？ ...</blockquote>
+据说跟游戏难度有关，简单升自由，普通升道德，困难升功利
+
+*****
+
+####  艾特娜  
+##### 564#       发表于 2022-3-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946393&amp;ptid=2051152" target="_blank">SEGA 发表于 2022-3-7 09:07</a>
+
+这个游戏晋升早晚是否有影响？刚到第八章，手里两个勋章，火纹养成的习惯，现在不知道要不要给角色晋升。 ...</blockquote>
+没影响的，每个角色数值固定
+
+*****
+
+####  繭  
+##### 565#       发表于 2022-3-7 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946305&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-7 09:00</a>
+问下，我每次酒场打完训练关都会说我主角信念升了，那么是三项一起升吗？ ...</blockquote>
+不是
+战斗胜利结算队伍等级和推荐等级一致的+1道德
+低于推荐等级+1利益
+高于推荐等级+1自由
+其余还会看战斗中的一些操作次数来加指定信念
+
+*****
+
+####  繭  
+##### 566#       发表于 2022-3-7 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946040&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-7 08:30</a>
+看Nga有人是这么说结局的
+
+大家期望的是新维加斯或者梦2der的那种结局，多线结局是平等，每一条线我做出了 ...</blockquote>
+感觉就是从剧情本身到这个NE和TE的路线设定都很复古，不喜欢这种的肯定觉得吃屎感太重
+
+*****
+
+####  SEGA  
+##### 567#       发表于 2022-3-7 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946421&amp;ptid=2051152" target="_blank">艾特娜 发表于 2022-3-7 09:10</a>
+
+没影响的，每个角色数值固定</blockquote>
+谢谢。
+
