@@ -6277,3 +6277,34 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 草，美服50刀的游戏，淘宝炒的也太贵了吧
 
+
+
+*****
+
+####  Troywest  
+##### 579#       发表于 2022-3-7 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54947228&amp;ptid=2051152" target="_blank">3D烧 发表于 2022-3-7 10:21</a>
+草，美服50刀的游戏，淘宝炒的也太贵了吧</blockquote>
+不是60刀么
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kirito_wst  
+##### 580#       发表于 2022-3-7 10:36
+
+59.99吧，如果囤了便宜点卡，300多一点就能入数字版。
+
+*****
+
+####  3D烧  
+##### 581#       发表于 2022-3-7 10:37
+
+<blockquote>Troywest 发表于 2022-3-7 10:33
+不是60刀么
+
+—— 来自 samsung SM-G9730, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+刚看了下还真是，忘了和哪个游戏搞混了
+

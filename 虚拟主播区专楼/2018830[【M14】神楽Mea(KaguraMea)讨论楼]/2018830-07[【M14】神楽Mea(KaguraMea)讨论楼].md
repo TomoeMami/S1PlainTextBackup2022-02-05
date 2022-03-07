@@ -5423,3 +5423,21 @@ phantom of kill 这游戏真够老的
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  呓亘  
+##### 9594#       发表于 2022-3-7 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946881&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-3-7 09:52</a>
+ 总感觉最近几天没播？还是播了我没看到</blockquote>
+前天播了LOL
+
+*****
+
+####  yywzjsw  
+##### 9595#       发表于 2022-3-7 10:37
+
+印象里是星期四播了个歌回？
+
