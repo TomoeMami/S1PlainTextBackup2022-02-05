@@ -6385,3 +6385,19 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 二周目好像只能打Normal难度了，不然连第一关都过不去<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ssq12  
+##### 589#       发表于 2022-3-7 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54929690&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-5 21:02</a>
+
+全流程不死人有饰品奖励
+
+老婆线结局挺无语的，慎入（虽然很可能其他线也差不多吧）</blockquote>
+求问饰品是什么效果
+
+二周目能拿吗 能拿的话就超简单混一周目
+
