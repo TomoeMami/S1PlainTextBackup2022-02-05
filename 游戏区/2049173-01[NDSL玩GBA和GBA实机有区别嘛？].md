@@ -2751,3 +2751,32 @@ SP的除开按键矮点，结构应该是一样的。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  arbilest  
+##### 203#       发表于 2022-3-7 17:14
+
+买了两台NDSL都是下屏发黄，续航手感也很一般
+最后我还是买了舞馆的GBA，看起来传说中的横纹问题确实已经解决了。弄了四颗京造锂电，看看效果。
+两台NDSL挂咸鱼无人问津，怕是烂手里了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202203/07/171215eaa6kvyfmhy51a1y.jpg" referrerpolicy="no-referrer">
+
+<strong>DDCC09B3-77B0-4032-B152-B3E2B1F1563E.jpg</strong> (799 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-7 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202203/07/171216r0w4dtc4v600chh0.jpg" referrerpolicy="no-referrer">
+
+<strong>BE517B43-F6A0-4C52-8727-0E7616C115BE.jpg</strong> (788.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-7 17:12 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
