@@ -6508,3 +6508,12 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 也有可能是我比较喜欢那种可以喧宾夺主的音乐
 
+
+
+*****
+
+####  riin1  
+##### 600#       发表于 2022-3-7 15:36
+
+我差不多打了一天，终于在不开机关的前提下打过了第7章<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 用的是猥琐屋顶流，感觉很邪道
+
