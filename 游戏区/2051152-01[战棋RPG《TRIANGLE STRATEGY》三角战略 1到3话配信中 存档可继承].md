@@ -6517,3 +6517,93 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 我差不多打了一天，终于在不开机关的前提下打过了第7章<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 用的是猥琐屋顶流，感觉很邪道
 
+
+
+*****
+
+####  繭  
+##### 601#       发表于 2022-3-7 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54948230&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-7 11:28</a>
+按照开真结局的选项来看，需要触发知道领地机关但是不使用的flag
+
+把罗兰交出去那关应该是在码头战奥罗拉 ...</blockquote>
+看到有交王子也进真结局的了，后续还有一章能了解机关的
+
+*****
+
+####  dren_zheng  
+##### 602#       发表于 2022-3-7 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54951161&amp;ptid=2051152" target="_blank">JimmyJoker 发表于 2022-3-7 15:05</a>
+
+说点别的，各位觉得这次千住明老师发挥得怎样？
+
+我觉得还行，虽然感觉不知道是不是制作组提了要求，明快英 ...</blockquote>
+曲子比八方旅人也就差那么一点点（熊猫指间）
+
+*****
+
+####  riin1  
+##### 603#       发表于 2022-3-7 16:27
+
+ 本帖最后由 riin1 于 2022-3-7 00:28 编辑 
+
+话说八方旅人和这作加起来，能看出这个组就擅长做这种步步为营的游戏，我还记得八方里面被小怪都打死无数次了。。。但是感觉游戏性还行，但是艺术性差了一些
+
+不过还是挺看好SE在这个年代仍然能做2d为基础的游戏，其实本来很多玩家进入中年后都有强烈的怀旧情结，SE这波瞄准的就是这样的人吧
+
+*****
+
+####  SEGA  
+##### 604#       发表于 2022-3-7 16:38
+
+这个游戏单一流程大概几话？
+
+*****
+
+####  kirito_wst  
+##### 605#       发表于 2022-3-7 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952337&amp;ptid=2051152" target="_blank">繭 发表于 2022-3-7 16:25</a>
+
+看到有交王子也进真结局的了，后续还有一章能了解机关的</blockquote>
+那挺好，至少这个环节不是唯一解了
+
+*****
+
+####  JimmyJoker  
+##### 606#       发表于 2022-3-7 16:40
+
+靠，第八章推荐12级结果女将军15级还不吃麻痹...
+
+*****
+
+####  kirito_wst  
+##### 607#       发表于 2022-3-7 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952546&amp;ptid=2051152" target="_blank">SEGA 发表于 2022-3-7 16:38</a>
+
+这个游戏单一流程大概几话？</blockquote>
+NE19话，TE21话
+
+*****
+
+####  kirito_wst  
+##### 608#       发表于 2022-3-7 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952597&amp;ptid=2051152" target="_blank">JimmyJoker 发表于 2022-3-7 16:40</a>
+
+靠，第八章推荐12级结果女将军15级还不吃麻痹...</blockquote>
+BOSS比推荐等级高的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SEGA  
+##### 609#       发表于 2022-3-7 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952601&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-7 16:41</a>
+
+NE19话，TE21话</blockquote>
+感觉流程不长啊，普通难度一周目也就20多小时。
+
