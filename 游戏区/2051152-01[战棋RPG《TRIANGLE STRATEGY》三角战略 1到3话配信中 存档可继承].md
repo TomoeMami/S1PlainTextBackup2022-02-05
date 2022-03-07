@@ -6607,3 +6607,15 @@ BOSS比推荐等级高的<img src="https://static.saraba1st.com/image/smiley/fac
 NE19话，TE21话</blockquote>
 感觉流程不长啊，普通难度一周目也就20多小时。
 
+
+
+*****
+
+####  艾特娜  
+##### 610#       发表于 2022-3-7 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952597&amp;ptid=2051152" target="_blank">JimmyJoker 发表于 2022-3-7 16:40</a>
+
+靠，第八章推荐12级结果女将军15级还不吃麻痹...</blockquote>
+守在最靠城堡门的那个高地慢慢磨死就行了
+
