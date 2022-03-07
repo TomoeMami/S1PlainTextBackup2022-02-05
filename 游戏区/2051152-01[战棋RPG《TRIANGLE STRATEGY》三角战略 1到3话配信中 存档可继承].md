@@ -6401,3 +6401,33 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 二周目能拿吗 能拿的话就超简单混一周目
 
+
+
+*****
+
+####  kirito_wst  
+##### 590#       发表于 2022-3-7 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54949046&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-3-7 12:27</a>
+二周目好像只能打Normal难度了，不然连第一关都过不去</blockquote>
+开局就高等级，敌方血厚了之后感觉很不好处理
+不过满级就50，二周目挺过去感觉就没啥好玩的了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kirito_wst  
+##### 591#       发表于 2022-3-7 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54949234&amp;ptid=2051152" target="_blank">ssq12 发表于 2022-3-7 12:42</a>
+
+求问饰品是什么效果
+
+二周目能拿吗 能拿的话就超简单混一周目</blockquote>
+死亡时50%概率复活
+
+个人觉得就是个收集要素吧，只给一次
+
+顺便一提，这个游戏好像特殊饰品都只给一次。比如一周目在探索搜到的饰品二周目就不会发光了。
+

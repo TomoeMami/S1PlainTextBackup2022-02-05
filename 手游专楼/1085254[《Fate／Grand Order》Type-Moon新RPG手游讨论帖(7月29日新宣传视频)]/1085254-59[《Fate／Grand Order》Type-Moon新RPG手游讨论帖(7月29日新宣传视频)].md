@@ -1515,3 +1515,14 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 虽然不知道狂娜每天逼逼叨的这些东西有什么含义，不过提到的那个带斩击打击耐性的眼镜可不可以给隔壁褪色者弄一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 87136#       发表于 2022-3-7 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">手机换完了，三星的S搬家助手没法连账号一起发送，引继过来的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
