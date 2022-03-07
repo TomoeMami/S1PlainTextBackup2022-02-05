@@ -6711,3 +6711,14 @@ NE19话，TE21话</blockquote>
 话说是困难模式刷最快吗</blockquote>
 困难难度这关超难打，你还没处理掉一边的弓手，另一边的短剑已经从侧翼摸过来了。就困难难度敌人那个伤害，任意二人打个配合就能带走你这边除了壮壮以外的人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 618#       发表于 2022-3-7 20:30
+
+啊不是，我是说私盐那个选择枝，我功利不够
+刷了十几把困难酒馆总算说服了安娜<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+这粪设计谁想出来的
+
