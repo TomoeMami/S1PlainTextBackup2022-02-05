@@ -1548,3 +1548,15 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 我开始怀疑周三会实装君士坦丁十一世，来波大的了。
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87139#       发表于 2022-3-7 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54955394&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-3-7 21:15</a>
+
+这次活动的剧情还挺复杂，又是海龟汤又是捉迷藏，今天这个相性战略调配我已经快看不懂了......就是个白情活 ...</blockquote>
+可能是圆居写的吧
+
