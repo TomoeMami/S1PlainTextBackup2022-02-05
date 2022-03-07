@@ -6449,3 +6449,23 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 我觉得放在一周目就能实现，没什么不好的
 
+
+
+*****
+
+####  先生空气  
+##### 594#       发表于 2022-3-7 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而要选择去运私盐才有可能达到，这和保不保人已经没关系，不看攻略，能不能进真结局就是丢硬币了。
+
+*****
+
+####  Troywest  
+##### 595#       发表于 2022-3-7 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54950725&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-7 14:34</a>
+然而要选择去运私盐才有可能达到，这和保不保人已经没关系，不看攻略，能不能进真结局就是丢硬币了 ...</blockquote>
+我选择了去举报<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
