@@ -6772,3 +6772,15 @@ NE19话，TE21话</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏强化武器获得特效的少 一堆加属性点的就很凑数
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 624#       发表于 2022-3-7 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952337&amp;ptid=2051152" target="_blank">繭 发表于 2022-03-07 16:25:07</a>
+看到有交王子也进真结局的了，后续还有一章能了解机关的</blockquote>那么不走私能进真结局吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
