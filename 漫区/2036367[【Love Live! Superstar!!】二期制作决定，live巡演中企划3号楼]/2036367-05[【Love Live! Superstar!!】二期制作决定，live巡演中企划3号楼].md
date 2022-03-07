@@ -897,3 +897,12 @@ F770761E-849B-41A5-9ABB-0DDED0901AA0.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/07/145649etq3tllptcgpcgcj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6071#       发表于 2022-3-7 15:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看这样子要不是猜的，要不就是已经拿到一部分台词本了
+
