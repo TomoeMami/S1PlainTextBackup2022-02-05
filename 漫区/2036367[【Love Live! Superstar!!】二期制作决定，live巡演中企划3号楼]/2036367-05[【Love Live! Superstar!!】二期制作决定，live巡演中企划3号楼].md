@@ -929,3 +929,15 @@ F770761E-849B-41A5-9ABB-0DDED0901AA0.jpeg
 
 除非它说全部做完了，不然都是边播边做吧
 
+
+
+*****
+
+####  Enakina  
+##### 6075#       发表于 2022-3-7 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54951587&amp;ptid=2036367" target="_blank">player3960 发表于 2022-03-07 15:31:06</a>
+微博那个之前参加星团制作的原画妹子，前段时间才说自己加入了虹二期的制作，明显虹二期还没做完，感觉星二 ...</blockquote>那位画师收到六卷bd后，还发微博说二期很快就会见面呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
