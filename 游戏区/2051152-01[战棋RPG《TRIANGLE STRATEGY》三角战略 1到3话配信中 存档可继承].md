@@ -6695,3 +6695,19 @@ NE19话，TE21话</blockquote>
 话说是困难模式刷最快吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">私盐那里好打的，明显的草地地形，近战重甲用大叔嘲讽拉住放火就能烫死，开局让铁匠带披风先动放梯子把下面的人拉上去，刺客和罗兰站前两格给罗兰一个加速加移速两个人过去摸掉右边两个弓箭手。
 
+
+
+*****
+
+####  桐道悠  
+##### 617#       发表于 2022-3-7 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954483&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-7 19:21</a>
+
+日了狗我也卡在私盐那里了
+
+在酒馆里打滚
+
+话说是困难模式刷最快吗</blockquote>
+困难难度这关超难打，你还没处理掉一边的弓手，另一边的短剑已经从侧翼摸过来了。就困难难度敌人那个伤害，任意二人打个配合就能带走你这边除了壮壮以外的人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

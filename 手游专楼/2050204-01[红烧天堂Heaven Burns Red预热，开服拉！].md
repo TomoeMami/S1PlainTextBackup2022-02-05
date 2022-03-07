@@ -2700,3 +2700,22 @@ ios登顶了，但是还是要说一句飞机社飞马
 别想了，飞机社的新角色永远是周期性地全面碾压旧角色的，一个版本一个天，唯一的补偿就是等到旧版本角色 ...</blockquote>
 那也至少保证旧卡推推主线和活动刷pt没问题吧，要是到了后面旧角色连打主线都困难，我只能说祝这运营好运了
 
+
+
+*****
+
+####  barca  
+##### 241#       发表于 2022-3-7 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953814&amp;ptid=2050204" target="_blank">terry666 发表于 2022-3-7 18:15</a>
+这池子密度我只能希望这游戏角色SS上位替代少一点，尽量做到角色保值吧，这要是一个比一个强，都没一点心思 ...</blockquote>
+看解包数据，毕竟现在各属性各职业还没出全，新角色性能还是有控制的
+
+姐姐就是突属雷版wakki和黎明女主，大招倍率一样，hit数只有1甚至还弱点
+
+妹妹技能组也并不出彩，大招14sp1hit，最高倍率也和三个attacker一样。sp消耗，大招倍率和hit数都不如螃蟹，优势是妹妹是唯一的斩属breaker（从A卡职业来看），螃蟹只能兼顾弱斩和弱打的boss
+
+所以目前最强buffer，breaker反倒都是旧卡池里没up过的。不过等到各属性各职业都出了一个遍后，按照飞机社的尿性，估计强度就要开始通胀了。个人感觉31E，31F和31X某些角色很有潜力
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
