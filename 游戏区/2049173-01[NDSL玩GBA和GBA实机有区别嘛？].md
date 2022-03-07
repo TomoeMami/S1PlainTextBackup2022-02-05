@@ -2872,3 +2872,16 @@ DS系列屏幕发黄是不是没办法换？
 
 也许应该推荐后来者别家的产品比较好？
 
+
+
+*****
+
+####  arbilest  
+##### 211#       发表于 2022-3-7 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953527&amp;ptid=2049173" target="_blank">战狼PTSD 发表于 2022-3-7 17:51</a>
+DS系列屏幕发黄是不是没办法换？</blockquote>
+淘宝上下屏都有卖的，不过看着不是很好换的样子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
