@@ -8404,3 +8404,21 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 这说的，不会qsmf黑屁的是她吧</blockquote>
 明显是被那张打钩sc女的暗 杀名单搞破防了，menhera的心理就是这么脆弱。
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 8461#       发表于 2022-3-7 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946354&amp;ptid=1947500" target="_blank">大厨麦当牛 发表于 2022-3-7 09:04</a>
+明显是被那张打钩sc女的暗 杀名单搞破防了，menhera的心理就是这么脆弱。</blockquote>
+那个不是只在中文圈传的广吗
+
+*****
+
+####  tuna  
+##### 8462#       发表于 2022-3-7 10:20
+
+？有人把中文梅毒造谣meme翻成日文发外网炒作了?&gt;<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -5403,3 +5403,23 @@ phantom of kill 这游戏真够老的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  十九号大侠  
+##### 9592#       发表于 2022-3-7 10:11
+
+今天有播
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 9593#       发表于 2022-3-7 10:13
+
+这啥采访呀，又是大人气，又是先驱
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
