@@ -5062,3 +5062,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 还能同化其他人，卍组现在都摆了
 
+
+
+*****
+
+####  stedckk  
+##### 14005#       发表于 2022-3-7 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">绫总罪大恶极
+

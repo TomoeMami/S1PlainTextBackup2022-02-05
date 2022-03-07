@@ -6665,3 +6665,33 @@ NE19话，TE21话</blockquote>
 
 话说是困难模式刷最快吗
 
+
+
+*****
+
+####  leachiman  
+##### 615#         楼主| 发表于 2022-3-7 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954483&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-7 19:21</a>
+
+日了狗我也卡在私盐那里了
+
+在酒馆里打滚
+
+话说是困难模式刷最快吗</blockquote>
+困难关卡等级高，给的经验多；刷等级选困难，刷材料和钱选最简单
+
+*****
+
+####  blackll7  
+##### 616#       发表于 2022-3-7 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954483&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-7 19:21</a>
+
+日了狗我也卡在私盐那里了
+
+在酒馆里打滚
+
+话说是困难模式刷最快吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">私盐那里好打的，明显的草地地形，近战重甲用大叔嘲讽拉住放火就能烫死，开局让铁匠带披风先动放梯子把下面的人拉上去，刺客和罗兰站前两格给罗兰一个加速加移速两个人过去摸掉右边两个弓箭手。
+
