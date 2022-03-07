@@ -2819,3 +2819,28 @@ ndsl留着吧，玩玩ndsl还是比较可以。<img src="https://static.saraba1s
 
 DS系列屏幕发黄是不是没办法换？
 
+
+
+*****
+
+####  ercai1  
+##### 207#       发表于 2022-3-7 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再一次确定了：数码舞馆GBA的方向键通病来自于导电胶。
+
+花了3块钱在这里买了一套换上（邮费都他妈的比东西贵，NND）：[https://item.taobao.com/item.htm ... 4&amp;_u=7c6o43de3e](https://item.taobao.com/item.htm?spm=a1z09.2.0.0.a0f82e8dPuPbvZ&amp;id=537159174154&amp;_u=7c6o43de3e)
+
+问题立刻迎刃而解，手感回归新机年代<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+…………你说这800一台的机器用的零件都是些几毛钱的货色<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oidoid  
+##### 208#       发表于 2022-3-7 18:39
+
+ 本帖最后由 oidoid 于 2022-3-7 18:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953206&amp;ptid=2049173" target="_blank">hlbb 发表于 2022-3-7 17:24</a>
+电池哪里买的啊</blockquote>
+贝思，话说牌子不是在照片上么…
+
