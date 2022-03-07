@@ -6376,3 +6376,12 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 这样看就会少这一把钥匙，进而开不了真结局
 
+
+
+*****
+
+####  leachiman  
+##### 588#         楼主| 发表于 2022-3-7 12:27
+
+二周目好像只能打Normal难度了，不然连第一关都过不去<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
