@@ -11281,3 +11281,25 @@ syl 从泄漏出要3d我就料想到这种结局了 文静本身并不是什么�
 
 鸟综说话怎么越来越泥了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 5702#       发表于 2022-3-7 08:50
+
+ 本帖最后由 暗黑能乐 于 2022-3-7 08:51 编辑 
+
+主要还是最近一周一直鸽，难免心里不安吧，排班我记得上周看是有三天的，结果一天都没来。最后周末的纪念回还搞砸了
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  人民de救星  
+##### 5703#       发表于 2022-3-7 08:58
+
+看完然然生日会再看文静十万粉纪念会，脑子里只有四个字 基尼系数<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
