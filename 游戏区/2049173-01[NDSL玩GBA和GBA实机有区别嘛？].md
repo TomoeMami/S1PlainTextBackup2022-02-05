@@ -2780,3 +2780,33 @@ SP的除开按键矮点，结构应该是一样的。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  hlbb  
+##### 204#       发表于 2022-3-7 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54914012&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-3-4 13:09</a>
+
+结果还是随便买了四节锂电池
+
+标称1900mah
+
+武馆屏最大亮度，最大音量，运行老任自己的烤机rom</blockquote>
+电池哪里买的啊
+
+*****
+
+####  zris  
+##### 205#         楼主| 发表于 2022-3-7 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953083&amp;ptid=2049173" target="_blank">arbilest 发表于 2022-3-7 17:14</a>
+买了两台NDSL都是下屏发黄，续航手感也很一般
+最后我还是买了舞馆的GBA，看起来传说中的横纹问题确实已经解 ...</blockquote>
+可以的话，麻烦测试下京造的续航，尼玛我买了好几对电池感觉都不扛，感觉也要上续航了。
+其次你买整机，按键手感硬吗。
+ndsl留着吧，玩玩ndsl还是比较可以。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
