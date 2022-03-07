@@ -2885,3 +2885,35 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 212#         楼主| 发表于 2022-3-7 21:06
+
+ 本帖最后由 zris 于 2022-3-7 21:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954224&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-3-7 18:52</a>
+武馆那个调光方案其实很不好用，触摸经常接触不良，又不能完全贴死否则很难换按键
+
+也许应该推荐后来者别 ...</blockquote>
+上电烙铁了，我都买了一套打算自己焊了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+主要现在点对点我看了下也就舞馆家有方案，别的都是他的分销。老任粉丝团是自己的，但是他家好像不如舞馆。
+
+不然gba就上ips了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zris  
+##### 213#         楼主| 发表于 2022-3-7 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954078&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-3-7 18:38</a>
+再一次确定了：数码舞馆GBA的方向键通病来自于导电胶。
+
+花了3块钱在这里买了一套换上（邮费都他妈的 ...</blockquote>
+好的，我看看，谢谢分享<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
