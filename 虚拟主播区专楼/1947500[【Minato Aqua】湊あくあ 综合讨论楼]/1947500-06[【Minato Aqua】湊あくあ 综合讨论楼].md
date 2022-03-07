@@ -8453,3 +8453,24 @@ holomen都不算朋友（nakama是什么东西啊<img src="https://static.saraba
 —— 来自 S1Fun</blockquote>
 五一 syl哪有这么多盒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8466#       发表于 2022-3-7 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54947948&amp;ptid=1947500" target="_blank">越动天下 发表于 2022-3-7 11:11</a>
+
+五一 syl哪有这么多盒的 圣皇又没有魂号 不都是在YY吗</blockquote>
+没魂号是什么意思。凛子的推，nico，youtube号没删没锁的，只是很久没有活动而已
+
+*****
+
+####  越动天下  
+##### 8467#       发表于 2022-3-7 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953574&amp;ptid=1947500" target="_blank">面具13 发表于 2022-3-7 17:55</a>
+没魂号是什么意思。凛子的推，nico，youtube号没删没锁的，只是很久没有活动而已 ...</blockquote>
+就是没有活动的意思呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有魂等于没魂 什么时候真的活动了 那才是真的大的来了
+
