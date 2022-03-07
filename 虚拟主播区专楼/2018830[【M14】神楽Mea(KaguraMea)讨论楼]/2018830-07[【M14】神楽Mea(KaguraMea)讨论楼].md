@@ -5532,3 +5532,47 @@ phantom of kill 这游戏真够老的
 
 VCP……
 
+
+
+*****
+
+####  路人庚  
+##### 9605#       发表于 2022-3-8 01:03
+
+ 本帖最后由 路人庚 于 2022-3-8 01:05 编辑 
+
+存一下fafa翻译的采访稿（还是有点zqsg的
+[https://b23.tv/quSxlBd](https://b23.tv/quSxlBd)
+
+<img src="https://img.saraba1st.com/forum/202203/08/010458fxtjlgl0tyz05o5s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6B71F804-9F10-4009-B7ED-23EBA6AA7B79.jpeg</strong> (262.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-8 01:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/08/010510p8os78fv4ykaw282.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DB142CA1-166E-4CCC-8AEB-4D45F1295CE0.jpeg</strong> (430 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-8 01:05 上传
+
+<img src="https://img.saraba1st.com/forum/202203/08/010515xwy4fau44448e8hn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E9B6A0F1-E73C-4BA8-8717-64875A7A845B.jpeg</strong> (366.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-8 01:05 上传
+
+<img src="https://img.saraba1st.com/forum/202203/08/010520h3wummcfp563lxal.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BB08CF76-C58E-44EE-B56A-F8F0D14A344A.jpeg</strong> (342.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-8 01:05 上传
+
