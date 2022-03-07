@@ -6160,3 +6160,102 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 没影响的，每个角色数值固定</blockquote>
 谢谢。
 
+
+
+*****
+
+####  LamdaHT  
+##### 568#       发表于 2022-3-7 09:42
+
+ 本帖最后由 LamdaHT 于 2022-3-7 09:46 编辑 
+
+我对NE和TE的设计感觉倒没啥，你要说付出代价，那确实每条线结局都付出代价了并收获了一个不完美的结局啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得缺点是NE和TE之间的衔接，看贴吧发现一周目居然就能走到TE里，本来还以为每个结局都有个独占的线索，都通了才能进真结局，但真这么搞了看楼里怕不是要被喷得更惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且这游戏的社区基本上能挖的都挖出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟流程还是线性的
+
+*****
+
+####  LamdaHT  
+##### 569#       发表于 2022-3-7 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54944966&amp;ptid=2051152" target="_blank">tonberry 发表于 2022-3-7 01:03</a>
+
+这游戏目前感觉男主不能换下就是给玩家增加难度，技能体系太废了
+
+你说他物攻高但又不如同样物攻高的 ...</blockquote>
+男主是打有高低差的时候的阵地防守的，跟基友性能差异还是相当明显的
+
+*****
+
+####  ff2077  
+##### 570#       发表于 2022-3-7 09:50
+
+看着跟魏蜀吴结局似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是还有晋结局
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  灰狼  
+##### 571#       发表于 2022-3-7 09:51
+
+以及是不是入队就是高级职业的工具人在前期比主角+7人议会要强不少，毕竟我全员12级了也就3个转职证
+
+*****
+
+####  LamdaHT  
+##### 572#       发表于 2022-3-7 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946870&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-7 09:51</a>
+
+以及是不是入队就是高级职业的工具人在前期比主角+7人议会要强不少，毕竟我全员12级了也就3个转职证 ...</blockquote>
+普通转高级和高级转顶级用的转职证不一样，高级职业工具人需要一等勋章
+
+*****
+
+####  LamdaHT  
+##### 573#       发表于 2022-3-7 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946855&amp;ptid=2051152" target="_blank">ff2077 发表于 2022-3-7 09:50</a>
+
+看着跟魏蜀吴结局似的是不是还有晋结局
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 S1Next-鹅版  ...</blockquote>
+现在说的这些都是ne，有一个te，看贴吧有人打出来了
+
+*****
+
+####  kirito_wst  
+##### 574#       发表于 2022-3-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946931&amp;ptid=2051152" target="_blank">LamdaHT 发表于 2022-3-7 09:56</a>
+
+现在说的这些都是ne，有一个te，看贴吧有人打出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我二周目就是进的隐藏男主线，大团圆结局
+
+*****
+
+####  LamdaHT  
+##### 575#       发表于 2022-3-7 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946964&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-7 09:59</a>
+
+我二周目就是进的隐藏男主线，大团圆结局</blockquote>
+那就是他猜的晋结局吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看贴吧说好像一周目也能进
+
+*****
+
+####  kirito_wst  
+##### 576#       发表于 2022-3-7 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54946999&amp;ptid=2051152" target="_blank">LamdaHT 发表于 2022-3-7 10:02</a>
+
+那就是他猜的晋结局吧看贴吧说好像一周目也能进</blockquote>
+一周目能进，除了那几个隐藏条件应该还有信念值要求
+
+我一周目打完道德贼高，其他都低几百，所以没进去
+
