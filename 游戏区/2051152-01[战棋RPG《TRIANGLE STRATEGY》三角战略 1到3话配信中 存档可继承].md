@@ -6722,3 +6722,12 @@ NE19话，TE21话</blockquote>
 刷了十几把困难酒馆总算说服了安娜<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 这粪设计谁想出来的
 
+
+
+*****
+
+####  back57992  
+##### 619#       发表于 2022-3-7 20:58
+
+玩了两章 感觉各方面都不错，难道是我预期太低了
+
