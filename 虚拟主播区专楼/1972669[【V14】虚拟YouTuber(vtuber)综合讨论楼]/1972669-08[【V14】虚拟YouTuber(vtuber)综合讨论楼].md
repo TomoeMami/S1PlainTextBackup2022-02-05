@@ -9012,3 +9012,19 @@ sonny前世直播是不是只打枪不干别的…？听了会杂谈不知道是
 
 被虾勇的性别差暴论+对特定liver阴阳言论给逗笑了，这人那话说完还不被烧也是一种本事
 
+
+
+*****
+
+####  poipanchao  
+##### 11305#       发表于 2022-3-8 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54955999&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-3-7 22:18</a>
+
+本来虹杏两边把老鼠台流量拱手让给vshojo就是很诡异的事</blockquote>
+杏不清楚，虹刚好看到老叶的一个切片
+
+他跟vdk那群人聊到了社内对老鼠台的态度
+
+说是就连staff都对一些T台用语一无所知，可见整个虹对其根本就没有想法
+

@@ -6784,3 +6784,17 @@ NE19话，TE21话</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  艾特娜  
+##### 625#       发表于 2022-3-8 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54955865&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-7 22:05</a>
+
+那么不走私能进真结局吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+重点是让守城将军提前知道罗兰没死（获得守城将军信任），其他路线能遇到他吗？
+
