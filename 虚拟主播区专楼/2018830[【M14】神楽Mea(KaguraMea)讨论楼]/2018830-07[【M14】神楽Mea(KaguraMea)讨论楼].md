@@ -5450,3 +5450,12 @@ phantom of kill 这游戏真够老的
 
 当然是买的稿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 9597#       发表于 2022-3-7 11:01
+
+钱赚了，偶像也当了，接下来该大摆特摆了
+

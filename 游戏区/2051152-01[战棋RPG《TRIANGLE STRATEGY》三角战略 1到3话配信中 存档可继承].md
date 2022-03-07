@@ -6317,3 +6317,28 @@ hard难度第七章打了差不多一个下午才成功不烧村过了<img src="
 
 只有我覺得妹子線還行嗎? 離開這是非之地前往南方開闢新國家。 說真的，打到後期我是真的覺得煩，想要走人不幹了。
 
+
+
+*****
+
+####  kirito_wst  
+##### 583#       发表于 2022-3-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54947632&amp;ptid=2051152" target="_blank">Niu 发表于 2022-3-7 10:51</a>
+
+只有我覺得妹子線還行嗎? 離開這是非之地前往南方開闢新國家。 說真的，打到後期我是真的覺得煩，想要走人 ...</blockquote>
+最后只剩男主一个正常人，其他三个都魔怔了，的确挺累的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+老婆线相对来说没有那么苦大仇深，要是结尾能好一点就好了。
+
+不过既然把大团圆放te了，三个ne差一点也能理解吧。
+
+*****
+
+####  yan38324  
+##### 584#       发表于 2022-3-7 11:15
+
+一周目随缘打了 天平也不干预结果随缘
+
+二周目再看攻略打完美结局
+
