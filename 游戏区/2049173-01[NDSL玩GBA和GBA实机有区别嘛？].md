@@ -2844,3 +2844,31 @@ DS系列屏幕发黄是不是没办法换？
 电池哪里买的啊</blockquote>
 贝思，话说牌子不是在照片上么…
 
+
+
+*****
+
+####  arbilest  
+##### 209#       发表于 2022-3-7 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953278&amp;ptid=2049173" target="_blank">zris 发表于 2022-3-7 17:29</a>
+可以的话，麻烦测试下京造的续航，尼玛我买了好几对电池感觉都不扛，感觉也要上续航了。
+其次你买整机， ...</blockquote>
+我这个感觉挺舒服的，评论有人说方向键左右力度不同我也没感觉到，LR看起来是微动但是手感挺像导电胶的。暂时挺满意的，电池等我明天开一天看看。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oidoid  
+##### 210#       发表于 2022-3-7 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954078&amp;ptid=2049173" target="_blank">ercai1 发表于 2022-3-7 18:38</a>
+
+再一次确定了：数码舞馆GBA的方向键通病来自于导电胶。
+
+花了3块钱在这里买了一套换上（邮费都他妈的 ...</blockquote>
+武馆那个调光方案其实很不好用，触摸经常接触不良，又不能完全贴死否则很难换按键
+
+也许应该推荐后来者别家的产品比较好？
+

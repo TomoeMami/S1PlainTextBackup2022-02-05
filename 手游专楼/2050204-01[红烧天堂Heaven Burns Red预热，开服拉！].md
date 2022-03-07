@@ -2677,3 +2677,15 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 这池子密度我只能希望这游戏角色SS上位替代少一点，尽量做到角色保值吧，这要是一个比一个强，都没一点心思去氪金抽卡了。
 
+
+
+*****
+
+####  xiongxingyu  
+##### 239#       发表于 2022-3-7 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953814&amp;ptid=2050204" target="_blank">terry666 发表于 2022-3-7 18:15</a>
+
+这池子密度我只能希望这游戏角色SS上位替代少一点，尽量做到角色保值吧，这要是一个比一个强，都没一点心思 ...</blockquote>
+别想了，飞机社的新角色永远是周期性地全面碾压旧角色的，一个版本一个天，唯一的补偿就是等到旧版本角色们都进下水道了可能会出些专武之类的系统拉一把让他们能多活一个版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
