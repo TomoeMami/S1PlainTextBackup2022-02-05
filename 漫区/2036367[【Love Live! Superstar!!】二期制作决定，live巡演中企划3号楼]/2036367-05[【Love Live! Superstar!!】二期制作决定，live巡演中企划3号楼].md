@@ -1397,3 +1397,14 @@ pay：270x2-35=515，what a wonderful deam
 
 大佬们可以解释下这个专辑售出数量的标准吗，没玩过实体完全不懂这方面的市场<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TCone  
+##### 6110#       发表于 2022-3-8 23:30
+
+nako的生日都过的稀碎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+nagi这个衣服不是红薯协会那件吗…
+
