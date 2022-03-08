@@ -11437,3 +11437,27 @@ syl 从泄漏出要3d我就料想到这种结局了 文静本身并不是什么�
 
 文静中午直播这bgm有种玩galgame 的感觉，又想起了四级考试前一天晚上推纸片人女孩子的那个时光
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5717#       发表于 2022-3-8 17:28
+
+文静这人疯狂黑屁王木木<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  冯闵斯特伯格  
+##### 5718#       发表于 2022-3-8 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54965988&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-3-8 17:28</a>
+文静这人疯狂黑屁王木木
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.0.4-play ...</blockquote>
+静子啥时候狠狠透王木木都不奇怪了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
