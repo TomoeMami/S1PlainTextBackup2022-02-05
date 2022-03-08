@@ -6873,3 +6873,24 @@ NE19话，TE21话</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  kirito_wst  
+##### 633#       发表于 2022-3-8 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">开始回收脑瘫路线和结局，还要面对全员50级的敌人，双倍吃屎了属于是
+
+*****
+
+####  SEGA  
+##### 634#       发表于 2022-3-8 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54958263&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-8 05:27</a>
+
+普通说实话也挺难受的，毕竟敌人进攻方向超多，包括几个弓手会直接从高地菊花进攻，而我方能上窜下跳的也 ...</blockquote>
+第一次打这关死了好几个。盗贼老爹会背摔，摆完的阵型立马被破，女儿直接高低火箭，冰法一箭被秒。
+
+之前打女将军都没死人。
+

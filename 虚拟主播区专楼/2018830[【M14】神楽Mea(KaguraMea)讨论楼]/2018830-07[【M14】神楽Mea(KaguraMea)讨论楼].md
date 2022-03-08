@@ -5612,3 +5612,14 @@ kimo
 
 不如多整几个好活
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9610#       发表于 2022-3-8 09:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">真好啊真好啊。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
