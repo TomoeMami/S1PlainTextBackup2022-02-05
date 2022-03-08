@@ -7280,3 +7280,67 @@ NE19话，TE21话</blockquote>
 
 第七关要是招到了那个会搭梯子的哥，就是easy mode了，全员分别爬上两座屋顶，不放火全灭敌军轻轻松松
 
+
+
+*****
+
+####  HGCG3  
+##### 669#       发表于 2022-3-8 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54965133&amp;ptid=2051152" target="_blank">supergamer2 发表于 2022-3-8 16:26</a>
+
+第七关要是招到了那个会搭梯子的哥，就是easy mode了，全员分别爬上两座屋顶，不放火全灭敌军轻轻松松 ...</blockquote>
+怎么招
+
+*****
+
+####  dren_zheng  
+##### 670#       发表于 2022-3-8 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966708&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-8 18:31</a>
+
+怎么招</blockquote>
+刷得多自然有
+
+铁匠：道德450
+
+商人：功利400
+
+小丑女：自由450
+
+这三个都同一时期能加入的
+
+*****
+
+####  稲穂信  
+##### 671#       发表于 2022-3-8 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54965133&amp;ptid=2051152" target="_blank">supergamer2 发表于 2022-3-8 16:26</a>
+
+第七关要是招到了那个会搭梯子的哥，就是easy mode了，全员分别爬上两座屋顶，不放火全灭敌军轻轻松松 ...</blockquote>
+敌方能爬建好的梯子么？
+
+*****
+
+####  HGCG3  
+##### 672#       发表于 2022-3-8 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966730&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-8 18:34</a>
+
+刷得多自然有
+
+铁匠：道德450
+
+商人：功利400</blockquote>
+要怎么刷？不断打酒场训练关就行了？
+
+*****
+
+####  supergamer2  
+##### 673#       发表于 2022-3-8 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966733&amp;ptid=2051152" target="_blank">稲穂信 发表于 2022-3-8 18:34</a>
+
+敌方能爬建好的梯子么？</blockquote>
+最左的房顶上最多站6个人，中间的只能站4个人，你10个人把它都占满了，敌人爬不上来的，除了法师没人能攻击到房顶，连弓箭手都不能
+
