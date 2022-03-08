@@ -6942,3 +6942,41 @@ NE19话，TE21话</blockquote>
 
 舞娘的俘获人心收益巨高，一旦成功对方一轮保底有两个人无法对我方输出，同时如果俘获的枪兵啥的，可以造成一个还不错的直线伤害。想草舞娘姐姐，
 
+
+
+*****
+
+####  PLuckSword  
+##### 640#       发表于 2022-3-8 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54951161&amp;ptid=2051152" target="_blank">JimmyJoker 发表于 2022-3-7 15:05</a>
+
+说点别的，各位觉得这次千住明老师发挥得怎样？
+
+我觉得还行，虽然感觉不知道是不是制作组提了要求，明快英 ...</blockquote>
+有同感，路上回想音乐的时候总会联想到[风林火山]的主题旋律
+
+*****
+
+####  zikimi  
+##### 641#       发表于 2022-3-8 11:39
+
+在英国的首周实体销量约为歧路旅人的一半，和BD2相当，不过SRPG受众本来就不如普通RPG
+
+*****
+
+####  suzakushi  
+##### 642#       发表于 2022-3-8 11:44
+
+目前玩到13话了，对剧情整体还挺满意的，就是玩的时候总有种GBA封印之剑的感觉，盐铁大战的事情被各种提及，管家和盾哥还有弓神老头甚至都特意画了盐铁大战时期的立绘，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大胆猜测盐铁大战的DLC在路上了，主角不用西蒙的话让管家做主角也挺合理的。
+
+*****
+
+####  zikimi  
+##### 643#       发表于 2022-3-8 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54961289&amp;ptid=2051152" target="_blank">suzakushi 发表于 2022-3-8 11:44</a>
+
+目前玩到13话了，对剧情整体还挺满意的，就是玩的时候总有种GBA封印之剑的感觉，盐铁大战的事情被各种提及 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多了，按八方的尿性，盐铁大战做手游的可能性更大
+

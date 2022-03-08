@@ -775,3 +775,17 @@ fs这美工程序水平，应该是业界一流的
 
 为爱发电始终不是一个健康的行业生态啊？有些人不要把为爱发电说的这么理直气壮好不好...
 
+
+
+*****
+
+####  kooriibara  
+##### 80#       发表于 2022-3-8 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54958735&amp;ptid=2056501" target="_blank">Artanis大主教 发表于 2022-03-08 08:30:17</a>
+因为中国有本科学历而且有基本的编码逻辑能力的人可能没你想象中的那么多
+
+—— 来自 HONOR CHL-AN00, An ...</blockquote>冷知识，不需要有大学学历也有一群人有基本的编码能力……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
