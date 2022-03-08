@@ -2940,3 +2940,16 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 是锂电池嘛？
 
+
+
+*****
+
+####  arbilest  
+##### 216#       发表于 2022-3-8 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963207&amp;ptid=2049173" target="_blank">xianrenwu 发表于 2022-3-8 14:08</a>
+是锂电池嘛？</blockquote>
+是锂电池，1.5V的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

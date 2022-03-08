@@ -847,3 +847,15 @@ fs这美工程序水平，应该是业界一流的
 游戏行业确实还是待遇第一低好，过滤出一批用爱发电的，这样做出好游戏的几率更大些 ...</blockquote>
 资本家不如坛友<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sssacpgdr  
+##### 87#       发表于 2022-3-8 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963500&amp;ptid=2056501" target="_blank">语文j教师 发表于 2022-3-8 14:29</a>
+
+资本家不如坛友</blockquote>
+本来就是这么个道理，高薪只能吸引来一群以前有没有接触过游戏还两说的卷王做题家，这帮人是绝对做不出泥潭游戏区婆罗门们想要玩的游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

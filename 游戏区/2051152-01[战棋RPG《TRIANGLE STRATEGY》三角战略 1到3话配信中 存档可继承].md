@@ -7242,3 +7242,32 @@ NE19话，TE21话</blockquote>
 
 从讨论来看这次其实从战旗角度还行？还是有可玩性的？
 
+
+
+*****
+
+####  Magnesium  
+##### 666#       发表于 2022-3-8 14:46
+
+这游戏打到现在，最大的问题就是战斗毫无爽点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+别的游戏 Build 凑好后，进战斗准备四五个回合一刀 999；这游戏进战斗站位加 Buff 四五个回合后一刀刮痧…
+几个系统背刺、连击、碰撞伤害、跌落伤害、地形魔法收益也就那样，天时地利人和凑半天，也没多少伤害。
+道具流道具又贵给得又抠，道具士也没有概率节约道具的技能。
+试下来给小兵上 Debuff 的收益算是不错的了，几种 Debuff 概率都挺高，禁足、嘲讽之后 Hit &amp; Run 的套路基本都能费掉对面小兵几个回合的输出。
+
+总结就是这个组大概是在拿传统纯站桩 jrpg 的思路在做 srpg。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古畑任三郎2015  
+##### 667#       发表于 2022-3-8 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963735&amp;ptid=2051152" target="_blank">Magnesium 发表于 2022-3-8 14:46</a>
+这游戏打到现在，最大的问题就是战斗毫无爽点
+别的游戏 Build 凑好后，进战斗准备四五个回合一刀 99 ...</blockquote>
+反正我试下来普通难度最合适，或者基本不酒馆的简单难度也可以
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

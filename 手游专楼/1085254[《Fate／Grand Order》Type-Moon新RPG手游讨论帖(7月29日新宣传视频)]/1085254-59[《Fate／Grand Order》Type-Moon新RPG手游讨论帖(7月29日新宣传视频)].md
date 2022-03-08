@@ -1663,3 +1663,35 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 雷帝也没罗马属性
 
+
+
+*****
+
+####  fireship  
+##### 87148#       发表于 2022-3-8 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963703&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-8 14:43</a>
+
+东罗之后无罗马吧
+
+雷帝也没罗马属性</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">    人家堂堂正正“罗马人的帝国”的皇帝。
+
+雷帝历史上也是堂堂正正有君士坦丁十一世的血脉（雷帝的奶奶就是君11的女儿）
+
+当然型月世界里雷帝已经魔改造了。
+
+*****
+
+####  UNISONIA  
+##### 87149#       发表于 2022-3-8 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963803&amp;ptid=1085254" target="_blank">fireship 发表于 2022-3-8 14:51</a>
+
+人家堂堂正正“罗马人的帝国”的皇帝。
+
+雷帝历史上也是堂堂正正有君士坦丁十一世的血脉（雷帝 ...</blockquote>
+雷帝的祖母是君11的侄女、君11弟弟托马斯的女儿
+
+雷帝有魔改应该不影响他祖辈的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
