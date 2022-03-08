@@ -9164,3 +9164,18 @@ sky11号复归<img src="https://static.saraba1st.com/image/smiley/face2017/138.p
 
 prize和郡郡拼命热场被花咲冷漠回击的场面真是怪味，永远爱大会
 
+
+
+*****
+
+####  fastary  
+##### 11319#       发表于 2022-3-9 00:14
+
+sonny的人设图明明超美，ankr做l2d把胸甲搞得特别碍眼还不能脱简直罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+至少外套和灰衬衫差分给我做了啊，ankr还想不想多收米了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+syl
+
+en男会说日语的也不少(还有俩虹人)但是好像目前只有en女跟本社联动过，是出道还早吗？还是说……
+
