@@ -1760,3 +1760,14 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 一大堆不明所以的Buff，看都不看直接莽，竟然一次就过了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">简单来说就是指令卡暴一次然后直接宝具a了。循环 4t搞定
 
+
+
+*****
+
+####  khxooo  
+##### 87155#       发表于 2022-3-8 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54969675&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-8 22:42</a>
+简单来说就是指令卡暴一次然后直接宝具a了。循环 4t搞定</blockquote>
+15T，管你什么机制，仇凛一直无脑宝具轰过去就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，后面塞两个尺子做保底。
+
