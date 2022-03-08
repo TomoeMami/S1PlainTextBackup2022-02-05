@@ -2719,3 +2719,12 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  蕾丝  
+##### 242#       发表于 2022-3-8 11:43
+
+是我的错觉，还是活动剧情回忆里苍井第一次出场的瞬间立绘模糊了一下。。
+
