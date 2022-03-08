@@ -13677,3 +13677,32 @@ cp0面具掉下来，是科比！
 要是尾田有个超大流水线团队帮他画画然后他负责故事会不会好一点？甚至只用他把握总体故事和格局，细微故事 ...</blockquote>
 最大的限制还不是尾田的身体，是WJ每话19页的篇幅，这个不改，怎么都不够。
 
+
+
+*****
+
+####  renkan119  
+##### 56627#       发表于 2022-3-8 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54960116&amp;ptid=98922" target="_blank">roxas.sora 发表于 2022-3-8 10:26</a>
+
+铁块那个我没看懂。。。。怎么路飞不动了，现在海贼王看着好累，一屏幕堆满 ...</blockquote>
+铁块增加硬度  把路飞的手架住了 也不用拦很久 凯多招都放出来了 一个分神就慢了一步
+
+*****
+
+####  拉萨乌姆  
+##### 56628#       发表于 2022-3-8 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不补刀
+
+*****
+
+####  roxas.sora  
+##### 56629#       发表于 2022-3-8 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966197&amp;ptid=98922" target="_blank">renkan119 发表于 2022-3-8 17:46</a>
+
+铁块增加硬度  把路飞的手架住了 也不用拦很久 凯多招都放出来了 一个分神就慢了一步 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没看出来。。。。我就看到他飘在路飞隔壁然后路飞就被砸扁了
+
