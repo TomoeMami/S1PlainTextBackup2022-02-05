@@ -805,3 +805,33 @@ fs这美工程序水平，应该是业界一流的
 
 罷買日本遊戲，關閉血汗工廠勢在必行
 
+
+
+*****
+
+####  leans  
+##### 83#       发表于 2022-3-8 12:17
+
+关我屁事，我只要稳定的游戏品质和可接受的游戏价格就行。
+
+如果人力成本上升导致上面两个发生变化到无法接受的程度的话，我换别的游戏玩不就行了？
+
+这世界上做游戏的公司多了去了
+
+*****
+
+####  oT3To  
+##### 84#       发表于 2022-3-8 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54954281&amp;ptid=2056501" target="_blank">drcular512 发表于 2022-3-7 19:01</a>
+
+只要做出好游戏，fs用童工我都双手双脚赞成</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">事实证明，在剥削他人方面，消费者可以比资本家还狠
+
+*****
+
+####  xxyyhhjj  
+##### 85#       发表于 2022-3-8 12:21
+
+所以加班的就别上论坛来抱怨了，管我屁事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
