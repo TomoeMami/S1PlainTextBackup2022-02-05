@@ -1722,3 +1722,41 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 <img src="https://img.saraba1st.com/forum/202203/08/180543v3c7c4j97bhp9pmz.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87151#       发表于 2022-3-8 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963803&amp;ptid=1085254" target="_blank">fireship 发表于 2022-3-8 14:51</a>
+
+人家堂堂正正“罗马人的帝国”的皇帝。
+
+雷帝历史上也是堂堂正正有君士坦丁十一世的血脉（雷帝 ...</blockquote>
+沙皇的称号来源就是
+
+*****
+
+####  khxooo  
+##### 87152#       发表于 2022-3-8 20:45
+
+一大堆不明所以的Buff，看都不看直接莽，竟然一次就过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87153#       发表于 2022-3-8 22:34
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 87154#       发表于 2022-3-8 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54968165&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-8 20:45</a>
+
+一大堆不明所以的Buff，看都不看直接莽，竟然一次就过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">简单来说就是指令卡暴一次然后直接宝具a了。循环 4t搞定
+

@@ -1388,3 +1388,12 @@ pay：270x2-35=515，what a wonderful deam
 
 可以开香槟咯<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6109#       发表于 2022-3-8 22:27
+
+大佬们可以解释下这个专辑售出数量的标准吗，没玩过实体完全不懂这方面的市场<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
