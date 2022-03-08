@@ -7025,3 +7025,54 @@ NE19话，TE21话</blockquote>
 
 —— 来自 HUAWEI JER-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 648#       发表于 2022-3-8 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962382&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-8 13:09</a>
+现在真结局有说怎么选吗？一定要走私吗。。。我现在完全纠正不过来，队友都要举报，说服丝毫没用 ...</blockquote>
+调成困难模式，进酒馆刷战斗，最简单的那场应该就行，把战斗动画调快大概3分钟一场，每刷5场出去一次存档，然后去嘴炮安娜，选项先2后3，内心不动摇的话读档，反复尝试，1个小时应该够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别问，问就是昨天刷吐了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  riin1  
+##### 649#       发表于 2022-3-8 13:32
+
+ 本帖最后由 riin1 于 2022-3-7 21:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962586&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-7 21:22</a>
+
+调成困难模式，进酒馆刷战斗，最简单的那场应该就行，把战斗动画调快大概3分钟一场，每刷5场出去一次存档 ...</blockquote>
+啥原理，就是随机数吗
+
+以及那4个人其实都动摇了，但是投票的时候并没有改
+
+以及我忘了是谁有一个人的选项是锁着的，但是这关我感觉没漏线索，难道是前几关漏了？
+
+*****
+
+####  治丧委  
+##### 650#       发表于 2022-3-8 13:32
+
+借楼问一下，这游戏素质咋样？预购的卡带在路上了，心理预期是黄骑那样的战斗、养成系统，剧情倒无所谓。
+
+*****
+
+####  古畑任三郎2015  
+##### 651#       发表于 2022-3-8 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962717&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-8 13:32</a>
+啥原理，就是随机数吗
+
+以及那4个人其实都动摇了，但是投票的时候并没有改</blockquote>
+这游戏有三个信念值，分为自由善良和功利，每个选择都会加对应的属性
+私盐这里需要你有足够的功利值才能说服那几个人（安娜是最容易的）
+值不够补救的唯一办法就是酒馆刷战斗，全灭敌人可以加功利。这游戏最离谱的一点就是战斗难度也代表不同属性值，简单难度加自由，普通加善良，困难加功利，所以最快的办法就是我说的那种操作
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1590,3 +1590,19 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 君十一在日本很有名么？为啥这也能成英灵？
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87143#       发表于 2022-3-8 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962186&amp;ptid=1085254" target="_blank">holyblood 发表于 2022-3-8 12:53</a>
+
+君十一在日本很有名么？为啥这也能成英灵？</blockquote>
+东罗末代皇帝
+
+拒接交城投降，死在战场上
+
+精罗不吹都不行
+
