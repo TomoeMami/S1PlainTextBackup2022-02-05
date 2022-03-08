@@ -2759,3 +2759,14 @@ ios登顶了，但是还是要说一句飞机社飞马
 —— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v1.3.2. ...</blockquote>
 这模式一般都是系统让你试用ss或者高等级的角色，这运营直接发个1级的A角色属实把我整不会了
 
+
+
+*****
+
+####  poor  
+##### 246#       发表于 2022-3-8 15:42
+
+大姐这一股被NTR的无能狂怒味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
