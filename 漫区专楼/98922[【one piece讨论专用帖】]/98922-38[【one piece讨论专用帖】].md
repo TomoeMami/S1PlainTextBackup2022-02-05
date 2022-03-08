@@ -13546,3 +13546,19 @@ cp0面具掉下来，是科比！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">橡胶和孙悟空有任何相似点吗，通臂猿猴更像一点
 
+
+
+*****
+
+####  memo2  
+##### 56613#       发表于 2022-3-8 13:48
+
+也不好说无限蓝和仰卧起坐哪个更自由一点.........<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 56614#       发表于 2022-3-8 14:00
+
+尾田现在不如真岛浩吧
+

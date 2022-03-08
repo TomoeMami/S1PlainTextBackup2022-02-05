@@ -7076,3 +7076,101 @@ NE19话，TE21话</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稲穂信  
+##### 652#       发表于 2022-3-8 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962852&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-8 13:43</a>
+
+这游戏有三个信念值，分为自由善良和功利，每个选择都会加对应的属性
+
+私盐这里需要你有足够的功利值才能 ...</blockquote>
+我才知道原来游戏途中可以改难度……
+
+*****
+
+####  riin1  
+##### 653#       发表于 2022-3-8 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962852&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-7 21:43</a>
+
+这游戏有三个信念值，分为自由善良和功利，每个选择都会加对应的属性
+
+私盐这里需要你有足够的功利值才能 ...</blockquote>
+多谢，这个战斗难度改属性离谱没道理
+
+*****
+
+####  古畑任三郎2015  
+##### 654#       发表于 2022-3-8 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962941&amp;ptid=2051152" target="_blank">稲穂信 发表于 2022-3-8 13:50</a>
+我才知道原来游戏途中可以改难度……</blockquote>
+是的，除了战斗中不能改，其余时段随意改
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰狼  
+##### 655#       发表于 2022-3-8 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54958750&amp;ptid=2051152" target="_blank">春秋 发表于 2022-3-8 08:32</a>
+
+你有铁匠没有。有铁匠你也上高地
+
+—— 来自 motorola XT2125-4, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+有是有，但实在懒得用了，想的是赶紧打完而不是上楼慢慢磨
+
+稳扎稳打或者上高地磨磨唧唧是能赢的，但戏里是主角想着赶紧把盐抢回来，戏外是我想赶紧把这章打完，结果一群站得极其分散的盗贼一边在地图上绕啊绕一边boss还在嘴臭你，而主角还无言以对
+
+*****
+
+####  riin1  
+##### 656#       发表于 2022-3-8 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962586&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-7 21:22</a>
+
+调成困难模式，进酒馆刷战斗，最简单的那场应该就行，把战斗动画调快大概3分钟一场，每刷5场出去一次存档 ...</blockquote>
+对了我的安娜的第一个对话第三个选项是锁着的，不过好像也无所谓
+
+*****
+
+####  灰狼  
+##### 657#       发表于 2022-3-8 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962852&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-8 13:43</a>
+
+这游戏有三个信念值，分为自由善良和功利，每个选择都会加对应的属性
+
+私盐这里需要你有足够的功利值才能 ...</blockquote>
+我一开始信念几个选这点的，一开始进了，结果后来开会前的选择少选一个进不了，最后读了前一章的读档过了
+
+*****
+
+####  古畑任三郎2015  
+##### 658#       发表于 2022-3-8 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963083&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-8 14:00</a>
+我一开始信念几个选这点的，一开始进了，结果后来开会前的选择少选一个进不了，最后读了前一章的读档过了 ...</blockquote>
+主要是选项代表的善良和自由很多时候分不清，功利倒是比较明显
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰狼  
+##### 659#       发表于 2022-3-8 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54962720&amp;ptid=2051152" target="_blank">治丧委 发表于 2022-3-8 13:32</a>
+
+借楼问一下，这游戏素质咋样？预购的卡带在路上了，心理预期是黄骑那样的战斗、养成系统，剧情倒无所谓。 ...</blockquote>
+皇骑没玩过，只玩过fft和ffta
+
+战斗有点像，但是系统区别就很大了，这个游戏没有平转只有直接转，有人说这是老火纹，我觉得还不是，老火纹是不同的人有不同的职业，这一作所有人职业各不相同（虽然有些职业会有相同的技能）
+
+我还是挺喜欢的（虽然没品鉴过“好好的平民贵族全tm让你教成了土匪但也看了不少梗图），但如果想着ffta那种“带着忍者的二刀流，拿着斗士的a技能，穿圣骑士的装备”是不可能了
+

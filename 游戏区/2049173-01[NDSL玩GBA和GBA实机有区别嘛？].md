@@ -2917,3 +2917,17 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  arbilest  
+##### 214#       发表于 2022-3-8 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953278&amp;ptid=2049173" target="_blank">zris 发表于 2022-3-7 17:29</a>
+可以的话，麻烦测试下京造的续航，尼玛我买了好几对电池感觉都不扛，感觉也要上续航了。
+其次你买整机， ...</blockquote>
+京造电池可以买了，我开机六个小时了还没红灯，3000mwh确实厉害
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
