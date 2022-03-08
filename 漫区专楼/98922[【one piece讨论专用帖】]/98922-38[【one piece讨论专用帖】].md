@@ -13706,3 +13706,16 @@ cp0面具掉下来，是科比！
 铁块增加硬度  把路飞的手架住了 也不用拦很久 凯多招都放出来了 一个分神就慢了一步 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没看出来。。。。我就看到他飘在路飞隔壁然后路飞就被砸扁了
 
+
+
+*****
+
+####  风疯峰  
+##### 56630#       发表于 2022-3-8 18:03
+
+ 本帖最后由 风疯峰 于 2022-3-8 18:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个cp0是另一个吧？不是被德雷克打的这个吧，我感觉是接电话的那个？
+
+又看了下好像是他，我有点错乱
+
