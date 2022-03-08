@@ -11461,3 +11461,23 @@ syl 从泄漏出要3d我就料想到这种结局了 文静本身并不是什么�
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rgauss  
+##### 5719#       发表于 2022-3-8 19:26
+
+王木木这歌调音师调了多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 5720#       发表于 2022-3-8 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54967228&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-3-8 19:26</a>
+王木木这歌调音师调了多久啊</blockquote>
+调音师太强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

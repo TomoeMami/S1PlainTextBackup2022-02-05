@@ -13719,3 +13719,34 @@ cp0面具掉下来，是科比！
 
 又看了下好像是他，我有点错乱
 
+
+
+*****
+
+####  久保由利香  
+##### 56631#       发表于 2022-3-8 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966387&amp;ptid=98922" target="_blank">风疯峰 发表于 2022-3-8 18:03</a>
+这个cp0是另一个吧？不是被德雷克打的这个吧，我感觉是接电话的那个？
+
+又看了下好像是他，我有点错 ...</blockquote>
+就是他啊，另外一个被德雷克打到再起不能了
+
+*****
+
+####  saturnus  
+##### 56632#       发表于 2022-3-8 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54967860&amp;ptid=98922" target="_blank">久保由利香 发表于 2022-3-8 20:22</a>
+就是他啊，另外一个被德雷克打到再起不能了</blockquote>
+另一个是被以藏打倒的啊，德雷克现在这表现连霍半仙都不如<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  久保由利香  
+##### 56633#       发表于 2022-3-8 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54968036&amp;ptid=98922" target="_blank">saturnus 发表于 2022-3-8 20:36</a>
+另一个是被以藏打倒的啊，德雷克现在这表现连霍半仙都不如</blockquote>
+哦对，我记错了
+

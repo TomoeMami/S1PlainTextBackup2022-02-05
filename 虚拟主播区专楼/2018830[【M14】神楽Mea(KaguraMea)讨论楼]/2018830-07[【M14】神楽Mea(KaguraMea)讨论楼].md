@@ -5701,3 +5701,18 @@ kimo
 
 当初对vcp占用她精力的预测看来没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 9619#       发表于 2022-3-8 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54965364&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-3-8 16:45</a>
+反正和我现在的作息没啥冲突，挺好，熬夜全在打图了
+
+当初对vcp占用她精力的预测看来没啥问题 ...</blockquote>
+你怎么预测的，说不定之后还会有变化
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

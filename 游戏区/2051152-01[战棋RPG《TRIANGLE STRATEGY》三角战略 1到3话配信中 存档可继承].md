@@ -7344,3 +7344,45 @@ NE19话，TE21话</blockquote>
 敌方能爬建好的梯子么？</blockquote>
 最左的房顶上最多站6个人，中间的只能站4个人，你10个人把它都占满了，敌人爬不上来的，除了法师没人能攻击到房顶，连弓箭手都不能
 
+
+
+*****
+
+####  dren_zheng  
+##### 674#       发表于 2022-3-8 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966772&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-8 18:37</a>
+
+要怎么刷？不断打酒场训练关就行了？</blockquote>
+加强（道德）的行动：
+
+为物品交换大量战斗点（500 = 5 道德）
+
+参加模拟战斗（+2 道德）
+
+与大量 NPC 交谈（25 NPC = +1 道德）
+
+战斗中：
+
+在不移动或采取行动的情况下结束回合（100 等待 = +1 道德）
+
+强化盟友（100 buff = +1 道德）
+
+在不杀死所有敌方单位的情况下赢得一场战斗（+2 道德）
+
+赢得一场推荐等级与你的军队相匹配的战斗（+1 道德）
+
+*****
+
+####  HGCG3  
+##### 675#       发表于 2022-3-8 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54966905&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-8 18:48</a>
+
+加强（道德）的行动：
+
+为物品交换大量战斗点（500 = 5 道德）
+
+参加模拟战斗（+2 道德）</blockquote>
+谢谢
+
