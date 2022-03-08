@@ -13808,3 +13808,17 @@ cp0面具掉下来，是科比！
 
 解放之鼓 难道橡胶是鼓上面那层皮吗
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 56639#       发表于 2022-3-8 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54969425&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-3-8 22:24</a>
+
+传说吃进两个恶魔果实就像体内有两个恶魔互相打架，最后身体撑不住他们的力量自爆死亡
+
+昏迷中的路飞正在潜 ...</blockquote>
+是你吗，九尾妖狐？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
