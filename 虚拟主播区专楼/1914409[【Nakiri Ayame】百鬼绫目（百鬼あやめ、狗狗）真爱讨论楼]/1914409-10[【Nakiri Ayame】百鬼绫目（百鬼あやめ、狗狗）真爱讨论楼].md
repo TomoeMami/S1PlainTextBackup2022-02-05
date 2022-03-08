@@ -5089,3 +5089,14 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 美好的一天又被绫总毁了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一仙  
+##### 14008#       发表于 2022-3-8 16:31
+
+旅行阿绫今日的汇报<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+绫总看到同期摆了会不会更肆无忌惮了，别人是玉玉了或者突发事件影响了才摆，绫总大概玩得越开心越不会直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
