@@ -13864,3 +13864,14 @@ D家族的血脉和觉醒后的橡胶果实能力者接触后，可以操控所�
 这觉醒的变形，难道是自由果实……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…别
 
+
+
+*****
+
+####  羲和  
+##### 56644#       发表于 2022-3-9 01:14
+
+<blockquote>拉萨乌姆 发表于 2022-3-9 00:42
+…别</blockquote>
+哈哈哈，要不叫解放果实，不是解放之鼓吗，让凯多敲了三次就解放了。
+
