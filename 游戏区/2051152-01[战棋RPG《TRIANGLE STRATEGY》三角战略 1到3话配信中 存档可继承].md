@@ -7005,3 +7005,23 @@ NE19话，TE21话</blockquote>
 想多了，按八方的尿性，盐铁大战做手游的可能性更大</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">手游就算了，出了谁玩啊！
 
+
+
+*****
+
+####  riin1  
+##### 646#       发表于 2022-3-8 13:09
+
+现在真结局有说怎么选吗？一定要走私吗。。。我现在完全纠正不过来，队友都要举报，说服丝毫没用
+
+*****
+
+####  takayama  
+##### 647#       发表于 2022-3-8 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54961927&amp;ptid=2051152" target="_blank">suzakushi 发表于 2022-3-8 12:33</a>
+手游就算了，出了谁玩啊！</blockquote>
+国际服准备开，然后最近又搞了与尼尔的联动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JER-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
