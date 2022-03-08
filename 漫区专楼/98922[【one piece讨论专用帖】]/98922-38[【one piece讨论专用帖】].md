@@ -13430,3 +13430,46 @@ cp0面具掉下来，是科比！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五皇这是假动作
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56600#       发表于 2022-3-8 09:48
+
+这周这么早就有情报啊
+
+五皇又双叒叕倒了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeaha123  
+##### 56601#       发表于 2022-3-8 09:50
+
+人人都认为路飞会打赢的时候，他输了，wt不愧是新世界最自由的漫画家
+
+*****
+
+####  klzxs  
+##### 56602#       发表于 2022-3-8 09:56
+
+凯多至少还有1/3血
+
+路飞觉醒肯定是有，但我依然不觉得空血路飞能收凯多人头
+
+按故事走向我猜是最后让和之国人民赶凯多离开?
+
+*****
+
+####  银翼的维罗西  
+##### 56603#       发表于 2022-3-8 09:57
+
+五黄这血条不是动物系很难让人信服啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李剡s  
+##### 56604#       发表于 2022-3-8 09:59
+
+海军和黑胡子这个时候不来收人头更待何时啊
+
