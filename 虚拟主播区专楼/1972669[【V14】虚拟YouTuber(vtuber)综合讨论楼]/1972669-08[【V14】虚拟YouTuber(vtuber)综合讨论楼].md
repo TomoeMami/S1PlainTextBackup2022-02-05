@@ -9089,3 +9089,13 @@ sonny前世直播是不是只打枪不干别的…？听了会杂谈不知道是
 “blues?那是啥？”
 可见营业cp的不熟
 
+
+
+*****
+
+####  sgssk  
+##### 11311#       发表于 2022-3-8 15:24
+
+（管人基本无关内容）
+[https://twitter.com/sokr_ssm](https://twitter.com/sokr_ssm) 这位看起来就是那个找了八百个画师约ksnkso涩图的兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">置顶图甚至是找的岸田梅尔
+
