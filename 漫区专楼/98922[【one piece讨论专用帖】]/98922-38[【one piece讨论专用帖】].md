@@ -13895,3 +13895,12 @@ D家族的血脉和觉醒后的橡胶果实能力者接触后，可以操控所�
 
 — from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  icecry  
+##### 56647#       发表于 2022-3-9 06:22
+
+橡胶是石油做的，石油是古生物沉积而成，路飞就是天选之人，古代果实之王:死亡果实
+
