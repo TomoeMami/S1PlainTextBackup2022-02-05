@@ -667,3 +667,22 @@ fs这美工程序水平，应该是业界一流的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">网友普遍为日本人民的收入抱不平，说明我们国家是真的富强了
 
+
+
+*****
+
+####  midearth  
+##### 70#       发表于 2022-3-8 08:13
+
+没发错版吧，
+
+*****
+
+####  璃絵和花瑠  
+##### 71#       发表于 2022-3-8 08:22
+
+<blockquote>本主题由 真实之影 于 2022-3-7 16:04 移动</blockquote>
+倒不是楼主的问题。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
