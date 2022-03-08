@@ -6993,3 +6993,15 @@ NE19话，TE21话</blockquote>
 
 很久没有玩到分歧理由写得满意的作品了，火纹IF、风花雪月路线分歧理由看得我想笑，甚至没逻辑……
 
+
+
+*****
+
+####  suzakushi  
+##### 645#       发表于 2022-3-8 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54961322&amp;ptid=2051152" target="_blank">zikimi 发表于 2022-3-8 11:46</a>
+
+想多了，按八方的尿性，盐铁大战做手游的可能性更大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">手游就算了，出了谁玩啊！
+
