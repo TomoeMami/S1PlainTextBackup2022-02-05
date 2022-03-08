@@ -835,3 +835,15 @@ fs这美工程序水平，应该是业界一流的
 
 所以加班的就别上论坛来抱怨了，管我屁事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  语文j教师  
+##### 86#       发表于 2022-3-8 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54952195&amp;ptid=2056501" target="_blank">sssacpgdr 发表于 2022-3-7 16:15</a>
+
+游戏行业确实还是待遇第一低好，过滤出一批用爱发电的，这样做出好游戏的几率更大些 ...</blockquote>
+资本家不如坛友<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

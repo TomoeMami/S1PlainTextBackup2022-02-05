@@ -1633,3 +1633,33 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 话说真要出的话，罗马属性肯定少不了了吧
 
+
+
+*****
+
+####  UNISONIA  
+##### 87146#       发表于 2022-3-8 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963334&amp;ptid=1085254" target="_blank">fireship 发表于 2022-3-8 14:17</a>
+
+毕竟第三罗马
+
+话说真要出的话，罗马属性肯定少不了了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">毕竟是正宗罗马皇帝（虽然是东罗马的）
+
+因为剪影人里有另外一个可疑的登场人物亲戚，我怀疑今年那个road to 7企划是跟出的新角色有一定联系的，所以才会要求通关对应的第二部章节
+
+*****
+
+####  gpx234mqx  
+##### 87147#       发表于 2022-3-8 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963334&amp;ptid=1085254" target="_blank">fireship 发表于 2022-3-8 14:17</a>
+
+毕竟第三罗马
+
+话说真要出的话，罗马属性肯定少不了了吧</blockquote>
+东罗之后无罗马吧
+
+雷帝也没罗马属性
+
