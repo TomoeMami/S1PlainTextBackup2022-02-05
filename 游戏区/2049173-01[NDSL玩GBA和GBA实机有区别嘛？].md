@@ -2931,3 +2931,12 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  xianrenwu  
+##### 215#       发表于 2022-3-8 14:08
+
+是锂电池嘛？
+

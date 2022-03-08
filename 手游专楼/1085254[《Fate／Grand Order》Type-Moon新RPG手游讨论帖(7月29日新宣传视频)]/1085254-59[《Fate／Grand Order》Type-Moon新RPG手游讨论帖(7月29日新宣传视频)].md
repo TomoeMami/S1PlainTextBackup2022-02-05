@@ -1606,3 +1606,30 @@ ios只要有icloud备份好换机都是直接继承的吧，不需要引继才�
 
 精罗不吹都不行
 
+
+
+*****
+
+####  UNISONIA  
+##### 87144#       发表于 2022-3-8 14:09
+
+在日本名气一般，日维把他母姓和父姓写倒了都没精罗发现，《你将如闪电般归来》这首歌在日本也没有知名度
+
+在英语圈有名，无论是破城日出战殉国还是大理石皇帝和罗马复兴的传说都富有传奇感，君士坦丁十一世身后对于东正教的影响也很大
+
+这次选他是有别的原因的，<strong>比如说他其实是雷帝的伯曾外祖父</strong>
+
+*****
+
+####  fireship  
+##### 87145#       发表于 2022-3-8 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963227&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-3-8 14:09</a>
+
+在日本名气一般，日维把他母姓和父姓写倒了都没精罗发现，《你将如闪电般归来》这首歌在日本也没有知名度
+
+ ...</blockquote>
+毕竟第三罗马<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+话说真要出的话，罗马属性肯定少不了了吧
+

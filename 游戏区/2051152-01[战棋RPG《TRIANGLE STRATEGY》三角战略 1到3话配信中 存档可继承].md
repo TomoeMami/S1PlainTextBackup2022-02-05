@@ -7174,3 +7174,38 @@ NE19话，TE21话</blockquote>
 
 我还是挺喜欢的（虽然没品鉴过“好好的平民贵族全tm让你教成了土匪但也看了不少梗图），但如果想着ffta那种“带着忍者的二刀流，拿着斗士的a技能，穿圣骑士的装备”是不可能了
 
+
+
+*****
+
+####  灰狼  
+##### 660#       发表于 2022-3-8 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963124&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-8 14:02</a>
+
+主要是选项代表的善良和自由很多时候分不清，功利倒是比较明显
+
+—— 来自 S1Fun ...</blockquote>
+我觉得自由还是挺明显的，一路奔着巨魔和熊孩子和骚话连篇去。。。等二周目了可以确认一下
+
+
+
+*****
+
+####  minysun  
+##### 661#       发表于 2022-3-8 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963124&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-8 14:02</a>
+
+主要是选项代表的善良和自由很多时候分不清，功利倒是比较明显
+
+—— 来自 S1Fun ...</blockquote>
+你看三条非完美线结局就更分不清了，跟着善良的老婆出现的结局反而最自由，跟着最自由的基友出现的结局最功利，跟着最功利的管家走的结局某种意义上最善良<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SEGA  
+##### 662#       发表于 2022-3-8 14:15
+
+一周目选走私很难吗？没读档就一次成功，7个人5个站我这边。
+
