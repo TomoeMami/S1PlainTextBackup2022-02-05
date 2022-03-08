@@ -13750,3 +13750,17 @@ cp0面具掉下来，是科比！
 另一个是被以藏打倒的啊，德雷克现在这表现连霍半仙都不如</blockquote>
 哦对，我记错了
 
+
+
+*****
+
+####  zxzx7753  
+##### 56634#       发表于 2022-3-8 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54968036&amp;ptid=98922" target="_blank">saturnus 发表于 2022-3-8 20:36</a>
+另一个是被以藏打倒的啊，德雷克现在这表现连霍半仙都不如</blockquote>
+比半仙是要强的  半仙打基拉还要用基德当人质   突破战术后直接被基拉秒
+几个分镜下来  cp0差不多&lt;三灾   约等于白胡子中间队长   &gt;六飞袍
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
