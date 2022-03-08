@@ -1097,3 +1097,12 @@ FC5BA777-949A-415E-A38A-2F2354E36C65.jpeg
 
 nako生日快乐🔥🔥🔥おそろっち一周年（？
 
+
+
+*****
+
+####  cybernetics31  
+##### 6087#       发表于 2022-3-8 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼画了nako图，脸上痣都画了
+
