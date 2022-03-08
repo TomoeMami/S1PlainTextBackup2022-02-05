@@ -1748,3 +1748,19 @@ koni的BID
 
 嘛~本来玲子就是原A组Y上人气最低的，也不意料。
 
+
+
+*****
+
+####  caupollen  
+##### 173#       发表于 2022-3-8 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54910928&amp;ptid=2050895" target="_blank">harry3 发表于 2022-3-4 09:09</a>
+
+在琥珀玲的discord群与舰长群一个月，我得到了这些情报
+
+https://tieba.baidu.com/p/7746599262?see_lz=1
+
+模 ...</blockquote>
+什么汉服模特
+

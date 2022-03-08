@@ -13666,3 +13666,14 @@ cp0面具掉下来，是科比！
 
 凯老师还能下楼再战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的强
 
+
+
+*****
+
+####  仟音一心  
+##### 56626#       发表于 2022-3-8 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54964517&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-8 15:42</a>
+要是尾田有个超大流水线团队帮他画画然后他负责故事会不会好一点？甚至只用他把握总体故事和格局，细微故事 ...</blockquote>
+最大的限制还不是尾田的身体，是WJ每话19页的篇幅，这个不改，怎么都不够。
+
