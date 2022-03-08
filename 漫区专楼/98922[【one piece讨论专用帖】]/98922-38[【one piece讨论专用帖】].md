@@ -13764,3 +13764,12 @@ cp0面具掉下来，是科比！
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  angelooo  
+##### 56635#       发表于 2022-3-8 22:20
+
+这更新的情报什么意思，要换号了吗？这剧情我好像在哪里看过OTZ
+
