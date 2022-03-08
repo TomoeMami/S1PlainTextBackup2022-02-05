@@ -2953,3 +2953,69 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  xianrenwu  
+##### 217#       发表于 2022-3-8 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963828&amp;ptid=2049173" target="_blank">arbilest 发表于 2022-3-8 14:53</a>
+
+是锂电池，1.5V的
+
+—— 来自 S1Fun</blockquote>
+谢谢  回头去看看
+
+*****
+
+####  oidoid  
+##### 218#       发表于 2022-3-8 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963023&amp;ptid=2049173" target="_blank">arbilest 发表于 2022-3-8 13:56</a>
+京造电池可以买了，我开机六个小时了还没红灯，3000mwh确实厉害
+
+—— 来自 S1Fun ...</blockquote>
+关键是红灯时长
+我这个只能坚持两分钟多点
+加上存档时候的用电高峰，勉强够存个档
+
+*****
+
+####  zris  
+##### 219#         楼主| 发表于 2022-3-8 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54963023&amp;ptid=2049173" target="_blank">arbilest 发表于 2022-3-8 13:56</a>
+
+京造电池可以买了，我开机六个小时了还没红灯，3000mwh确实厉害
+
+—— 来自 S1Fun ...</blockquote>
+那可以了，我去買了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">謝謝反饋
+
+*****
+
+####  zris  
+##### 220#         楼主| 发表于 2022-3-8 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54964412&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-3-8 15:34</a>
+
+关键是红灯时长
+
+我这个只能坚持两分钟多点
+
+加上存档时候的用电高峰，勉强够存个档 ...</blockquote>
+兩分鐘夠反應，即時存檔了把
+
+*****
+
+####  arbilest  
+##### 221#       发表于 2022-3-8 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54964412&amp;ptid=2049173" target="_blank">oidoid 发表于 2022-3-8 15:34</a>
+关键是红灯时长
+我这个只能坚持两分钟多点
+加上存档时候的用电高峰，勉强够存个档 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">多谢提醒，那我以后常开即时存档了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
