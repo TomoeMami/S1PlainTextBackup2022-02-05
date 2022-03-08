@@ -5734,3 +5734,24 @@ kimo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我了，这联动简直是互相折磨
 
+
+
+*****
+
+####  时间在我手中  
+##### 9622#       发表于 2022-3-9 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54967514&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-3-8 19:52</a>
+
+你怎么预测的，说不定之后还会有变化
+
+—— 来自 S1Fun</blockquote>
+没怎么预测啊，就是很简单的单人直播肯定会变少啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 9623#       发表于 2022-3-9 00:39
+
+2022最好的消息：钱攒下来了
+

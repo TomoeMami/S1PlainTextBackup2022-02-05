@@ -9179,3 +9179,12 @@ syl
 
 en男会说日语的也不少(还有俩虹人)但是好像目前只有en女跟本社联动过，是出道还早吗？还是说……
 
+
+
+*****
+
+####  OldGlory  
+##### 11320#       发表于 2022-3-9 00:43
+
+虹en来b不会又是转播号吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
