@@ -686,3 +686,36 @@ fs这美工程序水平，应该是业界一流的
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Artanis大主教  
+##### 72#       发表于 2022-3-8 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54953300&amp;ptid=2056501" target="_blank">kooriibara 发表于 2022-3-7 17:31</a>
+话又说回来，程序员等等互联网企业的基层劳动者应该拿很高工资的印象是哪里来的？
+至少我知道日本做动画画 ...</blockquote>
+因为中国有本科学历而且有基本的编码逻辑能力的人可能没你想象中的那么多
+
+—— 来自 HONOR CHL-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  気の优昙华  
+##### 73#       发表于 2022-3-8 08:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">关我啥事
+
+也不是我国的
+
+我为啥要关心这个
+
+做不下去就辞职
+
+公司倒闭和我有关系吗
+
+我买他家的游戏是他家游戏好玩
+
+员工啥样跟我有啥关系
+

@@ -6850,3 +6850,26 @@ NE19话，TE21话</blockquote>
 普通说实话也挺难受的，毕竟敌人进攻方向超多，包括几个弓手会直接从高地菊花进攻，而我方能上窜下跳的也 ...</blockquote>
 用铁匠搭梯子，自己也上高地啊
 
+
+
+*****
+
+####  春秋  
+##### 631#       发表于 2022-3-8 08:32
+
+ 本帖最后由 春秋 于 2022-3-8 08:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54958263&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-8 05:27</a>
+普通说实话也挺难受的，毕竟敌人进攻方向超多，包括几个弓手会直接从高地菊花进攻，而我方能上窜下跳的也 ...</blockquote>
+你有铁匠没有。有铁匠你也上高地
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  不见不散  
+##### 632#       发表于 2022-3-8 08:42
+
+这制作组不恶心玩家不会做游戏吧，歧路旅人就变着法卡等级卡pp值恶心人了，还好我玩的pc版，改完神清气爽
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
