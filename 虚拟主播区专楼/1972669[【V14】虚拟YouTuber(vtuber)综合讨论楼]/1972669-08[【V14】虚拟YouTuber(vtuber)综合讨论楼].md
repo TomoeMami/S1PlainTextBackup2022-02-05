@@ -9065,3 +9065,16 @@ sonny前世直播是不是只打枪不干别的…？听了会杂谈不知道是
 刚出道不就暴言被黑过嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 后来靠和圆小福和联动把自己优势表现出来，才相反转好的。
 
+
+
+*****
+
+####  fastary  
+##### 11309#       发表于 2022-3-8 10:21
+
+草这性别差的火黑客也差点烧过，说的是自己被大叔观众夸会更有实感还是啥吧，难得事后很快就在录播概要栏追加了长文解释和道歉的一回<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+话说回来jp市场能做到头部虹男靠女粉根本不可能吧，这话听起来好酸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+瓦杯倒还好，就是指挥急了说话有点重被ars说嫌だ，一方面黑客和大福打了圆场ebo也立即道歉了，一方面带两个新手指挥只有ebo确实压力比较大，所以也没烧起来(切片还给黑客大福刷了点好感)
+
