@@ -1637,3 +1637,25 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  普之舜舜  
+##### 6125#       发表于 2022-3-9 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979659&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-3-9 17:06</a>
+今年10月要有也太神速了，而且那啥企划管人不是安排在秋天么，还是感觉1月可能性大一点
+
+—— 来自 S1Fun ...</blockquote>
+应该不会，毕竟4月虹团，起码得和虹2期的bd错开，10月的话两部会重合很大的
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 6126#       发表于 2022-3-9 17:22
+
+那么快不要啊，花田多多打磨一下好不
+

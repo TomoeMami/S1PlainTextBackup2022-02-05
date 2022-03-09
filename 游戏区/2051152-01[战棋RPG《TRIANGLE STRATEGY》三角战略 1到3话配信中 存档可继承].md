@@ -7755,3 +7755,17 @@ NE19话，TE21话</blockquote>
 
 贴吧整合的真结局路线，感觉挺清晰，拿到游戏就走真结局了
 
+
+
+*****
+
+####  kirito_wst  
+##### 705#       发表于 2022-3-9 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979232&amp;ptid=2051152" target="_blank">何处分可 发表于 2022-3-9 16:42</a>
+
+https://www.processon.com/view/link/62270f6be0b34d151cb09300
+
+贴吧整合的真结局路线，感觉挺清晰，拿到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来真结局必须回家啊。。。
+

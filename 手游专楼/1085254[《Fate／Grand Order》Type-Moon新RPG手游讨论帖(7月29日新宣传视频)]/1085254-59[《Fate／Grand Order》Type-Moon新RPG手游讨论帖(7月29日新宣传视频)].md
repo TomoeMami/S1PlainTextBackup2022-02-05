@@ -1851,3 +1851,41 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 至今也就伊吹是给他特化的关卡吧，连宝具给的贯通都算进去了
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 87164#       发表于 2022-3-9 17:11
+
+ 本帖最后由 仰望神的括约肌 于 2022-3-9 17:14 编辑 
+
+这是要开无限池的节奏？
+
+2.1开了新本可以拿呼符
+
+*****
+
+####  angelooo  
+##### 87165#       发表于 2022-3-9 17:17
+
+白嫖幕间可太牛逼了，无限池复刻洗内，老子多余礼装卖了艹
+
+*****
+
+####  alucardcz  
+##### 87166#       发表于 2022-3-9 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">雷弟变雷帝 大弟还是那个大弟
+
+*****
+
+####  里村紅葉  
+##### 87167#       发表于 2022-3-9 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54978592&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-9 16:06</a>
+不过如此  我开服开始玩的 第1个5星是紫色老太婆（</blockquote>
+原来你一开始就是限定佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
