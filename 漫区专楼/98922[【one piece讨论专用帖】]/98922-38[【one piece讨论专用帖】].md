@@ -14092,3 +14092,12 @@ joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡�
 cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤了还能插手四皇的战斗。比路奇高到哪里去都不知道 ...</blockquote>
 我的道力是他的五倍
 
+
+
+*****
+
+####  蔺无双  
+##### 56667#       发表于 2022-3-9 17:42
+
+幽助剧情要来了，魔界大隔代+老爸附体么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

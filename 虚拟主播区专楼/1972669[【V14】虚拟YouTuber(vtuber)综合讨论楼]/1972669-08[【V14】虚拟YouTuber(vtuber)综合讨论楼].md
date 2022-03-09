@@ -9287,3 +9287,44 @@ en男会说日语的也不少(还有俩虹人)但是好像目前只有en女跟�
 
 🙋🧎🙇
 
+
+
+*****
+
+####  noHentai  
+##### 11330#       发表于 2022-3-9 17:51
+
+ 本帖最后由 noHentai 于 2022-3-9 17:54 编辑 
+
+King一专首日销量39,093，已经秒了V圈之前的累计记录（虹Prismatic Colors 20周38,494张）<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/e4f373c8a8c8789ae89a20d0fb8c3854/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/d0f2959eb2756cf2973a78bbbff573aa/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11331#       发表于 2022-3-9 17:53
+
+瑞思拜
+
+*****
+
+####  越动天下  
+##### 11332#       发表于 2022-3-9 17:56
+
+一个是迷你专 还有一个原因是因为有抽选吗 
+
+*****
+
+####  渡鸦骑士  
+##### 11333#       发表于 2022-3-9 17:59
+
+enkr一文不值.png
+
+*****
+
+####  Ryuuseigun  
+##### 11334#       发表于 2022-3-9 18:00
+
+还得是King<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

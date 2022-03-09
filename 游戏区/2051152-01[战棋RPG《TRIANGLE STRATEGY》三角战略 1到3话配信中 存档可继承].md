@@ -7769,3 +7769,16 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 贴吧整合的真结局路线，感觉挺清晰，拿到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来真结局必须回家啊。。。
 
+
+
+*****
+
+####  mcq_2  
+##### 706#       发表于 2022-3-9 17:52
+
+<blockquote>Magnesium 发表于 2022-3-8 14:46
+这游戏打到现在，最大的问题就是战斗毫无爽点
+
+别的游戏 Build 凑好后，进战斗准备四五个回合一刀 99 ...</blockquote>
+我只能接受一关最长20分钟。重开也不难受。10分钟左右刷刷也很爽，但是一关打上个把钟头的受不了。
+
