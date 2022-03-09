@@ -14017,3 +14017,14 @@ joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡�
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  真贝尔奈普斯  
+##### 56660#       发表于 2022-3-9 12:36
+
+浦饭：这剧情我熟，是魔族大隔世！
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
