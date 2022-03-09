@@ -1924,3 +1924,22 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 这高难本是脑子坏了吗。。。。第1个第1条血140w。。第2个本第1条血340万 
 
+
+
+*****
+
+####  qixinno2  
+##### 87171#       发表于 2022-3-9 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54978592&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-9 16:06</a>
+
+不过如此  我开服开始玩的 第1个5星是紫色老太婆（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">呸
+
+*****
+
+####  alucardcz  
+##### 87172#       发表于 2022-3-9 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">最后一条高难 皇女3条血 一共500万多。。。我不打了 浪费时间
+

@@ -1776,3 +1776,14 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 让你们说老娘没胸</blockquote>
 这是垫了多少
 
+
+
+*****
+
+####  cqc1021  
+##### 6137#       发表于 2022-3-9 19:54
+
+希望鲤鱼写真集能同时发售电子版，实体书要等太久了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
