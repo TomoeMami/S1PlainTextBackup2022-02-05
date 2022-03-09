@@ -1959,3 +1959,31 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">根本没什么强卡的我直接无视这几个玩意了
 
+
+
+*****
+
+####  alucardcz  
+##### 87175#       发表于 2022-3-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54983894&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-9 22:26</a>
+
+呆梅+打手磨死了折磨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你摸死了3个本?
+
+*****
+
+####  保罗赫伯特  
+##### 87176#       发表于 2022-3-9 22:50
+
+君士坦丁十一世到最后都没有模型，看来是不会在白情实装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 87177#       发表于 2022-3-9 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54984092&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-9 22:47</a>
+你摸死了3个本?</blockquote>
+磨死了，分别用水院，月神，尼莫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
