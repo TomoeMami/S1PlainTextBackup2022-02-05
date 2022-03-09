@@ -14037,3 +14037,14 @@ joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡�
 
 好像史莱姆啊
 
+
+
+*****
+
+####  触手皇帝  
+##### 56662#       发表于 2022-3-9 14:32
+
+昏迷中的路飞正在潜意识中与自己体内的那名恶魔对话
+
+我的真名是御田啦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
