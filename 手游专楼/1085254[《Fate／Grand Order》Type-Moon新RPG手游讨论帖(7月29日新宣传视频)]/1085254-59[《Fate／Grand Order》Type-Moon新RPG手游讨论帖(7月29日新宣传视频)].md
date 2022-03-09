@@ -1798,3 +1798,15 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨力上另说，强度上现在几个黄金周联动五星和Grand Servant境遇都不太好
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87159#       发表于 2022-3-9 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54977429&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-3-9 14:46</a>
+
+厨力上另说，强度上现在几个黄金周联动五星和Grand Servant境遇都不太好 ...</blockquote>
+超人熊不是挺好，单体高难直接打爆啊
+

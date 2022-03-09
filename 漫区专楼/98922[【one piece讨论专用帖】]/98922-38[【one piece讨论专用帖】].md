@@ -14048,3 +14048,26 @@ joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡�
 
 我的真名是御田啦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 56663#       发表于 2022-3-9 15:54
+
+贴吧那个吃了草帽草帽果实的乔伊博伊的脑洞还挺有意思的
+
+*****
+
+####  Supermangunv3  
+##### 56664#       发表于 2022-3-9 15:56
+
+<img src="https://img.saraba1st.com/forum/202203/09/155618t18anp2nban1x1ax.png" referrerpolicy="no-referrer">
+
+<strong>BbsImg_263176253738746_1646752234_s_298629_o_w_542_h_652_54698.png</strong> (38.87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-9 15:56 上传
+
