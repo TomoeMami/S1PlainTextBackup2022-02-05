@@ -7892,3 +7892,14 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 这游戏打法不一样带来的差异还是挺大的，就比如说带铁匠，有的时候就直接成爬房子的塔防游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">推荐等级过不了完全可以试试其他角色啊
 
+
+
+*****
+
+####  HGCG3  
+##### 719#       发表于 2022-3-10 07:37
+
+你们说的小丑女我还没收到
+
+医生收到了，帐篷里卖货的老头和商人和铁匠和老板娘收到了
+
