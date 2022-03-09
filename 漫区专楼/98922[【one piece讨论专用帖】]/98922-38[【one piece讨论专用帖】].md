@@ -14101,3 +14101,18 @@ cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤�
 
 幽助剧情要来了，魔界大隔代+老爸附体么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  anubis_s08  
+##### 56668#       发表于 2022-3-9 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54970780&amp;ptid=98922" target="_blank">蚊仔蚊仔蚊仔 发表于 2022-3-9 00:33</a>
+乔伊波伊是橡胶果实前代能力者，橡胶果实觉醒后能看到过去和未来所有能力者的记忆。
+
+D家族的血脉和觉醒后的 ...</blockquote>
+那种事不要啊
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+

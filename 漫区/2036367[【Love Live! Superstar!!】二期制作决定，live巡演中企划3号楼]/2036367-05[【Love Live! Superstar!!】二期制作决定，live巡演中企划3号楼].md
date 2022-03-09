@@ -1787,3 +1787,14 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  D麦林  
+##### 6138#       发表于 2022-3-9 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54980089&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-3-9 17:36</a>
+不会早就写好了，然后动画分割放送的吧</blockquote>
+但是一期完结那会鲤鱼可是明确不知道后面会发生什么的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
