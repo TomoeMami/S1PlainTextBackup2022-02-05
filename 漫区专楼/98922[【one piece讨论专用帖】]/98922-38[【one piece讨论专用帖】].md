@@ -14002,3 +14002,18 @@ joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡�
 然后基德、罗练手干掉了凯多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 这发展确实想不到
 
+
+
+*****
+
+####  Vega2017  
+##### 56659#       发表于 2022-3-9 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54969425&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-3-8 22:24</a>
+传说吃进两个恶魔果实就像体内有两个恶魔互相打架，最后身体撑不住他们的力量自爆死亡
+
+昏迷中的路飞正在潜 ...</blockquote>
+路飞拿起斩魄刀，释放九尾的封印
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
