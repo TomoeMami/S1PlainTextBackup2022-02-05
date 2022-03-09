@@ -7864,3 +7864,22 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  艾特娜  
+##### 716#       发表于 2022-3-10 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54983576&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-9 21:56</a>
+
+后面有队友离队？那么那些揿暂停加入的支线队友会离队吗？</blockquote>
+支线的不会
+
+*****
+
+####  艾特娜  
+##### 717#       发表于 2022-3-10 00:40
+
+打真结局18.1，三个弓兵加铁匠、安娜，完全不需要回血就能过了，其他没练的角色可以堆到管家队逃课，不用刷酒馆
+
