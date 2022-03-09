@@ -14080,3 +14080,15 @@ joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡�
 
 凯多是不是要觉醒胜之不武ptsd了
 
+
+
+*****
+
+####  ロブ・ルッチ  
+##### 56666#       发表于 2022-3-9 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54902644&amp;ptid=98922" target="_blank">莫老五 发表于 2022-3-3 15:01</a>
+
+cp0小队长，同伴倒地时悲伤，德雷克攻击他却说羡慕，重伤了还能插手四皇的战斗。比路奇高到哪里去都不知道 ...</blockquote>
+我的道力是他的五倍
+

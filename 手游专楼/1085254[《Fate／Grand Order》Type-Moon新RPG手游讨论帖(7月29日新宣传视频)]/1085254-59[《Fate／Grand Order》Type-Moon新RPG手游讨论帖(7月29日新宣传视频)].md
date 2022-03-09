@@ -1889,3 +1889,17 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  alucardcz  
+##### 87168#       发表于 2022-3-9 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979962&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-3-9 17:27</a>
+
+原来你一开始就是限定佬
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这都几几年了 难道紫色老太婆是第1个限定？
+
