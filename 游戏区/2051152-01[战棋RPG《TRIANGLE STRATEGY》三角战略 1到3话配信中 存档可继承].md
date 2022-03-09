@@ -7503,3 +7503,19 @@ NE19话，TE21话</blockquote>
 
 你这里如果劝说安娜不走私，会怎样，一说就通吗？
 
+
+
+*****
+
+####  kirito_wst  
+##### 689#       发表于 2022-3-9 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54972857&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-9 09:22</a>
+
+有没有试过反向操作，看贴吧说中立角色如果两个选项都冷淡，就选你不想走的那条线，然后故意失败。
+
+你这 ...</blockquote>
+正确答案是，你根本不用说服，她自己就投告发鸡蛋头了。
+
+墙头草都是演的，必定有个倾向
+
