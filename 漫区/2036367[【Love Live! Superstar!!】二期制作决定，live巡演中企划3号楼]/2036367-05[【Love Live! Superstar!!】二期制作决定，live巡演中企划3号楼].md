@@ -1798,3 +1798,30 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 不会早就写好了，然后动画分割放送的吧</blockquote>
 但是一期完结那会鲤鱼可是明确不知道后面会发生什么的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6139#       发表于 2022-3-9 20:29
+
+YJ的写真为啥总是必有村姑造型的内容，搞不懂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+总之为了支持，这次打算自己开代购团买
+
+*****
+
+####  ykyin09  
+##### 6140#       发表于 2022-3-9 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">不会真有可可回国剧情吧，别啊。
+
+*****
+
+####  iuhehc  
+##### 6141#       发表于 2022-3-9 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54982628&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-3-9 20:31</a>
+
+不会真有可可回国剧情吧，别啊。</blockquote>
+这不是板上钉钉的事情吗，也不能指望花田搞出什么新花样
+
