@@ -1677,3 +1677,16 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 
 不会早就写好了，然后动画分割放送的吧
 
+
+
+*****
+
+####  梶原ひかり  
+##### 6129#       发表于 2022-3-9 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54980089&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-3-9 17:36</a>
+不会早就写好了，然后动画分割放送的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">一季的动画有什么分割必要嘛
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
