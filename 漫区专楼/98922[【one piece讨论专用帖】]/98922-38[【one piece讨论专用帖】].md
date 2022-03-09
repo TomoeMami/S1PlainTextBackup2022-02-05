@@ -14275,3 +14275,20 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看来WT得多逛逛贴吧取取经才行啊
 
+
+
+*****
+
+####  音速貴公子  
+##### 56684#       发表于 2022-3-10 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54982965&amp;ptid=98922" target="_blank">共和政治文彦博 发表于 2022-3-9 20:59</a>
+看到几个有意思的脑洞
+
+太阳果实，是因为温度太高，外面封了一层恶魔果实树的树胶，现在解封了
+
+微笑果实，没 ...</blockquote>
+比较希望是太阳果实，岩浆克制了火焰杀了艾斯，路飞要是太阳那还不轻松克制岩浆吊打红狗报仇雪恨<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-A715F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

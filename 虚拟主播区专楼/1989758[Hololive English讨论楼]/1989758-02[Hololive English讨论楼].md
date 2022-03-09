@@ -1782,3 +1782,23 @@ Ame今天还提到几个小片段：
 -吃mumei咬了一口的椰子<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 -ame先发现了其他四人向她们挥手，过了一会儿才看到kronii扯ina衣角问那是不是ame<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PureIllusion  
+##### 1658#       发表于 2022-3-10 03:38
+
+Ame说大约一年前跟Gura讨论过要不要搬到一起住。
+
+翻老帖#261还真是快一年前Ame第一次搬家的时候，幻想差点成真。
+
+一年过得好快
+
+*****
+
+####  M1NG  
+##### 1659#       发表于 2022-3-10 04:54
+
+AmeTori跳舞教学<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

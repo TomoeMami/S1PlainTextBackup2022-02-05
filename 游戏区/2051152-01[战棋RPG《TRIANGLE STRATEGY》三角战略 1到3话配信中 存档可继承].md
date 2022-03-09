@@ -7883,3 +7883,12 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 打真结局18.1，三个弓兵加铁匠、安娜，完全不需要回血就能过了，其他没练的角色可以堆到管家队逃课，不用刷酒馆
 
+
+
+*****
+
+####  LamdaHT  
+##### 718#       发表于 2022-3-10 01:53
+
+这游戏打法不一样带来的差异还是挺大的，就比如说带铁匠，有的时候就直接成爬房子的塔防游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">推荐等级过不了完全可以试试其他角色啊
+
