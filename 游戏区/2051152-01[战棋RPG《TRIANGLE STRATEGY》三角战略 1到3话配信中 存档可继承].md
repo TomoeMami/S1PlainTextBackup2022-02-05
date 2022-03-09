@@ -7782,3 +7782,19 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 别的游戏 Build 凑好后，进战斗准备四五个回合一刀 99 ...</blockquote>
 我只能接受一关最长20分钟。重开也不难受。10分钟左右刷刷也很爽，但是一关打上个把钟头的受不了。
 
+
+
+*****
+
+####  leachiman  
+##### 707#         楼主| 发表于 2022-3-9 18:57
+
+在16章带着板凳角色刷酒馆出了好多小剧场
+
+*****
+
+####  稲穂信  
+##### 708#       发表于 2022-3-9 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第七章用了梯子逃课法，简直了……
+
