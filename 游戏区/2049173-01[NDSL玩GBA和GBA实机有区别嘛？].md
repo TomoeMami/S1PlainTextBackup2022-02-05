@@ -3019,3 +3019,17 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  愤怒的栗子  
+##### 222#       发表于 2022-3-9 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54783888&amp;ptid=2049173" target="_blank">koemi 发表于 2022-2-21 23:36</a>
+
+什么时候NDS也像GBA出现大量可替换零件自行DIY就好了 
+
+两台DSI屏幕都挂了 二手找不到品相好的 要么 ...</blockquote>
+赵阳那儿新到了一批DSI上半部分的总成
+

@@ -1837,3 +1837,12 @@ YJ的写真为啥总是必有村姑造型的内容，搞不懂<img src="https://
 这不是板上钉钉的事嘛，也不能指望花田搞出什么新花样</blockquote>
 哪怕旧花样花田也烂了
 
+
+
+*****
+
+####  Norkey1  
+##### 6143#       发表于 2022-3-9 23:15
+
+第二季应该还是新建文件夹状态吧，不然虹实惨…根据第一季鲤鱼不知道后续发展推断出声优现在知道第二季内容可能性极小，pay这么笃定感觉是通气了第二季强推的cp，属于提前营业长线发展<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

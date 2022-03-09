@@ -1987,3 +1987,31 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 你摸死了3个本?</blockquote>
 磨死了，分别用水院，月神，尼莫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87178#       发表于 2022-3-9 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">艹 更新完游戏直接弹出了什么鬼
+
+*****
+
+####  alucardcz  
+##### 87179#       发表于 2022-3-9 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54984156&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-9 22:54</a>
+
+磨死了，分别用水院，月神，尼莫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">恭喜你获得了30个茶壶..话说打了多久
+
+*****
+
+####  千叶铁矢  
+##### 87180#       发表于 2022-3-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54984271&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-9 23:06</a>
+恭喜你获得了30个茶壶..话说打了多久</blockquote>
+2个小时多一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
