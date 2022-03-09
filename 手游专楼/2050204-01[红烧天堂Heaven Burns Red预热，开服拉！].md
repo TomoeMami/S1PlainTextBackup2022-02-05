@@ -2844,3 +2844,18 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  barca  
+##### 253#       发表于 2022-3-9 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54976409&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2022-3-9 13:29</a>
+并不是，属性相性倍率是大于物理相性的，拿黎明砍过迷宫50层boss就知道了。所以这游戏以后肯定还是要以属 ...</blockquote>
+看解包，属性倍率也不是固定的。之前boss弱元素属性伤害是2倍，这次活动boss雷属伤害是1.5倍
+
+所以运营想针对元素属性把耐性数值再提高就行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

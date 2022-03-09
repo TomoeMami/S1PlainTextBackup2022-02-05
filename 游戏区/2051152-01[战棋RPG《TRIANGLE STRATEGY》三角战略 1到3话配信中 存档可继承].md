@@ -7725,3 +7725,22 @@ NE19话，TE21话</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 703#       发表于 2022-3-9 14:06
+
+ 本帖最后由 yangchunsiyue 于 2022-3-9 14:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54975727&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-3-9 12:37</a>
+
+插叙里好多感情线和人物小故事，可是完全搞不懂它的触发条件</blockquote>
+小剧场逸闻我看贴吧写的条件只跟出战次数还有章节数相关。估计是到某关之后计算出战过多少次。
+
+开场的人物要求的出战次数多一些。
+
+逸闻里加进来的出战次数要求的少。
+
+酒场里刷自由战也算出战次数。
+
