@@ -7453,3 +7453,53 @@ NE19话，TE21话</blockquote>
 
 除了确实有爽到以外，发现真结局确实二周目打比较好，不然人可能不够（当然我也可以选择very easy，相当于给游戏磕头）
 
+
+
+*****
+
+####  kirito_wst  
+##### 684#       发表于 2022-3-9 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">被狗编剧气晕，就不能坏的彻底一点吗？
+
+想要一个毫无良心的路线<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  riin1  
+##### 685#       发表于 2022-3-9 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54971578&amp;ptid=2051152" target="_blank">成濑未亚 发表于 2022-3-8 10:50</a>
+
+是不是只能临时去酒馆里刷战斗提升信念值来解锁最后的对话选项了 否则感觉根本选不出走私的路线 ...</blockquote>
+我看攻略了，那个对话是和上一章的选择有关的，其实并不是关键选项，解锁了也不应该选。安娜的中立态度，要看你在开始对话选择路线选项时，看一下两条路线下面的评价。如果是似乎可以说服那说服的可能性大，如果是似乎有点难说服，那就继续刷功利吧。
+
+*****
+
+####  riin1  
+##### 686#       发表于 2022-3-9 09:13
+
+我打算一周目不刷功利真结局了，还是等二周目吧，反正迟早都要挑战不同的路线的
+
+*****
+
+####  喵是好人  
+##### 687#       发表于 2022-3-9 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54971578&amp;ptid=2051152" target="_blank">成濑未亚 发表于 2022-3-9 02:50</a>
+
+是不是只能临时去酒馆里刷战斗提升信念值来解锁最后的对话选项了 否则感觉根本选不出走私的路线 ...</blockquote>
+我没有解锁最后的对话，没有刷酒馆也进了走私路线，感觉对话选对了就可以
+
+*****
+
+####  yangchunsiyue  
+##### 688#       发表于 2022-3-9 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54971569&amp;ptid=2051152" target="_blank">成濑未亚 发表于 2022-3-9 02:48</a>
+
+所以有指点第九话怎么走私吗 SL好像没用啊 安娜说是中立我试过了所有选项结果最后都是不支持走私 ...</blockquote>
+有没有试过反向操作，看贴吧说中立角色如果两个选项都冷淡，就选你不想走的那条线，然后故意失败。
+
+你这里如果劝说安娜不走私，会怎样，一说就通吗？
+

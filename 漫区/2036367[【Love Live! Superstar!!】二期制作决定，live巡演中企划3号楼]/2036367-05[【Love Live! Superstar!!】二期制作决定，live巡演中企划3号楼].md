@@ -1408,3 +1408,22 @@ nako的生日都过的稀碎<img src="https://static.saraba1st.com/image/smiley/
 
 nagi这个衣服不是红薯协会那件吗…
 
+
+
+*****
+
+####  saya1892  
+##### 6111#       发表于 2022-3-9 09:15
+
+[https://itest.5ch.net/fate/test/read.cgi/lovelive/1646645981](https://itest.5ch.net/fate/test/read.cgi/lovelive/1646645981)
+
+拉板有个呼吁让女性做脚本的帖子，点进去看到熟悉的三件套 <blockquote>0004 名無しで叶える物語(茸) 2022/03/07 17:42:18
+
+高橋ナツコ
+
+岡田麿里
+
+吉田玲子
+
+さあどれがい？</blockquote>
+
