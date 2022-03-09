@@ -1846,3 +1846,27 @@ YJ的写真为啥总是必有村姑造型的内容，搞不懂<img src="https://
 
 第二季应该还是新建文件夹状态吧，不然虹实惨…根据第一季鲤鱼不知道后续发展推断出声优现在知道第二季内容可能性极小，pay这么笃定感觉是通气了第二季强推的cp，属于提前营业长线发展<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6144#       发表于 2022-3-9 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54984360&amp;ptid=2036367" target="_blank">Norkey1 发表于 2022-3-9 23:15</a>
+
+第二季应该还是新建文件夹状态吧，不然虹实惨…根据第一季鲤鱼不知道后续发展推断出声优现在知道第二季内容 ...</blockquote>
+这么说也不一定对，鲤鱼那个“真的不知道”是去年10月初的事了，这都5个月过去了，这推断不太可靠
+
+*****
+
+####  aoaoaodedede  
+##### 6145#       发表于 2022-3-9 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979227&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-9 16:42</a>
+
+青山→pay→nako→鲤鱼→sayu，一般倒数都是这个顺序的
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+其实这个顺序就是官网上cast排布顺序的逆序
+
