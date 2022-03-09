@@ -1780,3 +1780,12 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 
 我是不敢抽了，今年大料肉眼可见的有太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概率街机联动的B6，周年很可能的人王，以及2.7必出的冠狂烟雾镜
 
+
+
+*****
+
+####  qixinno2  
+##### 87157#       发表于 2022-3-9 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">把自选用了拿了幕间强化本的石头依然没出 看来我要成为四个月没五星的终极非酋了
+

@@ -13992,3 +13992,13 @@ D家族的血脉和觉醒后的橡胶果实能力者接触后，可以操控所�
 
 joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡胶果实觉醒者的代称
 
+
+
+*****
+
+####  aceback  
+##### 56658#       发表于 2022-3-9 11:32
+
+然后基德、罗练手干掉了凯多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这发展确实想不到
+
