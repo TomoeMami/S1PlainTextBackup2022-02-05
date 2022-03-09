@@ -1610,3 +1610,30 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6122#       发表于 2022-3-9 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看pay的访谈怎么感觉有二期已经有一部分台词本流出了啊
+
+*****
+
+####  D麦林  
+##### 6123#       发表于 2022-3-9 16:57
+
+也许初期配音工作已经开始了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+今年10月说不定？
+
+*****
+
+####  iuhehc  
+##### 6124#       发表于 2022-3-9 17:06
+
+今年10月要有也太神速了，而且那啥企划管人不是安排在秋天么，还是感觉1月可能性大一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

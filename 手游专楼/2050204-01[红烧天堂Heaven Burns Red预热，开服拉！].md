@@ -2889,3 +2889,32 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 不过她自己也吐槽了“我知道这办法很蠢，但我只是个杀手没有其他更好的主意了”
 
+
+
+*****
+
+####  xiongxingyu  
+##### 256#       发表于 2022-3-9 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979046&amp;ptid=2050204" target="_blank">astoria 发表于 2022-3-9 16:32</a>
+
+这活动day3的迷宫用5个a能过不
+
+准确的说是3个a2个s
+
+不能就不挣扎了</blockquote>
+说真的31B里最正常的应该就是老虎了，接下来就是杀手妹。苍井和桃子两个都是严重PTSD患者，只能说两人出发点都是好的，然而实际操作下来各种届不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乱吃食cat  
+##### 257#       发表于 2022-3-9 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979046&amp;ptid=2050204" target="_blank">astoria 发表于 2022-3-9 16:32</a>
+这活动day3的迷宫用5个a能过不
+
+准确的说是3个a2个s
+
+不能就不挣扎了</blockquote>
+5个a 40级过的
+

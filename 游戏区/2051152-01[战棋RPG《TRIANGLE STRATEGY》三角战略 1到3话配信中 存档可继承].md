@@ -7744,3 +7744,14 @@ NE19话，TE21话</blockquote>
 
 酒场里刷自由战也算出战次数。
 
+
+
+*****
+
+####  何处分可  
+##### 704#       发表于 2022-3-9 16:42
+
+[https://www.processon.com/view/link/62270f6be0b34d151cb09300](https://www.processon.com/view/link/62270f6be0b34d151cb09300)
+
+贴吧整合的真结局路线，感觉挺清晰，拿到游戏就走真结局了
+
