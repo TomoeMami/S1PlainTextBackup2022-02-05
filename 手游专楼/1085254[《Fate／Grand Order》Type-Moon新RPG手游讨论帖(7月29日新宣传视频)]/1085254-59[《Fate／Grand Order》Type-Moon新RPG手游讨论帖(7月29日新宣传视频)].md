@@ -1810,3 +1810,44 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 厨力上另说，强度上现在几个黄金周联动五星和Grand Servant境遇都不太好 ...</blockquote>
 超人熊不是挺好，单体高难直接打爆啊
 
+
+
+*****
+
+####  alucardcz  
+##### 87160#       发表于 2022-3-9 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">最近app更新有点频繁啊。。这白情是整了很多bug吗。。
+
+*****
+
+####  alucardcz  
+##### 87161#       发表于 2022-3-9 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974655&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-9 11:30</a>
+
+把自选用了拿了幕间强化本的石头依然没出 看来我要成为四个月没五星的终极非酋了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过如此  我开服开始玩的 第1个5星是紫色老太婆（
+
+*****
+
+####  黑上シグマ  
+##### 87162#       发表于 2022-3-9 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974655&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-9 11:30</a>
+
+把自选用了拿了幕间强化本的石头依然没出 看来我要成为四个月没五星的终极非酋了 ...</blockquote>
+区区四个月也敢跳出来，坐下
+
+*****
+
+####  UNISONIA  
+##### 87163#       发表于 2022-3-9 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54978299&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-9 15:50</a>
+
+超人熊不是挺好，单体高难直接打爆啊</blockquote>
+熊现在也是个需要特化本和一定厨力才能高难上场的；倒是周回上其实靠出星暴击是可以用的（有发牌问题）。只是地位比起去年那几个滥强的相去甚远了，跟后面推出的暴击体系也很不搭
+
+至今也就伊吹是给他特化的关卡吧，连宝具给的贯通都算进去了
+
