@@ -1771,3 +1771,12 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 简单来说就是指令卡暴一次然后直接宝具a了。循环 4t搞定</blockquote>
 15T，管你什么机制，仇凛一直无脑宝具轰过去就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，后面塞两个尺子做保底。
 
+
+
+*****
+
+####  zakki  
+##### 87156#       发表于 2022-3-9 11:10
+
+我是不敢抽了，今年大料肉眼可见的有太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概率街机联动的B6，周年很可能的人王，以及2.7必出的冠狂烟雾镜
+

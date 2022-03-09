@@ -7557,3 +7557,71 @@ NE19话，TE21话</blockquote>
 
 战斗会根据你的难度，上升这三种信念值的其中一种。如果你要刷私利的话，就开困难模式，然后刷低等级的酒馆图就好了。
 
+
+
+*****
+
+####  成濑未亚  
+##### 693#       发表于 2022-3-9 11:06
+
+<blockquote>kirito_wst 发表于 2022-3-9 11:00
+信念分为三种，道德，自由，私利
+
+送私盐这个如果私利够高，就容易说服，体现在说服人物的时候会显示这个 ...</blockquote>
+谢谢哈 意思打酒馆 这三种信念是随机加的吗
+
+*****
+
+####  先生空气  
+##### 694#       发表于 2022-3-9 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974240&amp;ptid=2051152" target="_blank">成濑未亚 发表于 2022-3-9 11:06</a>
+
+谢谢哈 意思打酒馆 这三种信念是随机加的吗</blockquote>
+不是
+
+*****
+
+####  成濑未亚  
+##### 695#       发表于 2022-3-9 11:17
+
+<blockquote>先生空气 发表于 2022-3-9 11:10
+不是</blockquote>
+他每次战斗结束提示信念提升 意思在战斗中是要达成一定条件才能加某项这样吗
+
+*****
+
+####  纯情小鸭鸭  
+##### 696#       发表于 2022-3-9 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54958834&amp;ptid=2051152" target="_blank">不见不散 发表于 2022-3-8 08:42</a>
+
+这制作组不恶心玩家不会做游戏吧，歧路旅人就变着法卡等级卡pp值恶心人了，还好我玩的pc版，改完神清气爽
+
+ ...</blockquote>
+这游戏有pc版？
+
+*****
+
+####  ryj  
+##### 697#       发表于 2022-3-9 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974240&amp;ptid=2051152" target="_blank">成濑未亚 发表于 2022-3-9 11:06</a>
+
+谢谢哈 意思打酒馆 这三种信念是随机加的吗</blockquote>
+前面有提到 按简单、普通、困难三种难度固定加一个信念值 
+
+要刷的时候就切难度刷
+
+*****
+
+####  何然  
+##### 698#       发表于 2022-3-9 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974475&amp;ptid=2051152" target="_blank">纯情小鸭鸭 发表于 2022-3-9 11:19</a>
+
+这游戏有pc版？</blockquote>
+人家说的专八女人
+
+阅读理解不过关啊..
+

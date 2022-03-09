@@ -13969,3 +13969,26 @@ D家族的血脉和觉醒后的橡胶果实能力者接触后，可以操控所�
 
 罗：我还有力气
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 56655#       发表于 2022-3-9 11:08
+
+究竟哪组是双翼不言而喻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 56656#       发表于 2022-3-9 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该不能罗和基德真还有反抗能力吧
+
+*****
+
+####  朗姆酒hentai  
+##### 56657#       发表于 2022-3-9 11:19
+
+joyboy附身应该不可能，wt画不出这么nt的剧情。joyboy应该是橡胶果实觉醒者的代称
+
