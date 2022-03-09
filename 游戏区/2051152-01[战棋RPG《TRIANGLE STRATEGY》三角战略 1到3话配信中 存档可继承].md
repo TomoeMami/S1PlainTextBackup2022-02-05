@@ -7853,3 +7853,14 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 后面有队友离队？那么那些揿暂停加入的支线队友会离队吗？
 
+
+
+*****
+
+####  himly3  
+##### 715#       发表于 2022-3-9 22:11
+
+真结局打完，如果能有个像火纹一样介绍所有队友未来动向的桥段就好了。
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
