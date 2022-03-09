@@ -13922,3 +13922,41 @@ D家族的血脉和觉醒后的橡胶果实能力者接触后，可以操控所�
 
 基德和罗还是有体力和凯多再战的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Van夫膜开  
+##### 56650#       发表于 2022-3-9 10:11
+
+只要别搞出joy boy附身路飞这种狗血剧情就行了
+
+*****
+
+####  刹那の劍  
+##### 56651#       发表于 2022-3-9 10:13
+
+果然基德跟罗还有亿点点体力
+
+有人说路飞这是暖暖果实幻兽种太阳果实<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弯弓射山猪  
+##### 56652#       发表于 2022-3-9 10:14
+
+叫啥都行
+
+怎么觉醒都行
+
+别JB给我来玉田就行
+
+*****
+
+####  inconolast  
+##### 56653#       发表于 2022-3-9 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是搞笑果实，吃了的人将会获得搞笑漫画程度的能力
+
+之前用的是汤姆海皇的变形之力，所以看着是橡胶
+
