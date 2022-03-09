@@ -901,3 +901,22 @@ fs这美工程序水平，应该是业界一流的
 
 也要看积累，同样的游戏，国内做很多资源素材都要从0开始。
 
+
+
+*****
+
+####  幽远ghofar  
+##### 92#       发表于 2022-3-9 12:48
+
+都2022年了还有吹年功序列制的，大开眼界
+
+*****
+
+####  斡旋家  
+##### 93#       发表于 2022-3-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54975870&amp;ptid=2056501" target="_blank">幽远ghofar 发表于 2022-3-9 12:48</a>
+
+都2022年了还有吹年功序列制的，大开眼界</blockquote>
+别的行业不好说，材料学很需要年功序列制
+
