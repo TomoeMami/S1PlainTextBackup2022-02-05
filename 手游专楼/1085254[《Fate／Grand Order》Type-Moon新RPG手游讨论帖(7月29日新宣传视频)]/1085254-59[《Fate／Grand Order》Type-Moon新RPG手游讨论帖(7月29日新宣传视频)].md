@@ -1915,3 +1915,12 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 这都几几年了 难道紫色老太婆是第1个限定？</blockquote>
 不是你的第一个限定吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87170#       发表于 2022-3-9 19:40
+
+这高难本是脑子坏了吗。。。。第1个第1条血140w。。第2个本第1条血340万 
+

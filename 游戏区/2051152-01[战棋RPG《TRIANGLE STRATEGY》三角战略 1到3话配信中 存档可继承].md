@@ -7798,3 +7798,22 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第七章用了梯子逃课法，简直了……
 
+
+
+*****
+
+####  HGCG3  
+##### 709#       发表于 2022-3-9 19:28
+
+请问梯子具体应该设置在那幢房子上？
+
+*****
+
+####  稲穂信  
+##### 710#       发表于 2022-3-9 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54981772&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-9 19:28</a>
+
+请问梯子具体应该设置在那幢房子上？</blockquote>
+后面几栋感觉都行，最左边那栋可以站六个，中间两栋站四个，右边我没注意。基本就是梯子工搭梯子，法师和弓箭手输出，后面可以加加buff，安娜隐身了去捡掉落+补刀，只要开头梯子搭得快，几乎不会受什么伤。如果担心站不下可以少派人上场。
+

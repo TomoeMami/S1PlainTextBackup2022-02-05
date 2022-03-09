@@ -1764,3 +1764,15 @@ C6434116-1188-48B6-97ED-B1DF036C1E5A.jpeg
 —— 来自 HUAWEI LLD-AL00, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
 是我表达错误了
 
+
+
+*****
+
+####  任天索尼子  
+##### 6136#       发表于 2022-3-9 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54981519&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-9 19:13</a>
+
+让你们说老娘没胸</blockquote>
+这是垫了多少
+
