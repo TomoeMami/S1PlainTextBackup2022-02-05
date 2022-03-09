@@ -2936,3 +2936,15 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 另外有人吐槽这活动里多次出现的十指紧扣的cg，如果真的要凹成cg里的这个两只手的角度，大姐得天天晚上趴在苍身上才行。。。
 
+
+
+*****
+
+####  wyq5486  
+##### 260#       发表于 2022-3-9 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979683&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-3-9 17:08</a>
+
+另外有人吐槽这活动里多次出现的十指紧扣的cg，如果真的要凹成cg里的这个两只手的角度，大姐得天天晚上趴在 ...</blockquote>
+那也太痴女了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

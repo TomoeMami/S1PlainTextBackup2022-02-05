@@ -1903,3 +1903,15 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这都几几年了 难道紫色老太婆是第1个限定？
 
+
+
+*****
+
+####  里村紅葉  
+##### 87169#       发表于 2022-3-9 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54980071&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-9 17:35</a>
+
+这都几几年了 难道紫色老太婆是第1个限定？</blockquote>
+不是你的第一个限定吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
