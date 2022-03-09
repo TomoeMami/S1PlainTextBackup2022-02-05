@@ -14126,3 +14126,34 @@ D家族的血脉和觉醒后的 ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54978416&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-3-9 15:56</a></blockquote>
 空岛宴会？
 
+
+
+*****
+
+####  Supermangunv3  
+##### 56670#       发表于 2022-3-9 20:51
+
+<blockquote>yario 发表于 2022-3-9 20:39
+空岛宴会？</blockquote>
+是
+
+
+
+*****
+
+####  yario  
+##### 56671#       发表于 2022-3-9 20:53
+
+解放之鼓，没明白，难道路飞果实觉醒是被凯多打了N次雷鸣八卦打醒的？
+
+*****
+
+####  共和政治文彦博  
+##### 56672#       发表于 2022-3-9 20:59
+
+看到几个有意思的脑洞
+
+太阳果实，是因为温度太高，外面封了一层恶魔果实树的树胶，现在解封了
+
+微笑果实，没别的，微笑世界后遗症
+
