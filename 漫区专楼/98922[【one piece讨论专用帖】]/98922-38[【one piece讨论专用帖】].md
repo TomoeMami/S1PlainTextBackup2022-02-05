@@ -14236,3 +14236,33 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 
 肯定是五皇果实觉醒啦，下面两个船长都觉醒了不就是铺垫，虽然铺得不怎么样
 
+
+
+*****
+
+####  蓝鸥之魂  
+##### 56680#       发表于 2022-3-10 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974457&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-9 11:18</a>
+
+应该不能罗和基德真还有反抗能力吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">罗表示我还有24个字母表的技能等着凯多呢
+
+*****
+
+####  久保由利香  
+##### 56681#       发表于 2022-3-10 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54985417&amp;ptid=98922" target="_blank">蓝鸥之魂 发表于 2022-3-10 01:01</a>
+罗表示我还有24个字母表的技能等着凯多呢</blockquote>
+成灭却师了
+
+*****
+
+####  anubis_s08  
+##### 56682#       发表于 2022-3-10 01:19
+
+看贴吧猜这个果实是第一个恶魔果实，那么会不是是终结者果实，吃了变t1000，其实果实是古代高科技文明的纳米机器，吃了就会跟人体结合提供各种能力，宿主死亡后纳米机器充足等待下一个宿主。原始果实有最高权限可以控制所有异刃，不对是能力者，同时自己又是液态金属机器人，除了液氮啥也不怕
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
