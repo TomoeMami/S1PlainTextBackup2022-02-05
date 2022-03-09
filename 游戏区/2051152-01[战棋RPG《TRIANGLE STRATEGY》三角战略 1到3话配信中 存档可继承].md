@@ -7714,3 +7714,14 @@ NE19话，TE21话</blockquote>
 
 应该是类似苍炎支援那种出战一定次数解锁
 
+
+
+*****
+
+####  kirito_wst  
+##### 702#       发表于 2022-3-9 13:31
+
+已加入人物的补完轶闻可能还和你的几种信念值挂钩，不过这个具体要求是多少就看不到了。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2817,3 +2817,30 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  xiongxingyu  
+##### 251#       发表于 2022-3-9 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54975817&amp;ptid=2050204" target="_blank">barca 发表于 2022-3-9 12:43</a>
+
+活动高难boss和棱镜的经验同步了，总算是有改进
+
+还有这次冰队被针对的很惨，伤害成了0.25倍，总之就是就是 ...</blockquote>
+并不是，属性相性倍率是大于物理相性的，拿黎明砍过迷宫50层boss就知道了。所以这游戏以后肯定还是要以属性队为主。
+
+*****
+
+####  poor  
+##### 252#       发表于 2022-3-9 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54974638&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-3-9 11:29</a>
+看到贴吧有人缺德解读：杀手姐妹明明在意苍井却非要欺负她，结果苍井死在她们面前让她们抱憾终身
+
+这是什么 ...</blockquote>
+我觉得不行，苍井的死跟被两姐妹鸭霸又没有什么关系，于是最后算起来两姐妹（主要是大姐）就只是个不敢告白一直拖到对方死的傲娇而已，味不够
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

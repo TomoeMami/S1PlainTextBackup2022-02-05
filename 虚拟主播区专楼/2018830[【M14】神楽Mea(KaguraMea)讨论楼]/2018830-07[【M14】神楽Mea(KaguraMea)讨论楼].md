@@ -5766,3 +5766,22 @@ kimo
  2022最好的消息：钱攒下来了</blockquote>
 ？在哪里看到的消息？她攒下来多少？
 
+
+
+*****
+
+####  TiHaru  
+##### 9625#       发表于 2022-3-9 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54975398&amp;ptid=2018830" target="_blank">呓亘 发表于 2022-3-9 12:15</a>
+
+？在哪里看到的消息？她攒下来多少？</blockquote>
+采访里说的啊，金额没说
+
+*****
+
+####  路人庚  
+##### 9626#       发表于 2022-3-9 13:34
+
+正常运转的阿咩
+
