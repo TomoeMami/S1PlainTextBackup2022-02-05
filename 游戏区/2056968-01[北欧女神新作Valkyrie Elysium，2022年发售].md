@@ -1216,3 +1216,117 @@ PSP版的CG甩这个十条大街谢谢
 
 哈哈哈，凤姐的脸
 
+
+
+*****
+
+####  iamsolowingpixy  
+##### 125#       发表于 2022-3-10 09:45
+
+这游戏不崩都没有天理
+
+最后大姐的脸应该是尼格罗化了吧
+
+*****
+
+####  司马千晶  
+##### 126#       发表于 2022-3-10 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+AHLY.jpg
+(66.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 09:47 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/094733wxvclt5s24gx9vcw.jpg" referrerpolicy="no-referrer">
+
+ahly2.jpg
+(94.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 09:47 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/094752cajaixg89pto4e9g.jpg" referrerpolicy="no-referrer">
+
+ahly3.jpg
+(13.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 09:47 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/094756s800x82m4mt965i5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Booorunestud  
+##### 127#       发表于 2022-3-10 09:49
+
+这描边是复兴mmd吗
+
+*****
+
+####  zhouaa  
+##### 128#       发表于 2022-3-10 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然建模锅甩不掉  但是这个人设图上“大姐”就是卷发黑人跑不了啊
+
+*****
+
+####  Isshihnk  
+##### 129#       发表于 2022-3-10 09:51
+
+不是，这不就是个act套了北妹皮，哪点跟前两作相似我完全没看出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  禹火  
+##### 130#       发表于 2022-3-10 09:52
+
+前几天刚回顾了一遍1的剧情，今天就看见这玩意，真想把做建模的扔到海姆冥界用决之技连携鞭尸1万次。
+
+*****
+
+####  kuglv  
+##### 131#       发表于 2022-3-10 09:53
+
+ 本帖最后由 kuglv 于 2022-3-10 10:00 编辑 
+
+我靠，在外面看到标题我激动的要死，点进来这什么玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">整个人要昏古七了
+
+*****
+
+####  persona  
+##### 132#       发表于 2022-3-10 09:54
+
+心心念念几十年的大姐篇总算来了！！！好起来了！
+
+*****
+
+####  そらたかく  
+##### 133#       发表于 2022-3-10 09:55
+
+救命...
+
+*****
+
+####  大部分  
+##### 134#       发表于 2022-3-10 09:55
+
+来了来了来了，SE经典低成本霍霍作品第N弹了
+
+SE是真的有点日奸企业的味儿了，花大价钱养国外IP，亏本了就压缩本土IP的成本
+
+*****
+
+####  Guildenstern  
+##### 135#       发表于 2022-3-10 10:04
+
+我并不反对黑人，但是黑人女武神是个什么鬼？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
