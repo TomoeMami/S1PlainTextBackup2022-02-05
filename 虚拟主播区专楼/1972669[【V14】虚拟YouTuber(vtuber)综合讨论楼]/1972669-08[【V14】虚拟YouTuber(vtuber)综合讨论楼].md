@@ -9760,3 +9760,15 @@ yqqx单排大师了啊，虽然是私下打的
 讲希伯来语还是英语</blockquote>
 看了一下，5個都希伯來+英語，出道直播會英語為主
 
+
+
+*****
+
+####  swordofsoul1  
+##### 11377#       发表于 2022-3-11 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986862&amp;ptid=1972669" target="_blank">cckuku 发表于 2022-3-10 08:42</a>
+
+可是绊爱中之人不是搞姛的吗？我记得在300看到过介绍春日望和她女友的，好像她女友还画了部漫画。 ...</blockquote>
+有没有可能是双呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

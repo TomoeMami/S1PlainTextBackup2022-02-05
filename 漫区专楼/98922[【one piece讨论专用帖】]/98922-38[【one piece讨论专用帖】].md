@@ -14707,3 +14707,21 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
 
+
+
+*****
+
+####  灰狼  
+##### 56720#       发表于 2022-3-11 04:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54996711&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-10 20:41</a>
+
+cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
+
+可能是从小就被培养只能听命行事
+
+上一回他被德雷克 ...</blockquote>
+想想看有个sbs补设定挺好的，真的很多人喜欢的就学艾斯和罗出外传
+
+现在就是主线塞得太满了
+
