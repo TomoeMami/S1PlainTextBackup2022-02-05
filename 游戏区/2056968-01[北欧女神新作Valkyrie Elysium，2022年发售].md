@@ -1814,3 +1814,45 @@ square系的ip规模可没缩水.圣剑3全3d重制,光污染的hd2d量产s系�
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  nage560  
+##### 183#       发表于 2022-3-10 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54990268&amp;ptid=2056968" target="_blank">codecloud 发表于 2022-3-10 12:43</a>
+
+战斗部分全程溜冰呐.完全就是手游级的.甚至连手游一线都比它强.
+
+现在大投入的手游摆pose的战斗动画中,角 ...</blockquote>
+手游无玩过多少不知道，反正当年尼尔1我都玩得下去，这个也无差，起码音乐和风格还是北欧味。
+
+*****
+
+####  deadpeople  
+##### 184#       发表于 2022-3-10 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在日厂里看到这么纯的政确人设还真是有些新鲜
+
+*****
+
+####  石化鲸鱼  
+##### 185#       发表于 2022-3-10 13:36
+
+笑死我了，全方位的摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 186#       发表于 2022-3-10 13:37
+
+最后一张图吓到我了。。这脸怎么回事
+
+*****
+
+####  Luminous脑壳痛  
+##### 187#       发表于 2022-3-10 13:38
+
+se公司什么时候爆炸
+

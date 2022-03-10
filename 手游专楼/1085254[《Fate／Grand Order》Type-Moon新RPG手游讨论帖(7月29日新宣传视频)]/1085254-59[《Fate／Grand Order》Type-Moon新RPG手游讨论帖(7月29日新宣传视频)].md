@@ -2090,3 +2090,17 @@ atk2400的几张真是开服遗毒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想想10倍血量的芭娜娜 C呆的对肃正一断就瞬间暴毙的快感 
 
+
+
+*****
+
+####  alucardcz  
+##### 87189#       发表于 2022-3-10 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54990146&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-3-10 12:35</a>
+
+这次这几个本太有病了，难道之后几个异闻带的本都要这么搞</blockquote>
+主要是限时有点**。。。。一直在的话让没事的人打打其实还行
+
+反正不给什么东西
+
