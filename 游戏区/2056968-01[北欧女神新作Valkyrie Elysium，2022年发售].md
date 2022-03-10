@@ -2194,3 +2194,39 @@ ff算保住了？
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  禹火  
+##### 221#       发表于 2022-3-10 15:53
+
+你还不如高清重制再加几个DLC骗钱呢，那我还考虑买几份补票顺便传道。
+
+*****
+
+####  托格  
+##### 222#       发表于 2022-3-10 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992548&amp;ptid=2056968" target="_blank">2082082012 发表于 2022-3-10 15:22</a>
+16人设应该是政尾翼
+
+—— 来自 samsung SM-T220, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+16的人设是高桥和哉，是ff14的美术之一
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  czs13  
+##### 223#       发表于 2022-3-10 15:56
+
+为啥你们喷得这么轻
+
+*****
+
+####  Tengu  
+##### 224#       发表于 2022-3-10 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这脸真太逗了，不过也能够预想到将来还是会看到游戏讨论帖
+

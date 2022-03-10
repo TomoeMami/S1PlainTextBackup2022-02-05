@@ -5940,3 +5940,23 @@ syl，这用line发表情包的女粉是私联是吧<img src="https://static.sar
 
 就她一人直播，觀眾數會打幾折?
 
+
+
+*****
+
+####  黒長直姫  
+##### 9644#       发表于 2022-3-10 15:56
+
+会增加罢
+
+*****
+
+####  往世雷书  
+##### 9645#       发表于 2022-3-10 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992213&amp;ptid=2018830" target="_blank">病態極端 发表于 2022-3-10 15:00</a>
+就她一人直播，觀眾數會打幾折?</blockquote>
+要是开在她自己频道的话我记得她单播同接比在vcp频道团播高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
