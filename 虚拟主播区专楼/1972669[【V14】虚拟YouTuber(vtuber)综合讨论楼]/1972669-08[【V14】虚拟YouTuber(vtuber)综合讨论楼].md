@@ -9688,3 +9688,19 @@ King次日销量6,141枚，目前累计39,093+6,141=45,234枚
 不過5月才正式出道
 <img src="https://i.imgur.com/ZdQuDAG.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  firedrop  
+##### 11370#       发表于 2022-3-10 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54997103&amp;ptid=1972669" target="_blank">D-JoeII 发表于 2022-3-10 21:20</a>
+
+https://www.youtube.com/watch?v=AnSGu_Iaz18
+
+以色列管人
+
+不過5月才正式出道</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">管人的虚拟耶路撒冷.jpg
+
