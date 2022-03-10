@@ -14422,3 +14422,12 @@ cp0的工资是有多高啊，这都要把命赔上
 
 从伊姆出来以后海贼就越来越神棍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  拉萨乌姆  
+##### 56699#       发表于 2022-3-10 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">哥们死前还摆个pose
+

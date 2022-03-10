@@ -2088,3 +2088,89 @@ Valkyrie Elysium么，那应该和Valkyrie Profile系列没啥关联吧，千万
 
 别家都在蒸蒸日上，就SE最近几年除了阴差阳错火了个尼尔外加保住了自家dq和ff，其他全是灾难。
 
+
+
+*****
+
+####  戏言学者  
+##### 210#       发表于 2022-3-10 15:10
+
+把三部屎的预算凑一起做一部中型精品，他能亏本吗？你看看你这几年做的这一堆都是什么kusogame
+
+
+
+*****
+
+####  Max·零式  
+##### 211#       发表于 2022-3-10 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这脸也太彪悍了
+
+*****
+
+####  Rary  
+##### 212#       发表于 2022-3-10 15:14
+
+凤姐？
+
+*****
+
+####  codecloud  
+##### 213#       发表于 2022-3-10 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992185&amp;ptid=2056968" target="_blank">千本blur 发表于 2022-3-10 14:59</a>
+
+别家都在蒸蒸日上，就SE最近几年除了阴差阳错火了个尼尔外加保住了自家dq和ff，其他全是灾难。 ...</blockquote>
+能不能保住狒狒,得看这次的狒狒16.
+
+如果不是狒狒14旺盛的生命周期把狒狒系列从狒狒15的口碑泥潭中拉出来,狒狒16只怕比现在惨淡得多.
+
+虽然我很喜欢狒狒15无脑华丽的战斗设计,但游戏本身实在太无聊了.特别是野村粑粑笔下牛郎团的造型,实在辣眼睛,幸好狒狒16用14的吉田明言做人设,让我多了一份期待
+
+*****
+
+####  redsouris  
+##### 214#       发表于 2022-3-10 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988372&amp;ptid=2056968" target="_blank">Toby_dak 发表于 2022-3-10 10:23</a>
+都是北欧神话，都是黑皮，这位就没什么人反对啊</blockquote>
+黑皮又不是黑人
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  EdSheeran  
+##### 215#       发表于 2022-3-10 15:18
+
+所以3A是打算放弃了？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
+
+*****
+
+####  czs13  
+##### 216#       发表于 2022-3-10 15:19
+
+正脸有点地包天<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 217#       发表于 2022-3-10 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992462&amp;ptid=2056968" target="_blank">codecloud 发表于 2022-3-10 15:17</a>
+能不能保住狒狒,得看这次的狒狒16.
+
+如果不是狒狒14旺盛的生命周期把狒狒系列从狒狒15的口碑泥潭中拉出来, ...</blockquote>
+16不是吉田明彦，不过画风算下来也能称得上吉田那一系的，感觉吉田应该是年纪大了，最近很少看他参与中大型游戏作品了
+
+*****
+
+####  2082082012  
+##### 218#       发表于 2022-3-10 15:22
+
+16人设应该是政尾翼
+
+—— 来自 samsung SM-T220, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
