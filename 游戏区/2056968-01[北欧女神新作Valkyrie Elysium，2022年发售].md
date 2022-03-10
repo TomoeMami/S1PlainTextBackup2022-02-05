@@ -2248,3 +2248,41 @@ ff算保住了？
 
 不是3A做的？难怪人物不是萝莉风格了。
 
+
+
+*****
+
+####  慕容断月  
+##### 227#       发表于 2022-3-10 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986248&amp;ptid=2056968" target="_blank">センコウ 发表于 2022-3-10 06:31</a>
+
+開発：ソレイユ株式会社
+
+这找了个什么三流公司制作，好像没3A的事</blockquote>
+忍龙2联合导演和一些旧忍者组的人开的公司，之前代工了一部火影跟武士杰克的游戏，rpg部分可以担心，动作部分完全不需要担心，那边都是做act的老手了
+
+*****
+
+####  TheOccuria  
+##### 228#       发表于 2022-3-10 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992651&amp;ptid=2056968" target="_blank">mcq_2 发表于 2022-3-10 15:29</a>
+
+ff算保住了？</blockquote>
+靠着ff14和7r算挽回了不少吧
+
+剩下就看16了，吉田会不会跌落神坛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  慕容断月  
+##### 229#       发表于 2022-3-10 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988405&amp;ptid=2056968" target="_blank">大部分 发表于 2022-3-10 10:25</a>
+
+仁王狒狒还不好说，虽然也是肉眼透露着贫穷，但是忍者组做东西是真的会修修补补好歹算能玩
+
+还有个索尼版 ...</blockquote>
+虽然这游戏也是忍者组做的（不过是旧忍者组）
+
