@@ -1471,3 +1471,62 @@ image.png
 
 Se不满足于天启四骑士了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大部分  
+##### 150#       发表于 2022-3-10 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988369&amp;ptid=2056968" target="_blank">医生狼多 发表于 2022-3-10 10:22</a>
+
+se年内至少能达成粪作(巴比伦，陆行鸟，北欧)三连击的壮举了
+
+还能有更多吗? ...</blockquote>
+仁王狒狒还不好说，虽然也是肉眼透露着贫穷，但是忍者组做东西是真的会修修补补好歹算能玩
+
+还有个索尼版三角战略像是FF战略版那种，还有个forspoken了
+
+这SE是真的有意思，做全球大IP大梦做崩了就开始拿老本土IP开刀，一个妇联的成本估计能抵得上所有这些游戏加起来。
+
+然后妇联亏了就要靠所有这些游戏买单，别搁这儿恶心人了SE
+
+
+
+*****
+
+####  fenrir  
+##### 151#       发表于 2022-3-10 10:28
+
+女武神要长这样，北欧勇士们得吓得根本死不掉吧
+
+*****
+
+####  银白色暴风雪  
+##### 152#       发表于 2022-3-10 10:32
+
+不想做可以不做
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  REDXIII  
+##### 153#       发表于 2022-3-10 10:33
+
+这脸，还有个黑皮
+
+这劣质动作游戏的感觉
+
+我吐了，第一眼看到还以为我最喜欢的大姐来了
+
+*****
+
+####  电风扇  
+##### 154#       发表于 2022-3-10 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988372&amp;ptid=2056968" target="_blank">Toby_dak 发表于 2022-3-10 10:23</a>
+
+都是北欧神话，都是黑皮，这位就没什么人反对啊</blockquote>
+再重申一遍，黑皮和黑人是不一样的
+

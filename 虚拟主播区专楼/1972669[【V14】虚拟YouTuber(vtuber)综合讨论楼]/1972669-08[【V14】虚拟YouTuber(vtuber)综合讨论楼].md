@@ -9553,3 +9553,14 @@ https://www.youtube.com/watch?v=SIXWjNcLueE</blockquote>
 
 说起来草莓王子CD销量有个六位数，人气还挺高的
 
+
+
+*****
+
+####  CheshireK  
+##### 11359#       发表于 2022-3-10 10:41
+
+[https://youtu.be/bTYIqHLG548?t=2751](https://youtu.be/bTYIqHLG548?t=2751)
+
+别的先不说，女主质问男主的语气有点太可爱了
+

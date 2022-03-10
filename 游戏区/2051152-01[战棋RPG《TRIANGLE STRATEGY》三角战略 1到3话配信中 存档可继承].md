@@ -7964,3 +7964,15 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 发售这么多天了，快的应该都通了，这游戏评价有定论了吗？等了好久这个，无奈还是优先跟朋友一起打老头环， ...</blockquote>
 如果犹豫就买卡带吧，不过这游戏日服港服都是se自己发行所以用不了任亏券
 
+
+
+*****
+
+####  烛堡巡礼者  
+##### 726#       发表于 2022-3-10 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987152&amp;ptid=2051152" target="_blank">繭 发表于 2022-3-10 09:06</a>
+
+如果犹豫就买卡带吧，不过这游戏日服港服都是se自己发行所以用不了任亏券 ...</blockquote>
+不能用任亏券反而好办了，星之car比走起
+
