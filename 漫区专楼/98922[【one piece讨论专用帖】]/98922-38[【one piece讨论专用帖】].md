@@ -14440,3 +14440,60 @@ cp0的工资是有多高啊，这都要把命赔上
 
 <img src="https://p.sda1.dev/5/0fd75dd268a4334c6c4f5e23d9f41024/IMG_CMP_259402783.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cdfjg  
+##### 56701#       发表于 2022-3-10 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54991801&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2022-3-10 14:30</a>
+
+我就是很纳闷，王路飞不是不能输，不能反复仰卧起坐
+
+但为啥一定要设计这种放嘴炮的情节，“我不会再输了” ...</blockquote>
+自由
+
+*****
+
+####  sfqjsml  
+##### 56702#       发表于 2022-3-10 16:07
+
+ 本帖最后由 sfqjsml 于 2022-3-10 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54991801&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2022-3-10 14:30</a>
+
+我就是很纳闷，王路飞不是不能输，不能反复仰卧起坐
+
+但为啥一定要设计这种放嘴炮的情节，“我不会再输了” ...</blockquote>
+感觉是连载的问题
+
+不过说实在的，为什么要仰卧起坐这么多次呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，观感太差了，感觉主角像个笑话
+
+*****
+
+####  和真克瓦尔  
+##### 56703#       发表于 2022-3-10 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54971229&amp;ptid=98922" target="_blank">羲和 发表于 2022-3-9 01:31</a>
+
+啊对了关于擦除的那个设定，前几天跟一个朋友聊起这个事，他给我科普了一下，橡胶最开始被发现的功能就是用 ...</blockquote>
+这个能力开发起来应该最强，不过不是和热血漫画主角的风格太契合
+
+*****
+
+####  musicat  
+##### 56704#       发表于 2022-3-10 16:13
+
+"休你妹的刊啊”
+这周的感想
+
+*****
+
+####  和真克瓦尔  
+##### 56705#       发表于 2022-3-10 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54971884&amp;ptid=98922" target="_blank">icecry 发表于 2022-3-9 06:22</a>
+
+橡胶是石油做的，石油是古生物沉积而成，路飞就是天选之人，古代果实之王:死亡果实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了我又想起怪诞虫了 干脆觉醒蓝细菌果实喷出大量纯氧，全球的恶人都得到了普奇结局，当然好人也一样
+

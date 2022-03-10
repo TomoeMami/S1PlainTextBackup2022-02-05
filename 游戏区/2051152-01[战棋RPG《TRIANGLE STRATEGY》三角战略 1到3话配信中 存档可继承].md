@@ -8194,3 +8194,23 @@ https://hyperwiki.jp/pts/
 
 奶妈好像也是两个字，乌拉？哦吉拉……
 
+
+
+*****
+
+####  kirito_wst  
+##### 746#       发表于 2022-3-10 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992113&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-10 14:53</a>
+
+就是我想知道具体哪一章能捡到什么首饰，总觉得自己是不是漏了
+
+但是这个信息一直没看到总结。
+
+全 ...</blockquote>
+[https://syoyougame.jp/trianglestrategy/6020803889](https://syoyougame.jp/trianglestrategy/6020803889)
+
+这个wiki写了，不过作者好像只打了老婆线和男主线，基友和管家线能拿到什么东西没写
+
+好像需要梯子
+
