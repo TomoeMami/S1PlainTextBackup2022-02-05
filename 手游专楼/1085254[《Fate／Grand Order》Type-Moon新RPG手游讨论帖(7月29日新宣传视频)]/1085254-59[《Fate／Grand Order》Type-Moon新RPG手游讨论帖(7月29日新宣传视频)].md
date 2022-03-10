@@ -2044,3 +2044,31 @@ atk2400的几张真是开服遗毒
 这新礼装看起来支棱了结果少了400
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 87184#       发表于 2022-3-10 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比白杯好就算成功
+
+*****
+
+####  khxooo  
+##### 87185#       发表于 2022-3-10 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54989935&amp;ptid=1085254" target="_blank">zore 发表于 2022-3-10 12:20</a>
+比白杯好就算成功</blockquote>
+狂阶限定<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 87186#       发表于 2022-3-10 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54989978&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-10 12:24</a>
+
+狂阶限定</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">足够了,反正白杯也没见多少人用
+

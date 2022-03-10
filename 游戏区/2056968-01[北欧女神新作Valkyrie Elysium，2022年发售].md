@@ -1641,3 +1641,53 @@ VP原本的迷宫地图有点银河城味道，全3D化可以考虑做成魂式�
 我本来以为没有新作好歹会是个HD2D的重制版，结果出来个这么个东西<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
 se不想做可以不做别这么糟蹋ip
 
+
+
+*****
+
+####  那我也没办法  
+##### 168#       发表于 2022-3-10 12:07
+
+窒息，不如回去继续做手游。
+
+—— 来自 Google Pixel 3 XL, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zxlice  
+##### 169#       发表于 2022-3-10 12:11
+
+好丑啊？
+
+*****
+
+####  Gmanager  
+##### 170#       发表于 2022-3-10 12:14
+
+ 本帖最后由 Gmanager 于 2022-3-10 12:17 编辑 
+
+最近才从灵魂黑客2缓过劲起来的患者表示心态平稳<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  5353  
+##### 171#       发表于 2022-3-10 12:16
+
+不如让光荣来做建模，光荣的女神做的是真好看。
+
+*****
+
+####  Tackstone  
+##### 172#       发表于 2022-3-10 12:23
+
+这画面是想上ns吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫将军  
+##### 173#       发表于 2022-3-10 12:24
+
+给新来的员工试试手吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

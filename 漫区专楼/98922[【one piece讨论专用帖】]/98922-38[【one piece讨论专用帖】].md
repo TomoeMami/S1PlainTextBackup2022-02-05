@@ -14357,3 +14357,17 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 这凯多打cp0的动静比跟路飞打还大是怎么回事</blockquote>
 治不了主角还治不了你<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 56692#       发表于 2022-3-10 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54989215&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-10 11:32</a>
+
+完整图出了
+
+我真的好喜欢这个cp0</blockquote>
+确实，WT把时间浪费在那些奇形怪状的玩意上不如多刻画几个这样的角色
+
