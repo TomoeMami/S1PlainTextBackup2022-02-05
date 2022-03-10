@@ -2286,3 +2286,19 @@ ff算保住了？</blockquote>
 还有个索尼版 ...</blockquote>
 虽然这游戏也是忍者组做的（不过是旧忍者组）
 
+
+
+*****
+
+####  Tackstone  
+##### 230#       发表于 2022-3-10 18:55
+
+现在大家都懂白金能做火个尼尔已经是实力和运气的体现了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cih  
+##### 231#       发表于 2022-3-10 19:00
+
+北妹这终究还是被弄死了…真有你的啊手游厂
+

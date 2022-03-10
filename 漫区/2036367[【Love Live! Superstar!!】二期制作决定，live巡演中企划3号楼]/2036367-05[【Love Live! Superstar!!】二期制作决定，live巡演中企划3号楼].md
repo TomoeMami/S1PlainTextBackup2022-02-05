@@ -2013,3 +2013,62 @@ pay这中文不错啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下得买了
 
+
+
+*****
+
+####  starring  
+##### 6156#       发表于 2022-3-10 18:50
+
+都让成员来留言了，这哪是小惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6157#       发表于 2022-3-10 18:55
+
+ 本帖最后由 iuhehc 于 2022-3-10 19:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">打算在eplus看的这下有点动摇了又不想看延迟..这下不得不买张叔叔家的票了
+
+*****
+
+####  乙山法純  
+##### 6158#       发表于 2022-3-10 18:56
+
+后知后觉，e+卖完了，只能给叔叔抽成么？
+
+*****
+
+####  D麦林  
+##### 6159#       发表于 2022-3-10 18:58
+
+ 本帖最后由 D麦林 于 2022-3-10 19:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54995464&amp;ptid=2036367" target="_blank">乙山法純 发表于 2022-3-10 18:56</a>
+
+后知后觉，e+卖完了，只能给叔叔抽成么？</blockquote>
+？线上票怎么会卖完的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了眼没有啊 你是不是进错链接了
+
+我是决定支持一下企划在国内的发展 day1叔叔家看day2看实时直播了
+
+*****
+
+####  iuhehc  
+##### 6160#       发表于 2022-3-10 19:02
+
+我也想要不day1看叔叔家的day2看实时算了
+
+*****
+
+####  乙山法純  
+##### 6161#       发表于 2022-3-10 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54995501&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-3-10 18:58</a>
+
+？线上票怎么会卖完的看了眼没有啊 你是不是进错链接了
+
+我是决定支持一下企划在国内的发展 day1叔 ...</blockquote>
+看错，好像是现场票么了
+
+买了
+
