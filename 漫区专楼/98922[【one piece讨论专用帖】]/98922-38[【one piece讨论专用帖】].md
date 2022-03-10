@@ -14396,3 +14396,29 @@ cp0的工资是有多高啊，这都要把命赔上
 
 和之国的剧情真的太无聊了
 
+
+
+*****
+
+####  jxzeroga0  
+##### 56696#       发表于 2022-3-10 14:28
+
+看来罗和基德是真的被掏空暂时喘不上气了，打了这么久凯多感觉也还是血条过半而已，等个下话路飞救场了
+
+*****
+
+####  古畑任三郎2015  
+##### 56697#       发表于 2022-3-10 14:30
+
+我就是很纳闷，王路飞不是不能输，不能反复仰卧起坐
+但为啥一定要设计这种放嘴炮的情节，“我不会再输了”、“下来的一定是我”，然后兑现不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天使的日曜日  
+##### 56698#       发表于 2022-3-10 14:33
+
+从伊姆出来以后海贼就越来越神棍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

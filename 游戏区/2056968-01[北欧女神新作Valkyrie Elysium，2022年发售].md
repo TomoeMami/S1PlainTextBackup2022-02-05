@@ -1954,3 +1954,63 @@ SE**不想好好做就别做,这大饼脸女神也配叫女神吗?
 
 才看到PV，怎么能做到那么丑的。。。
 
+
+
+*****
+
+####  无动于衷  
+##### 198#       发表于 2022-3-10 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54991710&amp;ptid=2056968" target="_blank">苍白の正义 发表于 2022-3-10 14:23</a>
+
+看完PV,就这?
+
+SE**不想好好做就别做,这大饼脸女神也配叫女神吗?
+
+这战斗的观感还不如NDS上的北欧女神 ...</blockquote>
+U1S1 负罪者绝对是一款被低估了的北欧女神系列作品
+
+不管是系统还是剧情
+
+*****
+
+####  nightrap  
+##### 199#       发表于 2022-3-10 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54990520&amp;ptid=2056968" target="_blank">codecloud 发表于 2022-3-10 13:01</a>
+
+缩的是enix系的ip.北妹\星之海洋等.
+
+square系的ip规模可没缩水.圣剑3全3d重制,光污染的hd2d量产s系老ip. ...</blockquote>
+当年并不是enix吞并square，而是square和enix两个公司同时注销后，重新注册成立一家新的公司square-enix，公司合并之类的操作就是这样进行的。se合并是enix吞并square的说法是国内误传多年的消息了。
+
+事实上，square在ff之前也是多用外包开发游戏的，直到ff的大获成功才让square更倾向于本部开发游戏了。而且论外包的化，当前se的这些旧作翻新绝大多数也是交给外包公司来做的。毕竟随着日本本土游戏开发的没落，现在se自身除了第一开发部外已经很少有做游戏的了。
+
+*****
+
+####  lucky95  
+##### 200#       发表于 2022-3-10 14:36
+
+欧美cos展的中上水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  落花微塵  
+##### 201#       发表于 2022-3-10 14:39
+
+憋做了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酒瓶止迁  
+##### 202#       发表于 2022-3-10 14:39
+
+这建模还不如国内手游大厂水平吧……
+
+*****
+
+####  onlv星骸  
+##### 203#       发表于 2022-3-10 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">要是普通女孩长相普通还算合理，可人家是女神，配上这盔甲也太违和了。
+

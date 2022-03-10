@@ -8119,3 +8119,28 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 感觉人收完了迟早还要打一次真结局，想看看还有那些没有触发的特殊战斗对话
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 740#       发表于 2022-3-10 14:26
+
+[https://hyperwiki.jp/pts/](https://hyperwiki.jp/pts/)
+
+贴吧看见一个wiki，但是好像也没看见散步能捡到的饰品。
+
+*****
+
+####  kirito_wst  
+##### 741#       发表于 2022-3-10 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54991758&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-10 14:26</a>
+
+https://hyperwiki.jp/pts/
+
+贴吧看见一个wiki，但是好像也没看见散步能捡到的饰品。 ...</blockquote>
+道具一览里面那些没标获得途径的应该基本上都是探索得到的
+
+特别一点的是最后一个TP超回复头环估计是boss限定，以及那个全流程不死人送的饰品
+
