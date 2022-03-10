@@ -14431,3 +14431,12 @@ cp0的工资是有多高啊，这都要把命赔上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">哥们死前还摆个pose
 
+
+
+*****
+
+####  AKUSTON  
+##### 56700#       发表于 2022-3-10 15:37
+
+<img src="https://p.sda1.dev/5/0fd75dd268a4334c6c4f5e23d9f41024/IMG_CMP_259402783.jpeg" referrerpolicy="no-referrer">
+

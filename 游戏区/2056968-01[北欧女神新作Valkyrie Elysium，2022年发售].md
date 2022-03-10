@@ -2174,3 +2174,23 @@ Valkyrie Elysium么，那应该和Valkyrie Profile系列没啥关联吧，千万
 
 —— 来自 samsung SM-T220, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  mcq_2  
+##### 219#       发表于 2022-3-10 15:29
+
+<blockquote>千本blur 发表于 2022-3-10 14:59
+别家都在蒸蒸日上，就SE最近几年除了阴差阳错火了个尼尔外加保住了自家dq和ff，其他全是灾难。 ...</blockquote>
+ff算保住了？
+
+*****
+
+####  蕾丝控  
+##### 220#       发表于 2022-3-10 15:29
+
+不如原神！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
