@@ -14656,3 +14656,15 @@ sol一般是指太阳神赫利俄斯。
 
 未来两周都多了个值得期盼的事
 
+
+
+*****
+
+####  宅之猴晒阴  
+##### 56717#       发表于 2022-3-10 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54990965&amp;ptid=98922" target="_blank">zodiac137 发表于 2022-3-10 13:30</a>
+
+cp0的工资是有多高啊，这都要把命赔上</blockquote>
+多半是有什么把柄在政府手上，参考革命军的熊，甘愿把自己的身体献出。
+
