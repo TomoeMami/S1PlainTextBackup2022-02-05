@@ -2231,3 +2231,12 @@ pay这中文不错啊私下跟谁练的不好说</blockquote>
 
 有没有一种可能：水友压根不care你拉。乐子人只是好奇打包回国前能超懒鸡几个小月淋。叔叔烂铁要是能砸上红白我就是永久睿卫兵。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6176#       发表于 2022-3-10 23:53
+
+感觉大家都觉得B站和LL官方的关系很密切的样子，我是没感觉到关系紧密到哪一步，LL官方迟迟不入驻（现在才有Amuse下这个Live Viewing Japan近似一个间接的官方入驻），B站上一些搬运的公开视频也时不时被Ban
+
