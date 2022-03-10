@@ -9713,3 +9713,21 @@ https://www.youtube.com/watch?v=AnSGu_Iaz18
 
 感觉……不合（犹太教）礼法……
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11372#       发表于 2022-3-10 22:35
+
+见过不下四位Muslim vtuber，女v还带hijab，那个合礼法
+
+混最好的应该是[Safiyya Raima](https://www.youtube.com/channel/UCiQGM9nz7JMp14**SVwmkQ)
+
+*****
+
+####  藤原银  
+##### 11373#       发表于 2022-3-10 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">讲希伯来语还是英语
+
