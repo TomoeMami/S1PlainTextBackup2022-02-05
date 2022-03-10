@@ -9623,3 +9623,30 @@ King次日销量6,141枚，目前累计39,093+6,141=45,234枚
 
 🙋🧎🙇
 
+
+
+*****
+
+####  free  
+##### 11366#       发表于 2022-3-10 20:00
+
+[https://twitter.com/dotLIVEyoutuber/status/1501874510525771782](https://twitter.com/dotLIVEyoutuber/status/1501874510525771782)
+
+【お知らせ】
+
+初のどっとライブ全体イベント「.LIVE 1st fes. 星物語」を実施することが決定しました。
+
+感染症拡大の状況を鑑みまして、配信限定イベントとしての開催となります。
+
+詳細は随時お知らせ致しますので続報をお待ちください。
+
+開催予定日：2022年4月10日(日)  
+
+<img src="https://img.saraba1st.com/forum/202203/10/200043eshbc5tl8clti0sh.jpg" referrerpolicy="no-referrer">
+
+<strong>点.jpg</strong> (381.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 20:00 上传
+

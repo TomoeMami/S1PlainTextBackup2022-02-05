@@ -2327,3 +2327,16 @@ ff算保住了？</blockquote>
 忍龙2联合导演和一些旧忍者组的人开的公司，之前代工了一部火影跟武士杰克的游戏，rpg部分可以担心，动作 ...</blockquote>
 杰克武士记得冈本好古当制作人的
 
+
+
+*****
+
+####  TheOccuria  
+##### 235#       发表于 2022-3-10 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992480&amp;ptid=2056968" target="_blank">EdSheeran 发表于 2022-3-10 15:18</a>
+所以3A是打算放弃了？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 S1Next-鹅版 v1. ...</blockquote>
+3a在做so6，很难想象经历过so5以后还能继续出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
