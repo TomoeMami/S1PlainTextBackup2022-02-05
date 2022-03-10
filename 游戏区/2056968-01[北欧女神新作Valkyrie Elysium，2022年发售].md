@@ -1747,3 +1747,59 @@ cnm你直接弄个男的不好吗？反正都是双性
 
 这不是真的......
 
+
+
+*****
+
+####  feizong  
+##### 180#       发表于 2022-3-10 12:52
+
+ 本帖最后由 feizong 于 2022-3-10 12:55 编辑 
+
+原画明明还可以。侧脸也挺好的，结果正脸。。。。这是在开玩笑吗，SE糟蹋IP。这大妈脸和地平线2的ZZZQ简直一模一样
+
+l_6229289379900.jpg
+(39.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 12:52 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/125203spd5rds2zqo8qpsq.jpg" referrerpolicy="no-referrer">
+
+y_62292c50f084d.jpg
+(79.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 12:52 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/125203u2jyjjy2t3tlzzpu.jpg" referrerpolicy="no-referrer">
+
+y_62292c5106593.jpg
+(116.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 12:52 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/125203gf5p5gs4f7f5f6zp.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  codecloud  
+##### 181#       发表于 2022-3-10 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987939&amp;ptid=2056968" target="_blank">大部分 发表于 2022-3-10 09:55</a>
+
+来了来了来了，SE经典低成本霍霍作品第N弹了
+
+SE是真的有点日奸企业的味儿了，花大价钱养国外IP，亏本了就 ...</blockquote>
+缩的是enix系的ip.北妹\星之海洋等.
+
+square系的ip规模可没缩水.圣剑3全3d重制,光污染的hd2d量产s系老ip.更别提狒狒系各种大成本衍生作品.还有新的黑妹这个看美术风格应该也是s系主导的游戏
+
+只能说当年虽然是e社吞了s社.但毕竟游戏是个重劳动密集的行业,e社这种外包制干不动高投资的大型ip,最终十多年过去后,反而是s系人马掌握了开发主导权.e系的大概只能在股权分红之类的环节行使职权了.
+

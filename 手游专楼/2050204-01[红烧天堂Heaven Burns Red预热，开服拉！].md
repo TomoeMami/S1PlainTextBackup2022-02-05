@@ -2948,3 +2948,16 @@ ios登顶了，但是还是要说一句飞机社飞马
 另外有人吐槽这活动里多次出现的十指紧扣的cg，如果真的要凹成cg里的这个两只手的角度，大姐得天天晚上趴在 ...</blockquote>
 那也太痴女了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 261#       发表于 2022-3-10 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979683&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-3-9 17:08</a>
+另外有人吐槽这活动里多次出现的十指紧扣的cg，如果真的要凹成cg里的这个两只手的角度，大姐得天天晚上趴在 ...</blockquote>
+二刺猿不要要求太多，很多地方的剧情都不能细想
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
