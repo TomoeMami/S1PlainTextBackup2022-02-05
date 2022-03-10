@@ -14317,3 +14317,31 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少想想怎么圆之前表现出的橡胶的性质吧
 
+
+
+*****
+
+####  djdenini  
+##### 56688#       发表于 2022-3-10 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54983624&amp;ptid=98922" target="_blank">SteinLee 发表于 2022-3-9 22:03</a>
+
+溶胶果实的说法比较可信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">网上的人脑洞的可真大，什么溶胶显现丁达尔效应可以看到光，什么溶胶英文SOL和神话太阳神同名，有一说一还挺合理的
+
+*****
+
+####  klzxs  
+##### 56689#       发表于 2022-3-10 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">完整图出了
+
+我真的好喜欢这个cp0
+
+*****
+
+####  莫老五  
+##### 56690#       发表于 2022-3-10 11:37
+
+这凯多打cp0的动静比跟路飞打还大是怎么回事
+

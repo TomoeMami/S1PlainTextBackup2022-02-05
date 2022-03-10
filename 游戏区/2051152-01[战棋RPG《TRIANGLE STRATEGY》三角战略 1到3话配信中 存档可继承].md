@@ -7976,3 +7976,19 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 如果犹豫就买卡带吧，不过这游戏日服港服都是se自己发行所以用不了任亏券 ...</blockquote>
 不能用任亏券反而好办了，星之car比走起
 
+
+
+*****
+
+####  稲穂信  
+##### 727#       发表于 2022-3-10 11:33
+
+试了一下困难难度，太离谱了，我比推荐等级还高，进关卡被摸了两下就死了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  HGCG3  
+##### 728#       发表于 2022-3-10 11:45
+
+医生是前卫？
+
