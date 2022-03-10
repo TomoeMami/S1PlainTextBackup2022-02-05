@@ -14694,3 +14694,16 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 
 不知道到这段剧情的单行本时是否会揭露一些cp的内容
 
+
+
+*****
+
+####  anubis_s08  
+##### 56719#       发表于 2022-3-11 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54993393&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-10 16:14</a>
+不行了我又想起怪诞虫了 干脆觉醒蓝细菌果实喷出大量纯氧，全球的恶人都得到了普奇结局，当然好人 ...</blockquote>
+然后大战恐龙帝国吗
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
