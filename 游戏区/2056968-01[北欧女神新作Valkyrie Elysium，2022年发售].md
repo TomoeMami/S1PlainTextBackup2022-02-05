@@ -1624,3 +1624,20 @@ VP原本的迷宫地图有点银河城味道，全3D化可以考虑做成魂式�
 
 这可以喷一句画质不如___了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  司马千晶  
+##### 166#       发表于 2022-3-10 11:51
+
+2代 弹地，撞墙，追击down状态敌人（1代也有）可以回收行动条，系统自然的引导玩家打combo，实际上手后比市面上所有arpg都华丽。再加上追打浮空敌人能加经验，集中破部位掉落符文饰品，部位破坏到一定程度目标即死，真正做到了连招装备驱动结合。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他能做出个2代的大型dlc就百分百神作。
+
+*****
+
+####  _lulu_o  
+##### 167#       发表于 2022-3-10 11:59
+
+我本来以为没有新作好歹会是个HD2D的重制版，结果出来个这么个东西<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+se不想做可以不做别这么糟蹋ip
+

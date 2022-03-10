@@ -14345,3 +14345,15 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 
 这凯多打cp0的动静比跟路飞打还大是怎么回事
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 56691#       发表于 2022-3-10 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54989283&amp;ptid=98922" target="_blank">莫老五 发表于 2022-3-10 11:37</a>
+
+这凯多打cp0的动静比跟路飞打还大是怎么回事</blockquote>
+治不了主角还治不了你<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
