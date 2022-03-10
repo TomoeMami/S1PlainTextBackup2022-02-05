@@ -14292,3 +14292,12 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 
 —— 来自 samsung SM-A715F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  yario  
+##### 56685#       发表于 2022-3-10 09:11
+
+自然系太阳果实？暗暗的克星？
+

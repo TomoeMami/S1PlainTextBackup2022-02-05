@@ -1009,3 +1009,132 @@ SE真的，这钱送给我行吗？
 这个才是你</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无动于衷  
+##### 102#       发表于 2022-3-10 09:07
+
+丑俊的问题先放一边
+
+明明是写实风格的建模，非要整出个动画渲染式的大粗黑边是几个意思？
+
+*****
+
+####  気の优昙华  
+##### 103#       发表于 2022-3-10 09:07
+
+千言万语汇成一句话
+
+SE  NMSL
+
+*****
+
+####  気の优昙华  
+##### 104#       发表于 2022-3-10 09:09
+
+那什么soleil都在做北妹
+
+没那个能力你知道吗
+
+SE 脸都不要了
+
+*****
+
+####  laoz  
+##### 105#       发表于 2022-3-10 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">SE翻车大年
+
+*****
+
+####  司马千晶  
+##### 106#       发表于 2022-3-10 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987166&amp;ptid=2056968" target="_blank">アーリィ 发表于 2022-3-10 09:06</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蕾奥妮小姐十几年不见，你头发卷了，脸也晒黑了呢。
+
+*****
+
+####  十六夜镜月  
+##### 107#       发表于 2022-3-10 09:10
+
+，
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987173&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-10 09:07</a>
+
+丑俊的问题先放一边
+
+明明是写实风格的建模，非要整出个动画渲染式的大粗黑边是几个意思？ ...</blockquote>
+就满到溢出的离谱廉洁感，真的是一大早被气到不困了
+
+*****
+
+####  电磁炮233  
+##### 108#       发表于 2022-3-10 09:11
+
+刚夸完SE今年雄起了，就外包了这么一坨屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zzzplht  
+##### 109#       发表于 2022-3-10 09:13
+
+ps5就这点销量，怎么能怪se不卖力呢，se什么操行，你嗦应该很清楚
+
+*****
+
+####  Humpy  
+##### 110#       发表于 2022-3-10 09:14
+
+点开前：只要不是手游都好
+
+点开后：这他x的还不如停服的那个手游有内味
+
+*****
+
+####  Inominatam  
+##### 111#       发表于 2022-3-10 09:14
+
+换人设怎么想的，吉成钢不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G9910, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Bruce33  
+##### 112#       发表于 2022-3-10 09:15
+
+随随便便外包出去，撞大运就是尼尔，开香槟就完事了，卖的不好就开始说反正粉丝也不买以后别问为啥不出了，我看se真急了的也就复仇者联盟那也是米老鼠给逼急的，剩下那些老ip死活跟我se有什么关系，反正已经玩死了一个前线任务.
+
+*****
+
+####  hkguty  
+##### 113#       发表于 2022-3-10 09:17
+
+是做武士杰克那家？动作其实做的还不错就是感觉确实十分粗糙
+
+*****
+
+####  假山君  
+##### 114#       发表于 2022-3-10 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yellow0507  
+##### 115#       发表于 2022-3-10 09:19
+
+se最近不是用光追技术重制像素旧作吗  用同样技术重制下vp1也比这坨好100倍啊
+
+*****
+
+####  ff2077  
+##### 116#       发表于 2022-3-10 09:19
+
+人设图又不差，差的是建模啊。你把吉成钢搬回来建模不还是那个屎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
