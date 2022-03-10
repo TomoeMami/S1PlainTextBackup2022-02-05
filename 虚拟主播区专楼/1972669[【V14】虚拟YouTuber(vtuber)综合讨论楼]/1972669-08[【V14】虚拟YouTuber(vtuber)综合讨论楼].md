@@ -9582,3 +9582,20 @@ https://www.youtube.com/watch?v=SIXWjNcLueE</blockquote>
 
 玩挺大，男主经常让女主有朋友在时候穿特别暴露的衣服，而且还对另一女主A也做过同样的事
 
+
+
+*****
+
+####  noHentai  
+##### 11362#       发表于 2022-3-10 17:50
+
+King次日销量6,141枚，目前累计39,093+6,141=45,234枚
+<img src="https://p.sda1.dev/5/c5125b53ce1a5d4a3027271e3f604f3f/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11363#       发表于 2022-3-10 17:59
+
+瑞思拜
+
