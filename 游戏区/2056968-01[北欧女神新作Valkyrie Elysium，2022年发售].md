@@ -1803,3 +1803,14 @@ square系的ip规模可没缩水.圣剑3全3d重制,光污染的hd2d量产s系�
 
 只能说当年虽然是e社吞了s社.但毕竟游戏是个重劳动密集的行业,e社这种外包制干不动高投资的大型ip,最终十多年过去后,反而是s系人马掌握了开发主导权.e系的大概只能在股权分红之类的环节行使职权了.
 
+
+
+*****
+
+####  ギナ  
+##### 182#       发表于 2022-3-10 13:05
+
+看来真不是白金不行，是se自己就没想过好好做人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
