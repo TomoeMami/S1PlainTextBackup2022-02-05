@@ -2072,3 +2072,41 @@ pay这中文不错啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 买了
 
+
+
+*****
+
+####  starring  
+##### 6162#       发表于 2022-3-10 19:08
+
+动摇了，想看实时但B站的码率好不少，说不定还有别的惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6163#       发表于 2022-3-10 19:09
+
+ 本帖最后由 Enakina 于 2022-3-10 19:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54995464&amp;ptid=2036367" target="_blank">乙山法純 发表于 2022-03-10 18:56:09</a>
+后知后觉，e+卖完了，只能给叔叔抽成么？</blockquote>你觉得e+就没抽成了吗，什么平台肯定都要抽的，无非多少而已，b站卖的多才有可能被更重视，以后才会有更多的福利。想买就买，实在介意就e+，这种时候就没必要把对b站的仇视带进来了，这不是给自己找罪受了呢
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  乙山法純  
+##### 6164#       发表于 2022-3-10 19:11
+
+ 本帖最后由 乙山法純 于 2022-3-10 19:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54995638&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-10 19:09</a>
+
+你觉得e+就没抽成了吗，什么平台肯定都要抽的，无非多少而已，b站卖的多才有可能被更重视，以后才会有更多 ...</blockquote>
+我对花田没兴趣啊，泥潭又没liella楼，只买三次元写真 CD LIVE也不行？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不给叔叔抽成很正常，先把动画和/谐弄掉再说
+
+*****
+
+####  lj205  
+##### 6165#       发表于 2022-3-10 19:15
+
+为了e+全通特典，我只能抱歉了
+
