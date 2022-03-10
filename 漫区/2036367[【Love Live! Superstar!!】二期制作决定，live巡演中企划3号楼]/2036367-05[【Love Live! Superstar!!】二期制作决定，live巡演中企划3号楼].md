@@ -1959,3 +1959,14 @@ YJ的写真为啥总是必有村姑造型的内容，搞不懂<img src="https://
 
 终于不是入狱照了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 6150#       发表于 2022-3-10 15:00
+
+YJ出写真略微有点难蚌，从历史来看，YJ摄影师无论是拍摄水平还是村炮审美，亦或是后期都挺拉的....
+
+几本声优杂志编辑部出的写真就好不少
+

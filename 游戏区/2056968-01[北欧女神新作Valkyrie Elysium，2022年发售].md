@@ -2014,3 +2014,77 @@ square系的ip规模可没缩水.圣剑3全3d重制,光污染的hd2d量产s系�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">要是普通女孩长相普通还算合理，可人家是女神，配上这盔甲也太违和了。
 
+
+
+*****
+
+####  cxn  
+##### 204#       发表于 2022-3-10 14:50
+
+Valkyrie Elysium么，那应该和Valkyrie Profile系列没啥关联吧，千万别有啊<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mcq_2  
+##### 205#       发表于 2022-3-10 14:50
+
+<blockquote>幽远ghofar 发表于 2022-3-10 13:48
+还北欧女神传？改名北非女神传还差不多</blockquote>
+北非地中海流域哪有那么黑的，南非差不多。
+
+*****
+
+####  codecloud  
+##### 206#       发表于 2022-3-10 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54991844&amp;ptid=2056968" target="_blank">nightrap 发表于 2022-3-10 14:33</a>
+
+当年并不是enix吞并square，而是square和enix两个公司同时注销后，重新注册成立一家新的公司square-enix ...</blockquote>
+是成立了新公司,但我记得当年是以s社的股票兑换成e社的股,新公司最终保留的是e社的公司主体架构
+
+这也是e社兼并了s社的传言基础.
+
+当然,sex官方说法是两社合并.只不过从董事长任职来看,至少e社在合并时期是大头.只不过实际经营过程中,反而是拥有真实开发资源的s系逐渐占据上风了吧.
+
+当然了,说不定e系的股东更希望这样,毕竟别人打工它们躺着收钱的方式符合e社一贯的经营方针吧.
+
+*****
+
+####  假山君  
+##### 207#       发表于 2022-3-10 14:55
+
+ 本帖最后由 假山君 于 2022-3-10 14:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992060&amp;ptid=2056968" target="_blank">cxn 发表于 2022-3-10 14:50</a>
+
+Valkyrie Elysium么，那应该和Valkyrie Profile系列没啥关联吧，千万别有啊</blockquote>
+铁有关系
+
+看副标题upon the scales to weigh,a choice that must be made
+
+这是VP系LOGO圈外专属英文副标题了1，2，ds，手游全有这个
+
+其实还有机会回炉整容一下的，黑人的话，嘴唇改薄一下还有救？
+
+*****
+
+####  codecloud  
+##### 208#       发表于 2022-3-10 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54992131&amp;ptid=2056968" target="_blank">假山君 发表于 2022-3-10 14:55</a>
+
+铁有关系
+
+看副标题upon the scales to weigh,a choice that must be made
+
+这是VP系LOGO圈外专属英文副标题 ...</blockquote>
+黑人造型很好.厚嘴唇既能凸显黑人的特征,造型建模也不算丑.
+
+嘴唇改薄了不就是个和sex那款假黑皮妹的新游戏一样的假黑人了么,
+
+*****
+
+####  千本blur  
+##### 209#       发表于 2022-3-10 14:59
+
+别家都在蒸蒸日上，就SE最近几年除了阴差阳错火了个尼尔外加保住了自家dq和ff，其他全是灾难。
+

@@ -8144,3 +8144,21 @@ https://hyperwiki.jp/pts/
 
 特别一点的是最后一个TP超回复头环估计是boss限定，以及那个全流程不死人送的饰品
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 742#       发表于 2022-3-10 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54991894&amp;ptid=2051152" target="_blank">kirito_wst 发表于 2022-3-10 14:37</a>
+
+道具一览里面那些没标获得途径的应该基本上都是探索得到的
+
+特别一点的是最后一个TP超回复头环估计是boss ...</blockquote>
+就是我想知道具体哪一章能捡到什么首饰，总觉得自己是不是漏了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是这个信息一直没看到总结。
+
+全流程不死人送的是50%几率复活，看这个wiki说跟难度还没关系。
+
