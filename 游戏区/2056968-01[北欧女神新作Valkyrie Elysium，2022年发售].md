@@ -1691,3 +1691,59 @@ se不想做可以不做别这么糟蹋ip
 
 给新来的员工试试手吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  断翼  
+##### 174#       发表于 2022-3-10 12:34
+
+SE外包出了名抠门，尼尔2的dlc全部都是现有素材再利用，横尾太郎吐槽过SE给的钱只够做那几张地图，但他们又要40小时以上的游戏时间，那只能做这种多周目叙事
+
+*****
+
+####  codecloud  
+##### 175#       发表于 2022-3-10 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986248&amp;ptid=2056968" target="_blank">センコウ 发表于 2022-3-10 06:31</a>
+
+開発：ソレイユ株式会社
+
+这找了个什么三流公司制作，好像没3A的事</blockquote>
+就3a星海宣传片那个衰样,我实在不敢确定到底是星海更土还是北妹更土
+
+都是从骨子里透着廉价的产品,真的可惜了这两个老ip
+
+*****
+
+####  katern  
+##### 176#       发表于 2022-3-10 12:36
+
+cnm你直接弄个男的不好吗？反正都是双性
+
+*****
+
+####  hypnossz86  
+##### 177#       发表于 2022-3-10 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这过场的画面都赶不上很多游戏的实机了吧已经...
+
+*****
+
+####  codecloud  
+##### 178#       发表于 2022-3-10 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986642&amp;ptid=2056968" target="_blank">nage560 发表于 2022-3-10 08:15</a>
+
+我怎么感觉动作部分做得还行，话说北欧都有续作了，SE真给力啊，那么现在真的就只剩下寄生前夜了，不过寄生 ...</blockquote>
+战斗部分全程溜冰呐.完全就是手游级的.甚至连手游一线都比它强.
+
+现在大投入的手游摆pose的战斗动画中,角色也不会这么明显滑冰位移.
+
+*****
+
+####  xwr  
+##### 179#       发表于 2022-3-10 12:46
+
+这不是真的......
+

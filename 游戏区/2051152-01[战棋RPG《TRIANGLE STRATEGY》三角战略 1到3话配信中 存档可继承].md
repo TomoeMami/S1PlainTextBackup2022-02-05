@@ -8021,3 +8021,15 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 是不是只要反复打训练关，总能把加号键队友收齐？</blockquote>
 不是，你等级比推荐等级高了的话就只能加自由信念
 
+
+
+*****
+
+####  艾特娜  
+##### 732#       发表于 2022-3-10 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986974&amp;ptid=2051152" target="_blank">SEGA 发表于 2022-3-10 08:53</a>
+
+请教下，我现在一周目16还是17话，管家女主和王子三条路线选择的环节，之后出了一个选择用天平，另一个是找 ...</blockquote>
+真结局守家带三个弓箭手+铁匠上房顶，注意集火远程兵的话就能无伤过关了
+

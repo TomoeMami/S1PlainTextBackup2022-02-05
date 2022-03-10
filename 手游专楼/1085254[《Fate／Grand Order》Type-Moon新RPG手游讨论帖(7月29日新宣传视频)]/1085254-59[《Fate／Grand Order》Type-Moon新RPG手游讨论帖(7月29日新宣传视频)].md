@@ -2072,3 +2072,12 @@ atk2400的几张真是开服遗毒
 狂阶限定</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">足够了,反正白杯也没见多少人用
 
+
+
+*****
+
+####  angelooo  
+##### 87187#       发表于 2022-3-10 12:35
+
+这次这几个本太有病了，难道之后几个异闻带的本都要这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
