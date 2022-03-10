@@ -8214,3 +8214,12 @@ https://hyperwiki.jp/pts/
 
 好像需要梯子
 
+
+
+*****
+
+####  skyfaker305  
+##### 747#       发表于 2022-3-10 16:27
+
+这一周目打真结局好难，我向游戏妥协了，用very easy看剧情算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

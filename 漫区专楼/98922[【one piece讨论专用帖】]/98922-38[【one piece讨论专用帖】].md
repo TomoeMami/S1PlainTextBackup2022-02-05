@@ -14497,3 +14497,21 @@ cp0的工资是有多高啊，这都要把命赔上
 橡胶是石油做的，石油是古生物沉积而成，路飞就是天选之人，古代果实之王:死亡果实 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了我又想起怪诞虫了 干脆觉醒蓝细菌果实喷出大量纯氧，全球的恶人都得到了普奇结局，当然好人也一样
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 56706#       发表于 2022-3-10 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54993299&amp;ptid=98922" target="_blank">sfqjsml 发表于 2022-3-10 16:07</a>
+感觉是连载的问题
+
+不过说实在的，为什么要仰卧起坐这么多次呢，观感太差了，感觉主角像个笑话
+
+ ...</blockquote>
+仰卧起坐这个其实有预期，毕竟打小明这种四档完全压制的都玩了一次
+但我理解上正常放狠话立flag了应该就是最后一次决战了，和之国偏不，放最狠的话结果挨最毒的打，还是两次，这热血漫主角待遇连狗都不如吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

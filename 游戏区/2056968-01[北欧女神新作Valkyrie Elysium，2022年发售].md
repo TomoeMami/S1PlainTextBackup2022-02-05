@@ -2230,3 +2230,12 @@ ff算保住了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这脸真太逗了，不过也能够预想到将来还是会看到游戏讨论帖
 
+
+
+*****
+
+####  RSSACG  
+##### 225#       发表于 2022-3-10 16:43
+
+这宣传片...感觉都干不过一些小团队的3D黄油了, 不如学习御姐玫瑰, 风格彻底二次元化算了
+
