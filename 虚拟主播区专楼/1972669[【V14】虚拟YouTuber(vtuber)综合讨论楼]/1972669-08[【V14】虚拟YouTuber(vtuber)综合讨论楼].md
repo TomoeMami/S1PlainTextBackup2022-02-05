@@ -9564,3 +9564,21 @@ https://www.youtube.com/watch?v=SIXWjNcLueE</blockquote>
 
 别的先不说，女主质问男主的语气有点太可爱了
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 11360#       发表于 2022-3-10 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">md，看到个弱智截图，果然越传越离谱了，八卦这事上面人的想象力总是跃进得很快
+
+*****
+
+####  CheshireK  
+##### 11361#       发表于 2022-3-10 11:21
+
+[https://youtu.be/bTYIqHLG548?t=3351](https://youtu.be/bTYIqHLG548?t=3351)
+
+玩挺大，男主经常让女主有朋友在时候穿特别暴露的衣服，而且还对另一女主A也做过同样的事
+
