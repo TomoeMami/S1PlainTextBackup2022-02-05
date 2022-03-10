@@ -8223,3 +8223,12 @@ https://hyperwiki.jp/pts/
 
 这一周目打真结局好难，我向游戏妥协了，用very easy看剧情算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  先生空气  
+##### 748#       发表于 2022-3-10 17:08
+
+二周目五十级真结局三对大战好玩得一批。
+
