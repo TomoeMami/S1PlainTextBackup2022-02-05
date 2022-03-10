@@ -1138,3 +1138,81 @@ se最近不是用光追技术重制像素旧作吗  用同样技术重制下vp
 
 人设图又不差，差的是建模啊。你把吉成钢搬回来建模不还是那个屎样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  leafS  
+##### 117#       发表于 2022-3-10 09:27
+
+人设看着不是挺好的，建模属实是菜中菜了
+
+*****
+
+####  无动于衷  
+##### 118#       发表于 2022-3-10 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987278&amp;ptid=2056968" target="_blank">Inominatam 发表于 2022-3-10 09:14</a>
+
+换人设怎么想的，吉成钢不好吗
+
+—— 來自 samsung SM-G9910, Android 11上的 S1Next-鵝版 v2.5.2 ...</blockquote>
+CY这个人设其实没什么问题，油画感也挺强的
+
+钢哥在希尔梅利亚也只不过是主人设，大部分英灵也是别人画的
+
+*****
+
+####  丹德里恩  
+##### 119#       发表于 2022-3-10 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了，一大早就看个这个，晦气啊
+
+*****
+
+####  ChrisSnake  
+##### 120#       发表于 2022-3-10 09:29
+
+这截图 食屎啦你？
+
+
+
+*****
+
+####  trb315  
+##### 121#       发表于 2022-3-10 09:31
+
+女主这脸怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  藤林　杏  
+##### 122#       发表于 2022-3-10 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很好，又省钱了
+
+*****
+
+####  无动于衷  
+##### 123#       发表于 2022-3-10 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986372&amp;ptid=2056968" target="_blank">瓦格雷 发表于 2022-3-10 07:13</a>
+
+当年的PSP塞的cg不就这个德性啊 明明像素小人讲故事就行</blockquote>
+PSP版的CG甩这个十条大街谢谢
+
+<img src="https://img.saraba1st.com/forum/202203/10/093925h67qnkq0k6py7twk.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220310093906.jpg</strong> (20.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 09:39 上传
+
+*****
+
+####  guotao323  
+##### 124#       发表于 2022-3-10 09:43
+
+哈哈哈，凤姐的脸
+

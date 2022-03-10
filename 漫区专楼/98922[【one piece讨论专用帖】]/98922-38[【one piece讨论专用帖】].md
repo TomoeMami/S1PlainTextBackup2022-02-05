@@ -14301,3 +14301,19 @@ A.路飞被乔伊波伊上身，暴揍凯多，最后打出一发鬼岛大的橡
 
 自然系太阳果实？暗暗的克星？
 
+
+
+*****
+
+####  owada  
+##### 56686#       发表于 2022-3-10 09:21
+
+我觉得是完结篇果实,觉醒以后冲破第四位面直接完结OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 56687#       发表于 2022-3-10 09:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少想想怎么圆之前表现出的橡胶的性质吧
+

@@ -9522,3 +9522,14 @@ https://www.youtube.com/watch?v=SIXWjNcLueE</blockquote>
 
 有丶弱智了
 
+
+
+*****
+
+####  与天争锋_LZ  
+##### 11356#       发表于 2022-3-10 09:39
+
+一眼顶针：鉴定为假
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
