@@ -8094,3 +8094,19 @@ https://www.processon.com/view/link/62270f6be0b34d151cb09300
 
 关键是选老婆线本来就是图一个“我实在受不了这一切，只想和老婆找个安静的地方过平静的生活”，结果主角死了
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 738#       发表于 2022-3-10 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54990293&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-10 12:45</a>
+
+不是前面好像有看到说战斗中加血什么的也能加利益和道德吗</blockquote>
+应该是可以的，我一周目前面对话选项我自认为没太走功利选项，但是每次战斗前我都把所有人升到推荐等级。
+
+到10章左右功利要求750的角色也入队了。
+
+不过可能功利总的来说还是偏低，还能靠卖东西涨。
+
