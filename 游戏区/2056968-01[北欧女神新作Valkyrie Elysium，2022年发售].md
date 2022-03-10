@@ -1330,3 +1330,144 @@ SE是真的有点日奸企业的味儿了，花大价钱养国外IP，亏本了�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  无动于衷  
+##### 136#       发表于 2022-3-10 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988079&amp;ptid=2056968" target="_blank">Guildenstern 发表于 2022-3-10 10:04</a>
+
+我并不反对黑人，但是黑人女武神是个什么鬼？
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+雷神3 新战神投来了怜悯的目光 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheOccuria  
+##### 137#       发表于 2022-3-10 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想做龙背4就老老实实叫龙背4好了，别占北欧女神的title啊
+
+而且se你是想靠zzzq拿奖吗，夜壶组出个了黑妹rpg，北欧女神也整个黑莓
+
+*****
+
+####  minysun  
+##### 138#       发表于 2022-3-10 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">SE才在上个月ND后找回的母亲今儿个又上天了
+
+*****
+
+####  雲夢淵澤  
+##### 139#       发表于 2022-3-10 10:12
+
+最后那个黑人绷不住了
+
+*****
+
+####  squaresfc  
+##### 140#       发表于 2022-3-10 10:16
+
+建模确实差，不过战斗看起来还是比较爽快的。
+
+看起来有点像尼尔，就是系统希望不要太简单，尼尔那个战斗虽然也挺爽快，但是系统太简陋了，没什么养成和技能系统，所以只玩了一周目。
+
+*****
+
+####  hhgjf  
+##### 141#       发表于 2022-3-10 10:20
+
+就这？！ Seriously，就这？？？？！！！！
+
+屎一样的画面，毫无亮点的首亮相，还好意思PS独占？ 还要毁一个本来就在死亡线上的IP。SE我问候你祖宗十八代。
+
+*****
+
+####  Toby_dak  
+##### 142#       发表于 2022-3-10 10:20
+
+北妹变凤姐，SE我淦你娘哦。
+
+*****
+
+####  医生狼多  
+##### 143#         楼主| 发表于 2022-3-10 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988330&amp;ptid=2056968" target="_blank">hhgjf 发表于 2022-3-10 10:20</a>
+就这？！ Seriously，就这？？？？！！！！
+
+屎一样的画面，毫无亮点的首亮相，还好意思PS独占？ 还要毁一 ...</blockquote>
+有一说一，还上pc来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  monolithsoft  
+##### 144#       发表于 2022-3-10 10:22
+
+挺好的，彻底把系列作死让你们断了念想
+
+*****
+
+####  哈哈哈就  
+##### 145#       发表于 2022-3-10 10:22
+
+最后一张图，女人生气的脸太真实了
+
+*****
+
+####  医生狼多  
+##### 146#         楼主| 发表于 2022-3-10 10:22
+
+se年内至少能达成粪作(巴比伦，陆行鸟，北欧)三连击的壮举了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还能有更多吗?
+
+*****
+
+####  Toby_dak  
+##### 147#       发表于 2022-3-10 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988079&amp;ptid=2056968" target="_blank">Guildenstern 发表于 2022-3-10 11:04</a>
+
+我并不反对黑人，但是黑人女武神是个什么鬼？
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/10/112142ige4nky2722jssql.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 10:21 上传
+
+都是北欧神话，都是黑皮，这位就没什么人反对啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+image.png
+(69.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/10/112101jb3niaiz4unnc1mm.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 148#       发表于 2022-3-10 10:23
+
+<blockquote>医生狼多 发表于 2022-3-10 10:20
+有一说一，还上pc来着</blockquote>
+有pc版啊，那挺好啊，MOD速速走起
+
+*****
+
+####  Asukalangley33  
+##### 149#       发表于 2022-3-10 10:23
+
+Se不满足于天启四骑士了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
