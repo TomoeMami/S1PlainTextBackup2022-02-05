@@ -9659,3 +9659,32 @@ King次日销量6,141枚，目前累计39,093+6,141=45,234枚
 
 郡郡上次和兰初次双人联动的时候，电脑大拉胯卡顿无数次，怒而决定换电脑，在黛灰和推特电脑强人的指导下花了38w搞了个新的，今天再次和兰联动，又卡了😅
 
+
+
+*****
+
+####  wbzdwsmnmsl  
+##### 11368#       发表于 2022-3-10 21:17
+
+<img src="https://img.saraba1st.com/forum/202203/10/211647ieuuup29wzluv5pm.jpg" referrerpolicy="no-referrer">
+
+<strong>6v0gl2c7rmefpf1xiagegcu0a.jpg</strong> (193.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 21:16 上传
+
+来源见水印
+
+*****
+
+####  D-JoeII  
+##### 11369#       发表于 2022-3-10 21:20
+
+[https://www.youtube.com/watch?v=AnSGu_Iaz18](https://www.youtube.com/watch?v=AnSGu_Iaz18)
+
+以色列管人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不過5月才正式出道
+<img src="https://i.imgur.com/ZdQuDAG.jpg" referrerpolicy="no-referrer">
+
