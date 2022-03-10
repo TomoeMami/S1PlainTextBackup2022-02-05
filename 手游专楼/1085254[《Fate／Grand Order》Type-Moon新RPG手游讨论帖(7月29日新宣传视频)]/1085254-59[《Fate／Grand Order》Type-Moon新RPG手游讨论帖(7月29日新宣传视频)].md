@@ -2015,3 +2015,32 @@ A3073CBC-8DAC-492B-8DC2-7E50A3E658B9.png
 恭喜你获得了30个茶壶..话说打了多久</blockquote>
 2个小时多一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87181#       发表于 2022-3-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54984282&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-9 23:07</a>
+
+2个小时多一点吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">震撼人心的时长...
+
+*****
+
+####  khxooo  
+##### 87182#       发表于 2022-3-10 02:11
+
+小牛攻击机也太高了，一刀一个，扛不住<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 87183#       发表于 2022-3-10 08:18
+
+atk2400的几张真是开服遗毒
+
+这新礼装看起来支棱了结果少了400
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
