@@ -2974,3 +2974,16 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  poor  
+##### 263#       发表于 2022-3-10 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54996486&amp;ptid=2050204" target="_blank">barca 发表于 2022-3-10 20:19</a>
+运营的小作文2出来了，有提到今后主线的难度，将会更注重配队和战术，不会像前3章这样要求队伍战力直线上升 ...</blockquote>
+没提就是不打算改呗，你是有什么不切实际的幻想<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
