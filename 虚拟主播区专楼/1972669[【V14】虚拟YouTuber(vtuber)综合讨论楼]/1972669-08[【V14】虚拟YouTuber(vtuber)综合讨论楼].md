@@ -9467,3 +9467,40 @@ https://www.youtube.com/watch?v=SIXWjNcLueE</blockquote>
 
 ななもり那事我倾向于是真的（因为すとぷり本来瓜就不少），但是女主角们的身份本来就是网友们发散出来的，我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cckuku  
+##### 11349#       发表于 2022-3-10 08:42
+
+可是绊爱中之人不是搞姛的吗？我记得在300看到过介绍春日望和她女友的，好像她女友还画了部漫画。
+
+*****
+
+####  越动天下  
+##### 11350#       发表于 2022-3-10 08:44
+
+无所谓了 反正牵扯这么大 总有一个公司要出来说说的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 11351#       发表于 2022-3-10 08:52
+
+可信度......
+
+*****
+
+####  酒瓶止迁  
+##### 11352#       发表于 2022-3-10 08:56
+
+这事按爆料看责任完全是男方的，使劲暗示两个受害人的身份，总觉得有点硬蹭的意思<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 11353#       发表于 2022-3-10 09:06
+
+0%可信。
+

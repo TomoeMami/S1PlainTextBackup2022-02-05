@@ -696,3 +696,316 @@ SE不想做可以不做
 
 要毁系列口碑了，百分百雷。
 
+
+
+*****
+
+####  cowgp01  
+##### 68#       发表于 2022-3-10 08:45
+
+se是专门给点小钱把vp毁了吧，免得以后经常有人问
+
+*****
+
+####  ztkong  
+##### 69#       发表于 2022-3-10 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986268&amp;ptid=2056968" target="_blank">ff2077 发表于 2022-3-10 06:38</a>
+
+有一说一，真不好说这个和星海哪个更土
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 S1Next-鹅版  ...</blockquote>
+3a做的至少系统可玩性还可以期待。。。这个只希望这个不知名公司给力了。。。
+
+*****
+
+####  ciokex  
+##### 70#       发表于 2022-3-10 08:46
+
+这脸是认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gaiden  
+##### 71#       发表于 2022-3-10 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结尾黑人过于ZZZQ了
+
+*****
+
+####  アーリィ  
+##### 72#       发表于 2022-3-10 08:49
+
+看完，幸亏不是我
+
+*****
+
+####  无动于衷  
+##### 73#       发表于 2022-3-10 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986779&amp;ptid=2056968" target="_blank">アーリィ 发表于 2022-3-10 08:33</a>
+
+？？？？？？？？？？主角不是我？？？？？？？？？？？？</blockquote>
+这个才是你 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202203/10/084936ulymu4mlayaa7s2o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220310084921.png</strong> (14.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 08:49 上传
+
+*****
+
+####  superlink  
+##### 74#       发表于 2022-3-10 08:50
+
+星海虽然洋娃娃，但还能接受，这玩意儿呵
+
+*****
+
+####  ztkong  
+##### 75#       发表于 2022-3-10 08:51
+
+查了下，唯一玩过这公司做的游戏是火影忍者博人传：忍者先锋。。。
+
+*****
+
+####  妮贝雅  
+##### 76#       发表于 2022-3-10 08:51
+
+笑死 这叫**续作啊 有脸用这名字？
+
+*****
+
+####  新庄運切  
+##### 77#       发表于 2022-3-10 08:52
+
+吐了，什么玩意
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 78#       发表于 2022-3-10 08:53
+
+建模简直灾难性，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">se这tm在干嘛，外包也比把把关吗
+
+*****
+
+####  34789  
+##### 79#       发表于 2022-3-10 08:53
+
+**se！！！！！！！！！！！！！！！
+
+*****
+
+####  筒井彩芽  
+##### 80#       发表于 2022-3-10 08:53
+
+什么鬼，看这截图跟那种一个人做的独立游戏一样，大量的虚幻商城里的素材
+
+*****
+
+####  水琴楽树  
+##### 81#       发表于 2022-3-10 08:53
+
+这垃圾人设比原作差了十条街 
+
+*****
+
+####  月夜的风  
+##### 82#       发表于 2022-3-10 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986940&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-10 08:50</a>
+
+这个才是你</blockquote>
+这个我直接串戏到隔壁消逝的光芒2里的拉万。
+
+*****
+
+####  センコウ  
+##### 83#       发表于 2022-3-10 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986940&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-10 08:50</a>
+
+这个才是你</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/10/085346becmu8a71kyddiju.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220310095428.png</strong> (5.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-10 08:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">到底要多有毛病才能实际游戏能把从发色到人种全部换掉变成黑人香肠嘴的……
+
+*****
+
+####  wind  
+##### 84#       发表于 2022-3-10 08:54
+
+吐了，完全糟蹋这个ip
+
+*****
+
+####  wind  
+##### 85#       发表于 2022-3-10 08:54
+
+吐了，完全糟蹋这个ip
+
+*****
+
+####  无动于衷  
+##### 86#       发表于 2022-3-10 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986986&amp;ptid=2056968" target="_blank">センコウ 发表于 2022-3-10 08:54</a>
+
+到底要多有毛病才能实际游戏能把从发色到人种全部换掉变成黑人香肠嘴的……
+
+ ...</blockquote>
+所以说原案其实没问题
+
+建模师才应该拉出去祭天
+
+*****
+
+####  ReiFukai  
+##### 87#       发表于 2022-3-10 08:56
+
+狗都不玩
+
+*****
+
+####  zhouaa  
+##### 88#       发表于 2022-3-10 08:56
+
+ 本帖最后由 zhouaa 于 2022-3-10 08:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">索尼点名要求政确的吧  脸不说 包得严严实实的
+
+*****
+
+####  nopa  
+##### 89#       发表于 2022-3-10 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986752&amp;ptid=2056968" target="_blank">heseran 发表于 2022-3-10 08:29</a>
+
+这就是原图</blockquote>
+感觉一大早吃到屎了一样
+
+*****
+
+####  ff2077  
+##### 90#       发表于 2022-3-10 08:57
+
+查了下Soleil Ltd. 只能说第二个巴比伦陷落吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  赤井稻妻  
+##### 91#       发表于 2022-3-10 08:58
+
+外包给忍者组分出来的公司了，上一款游戏好像是武士杰克，评价还不错
+
+*****
+
+####  陈玉礼  
+##### 92#       发表于 2022-3-10 08:59
+
+SE这么多年**小小多少个不及预期了？天天想着以小博大不干正事不如倒闭得了
+
+*****
+
+####  zdh  
+##### 93#       发表于 2022-3-10 09:02
+
+咋感觉和新樱花大战一个德行
+
+*****
+
+####  十六夜镜月  
+##### 94#       发表于 2022-3-10 09:03
+
+大清早的，本来看到那四个字精神为之一振，结果。。。
+
+SE真的，这钱送给我行吗？
+
+谁定的渲染风格？谁定的操作类型？最最重要的，谁是甜蜜地建模师？
+
+*****
+
+####  3D烧  
+##### 95#       发表于 2022-3-10 09:04
+
+<img src="https://img.saraba1st.com/forum/202203/10/090418hmzix25nianabem4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-03-10-09-04-00-53_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (181.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-10 09:04 上传
+
+音乐：樱庭铳
+
+*****
+
+####  十六夜镜月  
+##### 96#       发表于 2022-3-10 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987098&amp;ptid=2056968" target="_blank">zdh 发表于 2022-3-10 09:02</a>
+
+咋感觉和新樱花大战一个德行</blockquote>
+这**玩意那锤子跟新樱战比？新樱战可没有这么变态的政确建模
+
+*****
+
+####  qiyu1234  
+##### 97#       发表于 2022-3-10 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987130&amp;ptid=2056968" target="_blank">3D烧 发表于 2022-3-10 09:04</a>
+音乐：樱庭铳</blockquote>
+有啥问题吗，这系列一直都是他
+
+*****
+
+####  geshhz  
+##### 98#       发表于 2022-3-10 09:06
+
+他妈的 又来个黑人
+
+*****
+
+####  LMBS  
+##### 99#       发表于 2022-3-10 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54987130&amp;ptid=2056968" target="_blank">3D烧 发表于 2022-3-10 09:04</a>
+
+音乐：樱庭铳</blockquote>
+唯一的好消息
+
+希望北妹和星海6能把樱庭铳困住，这样下部传说的音乐还有救
+
+*****
+
+####  zhouaa  
+##### 100#       发表于 2022-3-10 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新樱战起码有个70分吧  这明显不及格
+
+*****
+
+####  アーリィ  
+##### 101#       发表于 2022-3-10 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986940&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-10 08:50</a>
+
+这个才是你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
