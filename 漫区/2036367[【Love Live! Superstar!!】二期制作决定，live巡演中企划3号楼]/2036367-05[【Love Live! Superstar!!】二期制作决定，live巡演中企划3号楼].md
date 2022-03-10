@@ -2240,3 +2240,12 @@ pay这中文不错啊私下跟谁练的不好说</blockquote>
 
 感觉大家都觉得B站和LL官方的关系很密切的样子，我是没感觉到关系紧密到哪一步，LL官方迟迟不入驻（现在才有Amuse下这个Live Viewing Japan近似一个间接的官方入驻），B站上一些搬运的公开视频也时不时被Ban
 
+
+
+*****
+
+####  Norkey1  
+##### 6177#       发表于 2022-3-11 00:34
+
+只要不阉割哪边都无所谓，反正基本上没时间看直播…我最在意的一点是，显示国内市场价值利好未来周边引进，指不定哪天就不用代购了，倾向于买b站的票<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
