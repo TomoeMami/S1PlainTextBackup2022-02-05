@@ -2961,3 +2961,16 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  barca  
+##### 262#       发表于 2022-3-10 20:19
+
+运营的小作文2出来了，有提到今后主线的难度，将会更注重配队和战术，不会像前3章这样要求队伍战力直线上升了
+
+不过运营只字不提池子的更新频率，我就不信没玩家反映这事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
