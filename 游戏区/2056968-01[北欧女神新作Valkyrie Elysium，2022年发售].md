@@ -1530,3 +1530,47 @@ se年内至少能达成粪作(巴比伦，陆行鸟，北欧)三连击的壮举�
 都是北欧神话，都是黑皮，这位就没什么人反对啊</blockquote>
 再重申一遍，黑皮和黑人是不一样的
 
+
+
+*****
+
+####  无动于衷  
+##### 155#       发表于 2022-3-10 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988454&amp;ptid=2056968" target="_blank">fenrir 发表于 2022-3-10 10:28</a>
+
+女武神要长这样，北欧勇士们得吓得根本死不掉吧</blockquote>
+估计能被气活了
+
+*****
+
+####  amanohanei  
+##### 156#       发表于 2022-3-10 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宣传片给我看乐了，这是什么游戏引擎的自带demo吗
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 157#       发表于 2022-3-10 11:02
+
+笑死了，不会做可以做北欧原神
+
+SE别侮辱IP了
+
+*****
+
+####  runningcost  
+##### 158#       发表于 2022-3-10 11:05
+
+这ff起源外包给忍组，vp新作包给老忍组出来的，以后谁要练手就找se拿个ip。
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  X9999  
+##### 159#       发表于 2022-3-10 11:06
+
+一脸爆死相
+
