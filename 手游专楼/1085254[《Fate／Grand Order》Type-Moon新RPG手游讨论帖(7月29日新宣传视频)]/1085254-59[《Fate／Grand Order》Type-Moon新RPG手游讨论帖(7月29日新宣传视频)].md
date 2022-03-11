@@ -2164,3 +2164,17 @@ atk2400的几张真是开服遗毒
 
 艹 刚发现用的三个角色全是随便抽着玩出来的卡
 
+
+
+*****
+
+####  alucardcz  
+##### 87196#       发表于 2022-3-11 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011262&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-11 22:58</a>
+
+萨老师用水院打着还行即死小怪后没那么疼了 小牛靠着梵高磨过去的交了条令咒 王女靠的卑呆梅磨血
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧羡慕 你怎么什么都有呢
+
