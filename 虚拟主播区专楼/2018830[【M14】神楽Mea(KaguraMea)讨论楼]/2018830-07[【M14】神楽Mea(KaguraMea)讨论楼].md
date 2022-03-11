@@ -6114,3 +6114,19 @@ syl，这用line发表情包的女粉是私联是吧<img src="https://static.sar
 
 你这说法太扯了，哪有永远携带病毒的病症，照你这么说凡是得过新冠的就应该统统被人道毁灭是吧
 
+
+
+*****
+
+####  T_Hb  
+##### 9663#       发表于 2022-3-11 19:47
+
+不知道还以为是弱智吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  肥到终点  
+##### 9664#       发表于 2022-3-11 19:54
+
+好了以后还会二次感染而不是携带
+
