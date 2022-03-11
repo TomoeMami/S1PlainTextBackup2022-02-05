@@ -9814,3 +9814,28 @@ yqqx最协夺冠，单排大师，人脉遍布业界
 
 电子仿生德三会不会梦到虚拟犹勒园
 
+
+
+*****
+
+####  free  
+##### 11383#       发表于 2022-3-11 15:24
+
+[https://www.youtube.com/watch?v=1zlMg9Ljz-g](https://www.youtube.com/watch?v=1zlMg9Ljz-g)
+
+本日22時YouTubeLiveにて
+
+すとぷりのななもりが不倫相手と喧嘩の音声、動画、本人である完全な証拠を公開します。
+
+キズナアイの名前が出ている件…新事実ななもりはダブル不倫していた…ななもり本人も呼びます
+
+別メンバーの話も公開予定
+
+<img src="https://img.saraba1st.com/forum/202203/11/152430ioa8emop9c9ztwbw.jpg" referrerpolicy="no-referrer">
+
+<strong>精彩.jpg</strong> (8.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 15:24 上传
+
