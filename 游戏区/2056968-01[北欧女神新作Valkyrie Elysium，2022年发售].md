@@ -2441,3 +2441,28 @@ ff算保住了？</blockquote>
 每次se不好好做vp都搞得像对不起谁似的，同门星海好歹数作过百万，vp在jrpg黄金时代都过不了百万你指望se多 ...</blockquote>
 还是那句：不想做可以不做。
 
+
+
+*****
+
+####  无动于衷  
+##### 246#       发表于 2022-3-11 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55000882&amp;ptid=2056968" target="_blank">defer 发表于 2022-3-11 09:18</a>
+
+每次se不好好做vp都搞得像对不起谁似的，同门星海好歹数作过百万，vp在jrpg黄金时代都过不了百万你指望se多 ...</blockquote>
+一个想法不一定对
+
+吹北欧女神系列的人无一例外都是在吹战斗系统
+
+但3A做过一个名叫生存档案的游戏，战斗系统完全照搬的北欧女神，结果却大暴死
+
+让SE认为玩家所谓对战斗系统的爱其实也就那么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  X9999  
+##### 247#       发表于 2022-3-11 11:05
+
+这个pv看起来连星海6都不如。。
+

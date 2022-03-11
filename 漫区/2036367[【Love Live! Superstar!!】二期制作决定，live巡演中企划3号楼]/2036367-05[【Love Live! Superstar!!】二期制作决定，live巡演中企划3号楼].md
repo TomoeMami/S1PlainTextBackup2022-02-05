@@ -2337,3 +2337,58 @@ TB肯定有人代，要么自己走转运，要么等在日冲活动的出只取
 哪怕是版权狂魔的油管，顶多也就是是公开视 ...</blockquote>
 别的我记不太清楚了，就依然姐那里，常见的是多次补档的试听，还有有个练习室视频也被Ban了，当然最有名的可能是当初那个Tiny Stars的TV切片
 
+
+
+*****
+
+####  优妮可  
+##### 6185#       发表于 2022-3-11 11:03
+
+<img src="https://img.saraba1st.com/forum/202203/11/110312nfkfrtr0g3msd1mf.jpg" referrerpolicy="no-referrer">
+
+<strong>220224_ha_0415_2400.jpg</strong> (280.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202203/11/110315w3ak5ivhitm2datg.jpg" referrerpolicy="no-referrer">
+
+<strong>220224_ha_0369_1280.jpg</strong> (117.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202203/11/110317acd64i7o0fo6hfji.jpg" referrerpolicy="no-referrer">
+
+<strong>220224_ha_0400_1280.jpg</strong> (157.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202203/11/110319jbd5he6djj6z6b25.jpg" referrerpolicy="no-referrer">
+
+<strong>220224_ha_0395_1280.jpg</strong> (144.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202203/11/110323x820pd8gu8zwuw0u.jpg" referrerpolicy="no-referrer">
+
+<strong>220224_ha_0381_1280.jpg</strong> (146.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202203/11/110324py7z5yvvrvv38y0v.jpg" referrerpolicy="no-referrer">
+
+<strong>220224_ha_0428_1280.jpg</strong> (132.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 11:03 上传
+
