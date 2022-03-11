@@ -2313,3 +2313,27 @@ TB肯定有人代，要么自己走转运，要么等在日冲活动的出只取
 
 昨天刷到外文书店预售这个，汇率高达0.11，正规渠道的一般不用考虑了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6183#       发表于 2022-3-11 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001381&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-11 10:04</a>
+不是，你为什么会觉得官方在E+渠道统计不到支付宝支付的人数的......
+
+当然B站卖的好可能能给叔叔增加合作 ...</blockquote>
+我倒不是这个意思，官方在B站开不就是想吸引更多人买么，如果有比较好的反馈不更好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 6184#       发表于 2022-3-11 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001415&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-11 10:06</a>
+公开视频除了撞车我没怎么见ban的，live切片下了是情理之中。
+
+哪怕是版权狂魔的油管，顶多也就是是公开视 ...</blockquote>
+别的我记不太清楚了，就依然姐那里，常见的是多次补档的试听，还有有个练习室视频也被Ban了，当然最有名的可能是当初那个Tiny Stars的TV切片
+
