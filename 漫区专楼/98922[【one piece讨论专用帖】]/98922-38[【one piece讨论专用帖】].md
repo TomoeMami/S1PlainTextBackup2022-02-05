@@ -14759,3 +14759,15 @@ n.</blockquote>
 
 海贼王真正的水平就在这几话决定了，尾田加油<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ⊙天上天下  
+##### 56724#       发表于 2022-3-11 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54964454&amp;ptid=98922" target="_blank">Freemasons 发表于 2022-3-8 15:37</a>
+
+海贼王前半部的底子在那摆着，尾田只要别太贪心，老老实实讲主线故事，别再没完没了的塞新人物或者仰卧起坐 ...</blockquote>
+说的很好，其实任何一部漫画要想收尾好，后半部分都必须密集快速的把前面的坑填上的，尾田还在不停的挖坑真是作死，给自己增加难度，读者也不买账，三国大家关心的还是前期的人物，这和海贼王是一样的，新世界增加的大部分角色读者基本上毫无感觉，不太待见他们的戏份，作者还不停的给他们加戏，所以吐槽多。
+

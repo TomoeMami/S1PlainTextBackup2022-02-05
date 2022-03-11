@@ -9966,3 +9966,16 @@ sky你带我走吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 急什么 再过半个小时 好戏就要上场了 激动的心 颤抖的手
 
+
+
+*****
+
+####  fastary  
+##### 11395#       发表于 2022-3-11 21:23
+
+刚知道黄警官的前世：玉玉大神隐藏过往装阳光男孩赛博卖笑好色啊感觉光听他卖力营业都能看下去了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+看过一些录播以后：哥你前世不会直播就闷头打游戏还只打tf2吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">怎么会有阳角不读sc纯杂谈时听起来像坐牢……
+
+怀疑他首播目标写了个提高交流能力是真心的不是客套话<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
