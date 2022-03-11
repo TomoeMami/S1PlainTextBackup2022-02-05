@@ -6050,3 +6050,31 @@ syl，这用line发表情包的女粉是私联是吧<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一定要做好防疫工作
 
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 9656#       发表于 2022-3-11 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">病倒两个我当时就在想这情况是不是有人冠了
+太哈人了日本现在<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  往世雷书  
+##### 9657#       发表于 2022-3-11 18:12
+
+这剧本不对啊，按起飞就坠机的规律我还以为中招的会是她<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  时间在我手中  
+##### 9658#       发表于 2022-3-11 18:18
+
+现在奥密克戎传染更强，我这边进公共场所办事基本绑定48小时核酸检测了
+
