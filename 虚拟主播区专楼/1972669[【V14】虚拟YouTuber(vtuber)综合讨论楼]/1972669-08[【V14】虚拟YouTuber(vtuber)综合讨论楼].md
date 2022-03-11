@@ -10154,3 +10154,46 @@ hnn这新衣服是短发啊
 
 kmt你变了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11411#       发表于 2022-3-11 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011578&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-3-11 23:29</a>
+
+nnmr一个大直男可以和同事牵手贴贴互挑下巴，虹男谁来（大叔乳液摔跤有股味儿，不算） ...</blockquote>
+大叔乳液的味儿是正统虹味儿<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">（不是）
+
+Syl，这个月是不是发生太多事情了
+
+<img src="https://img.saraba1st.com/forum/202203/11/235843gkz3ux60fc3fq7pq.png" referrerpolicy="no-referrer">
+
+<strong>ななもりがまふまふと不倫はしぬWWW.png</strong> (51.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 23:58 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|にじさんじとは？|
+
+查看全部评分
+
+*****
+
+####  swordofsoul1  
+##### 11412#       发表于 2022-3-12 00:02
+
+对了，P丸的《如果我成为大统领》和《心跳掮客》甚至出过中文版，可以看看歌词，可谓是非常直球了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1D64y1i77L](https://www.bilibili.com/video/BV1D64y1i77L)
+[https://www.bilibili.com/video/BV1dh411s7hM](https://www.bilibili.com/video/BV1dh411s7hM)
+
