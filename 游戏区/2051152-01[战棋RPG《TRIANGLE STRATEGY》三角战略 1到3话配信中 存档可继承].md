@@ -8519,3 +8519,17 @@ https://hyperwiki.jp/pts/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稲穂信  
+##### 773#       发表于 2022-3-11 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55005111&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-11 14:54</a>
+
+没什么大问题，但11章还是12章有一段有集中好几处错别字
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我进度还没到那儿，没发现……
+
