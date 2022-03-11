@@ -8573,3 +8573,33 @@ https://hyperwiki.jp/pts/
 才玩到第一次投票,可以不可以巨魔的?就是把所有人都说服一遍.选a的让他选b,选b的让他选a ...</blockquote>
 前期可以，后期有仨人态度死硬是扭不回来的
 
+
+
+*****
+
+####  oyss  
+##### 778#       发表于 2022-3-11 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55008976&amp;ptid=2051152" target="_blank">minysun 发表于 2022-3-11 20:05</a>
+
+前期可以，后期有仨人态度死硬是扭不回来的</blockquote>
+我的意思是主角这样精神分裂会不会有啥不好的影响.因为根本也不是想选A还是选B,目的就是说得.
+
+*****
+
+####  minysun  
+##### 779#       发表于 2022-3-11 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55009030&amp;ptid=2051152" target="_blank">oyss 发表于 2022-3-11 20:09</a>
+我的意思是主角这样精神分裂会不会有啥不好的影响.因为根本也不是想选A还是选B,目的就是说得. ...</blockquote>
+根据结果加三种倾向，看颜色绿色道德红色功利黄色自由
+
+*****
+
+####  minysun  
+##### 780#       发表于 2022-3-11 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55009030&amp;ptid=2051152" target="_blank">oyss 发表于 2022-3-11 20:09</a>
+我的意思是主角这样精神分裂会不会有啥不好的影响.因为根本也不是想选A还是选B,目的就是说得. ...</blockquote>
+另外说得需要线索和一定的道德基础，比如第一次分歧劝老婆要谈感情，劝管家就要讲利益
+
