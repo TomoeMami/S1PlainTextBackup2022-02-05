@@ -14791,3 +14791,19 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 
 那就得68岁左右了。
 
+
+
+*****
+
+####  klzxs  
+##### 56726#       发表于 2022-3-11 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011043&amp;ptid=98922" target="_blank">教皇 发表于 2022-3-11 22:40</a>
+
+这几个人年龄对不上，
+
+都是 Big Mom 的同龄人，</blockquote>
+不太看得出年纪吧？
+
+虽然说面具下是70岁的老人也确实有点怪
+

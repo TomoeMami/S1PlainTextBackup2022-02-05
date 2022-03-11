@@ -8619,3 +8619,14 @@ https://hyperwiki.jp/pts/
 
 跟八方旅人一样，所有地名全部是音译。类似Ironforge不是翻译成铁炉堡而是艾棱富奇
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 782#       发表于 2022-3-11 23:17
+
+阿哲，15章看小剧场，这男女主怎么已经你侬我侬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前的剧情有半毛钱互动吗，第一次感觉还不如和王子搞南桐算了
+

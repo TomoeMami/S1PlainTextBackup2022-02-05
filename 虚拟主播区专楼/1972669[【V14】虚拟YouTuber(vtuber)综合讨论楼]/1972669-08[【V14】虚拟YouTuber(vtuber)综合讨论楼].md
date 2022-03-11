@@ -10099,3 +10099,38 @@ https://twitter.com/KizunaAIinc/status/1502233075861712900</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最大同接48w还行
 
+
+
+*****
+
+####  cckuku  
+##### 11405#       发表于 2022-3-11 23:15
+
+感觉啥也没说，49w人看了个寂寞。
+
+*****
+
+####  swordofsoul1  
+##### 11406#       发表于 2022-3-11 23:16
+
+总结：爱月（望P）是真的，望酱为了P酱的幸福隐忍一年搜集罪证对渣男使用炎拳一波带走。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  实津二三  
+##### 11407#       发表于 2022-3-11 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55010604&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2022-3-11 22:10</a>
+啊这</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不会复活是为了恰钱吧。
+突然想起当年众筹之后承诺的视频（好像是暑假还是啥）很长时间没出，当时大家还开玩笑说是不是卷款逃了。不过后来还是出了。
+
+*****
+
+####  IDIDIDID  
+##### 11408#       发表于 2022-3-11 23:26
+
+虹男赶紧多福报几天把すとぷり女粉盘吃下来，那可都是肯花钱的集美。
+
