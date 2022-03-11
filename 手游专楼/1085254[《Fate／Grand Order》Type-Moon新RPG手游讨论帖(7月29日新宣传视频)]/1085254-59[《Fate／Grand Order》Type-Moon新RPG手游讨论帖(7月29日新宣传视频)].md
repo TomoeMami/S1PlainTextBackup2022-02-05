@@ -2207,3 +2207,25 @@ AAF34AA1-D03E-4867-BFD0-370A28CA3E62.png
 
 <img src="https://img.saraba1st.com/forum/202203/12/002222qezk40e9k4p7i9bb.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87198#       发表于 2022-3-12 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011628&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-11 23:34</a>
+
+欧羡慕 你怎么什么都有呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都是微妙角色啊 强的芭娜娜这种我就是抽不到
+
+*****
+
+####  alucardcz  
+##### 87199#       发表于 2022-3-12 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012245&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-12 01:00</a>
+
+都是微妙角色啊 强的芭娜娜这种我就是抽不到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你有无敌的枪兰
+

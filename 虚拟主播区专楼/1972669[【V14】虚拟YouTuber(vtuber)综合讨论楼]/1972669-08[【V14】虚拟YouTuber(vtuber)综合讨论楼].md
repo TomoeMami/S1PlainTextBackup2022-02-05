@@ -10266,3 +10266,19 @@ syl
 
 2022-3-12 00:38 上传
 
+
+
+*****
+
+####  poipanchao  
+##### 11417#       发表于 2022-3-12 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011967&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-12 00:14</a>
+
+vox(在没法线下贴的前提下)已经很卖力了
+
+至于五期两个拿cp图当推特头图的腐男大概率真不直，不能算
+
+syl</blockquote>
+别的游戏就算了，apex基本就是用tf2的底子做的，怎么着也不至于
+
