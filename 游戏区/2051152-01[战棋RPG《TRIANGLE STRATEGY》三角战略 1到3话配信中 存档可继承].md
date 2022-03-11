@@ -8690,3 +8690,15 @@ https://hyperwiki.jp/pts/
 
 只有我一个小剧场也没看过吗，一周目打到16章了，除了npc入队以外+事件就没亮过
 
+
+
+*****
+
+####  稲穂信  
+##### 788#       发表于 2022-3-12 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012820&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-12 04:20</a>
+
+只有我一个小剧场也没看过吗，一周目打到16章了，除了npc入队以外+事件就没亮过 ...</blockquote>
+多刷刷酒馆试炼让不同角色多出场就有了
+
