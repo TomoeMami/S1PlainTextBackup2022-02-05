@@ -2589,3 +2589,21 @@ pay子这个发型还挺可爱
 
 新的外景part1，普通科居然赢了音乐科太难得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ykyin09  
+##### 6203#       发表于 2022-3-11 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nako这发型不比丸子头好看？来自: iPhone客户端
+
+*****
+
+####  ayangsu  
+##### 6204#       发表于 2022-3-11 17:46
+
+Pay和nako的新发型都好好看，之前的真不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
