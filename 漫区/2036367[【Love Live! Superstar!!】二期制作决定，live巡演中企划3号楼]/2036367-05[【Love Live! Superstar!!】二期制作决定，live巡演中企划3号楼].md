@@ -2249,3 +2249,14 @@ pay这中文不错啊私下跟谁练的不好说</blockquote>
 
 只要不阉割哪边都无所谓，反正基本上没时间看直播…我最在意的一点是，显示国内市场价值利好未来周边引进，指不定哪天就不用代购了，倾向于买b站的票<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蜜梨柑  
+##### 6178#       发表于 2022-3-11 09:28
+
+ 本帖最后由 蜜梨柑 于 2022-3-11 09:31 编辑 
+
+day1没发表看叔叔家的还行吧，毕竟码率高一点，day2还是看eplus实时的好了。不过叔叔家看回放要等一个星期有点难顶<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

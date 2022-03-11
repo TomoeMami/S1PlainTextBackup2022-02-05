@@ -2429,3 +2429,15 @@ ff算保住了？</blockquote>
 
 别提口碑，论口碑放浪冒险谭牛逼多了，se打过一点主意吗。
 
+
+
+*****
+
+####  hhgjf  
+##### 245#       发表于 2022-3-11 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55000882&amp;ptid=2056968" target="_blank">defer 发表于 2022-3-11 09:18</a>
+
+每次se不好好做vp都搞得像对不起谁似的，同门星海好歹数作过百万，vp在jrpg黄金时代都过不了百万你指望se多 ...</blockquote>
+还是那句：不想做可以不做。
+
