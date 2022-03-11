@@ -2466,3 +2466,24 @@ ff算保住了？</blockquote>
 
 这个pv看起来连星海6都不如。。
 
+
+
+*****
+
+####  mamamiya  
+##### 248#       发表于 2022-3-11 11:33
+
+有杰克武士那素质的话也可以了，体量大点，再搞个mod
+
+*****
+
+####  hhgjf  
+##### 249#       发表于 2022-3-11 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002039&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-11 10:54</a>
+
+一个想法不一定对
+
+吹北欧女神系列的人无一例外都是在吹战斗系统</blockquote>
+《大头娃娃》那个卖相，战斗系统再好也是白搭（销量上来说）。
+

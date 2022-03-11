@@ -8371,3 +8371,68 @@ https://hyperwiki.jp/pts/
 含剧透的吐槽，反白下
 虽说角色们基本都是坏人脸，但商会会长居然是个好人我是没想到的，居然不选择坐山观虎斗而是亲自带头帮主角的军队潜入教国
 
+
+
+*****
+
+####  春秋  
+##### 759#       发表于 2022-3-11 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54999327&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-11 01:13</a>
+困难十四关王都打女将军头打破防了，一晚上打了4遍都没过，双法爷双奶妈双弓兵双重甲围绕BOSS，还有5个鸟骑 ...</blockquote>
+利用水威慑敌人。
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  听风不是雨  
+##### 760#       发表于 2022-3-11 11:32
+
+<blockquote>blackll7 发表于 2022-3-11 04:13
+仔细观察地形，如果你之前逛街仔细的话应该知道左右两侧高地外侧还有花园，开局全员直奔花园路口用 ...</blockquote>
+我后来发现女将军的ai不会离开中间水池两格以上，于是开场就把不能上天台的走地角色全员鳖在右侧的拐角里勾杂兵过来打，打的差不多了让安娜从天台去后场拉走几个敌人，剩下的人冲出来围殴女将军
+
+*****
+
+####  艾特娜  
+##### 761#       发表于 2022-3-11 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002508&amp;ptid=2051152" target="_blank">春秋 发表于 2022-3-11 11:29</a>
+
+利用水威慑敌人。
+
+—— 来自 motorola XT2125-4, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+一开始我选择把敌人全引导水里，然后祈祷师和贤者放电打一片。但是将军不吃麻痹，而且麻痹概率不太高，可能等二周目以后有钱了让人丢下雷电弹会比较好
+
+*****
+
+####  听风不是雨  
+##### 762#       发表于 2022-3-11 11:39
+
+还有打完这关之后有段罗兰单挑女将军的戏，不得不说这演出连二十年前的曹操传都不如，，，
+
+*****
+
+####  LamdaHT  
+##### 763#       发表于 2022-3-11 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55000691&amp;ptid=2051152" target="_blank">贝雷特 发表于 2022-3-11 09:03</a>
+
+真的。每次就感觉自己在玩大河剧，但是这种感觉还不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听到旁白，我的第一反应也是大河剧
+
+*****
+
+####  zikimi  
+##### 764#       发表于 2022-3-11 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001099&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-11 09:37</a>
+
+现在在全网找剧情流程，主要差
+
+10章的无限制格斗
+
+11章的交出罗洁儿人</blockquote>
+我走的放水线，潜入关还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
