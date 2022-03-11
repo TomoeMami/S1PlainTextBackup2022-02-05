@@ -2540,3 +2540,19 @@ tiny star是动画肯定ban的，试听也会，生放送这种一般不会，�
 
 不让SNP也拍一下吗
 
+
+
+*****
+
+####  cqc1021  
+##### 6199#       发表于 2022-3-11 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001526&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-11 10:15</a>
+TB肯定有人代，要么自己走转运，要么等在日冲活动的出只取走抽选活动的未拆。
+
+昨天刷到外文书店预售这个 ...</blockquote>
+618时中图上海都会搞活动，那时候买就便宜多了。
+外文书店算了，坑钱的。
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

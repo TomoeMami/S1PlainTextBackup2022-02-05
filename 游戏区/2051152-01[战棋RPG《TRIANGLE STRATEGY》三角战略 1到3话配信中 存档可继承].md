@@ -8495,3 +8495,27 @@ https://hyperwiki.jp/pts/
 是大陆的人翻译的？还是和勇气默示录一样是台湾的？</blockquote>
 实体版还没到，试玩版打穿，看翻译没有勇气2那种文言文了
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 771#       发表于 2022-3-11 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002680&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-11 11:39</a>
+还有打完这关之后有段罗兰单挑女将军的戏，不得不说这演出连二十年前的曹操传都不如，，， ...</blockquote>
+这个hd2d其实很像法老控空轨那个效果，然而演出还是打不过<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古畑任三郎2015  
+##### 772#       发表于 2022-3-11 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55003594&amp;ptid=2051152" target="_blank">达达葱2 发表于 2022-3-11 12:42</a>
+中文版翻译得如何？</blockquote>
+没什么大问题，但11章还是12章有一段有集中好几处错别字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
