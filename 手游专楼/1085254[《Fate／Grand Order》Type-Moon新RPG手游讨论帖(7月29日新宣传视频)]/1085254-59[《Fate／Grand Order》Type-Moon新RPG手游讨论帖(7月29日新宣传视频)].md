@@ -2122,3 +2122,12 @@ atk2400的几张真是开服遗毒
 
 这回忆本最恶心的还是萨列里前两面5个10w+还会抽蓝的小怪，boss十倍血量就行了为啥小怪也来十倍血量啊
 
+
+
+*****
+
+####  qixinno2  
+##### 87192#       发表于 2022-3-11 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">就差王女没打了 有没有非洲咸鱼也能过得组合
+
