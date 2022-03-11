@@ -2636,3 +2636,14 @@ Pay和nako的新发型都好好看，之前的真不行
 
 pay子这发型太好看了
 
+
+
+*****
+
+####  player3960  
+##### 6208#       发表于 2022-3-11 18:41
+
+这套发型能继承吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

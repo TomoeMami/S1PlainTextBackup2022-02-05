@@ -6078,3 +6078,23 @@ syl，这用line发表情包的女粉是私联是吧<img src="https://static.sar
 
 现在奥密克戎传染更强，我这边进公共场所办事基本绑定48小时核酸检测了
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9659#       发表于 2022-3-11 18:33
+
+这两个星期我做了4次核酸了。疫情真的好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤原银  
+##### 9660#       发表于 2022-3-11 18:35
+
+日本最近疫情略微降了
+
+没想到还是中招了
+
