@@ -10197,3 +10197,37 @@ Syl，这个月是不是发生太多事情了
 [https://www.bilibili.com/video/BV1D64y1i77L](https://www.bilibili.com/video/BV1D64y1i77L)
 [https://www.bilibili.com/video/BV1dh411s7hM](https://www.bilibili.com/video/BV1dh411s7hM)
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11413#       发表于 2022-3-12 00:08
+
+レバガチャの終わりは？
+
+*****
+
+####  tiro_finale  
+##### 11414#       发表于 2022-3-12 00:12
+
+这剧情有点麻，P丸不来讲两句吗，看推前两天刚庆祝240w...
+
+*****
+
+####  fastary  
+##### 11415#       发表于 2022-3-12 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011578&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-3-11 23:29</a>
+
+nnmr一个大直男可以和同事牵手贴贴互挑下巴，虹男谁来（大叔乳液摔跤有股味儿，不算） ...</blockquote>
+vox(在没法线下贴的前提下)已经很卖力了
+
+至于五期两个拿cp图当推特头图的腐男大概率真不直，不能算
+
+syl
+
+我不懂apex但是据说sonny打派真的很菜，有没有那么一点可能……特错了？不过ultrakill看起来杀得挺顺畅的
+
+还是说tf2并不是能活用经验到其他打枪游戏的类型<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+

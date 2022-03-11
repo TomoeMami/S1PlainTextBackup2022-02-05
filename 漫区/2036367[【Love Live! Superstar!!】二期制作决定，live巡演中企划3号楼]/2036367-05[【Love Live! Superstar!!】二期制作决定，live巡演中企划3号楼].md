@@ -2708,3 +2708,20 @@ pay和鲤鱼这两套衣服可真好看啊
  <blockquote>たぶん1年くらい帰れなかったもあるんですけど、普通に中国語を話すだけでちょっと泣きそうになっちゃいました。</blockquote>
 看这疫情估计今年也回不来
 
+
+
+*****
+
+####  kata魂  
+##### 6214#       发表于 2022-3-12 00:18
+
+<img src="https://img.saraba1st.com/forum/202203/12/001804c24q00002o44xuua.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (42.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 00:18 上传
+
+微博上看到的，笑出声
+
