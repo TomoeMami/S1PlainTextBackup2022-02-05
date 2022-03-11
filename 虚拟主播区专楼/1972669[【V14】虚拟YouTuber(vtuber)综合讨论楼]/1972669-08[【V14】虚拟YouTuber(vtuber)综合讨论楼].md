@@ -10061,3 +10061,32 @@ https://twitter.com/KizunaAIinc/status/1502233075861712900</blockquote>
 给我一种掐声线和读评论/打游戏 ...</blockquote>
 有实力的话不说话装高手是可行的，放弃装阳角也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，就怕太割裂装不下去跑路了
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 11403#       发表于 2022-3-11 22:10
+
+啊这 <blockquote>由 谷狗 翻译自 日语
+
+[鸠羽津继] x Village Vanguard 联名商品限时发售！神秘的V-Tuber【鸠羽Tsugu】商品是不是充满了谜团？ ??限时发售，千万不要错过这个机会！ ！！
+
+订货期
+
+2022/3/12（周六）10:00 ~ 3/21（周一）23:59
+
+详情👇
+[https://village-v.co.jp/news/item/12473](https://village-v.co.jp/news/item/12473)
+
+购买👇
+[https://vvstore.jp/feature/detail/17674/](https://vvstore.jp/feature/detail/17674/)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/11/221000a125mabv62c7z356.jpg" referrerpolicy="no-referrer">
+
+<strong>FNj3r6pVkAQtnn4.jpg</strong> (67.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 22:10 上传
+

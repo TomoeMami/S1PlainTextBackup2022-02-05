@@ -6208,3 +6208,19 @@ syl，这用line发表情包的女粉是私联是吧<img src="https://static.sar
 
 今天怎么那么娘？
 
+
+
+*****
+
+####  汇聚群光  
+##### 9674#       发表于 2022-3-11 22:01
+
+罗贝尔确实新冠阳性了
+
+*****
+
+####  T_Hb  
+##### 9675#       发表于 2022-3-11 22:05
+
+牛皮藓再贴人都看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
