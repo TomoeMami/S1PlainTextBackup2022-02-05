@@ -2260,3 +2260,17 @@ pay这中文不错啊私下跟谁练的不好说</blockquote>
 
 day1没发表看叔叔家的还行吧，毕竟码率高一点，day2还是看eplus实时的好了。不过叔叔家看回放要等一个星期有点难顶<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 6179#       发表于 2022-3-11 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54997284&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-10 21:39</a>
+
+个人有一对很矛盾的想法：一方面来说，B站这个线上票是直接对准国内市场的，如果国内市场能给企划方反馈一 ...</blockquote>
+不是，你为什么会觉得官方在E+渠道统计不到支付宝支付的人数的......
+
+当然B站卖的好可能能给叔叔增加合作信心（虽然现在应该也蛮有信心的）
+
