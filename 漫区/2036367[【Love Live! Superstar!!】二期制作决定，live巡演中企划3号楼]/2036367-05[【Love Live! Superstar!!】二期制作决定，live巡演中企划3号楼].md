@@ -2451,3 +2451,43 @@ tiny star是动画肯定ban的，试听也会，生放送这种一般不会，�
 
 还不如承认说BAN就是看心情
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6191#       发表于 2022-3-11 12:32
+
+突然想起菜鱼节目的反生还没个消息，官方是不是准备鸽到明年一月之后<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6192#       发表于 2022-3-11 12:34
+
+鲤鱼这一专抽选中率蛮神的，我G店2中1，A店堆了14张全落<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+还好中了一个，要不真的绷不住
+
+*****
+
+####  Enakina  
+##### 6193#       发表于 2022-3-11 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001415&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-03-11 10:06:58</a>
+公开视频除了撞车我没怎么见ban的，live切片下了是情理之中。
+
+哪怕是版权狂魔的油管，顶多也就是是公开视 ...</blockquote>那你是见的少了，公开视频ban的老多了，油管上的免费试听啥的都大面积的ban，最离谱的是连字幕组做的生放都ban过
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 6194#       发表于 2022-3-11 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55003056&amp;ptid=2036367" target="_blank">welcom 发表于 2022-3-11 12:06</a>
+啊？不说那个4K 120HZ的片段现在都142W点击了，依然姐的NONFICTION两百多万了也没事啊
+
+还不如承认说BAN就 ...</blockquote>
+被ban的机制很迷惑，真就随心所欲。依然姐的投稿，训练视频只ban了街道，一专完整版全部ban ，bd特典曲全部没事，几张单曲也没事
+

@@ -8436,3 +8436,12 @@ https://hyperwiki.jp/pts/
 11章的交出罗洁儿人</blockquote>
 我走的放水线，潜入关还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  达达葱2  
+##### 765#       发表于 2022-3-11 12:42
+
+中文版翻译得如何？
+
