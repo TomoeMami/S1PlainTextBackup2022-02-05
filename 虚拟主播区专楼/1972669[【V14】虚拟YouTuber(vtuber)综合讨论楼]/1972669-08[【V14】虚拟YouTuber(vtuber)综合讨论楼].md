@@ -10282,3 +10282,60 @@ vox(在没法线下贴的前提下)已经很卖力了
 syl</blockquote>
 别的游戏就算了，apex基本就是用tf2的底子做的，怎么着也不至于
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11418#       发表于 2022-3-12 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011967&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-12 00:14</a>
+
+vox(在没法线下贴的前提下)已经很卖力了
+
+至于五期两个拿cp图当推特头图的腐男大概率真不直，不能算
+
+syl</blockquote>
+特意看了一下，也不能算菜吧：3级号打出500dmg，第二局风暴点晴雨表走位灵活靠地形2kill，拿到不熟悉武器先试弹道偏离，遇敌看好时机果断扔投掷物（而且准头很好）；aim不错也懂预判跟枪，躲掩体换弹，吃贡品下意识↔️
+
+但也很明显不了解apex：不熟键位按错好几次，打了一个半小时跑路不收枪，反复误入恶灵传送门，没盾战意识，完全不了解地图武器（我觉得reimu也不是特别熟）；
+
+tf2我也只有小时候玩过称不上了解，搜了一下Pyro（sketchek本命英雄）的基本战略<blockquote>The Pyro can also use the Detonator or Scorch Shot to Flare jump, and the Thermal Thruster jetpack to fly to places that are normally unreachable to them.</blockquote>
+走位突击近战，难怪Sonny首选机器人Q还用得很上手
+
+顺便一提tf2是指军团要塞2不是泰坦陨落2<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  poipanchao  
+##### 11419#       发表于 2022-3-12 01:37
+
+ 本帖最后由 poipanchao 于 2022-3-12 01:40 编辑 
+
+tf2不同啊，云了
+
+syl，截至目前
+
+hnn剪短发，前日疑似有kmt参加的valo配信临时取消
+
+hnn这段时间几乎跟所有圈子里的配信者联动过valo，除了kmt
+
+kmt未转推未点赞新衣服相关，没去直播间
+
+67前日对kmt态度恶劣
+
+果然是吵架分手了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  絵生voice  
+##### 11420#       发表于 2022-3-12 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012142&amp;ptid=1972669" target="_blank">swordofsoul1 发表于 2022-3-12 00:38</a>
+原来老爱之前tiktok上跳p丸的大统领就是暗示了，这组合拳的确强
+
+顺便misaki</blockquote>
+不能理解为什么你这么急着下结论，今晚上哪里有透露出是这两人吗。你发这两首歌的作词都不是本人，前面也有人发了作词的想法，不知道为什么你没看到，我觉得可以冷静一下。你可能不知道大统领这首歌有多火。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
