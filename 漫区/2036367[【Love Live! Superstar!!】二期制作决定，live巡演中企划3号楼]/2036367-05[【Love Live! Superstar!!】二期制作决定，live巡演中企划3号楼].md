@@ -2491,3 +2491,43 @@ tiny star是动画肯定ban的，试听也会，生放送这种一般不会，�
 还不如承认说BAN就 ...</blockquote>
 被ban的机制很迷惑，真就随心所欲。依然姐的投稿，训练视频只ban了街道，一专完整版全部ban ，bd特典曲全部没事，几张单曲也没事
 
+
+
+*****
+
+####  星降る森  
+##### 6195#       发表于 2022-3-11 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55003056&amp;ptid=2036367" target="_blank">welcom 发表于 2022-3-11 12:06</a>
+
+啊？不说那个4K 120HZ的片段现在都142W点击了，依然姐的NONFICTION两百多万了也没事啊
+
+还不如承认说BAN就 ...</blockquote>
+没搜到呗，夹都是主动行为，叔叔本身不怎么管，只有版权方投诉才有权力撤稿，你不是版权方，哪怕这视频按规定不可传写在脸上，叔叔都懒得下
+
+*****
+
+####  星降る森  
+##### 6196#       发表于 2022-3-11 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55003559&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-11 12:39</a>
+
+那你是见的少了，公开视频ban的老多了，油管上的免费试听啥的都大面积的ban，最离谱的是连字幕组做的生放都 ...</blockquote>
+试听一直是版权范围内啊，不是说了吗？同样的东西，中间有过场播歌被ban,切掉歌就存活这种事情见得多了，至于有没有字幕并不是ban不ban的依据
+
+*****
+
+####  仟音一心  
+##### 6197#       发表于 2022-3-11 13:43
+
+完
+
+60AD8DA7-8761-4B83-AF63-BF4824F98037.jpeg
+(423.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-11 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202203/11/134328mqka8jnz9k89w2wj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
