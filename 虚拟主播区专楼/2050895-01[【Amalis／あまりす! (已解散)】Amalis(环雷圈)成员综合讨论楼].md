@@ -1793,3 +1793,14 @@ https://tieba.baidu.com/p/7746599262?see_lz=1
 
 玲玲菌已经加入区块链了，玲玲菌永远存在
 
+
+
+*****
+
+####  gffdg  
+##### 177#       发表于 2022-3-11 15:40
+
+啊？玲子要毕业么
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
