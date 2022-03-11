@@ -8474,3 +8474,24 @@ https://hyperwiki.jp/pts/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">地图又小又没有移动空间，强制大混斗，一周目困难下只能靠推算boss行动用弹簧夹子预测boss移动强行弹到队伍中间来强杀才能勉强玩，敌方近战人又多，又人手破阵技能，4弓2法五回合内几乎全部到达输出位置，太恶心了
 
+
+
+*****
+
+####  达达葱2  
+##### 769#       发表于 2022-3-11 14:14
+
+<blockquote>稲穂信 发表于 2022-3-11 12:57
+作为游戏本地化工作者，我个人比较认可这部作品的翻译，没有发现什么突兀的地方，而且不死板，译者应该是用 ...</blockquote>
+是大陆的人翻译的？还是和勇气默示录一样是台湾的？
+
+*****
+
+####  wyy123  
+##### 770#       发表于 2022-3-11 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55004628&amp;ptid=2051152" target="_blank">达达葱2 发表于 2022-3-11 14:14</a>
+
+是大陆的人翻译的？还是和勇气默示录一样是台湾的？</blockquote>
+实体版还没到，试玩版打穿，看翻译没有勇气2那种文言文了
+
