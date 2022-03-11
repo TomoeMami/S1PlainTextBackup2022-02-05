@@ -14736,3 +14736,26 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 日本漫画家必修课是不是古希腊古欧洲神话？</blockquote>
 海贼不仅融了古希腊古欧洲，还有苏美尔神话（历史正文），埃及神话（依姆），
 
+
+
+*****
+
+####  真红眼教授  
+##### 56722#       发表于 2022-3-11 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54994273&amp;ptid=98922" target="_blank">yario 发表于 2022-3-10 17:18</a>
+
+sol
+
+英 [sɒl]   美 [soʊl]  
+
+n.</blockquote>
+不过溶胶的词源是来自于拉丁语solus，和太阳没啥关联
+
+*****
+
+####  陶矢  
+##### 56723#       发表于 2022-3-11 10:18
+
+海贼王真正的水平就在这几话决定了，尾田加油<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
