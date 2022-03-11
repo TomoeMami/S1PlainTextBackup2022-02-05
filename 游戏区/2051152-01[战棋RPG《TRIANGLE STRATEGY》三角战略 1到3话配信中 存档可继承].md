@@ -8445,3 +8445,23 @@ https://hyperwiki.jp/pts/
 
 中文版翻译得如何？
 
+
+
+*****
+
+####  laputahao  
+##### 766#       发表于 2022-3-11 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55003594&amp;ptid=2051152" target="_blank">达达葱2 发表于 2022-3-11 12:42</a>
+中文版翻译得如何？</blockquote>
+意译挺多的 我也不知道好还是不好
+
+—— 来自 Google Pixel 3, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  稲穂信  
+##### 767#       发表于 2022-3-11 12:57
+
+作为游戏本地化工作者，我个人比较认可这部作品的翻译，没有发现什么突兀的地方，而且不死板，译者应该是用了一些心思的。
+

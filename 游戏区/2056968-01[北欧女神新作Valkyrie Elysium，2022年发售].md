@@ -2505,3 +2505,17 @@ ff算保住了？</blockquote>
 
 **马的SE，北妹新作这么搞是吧？
 
+
+
+*****
+
+####  natakut  
+##### 252#       发表于 2022-3-11 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002039&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-11 10:54</a>
+一个想法不一定对
+
+吹北欧女神系列的人无一例外都是在吹战斗系统</blockquote>
+这游戏查了下淘宝记录，我之前居然买了，但一点都不记得了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+系统是ok了，那个大头娃娃建模遭不住啊
+
