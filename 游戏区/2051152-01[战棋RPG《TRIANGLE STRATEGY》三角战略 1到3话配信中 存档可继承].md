@@ -8630,3 +8630,63 @@ https://hyperwiki.jp/pts/
 
 之前的剧情有半毛钱互动吗，第一次感觉还不如和王子搞南桐算了
 
+
+
+*****
+
+####  bbz812  
+##### 783#       发表于 2022-3-12 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011454&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-11 23:17</a>
+阿哲，15章看小剧场，这男女主怎么已经你侬我侬了
+
+之前的剧情有半毛钱互动吗，第一次感觉还不如和王 ...</blockquote>
+之前也有段小剧场 女主学做菜
+
+*****
+
+####  灰狼  
+##### 784#       发表于 2022-3-12 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012577&amp;ptid=2051152" target="_blank">bbz812 发表于 2022-3-12 02:08</a>
+
+之前也有段小剧场 女主学做菜</blockquote>
+女主塑造的力度确实也不如王子和管家
+
+以及糖再多发点会死嘛
+
+*****
+
+####  灰狼  
+##### 785#       发表于 2022-3-12 03:07
+
+ 本帖最后由 灰狼 于 2022-3-12 03:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011147&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-11 22:49</a>
+
+通关存档 CLEAR DATA，翻译成了清除存档，这点我难于忍受
+
+另外
+
+跟八方旅人一样，所有地名全部是音译。类 ...</blockquote>
+这么说起来有个乐子，主角家族的象征是鹰，但家族的名字是wolffort，其实是狼堡
+
+哦说起来，女主最后去的地方叫centralia，故事发生的舞台叫norzelia，看起来非常像“中央”和“北方”，而centralia确实在norzelia的南边。铁国的文献里也有意无意提及了远古的知识，感觉想做续作这些都是不错的切入点
+
+希望这个游戏最后卖得会愿意让se继续扩展这个世界观
+
+*****
+
+####  灰狼  
+##### 786#       发表于 2022-3-12 03:21
+
+无聊查声优发现男主是微笑决斗配的😂
+
+以及有想让子安配那个铁国统帅好像也不错
+
+*****
+
+####  听风不是雨  
+##### 787#       发表于 2022-3-12 04:20
+
+只有我一个小剧场也没看过吗，一周目打到16章了，除了npc入队以外+事件就没亮过
+

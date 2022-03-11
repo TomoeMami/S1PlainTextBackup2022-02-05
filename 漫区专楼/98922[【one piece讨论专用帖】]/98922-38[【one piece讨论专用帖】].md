@@ -14852,3 +14852,28 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 
 大和的敌人不是凯多？这发言是在幻想自己是凯多？
 
+
+
+*****
+
+####  被子十三  
+##### 56731#       发表于 2022-3-12 05:19
+
+这几话的观感还是挺好的，特别是CP0那一块，寥寥数笔就把那个CP0的个性和后面世界政府沉重黑暗的背景给刻画出来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望之后能在他们身上着墨多一点
+
+*****
+
+####  是这样  
+##### 56732#       发表于 2022-3-12 05:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54996711&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-10 20:41</a>
+cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
+
+可能是从小就被培养只能听命行事
+
+上一回他被德雷克 ...</blockquote>
+我感觉这几个更像地下世界的头啊，就山治婚礼上那几个
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
