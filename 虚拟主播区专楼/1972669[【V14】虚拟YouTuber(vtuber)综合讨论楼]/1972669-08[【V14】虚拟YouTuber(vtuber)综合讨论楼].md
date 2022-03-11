@@ -9781,3 +9781,20 @@ yqqx单排大师了啊，虽然是私下打的
 
 yqqx这个会限solo上大师做得好啊，这下应该不会再被质疑含金量了吧
 
+
+
+*****
+
+####  poipanchao  
+##### 11379#       发表于 2022-3-11 12:06
+
+yqqx最协夺冠，单排大师，人脉遍布业界
+到底要怎么样才能不被嘲笑<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 11380#       发表于 2022-3-11 12:19
+
+加入vspo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

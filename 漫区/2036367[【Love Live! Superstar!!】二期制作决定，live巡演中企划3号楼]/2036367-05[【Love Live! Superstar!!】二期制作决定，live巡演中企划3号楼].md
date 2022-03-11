@@ -2436,3 +2436,18 @@ tiny star是动画肯定ban的，试听也会，生放送这种一般不会，�
 我倒不是这个意思，官方在B站开不就是想吸引更多人买么，如果有比较好的反馈不更好 ...</blockquote>
 推广性肯定是B站强很多，这次公开B站渠道后发现确实大批的人压根不知道E+海外，B站票也主要是卖给这批人的
 
+
+
+*****
+
+####  welcom  
+##### 6190#       发表于 2022-3-11 12:06
+
+ 本帖最后由 welcom 于 2022-3-11 12:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002406&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-11 11:21</a>
+
+tiny star是动画肯定ban的，试听也会，生放送这种一般不会，估计都是因为音乐版权的缘故，关联度越大夹的 ...</blockquote>
+啊？不说那个4K 120HZ的片段现在都142W点击了，依然姐的NONFICTION两百多万了也没事啊
+
+还不如承认说BAN就是看心情
+
