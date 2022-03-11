@@ -9995,3 +9995,69 @@ sky你带我走吧<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 你虹能吃到这波すとぷり的优质集美吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 11398#       发表于 2022-3-11 21:48
+
+<blockquote>fastary 发表于 2022-3-11 21:23
+刚知道黄警官的前世：玉玉大神隐藏过往装阳光男孩赛博卖笑好色啊感觉光听他卖力营业都能看下去了
+
+看 ...</blockquote>
+感觉跟前活动家、恨管人痴、在虹装好妈妈的nina阿姨很谈得来。
+
+省一楼，这几周的推特趋势根本就是コレコレ的游乐场😨
+
+*****
+
+####  midearth  
+##### 11399#       发表于 2022-3-11 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55008802&amp;ptid=1972669" target="_blank">free 发表于 2022-3-11 19:50</a>
+
+https://twitter.com/KizunaAIinc/status/1502233075861712900</blockquote>
+不上不下的公告<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 11400#       发表于 2022-3-11 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55010261&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-3-11 21:48</a>
+
+感觉跟前活动家、恨管人痴、在虹装好妈妈的nina阿姨很谈得来。
+
+省一楼，这几周的推特趋势根本就是コレコ ...</blockquote>
+状况是差不多，不过看切片感觉nina当管人还挺pro的，sonny就比较……素人
+
+给我一种掐声线和读评论/打游戏就用尽了脑容量导致经常卡词不知道说点啥好的感觉
+
+虽然他读观众建议说这游戏也想播那企划也想试试的时侯真挺乖的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 11401#       发表于 2022-3-11 22:06
+
+ 本帖最后由 alcoholic1000 于 2022-3-11 22:07 编辑 
+
+コレコレ台提到与ななもり外表相似的TUTTI，是之前老叶apex排到的玩了好几场喝大了的主播，也是油男UUUM的前同事（日本真小<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">）
+
+不是老爱，不知道是不是P丸（春日望可能性存微），コレコレ原教旨管人痴？
+
+*****
+
+####  rzrbtk  
+##### 11402#       发表于 2022-3-11 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55010459&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-11 22:01</a>
+
+状况是差不多，不过看切片感觉nina当管人还挺pro的，sonny就比较……素人
+
+给我一种掐声线和读评论/打游戏 ...</blockquote>
+有实力的话不说话装高手是可行的，放弃装阳角也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，就怕太割裂装不下去跑路了
+
