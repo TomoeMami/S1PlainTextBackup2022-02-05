@@ -2392,3 +2392,47 @@ TB肯定有人代，要么自己走转运，要么等在日冲活动的出只取
 
 2022-3-11 11:03 上传
 
+
+
+*****
+
+####  乙山法純  
+##### 6186#       发表于 2022-3-11 11:10
+
+ 本帖最后由 乙山法純 于 2022-3-11 11:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001526&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-3-11 10:15</a>
+TB肯定有人代，要么自己走转运，要么等在日冲活动的出只取走抽选活动的未拆。
+
+昨天刷到外文书店预售这个 ...</blockquote>
+某些天猫外文店大促有300-130，38节买了本3500円的十三机兵比转运便宜点。等618看写真上不上吧
+
+*****
+
+####  星降る森  
+##### 6187#       发表于 2022-3-11 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001927&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-11 10:45</a>
+
+别的我记不太清楚了，就依然姐那里，常见的是多次补档的试听，还有有个练习室视频也被Ban了，当然最有名 ...</blockquote>
+tiny star是动画肯定ban的，试听也会，生放送这种一般不会，估计都是因为音乐版权的缘故，关联度越大夹的越厉害
+
+*****
+
+####  星降る森  
+##### 6188#       发表于 2022-3-11 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002237&amp;ptid=2036367" target="_blank">乙山法純 发表于 2022-3-11 11:10</a>
+
+某些天猫外文店大促有300-130，38节买了本3500円的十三机兵比转运便宜点。等618看写真上不上吧 ...</blockquote>
+一般粉丝卖拿走抽选的都折价的，外文书店还有个缺点是没特典，你特典不要挂出去卖了也能卖不少
+
+*****
+
+####  星降る森  
+##### 6189#       发表于 2022-3-11 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55001889&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-3-11 10:43</a>
+
+我倒不是这个意思，官方在B站开不就是想吸引更多人买么，如果有比较好的反馈不更好 ...</blockquote>
+推广性肯定是B站强很多，这次公开B站渠道后发现确实大批的人压根不知道E+海外，B站票也主要是卖给这批人的
+
