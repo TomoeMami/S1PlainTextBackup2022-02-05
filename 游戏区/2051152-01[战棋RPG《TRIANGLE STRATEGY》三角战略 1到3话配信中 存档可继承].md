@@ -8305,3 +8305,15 @@ https://hyperwiki.jp/pts/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细观察地形，如果你之前逛街仔细的话应该知道左右两侧高地外侧还有花园，开局全员直奔花园路口用夹子和陷阱封住，敌人就会被ai限制不敢进来打，然后等对面鸟骑士过来宰了，法师用法师加鸟弓对攻偷掉，后面就可以组织反攻了
 
+
+
+*****
+
+####  SEGA  
+##### 754#       发表于 2022-3-11 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54994130&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-10 17:08</a>
+
+二周目五十级真结局三对大战好玩得一批。</blockquote>
+三队大战真的不错。特别是在不知道关卡具体配置的情况下，打起来贼带劲。
+
