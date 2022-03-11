@@ -2140,3 +2140,27 @@ atk2400的几张真是开服遗毒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">68回合卑呆梅磨死了 真痛苦
 
+
+
+*****
+
+####  alucardcz  
+##### 87194#       发表于 2022-3-11 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55006472&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-11 16:39</a>
+
+就差王女没打了 有没有非洲咸鱼也能过得组合</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧 羡慕 我就打了第1个 后面碰都不想碰
+
+*****
+
+####  qixinno2  
+##### 87195#       发表于 2022-3-11 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011230&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-11 22:55</a>
+
+欧 羡慕 我就打了第1个 后面碰都不想碰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">萨老师用水院打着还行即死小怪后没那么疼了 小牛靠着梵高磨过去的交了条令咒 王女靠的卑呆梅磨血
+
+艹 刚发现用的三个角色全是随便抽着玩出来的卡
+

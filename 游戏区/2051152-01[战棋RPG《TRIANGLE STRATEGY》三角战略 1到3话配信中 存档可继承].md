@@ -8603,3 +8603,19 @@ https://hyperwiki.jp/pts/
 我的意思是主角这样精神分裂会不会有啥不好的影响.因为根本也不是想选A还是选B,目的就是说得. ...</blockquote>
 另外说得需要线索和一定的道德基础，比如第一次分歧劝老婆要谈感情，劝管家就要讲利益
 
+
+
+*****
+
+####  dren_zheng  
+##### 781#       发表于 2022-3-11 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55003594&amp;ptid=2051152" target="_blank">达达葱2 发表于 2022-3-11 12:42</a>
+
+中文版翻译得如何？</blockquote>
+通关存档 CLEAR DATA，翻译成了清除存档，这点我难于忍受
+
+另外
+
+跟八方旅人一样，所有地名全部是音译。类似Ironforge不是翻译成铁炉堡而是艾棱富奇
+
