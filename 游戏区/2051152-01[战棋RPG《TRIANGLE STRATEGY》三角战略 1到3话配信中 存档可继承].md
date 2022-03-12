@@ -8743,3 +8743,32 @@ https://hyperwiki.jp/pts/
 
 枪圣这种没有功能性也没有穿甲的何德何能s
 
+
+
+*****
+
+####  艾特娜  
+##### 793#       发表于 2022-3-12 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55015047&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-12 12:20</a>
+
+枪圣这种没有功能性也没有穿甲的何德何能s</blockquote>
+走位灵活而且自带起死回生方便切入后方夹击，攻击力并列第一
+
+*****
+
+####  艾特娜  
+##### 794#       发表于 2022-3-12 12:42
+
+ 本帖最后由 艾特娜 于 2022-3-12 12:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55014920&amp;ptid=2051152" target="_blank">zzzeven 发表于 2022-3-12 12:08</a>
+
+打到第八章，感觉有些角色没啥出场机会，技能很一般。
+
+现在有没有总结人物的优劣内容？ ...</blockquote>
+个人觉得不同角色适应的难度和战斗有所不同，但基本都有用武之地。
+
+比如王子适合简单的时候在平地快速推进，男主适合高难度的时候守高地
+
+练度不同使用方法也会有不小差异，比如盾卫，武器升到最高级之后，1消耗的群体嘲讽是质变
+
