@@ -2229,3 +2229,15 @@ AAF34AA1-D03E-4867-BFD0-370A28CA3E62.png
 都是微妙角色啊 强的芭娜娜这种我就是抽不到</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你有无敌的枪兰
 
+
+
+*****
+
+####  qixinno2  
+##### 87200#       发表于 2022-3-12 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012250&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-12 01:01</a>
+
+你有无敌的枪兰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">强度不如芭娜娜无脑啊
+

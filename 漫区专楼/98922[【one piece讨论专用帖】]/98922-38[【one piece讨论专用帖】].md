@@ -14886,3 +14886,18 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 
 CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">，故意激活joyboy
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 56734#       发表于 2022-3-12 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011808&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-11 23:56</a>
+武士救过她命而凯多会杀死她
+
+而且凯多在和之国做的这些事难道构不成一句天理难容？
+
+大和的问题只会 ...</blockquote>
+还是御田太逊了，如果是念叨着罗格，这逼格就不一样了
+
