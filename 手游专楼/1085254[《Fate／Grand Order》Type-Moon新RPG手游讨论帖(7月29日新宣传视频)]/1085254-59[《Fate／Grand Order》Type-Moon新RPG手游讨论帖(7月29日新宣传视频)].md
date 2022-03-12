@@ -2241,3 +2241,14 @@ AAF34AA1-D03E-4867-BFD0-370A28CA3E62.png
 你有无敌的枪兰</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">强度不如芭娜娜无脑啊
 
+
+
+*****
+
+####  johnkamsar  
+##### 87201#       发表于 2022-3-12 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55011985&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-12 00:17</a>
+呼符出大象，异闻带之王终于全了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">你的宙斯呢？没宙斯还说全了？
+
