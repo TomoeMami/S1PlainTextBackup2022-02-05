@@ -2261,3 +2261,12 @@ AAF34AA1-D03E-4867-BFD0-370A28CA3E62.png
 
 我也想要大象，早知道不给banana扔石头了……国服到时候不能再重蹈覆辙了
 
+
+
+*****
+
+####  alucardcz  
+##### 87203#       发表于 2022-3-12 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该抽过气红拐梅师傅了
+

@@ -8991,3 +8991,14 @@ https://hyperwiki.jp/pts/
 
 枪圣如果一周目能拿到是能用的，因为后面一关会缺席两个角色，于是枪圣就上了，但确实一般。这游戏最imba的还是药师，高速并且每个技能爆炸，好养，二重药一回合升2级。
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 813#       发表于 2022-3-12 16:45
+
+枪圣原来用剑，死了老婆从零开始改成枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+冒昧问一句，原来练的剑术叫八叶一刀流吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

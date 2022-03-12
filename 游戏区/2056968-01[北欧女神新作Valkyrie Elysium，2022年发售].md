@@ -2572,3 +2572,27 @@ elysium不是希腊神话吗，这2个咋掺到一起了？少林驻武当派代
 
 我小时候还挺喜欢女神侧身像的...
 
+
+
+*****
+
+####  慕容断月  
+##### 258#       发表于 2022-3-12 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55016285&amp;ptid=2056968" target="_blank">断翼 发表于 2022-3-12 14:20</a>
+
+Wanted:Dead出新预告才想起，松井宏明、冈本好古近年都在搞这个</blockquote>
+这游戏感觉像是把恶魔三人组原本2008年还是2010年的那版pv的案子去掉飞檐走壁元素后重新实现的感觉，比起恶魔三人组更接近原本硫酸脸他们的构想了
+
+*****
+
+####  慕容断月  
+##### 259#       发表于 2022-3-12 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55017332&amp;ptid=2056968" target="_blank">Andii 发表于 2022-3-12 16:14</a>
+
+实在丑，有点鞭尸老ip的感觉，不配叫翻新。
+
+我小时候还挺喜欢女神侧身像的... ...</blockquote>
+其实就不是，相当于正作的平行世界，跟手游那部一样，和正作没半毛钱关系
+
