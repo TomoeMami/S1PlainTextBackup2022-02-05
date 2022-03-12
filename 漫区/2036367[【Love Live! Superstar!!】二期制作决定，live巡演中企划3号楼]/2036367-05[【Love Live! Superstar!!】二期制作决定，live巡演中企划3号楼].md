@@ -3823,3 +3823,30 @@ nagi一如既往的稳定，solo的舞姿太美
 最期待的nonfiction居然做出来了…看nagi那段芭蕾裙子应该是没加支撑的，和动画还是有差距但还原度挺高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 之前一直觉得这首歌live看着不涩是因为衣服，现在看来是那几个动画特写立大功<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6297#       发表于 2022-3-13 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55021734&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-3-12 23:06</a>
+你仔细看看切入切出的画面，这个视角和镜头位置对不上，手握雨伞的姿势也，还有切入那一瞬间的脚步，我觉 ...</blockquote>
+我又反复看了几遍，无法判断，只能说如果是录播，没必要在伞上安这个摄像头。
+
+*****
+
+####  仟音一心  
+##### 6298#       发表于 2022-3-13 00:18
+
+酸菜鱼
+
+4D8C3949-E2D8-4E84-9C71-DB83A35A91F3.jpeg
+(68.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/001841lkc7n9btbiy56ick.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
