@@ -14901,3 +14901,19 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 大和的问题只会 ...</blockquote>
 还是御田太逊了，如果是念叨着罗格，这逼格就不一样了
 
+
+
+*****
+
+####  icewolf01  
+##### 56735#       发表于 2022-3-12 10:05
+
+目前看到的假药里果然还是最喜欢草帽本身有果实能力这个，够无厘头，天命之果还是有点无聊
+
+*****
+
+####  千叶铁矢  
+##### 56736#       发表于 2022-3-12 10:10
+
+搞不好草帽有果实可能是真的，否则伊姆王那里怎么还有个石头草帽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
