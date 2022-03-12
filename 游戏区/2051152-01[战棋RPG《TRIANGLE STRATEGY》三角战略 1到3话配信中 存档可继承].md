@@ -8713,3 +8713,33 @@ https://hyperwiki.jp/pts/
 只有我一个小剧场也没看过吗，一周目打到16章了，除了npc入队以外+事件就没亮过 ...</blockquote>
 有出战次数要求的
 
+
+
+*****
+
+####  zzzeven  
+##### 790#       发表于 2022-3-12 12:08
+
+打到第八章，感觉有些角色没啥出场机会，技能很一般。
+
+现在有没有总结人物的优劣内容？
+
+*****
+
+####  稲穂信  
+##### 791#       发表于 2022-3-12 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55014920&amp;ptid=2051152" target="_blank">zzzeven 发表于 2022-3-12 12:08</a>
+
+打到第八章，感觉有些角色没啥出场机会，技能很一般。
+
+现在有没有总结人物的优劣内容？ ...</blockquote>
+[https://www.gamersky.com/handbook/202203/1465669.shtml](https://www.gamersky.com/handbook/202203/1465669.shtml)
+
+*****
+
+####  先生空气  
+##### 792#       发表于 2022-3-12 12:20
+
+枪圣这种没有功能性也没有穿甲的何德何能s
+

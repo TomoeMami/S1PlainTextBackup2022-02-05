@@ -10402,3 +10402,23 @@ kmt未转推未点赞新衣服相关，没去直播间
 
 姐妹论坛300的vtuber讨论楼里都是啊。之前看那边辩经，全是上千字的长文对轰，大道都磨灭了。
 
+
+
+*****
+
+####  ヒトニナル  
+##### 11428#       发表于 2022-3-12 12:18
+
+管厕里也挺热烈的
+
+*****
+
+####  FCCHua  
+##### 11429#       发表于 2022-3-12 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012451&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-3-12 01:37</a>
+tf2不同啊，云了
+
+syl，截至目前</blockquote>
+然而hnn和他在一起过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
