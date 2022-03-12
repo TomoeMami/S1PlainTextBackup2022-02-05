@@ -3779,3 +3779,24 @@ nagi一如既往的稳定，solo的舞姿太美
 
 水色星期天的雨伞视角感觉是提前录好的然后切画面用现场声音
 
+
+
+*****
+
+####  仟音一心  
+##### 6294#       发表于 2022-3-12 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55021405&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-3-12 22:35</a>
+
+水色星期天的雨伞视角感觉是提前录好的然后切画面用现场声音</blockquote>
+不是
+
+683B519D-3C74-43B9-835D-08A9669F231B.jpeg
+(12.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 22:41 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/224137i4mg3ookkbpd4tde.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
