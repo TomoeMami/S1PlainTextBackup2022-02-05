@@ -2319,3 +2319,22 @@ yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">三姐妹终于到齐了，啥时候出梵高或莫蕾啊
 
+
+
+*****
+
+####  khxooo  
+##### 87208#       发表于 2022-3-12 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55017854&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-12 17:15</a>
+
+不知道这3个本会不会统计通关率 反正我懒得打 好歹给我护符我还有点动力 ...</blockquote>
+我认为不会太高，付出和获得不成正比，一般玩家谁会为了拿几个茶壶为难自己<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，你说将血量砍一半估计会高很多。
+
+*****
+
+####  黑上シグマ  
+##### 87209#       发表于 2022-3-12 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你拼死拼活花几个小时打几十回合打完一个本，拿10个茶壶，然后仔细回想下平时活动多刷10次本才花多少时间
+
