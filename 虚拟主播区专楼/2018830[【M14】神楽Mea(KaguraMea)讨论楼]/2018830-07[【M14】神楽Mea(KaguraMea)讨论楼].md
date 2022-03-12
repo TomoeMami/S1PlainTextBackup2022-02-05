@@ -6407,3 +6407,14 @@ nmd倒是自己玩下这手游啊<img src="https://static.saraba1st.com/image/sm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单吃一个呷哺
 
+
+
+*****
+
+####  往世雷书  
+##### 9693#       发表于 2022-3-12 20:42
+
+都配音了，还要花时间玩？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
