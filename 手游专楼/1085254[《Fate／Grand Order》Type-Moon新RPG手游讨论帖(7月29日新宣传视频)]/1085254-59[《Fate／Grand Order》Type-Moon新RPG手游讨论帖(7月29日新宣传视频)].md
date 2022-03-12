@@ -2270,3 +2270,24 @@ AAF34AA1-D03E-4867-BFD0-370A28CA3E62.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该抽过气红拐梅师傅了
 
+
+
+*****
+
+####  angelooo  
+##### 87204#       发表于 2022-3-12 17:10
+
+<blockquote>alucardcz 发表于 2022-3-12 17:03
+该抽过气红拐梅师傅了</blockquote>
+yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹梅林，今天就满足你们开池子，还不谢谢我
+
+*****
+
+####  alucardcz  
+##### 87205#       发表于 2022-3-12 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55017827&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-3-12 17:10</a>
+
+yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹梅林，今天就满足你们开池子，还不谢谢我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道这3个本会不会统计通关率 反正我懒得打 好歹给我护符我还有点动力
+

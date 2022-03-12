@@ -2596,3 +2596,32 @@ Wanted:Dead出新预告才想起，松井宏明、冈本好古近年都在搞这
 我小时候还挺喜欢女神侧身像的... ...</blockquote>
 其实就不是，相当于正作的平行世界，跟手游那部一样，和正作没半毛钱关系
 
+
+
+*****
+
+####  xunit  
+##### 260#       发表于 2022-3-12 17:11
+
+ 本帖最后由 xunit 于 2022-3-12 17:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202203/12/171210rtmqdddxfejcgtct.jpg" referrerpolicy="no-referrer">
+
+<strong>FNd_7tDVkAEuksU.jpg</strong> (281.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 17:12 上传
+
+人设永井悠也在推上发的随笔
+<img src="https://sm.ms/image/8Ce2tgqXdEQKSFv" id="aimg_ADnRQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+宣传图上的主角也很好看，这建模你懂个锤子的人设<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 261#       发表于 2022-3-12 17:22
+
+无妨，北妹的原名是Valkyrie Profile，这个做烂了直接撇清关系即可。<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
