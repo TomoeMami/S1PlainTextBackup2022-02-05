@@ -2252,3 +2252,12 @@ AAF34AA1-D03E-4867-BFD0-370A28CA3E62.png
 呼符出大象，异闻带之王终于全了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">你的宙斯呢？没宙斯还说全了？
 
+
+
+*****
+
+####  angelooo  
+##### 87202#       发表于 2022-3-12 15:43
+
+我也想要大象，早知道不给banana扔石头了……国服到时候不能再重蹈覆辙了
+
