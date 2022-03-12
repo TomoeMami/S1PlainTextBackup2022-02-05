@@ -8938,3 +8938,15 @@ https://hyperwiki.jp/pts/
 
 奥罗拉虽然腿短但是我觉得很好用，舍身击高伤害，0.5倍血下百分之五十减伤，不需要吃豆就可以打不错的伤害，真结局进队不用练就是平均等级。
 
+
+
+*****
+
+####  艾特娜  
+##### 808#       发表于 2022-3-12 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55016782&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-12 15:15</a>
+
+铁匠吃熟练度和地图，如果不刷酒馆一周目的话感觉不如换其他角色。但是铁匠的好处是技能点满基本就是完全 ...</blockquote>
+奥罗拉我直接带漆黑脚链了，耗TP的技能都没啥用
+
