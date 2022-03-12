@@ -3054,3 +3054,16 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 有没有可能，是藏自己想和月城一起，这俩前面不是就铺垫了好久吗
 
+
+
+*****
+
+####  poor  
+##### 270#       发表于 2022-3-12 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55019020&amp;ptid=2050204" target="_blank">meailove 发表于 2022-3-12 19:11</a>
+有没有可能，是藏自己想和月城一起，这俩前面不是就铺垫了好久吗</blockquote>
+但是这么做并不能让她们在一起啊，哪怕是死的，这不是一换一吗？你总不能说你不想月城死，然后藏出来说，因为我爱她，要不我去换她吧，然后你就觉得既然你这么爱她，那就换你去死吧，你不觉得很奇怪吗？你说总要死一个没办法，但是月城死你反应这么大，藏死你就半推半就接受了？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
