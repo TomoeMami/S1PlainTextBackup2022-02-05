@@ -2291,3 +2291,14 @@ yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹�
 yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹梅林，今天就满足你们开池子，还不谢谢我 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道这3个本会不会统计通关率 反正我懒得打 好歹给我护符我还有点动力
 
+
+
+*****
+
+####  承尘  
+##### 87206#       发表于 2022-3-12 17:27
+
+这游戏怎么回事，因为一月份md出了以后就没氪fgo了，前两天更新完上线狂那一护肤补二宝，今天第10个护符赠的那一次new了梅林<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -9002,3 +9002,16 @@ https://hyperwiki.jp/pts/
 
 冒昧问一句，原来练的剑术叫八叶一刀流吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  艾特娜  
+##### 814#       发表于 2022-3-12 17:33
+
+<blockquote>dren_zheng 发表于 2022-3-12 16:24
+漆黑脚链是不回复TP的那个？
+
+我看很多人都是推荐给木桶用</blockquote>
+我还没拿到木桶，应该都可以
+
