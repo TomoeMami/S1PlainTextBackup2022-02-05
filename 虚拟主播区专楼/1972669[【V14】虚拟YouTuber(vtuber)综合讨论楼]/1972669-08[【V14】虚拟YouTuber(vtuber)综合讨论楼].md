@@ -10514,3 +10514,12 @@ SYL：
 
 阿凛最强<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  实津二三  
+##### 11437#       发表于 2022-3-12 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">加藤纯一为什么现在红成这样了……我知道以前他就很红了，但印象中几年前同接也就三四万吧，和顶流管人差不多水平，怎么现在都这么夸张了。
+
