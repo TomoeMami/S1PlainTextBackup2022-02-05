@@ -2625,3 +2625,28 @@ Wanted:Dead出新预告才想起，松井宏明、冈本好古近年都在搞这
 
 无妨，北妹的原名是Valkyrie Profile，这个做烂了直接撇清关系即可。<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bonnwang  
+##### 262#       发表于 2022-3-12 17:46
+
+政确脸<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  superlink  
+##### 263#       发表于 2022-3-12 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大头娃娃手感挺烂的，迷宫剧情也敷衍。系统么说实话玩着还行但动作就是怪
+
+*****
+
+####  makar0601  
+##### 264#       发表于 2022-3-12 18:01
+
+这么看就是单纯建模拉了
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

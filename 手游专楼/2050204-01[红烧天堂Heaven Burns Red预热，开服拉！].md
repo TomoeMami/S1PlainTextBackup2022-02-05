@@ -3028,3 +3028,20 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  キラ様  
+##### 268#       发表于 2022-3-12 17:48
+
+只求主线快点更新
+
+但是按照目前的情况来看第四章四月前半都不一定有戏
+
+虽然现在的活动蓝色镇魂曲剧情不错，但是一会会就打完了。。不过瘾。
+
+然后能玩的只有打打boss和下迷宫刷稀有怪。。要么就是无止尽的シャトルラン,很无聊的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+主力队伍的必杀基本都刷到10级了
+
