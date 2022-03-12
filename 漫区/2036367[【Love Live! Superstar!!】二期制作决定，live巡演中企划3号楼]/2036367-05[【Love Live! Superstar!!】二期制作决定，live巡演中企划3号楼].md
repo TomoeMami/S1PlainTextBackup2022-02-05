@@ -3578,3 +3578,12 @@ Nako和妈妈这梗过不去了，你们还起哄喊妈妈<img src="https://stat
 
 求求运营了明天唱BD曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 6282#       发表于 2022-3-12 20:41
+
+小百合的嗓子是该注意下了，好几次高音差点呲了，pay子是真的强。
+
