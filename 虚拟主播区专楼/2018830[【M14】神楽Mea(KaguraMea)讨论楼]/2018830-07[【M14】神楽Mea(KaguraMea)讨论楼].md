@@ -6271,3 +6271,48 @@ MEA好努力 语音很丰富<img src="https://static.saraba1st.com/image/smiley/
 
 有人录了视频吗，看这还挺有意思的样子
 
+
+
+*****
+
+####  路人庚  
+##### 9681#       发表于 2022-3-12 09:50
+
+ 本帖最后由 路人庚 于 2022-3-12 09:57 编辑 
+
+<img src="https://img.saraba1st.com/forum/202203/12/095008lucyk3n2csbk73un.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C688AE2A-17FF-43FA-91FB-4E143978E2A1.jpeg</strong> (511.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 09:50 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/095007varo90w5dabwhkoz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>86F59E8A-8270-4320-B54D-47A08374A5FF.jpeg</strong> (404.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 09:50 上传
+
+你咩姐的技能
+
+<img src="https://img.saraba1st.com/forum/202203/12/095655o008l559bd5ogxgt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>283E3B49-E5A8-496A-903E-88825C37D8B2.jpeg</strong> (102.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 09:56 上传
+
+嘴臭可还行
+
+还有更多内容看这几个录的视频吧
+
+【pok】神楽Mea和犬山玉姬联动卡池  [https://b23.tv/NJA99Qz](https://b23.tv/NJA99Qz)
+
+「Phantom of the Kill」 神楽Mea 3d模型动作展示 [https://b23.tv/LZwF4pr](https://b23.tv/LZwF4pr)
+
+【中字先行版】杀戮幻影Vtuber联动 神乐Mea个人 0%共鸣语音  [https://b23.tv/ekp72WF](https://b23.tv/ekp72WF)
+
