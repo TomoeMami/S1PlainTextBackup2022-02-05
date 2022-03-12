@@ -14917,3 +14917,13 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 搞不好草帽有果实可能是真的，否则伊姆王那里怎么还有个石头草帽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 56737#       发表于 2022-3-12 11:03
+
+基德:我做了个虚幻的梦啊
+请问梦的是路飞成为航海王吗
+
