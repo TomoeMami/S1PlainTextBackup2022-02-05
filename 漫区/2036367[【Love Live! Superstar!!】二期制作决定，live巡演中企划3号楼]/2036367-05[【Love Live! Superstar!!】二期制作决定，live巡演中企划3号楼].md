@@ -3587,3 +3587,53 @@ Nako和妈妈这梗过不去了，你们还起哄喊妈妈<img src="https://stat
 
 小百合的嗓子是该注意下了，好几次高音差点呲了，pay子是真的强。
 
+
+
+*****
+
+####  player3960  
+##### 6283#       发表于 2022-3-12 21:19
+
+现在就是担心打铁和Nako，发挥不稳定。其他三个是真的放心<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 6284#       发表于 2022-3-12 21:22
+
+<blockquote>qty 发表于 2022-3-12 20:41
+小百合的嗓子是该注意下了，好几次高音差点呲了，pay子是真的强。</blockquote>
+1st被割得太狠了，估计有后遗症
+
+*****
+
+####  csolfans  
+##### 6285#       发表于 2022-3-12 21:23
+
+<blockquote>player3960 发表于 2022-3-12 21:19
+现在就是担心打铁和Nako，发挥不稳定。其他三个是真的放心
+
+  -- 来自 能看大图的 Stage1官方 Andro ...</blockquote>
+Nako不一直是最稳定的吗
+
+*****
+
+####  player3960  
+##### 6286#       发表于 2022-3-12 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55020657&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-03-12 21:23:00</a>
+Nako不一直是最稳定的吗</blockquote>今天solo气息不稳啊，不知道状态不好还是怎么回事
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  长日留痕  
+##### 6287#       发表于 2022-3-12 21:25
+
+可能和得两次新冠有关系。身体不太好。
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
