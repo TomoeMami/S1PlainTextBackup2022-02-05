@@ -10610,3 +10610,18 @@ KMNZ BIRTHDAY LIVE 2022 #KMNZ #KMNZBDAY
 
 [https://www.youtube.com/watch?v=HlTQRmswHFE](https://www.youtube.com/watch?v=HlTQRmswHFE)
 
+
+
+*****
+
+####  fastary  
+##### 11447#       发表于 2022-3-12 23:59
+
+ymen油管3万订阅甚至直接在推上说抱歉不搞纪念回了会继续努力争取能再次和大家说话……他真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+果然虽说休了两个月但并没法完全恢复吗，黑客你50万纪念不会真的只是画饼吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+说来以前联动都会第一时间告知然后当天再告知的，这次跟en的联动就在明天到现在也一句不提，没问题吗……
+
+玩主播女孩的时候还在说希望糖糖能够喜欢上直播，或许也有自己本来喜欢直播但现在有所抗拒了的原因？（过度发散
+

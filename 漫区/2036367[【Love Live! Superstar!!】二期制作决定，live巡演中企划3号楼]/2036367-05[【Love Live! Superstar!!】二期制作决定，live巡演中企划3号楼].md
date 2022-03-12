@@ -3813,3 +3813,13 @@ nagi一如既往的稳定，solo的舞姿太美
 不是</blockquote>
 你仔细看看切入切出的画面，这个视角和镜头位置对不上，手握雨伞的姿势也，还有切入那一瞬间的脚步，我觉得是彩排录好了，线上用这一段
 
+
+
+*****
+
+####  Norkey1  
+##### 6296#       发表于 2022-3-12 23:41
+
+最期待的nonfiction居然做出来了…看nagi那段芭蕾裙子应该是没加支撑的，和动画还是有差距但还原度挺高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+之前一直觉得这首歌live看着不涩是因为衣服，现在看来是那几个动画特写立大功<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
