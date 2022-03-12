@@ -3637,3 +3637,119 @@ Nako不一直是最稳定的吗</blockquote>今天solo气息不稳啊，不知�
 
 —— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  csolfans  
+##### 6288#       发表于 2022-3-12 21:26
+
+！
+
+-6c51809ab2fa6843.jpg
+(422.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/212650i1ccyf8mhffzx4tx.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6289#       发表于 2022-3-12 21:32
+
+岬我觉得新冠影响还是有的，气息明显不足，虽然她的歌要边唱边跳，但是比起1st唱123还是对比明显的
+
+*****
+
+####  仟音一心  
+##### 6290#       发表于 2022-3-12 21:32
+
+官方整活
+
+154BFA66-A957-4DC5-8C1C-AAF8E6BEB05B.jpeg
+(463.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213234rlzie7yv4u2voo77.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B1348172-AA03-489F-894B-5BE8F0F9341F.jpeg
+(440.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213234qwzjj5rdhqc992wu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+DDA286B5-9E4D-4088-B3B7-7C45C5228799.jpeg
+(445.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213234h977dnly1ldz1l9l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D52667C3-6D5B-4885-B6F7-6D0072097009.jpeg
+(482.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213234irzr0kle4m0rmmk1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10D51C24-056F-42DF-9F66-8AC2A4AE1CD1.jpeg
+(461.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213235qx976x9zsi01bd0l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+57ED62B8-6471-4E74-946D-4669025CB94E.jpeg
+(472.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213235t2rk2eqqr11m08ts.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+93C974D1-D631-454E-A529-94CE17DDFA1C.jpeg
+(477.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213235fx36b38p0b3b4ch3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9475D697-11C9-47E3-809A-1153F04F2A8C.jpeg
+(452.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/213235pr7smomm77srzx44.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 6291#       发表于 2022-3-12 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55020684&amp;ptid=2036367" target="_blank">长日留痕 发表于 2022-3-12 21:25</a>
+
+可能和得两次新冠有关系。身体不太好。
+
+—— 来自 HONOR NTH-AN00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+这可怜孩子，就她一个中招。而且还中两次
+
