@@ -2531,3 +2531,24 @@ ff算保住了？</blockquote>
 对呀，他现在是这家公司的CEO</blockquote>
 Wanted:Dead出新预告才想起，松井宏明、冈本好古近年都在搞这个
 
+
+
+*****
+
+####  printer22  
+##### 254#       发表于 2022-3-12 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54986352&amp;ptid=2056968" target="_blank">杉田悠一 发表于 2022-3-10 07:08</a>
+
+看标题吓一跳，寻思遗老们十年如一日天天念叨终于有回想了？
+
+一看视频，好像队友系统都没有啊…没有队友连 ...</blockquote>
+别介，无夜之国女主不漂亮多了？2代真百合结局也顶啊，就是两人都睡不知道多久了1代女主什么时候能去救她们出来啊。
+
+*****
+
+####  永远的访客  
+##### 255#       发表于 2022-3-12 14:31
+
+elysium不是希腊神话吗，这2个咋掺到一起了？少林驻武当派代表么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

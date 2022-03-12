@@ -8826,3 +8826,39 @@ https://hyperwiki.jp/pts/
 
 但普通难度有跳跃能上下悬崖跳出包围、有长枪远击白嫖对手打夹击，还有投枪打远程，是跟主角一样的多面手
 
+
+
+*****
+
+####  艾特娜  
+##### 799#       发表于 2022-3-12 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55015521&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-12 13:02</a>
+
+攻击力第一穿不了甲也是憨憨啊，后期豆充足的情况下穿甲效率更高。走位灵活也算s的话应该算上舞娘，跳跃 ...</blockquote>
+看难度吧，普通难度他的输出完全够了。舞娘确实很强，法术放毒输出、控制和生存都不错，但是夹击时的平A输出低了些
+
+*****
+
+####  先生空气  
+##### 800#       发表于 2022-3-12 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55016115&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-12 14:02</a>
+
+看难度啊
+
+困难难度只能龟缩流，强圣的确不行
+
+但普通难度有跳跃能上下悬崖跳出包围、有长枪远击白嫖对手打 ...</blockquote>
+帖子标题:《三角战略》困难模式角色强度排名及搭配推荐
+
+*****
+
+####  艾特娜  
+##### 801#       发表于 2022-3-12 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55016350&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-12 14:28</a>
+
+帖子标题:《三角战略》困难模式角色强度排名及搭配推荐</blockquote>
+这排名没奥罗拉没铁匠，我觉得是没试过全人物就写了的
+
