@@ -3850,3 +3850,17 @@ nagi一如既往的稳定，solo的舞姿太美
 
 <img src="https://img.saraba1st.com/forum/202203/13/001841lkc7n9btbiy56ick.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 6299#       发表于 2022-3-13 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55022305&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-13 00:06</a>
+我又反复看了几遍，无法判断，只能说如果是录播，没必要在伞上安这个摄像头。
+ ...</blockquote>
+用不用录像，现场观众也能看到伞的嘛，总不会伞什么都没就有伞内视角，我觉得是录像有很大原因还是因为画质，参考1st大合照，现场还不一定会这么清晰，反正看day2大概能确定是不是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
