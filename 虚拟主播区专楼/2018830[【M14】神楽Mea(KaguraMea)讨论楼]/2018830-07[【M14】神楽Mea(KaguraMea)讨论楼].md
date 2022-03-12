@@ -6362,3 +6362,19 @@ MEA好努力 语音很丰富<img src="https://static.saraba1st.com/image/smiley/
 
 配的挺好的。
 
+
+
+*****
+
+####  clvan_  
+##### 9688#       发表于 2022-3-12 12:55
+
+意外的可爱，本来看见上面几张图还感觉有点糙
+
+*****
+
+####  T_Hb  
+##### 9689#       发表于 2022-3-12 12:56
+
+那是3d模型上的蒙皮，这吊游戏怎么一个音频都找不到，恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
