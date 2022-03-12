@@ -14877,3 +14877,12 @@ cp0的造型之前有人猜是收养大妈的人卖给世界政府的孩子
 
 — from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  icer  
+##### 56733#       发表于 2022-3-12 08:14
+
+CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">，故意激活joyboy
+
