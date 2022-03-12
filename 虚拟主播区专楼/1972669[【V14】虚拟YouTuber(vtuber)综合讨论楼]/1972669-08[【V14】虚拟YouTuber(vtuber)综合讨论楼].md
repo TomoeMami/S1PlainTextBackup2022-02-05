@@ -10458,3 +10458,14 @@ syl，女同be，感觉不如mihiru
 
 顺便b站すとぷり和ななもり的账号只发歌所以果然也没动静，不过ななもり最新投稿(3.2发布)下面已经有很多人开骂了
 
+
+
+*****
+
+####  walfeds  
+##### 11433#       发表于 2022-3-12 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">今天迷迷糊糊鬼使神差点进v区就看到这档子破事，麻了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

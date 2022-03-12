@@ -2519,3 +2519,15 @@ ff算保住了？</blockquote>
 这游戏查了下淘宝记录，我之前居然买了，但一点都不记得了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 系统是ok了，那个大头娃娃建模遭不住啊
 
+
+
+*****
+
+####  断翼  
+##### 253#       发表于 2022-3-12 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54998625&amp;ptid=2056968" target="_blank">慕容断月 发表于 2022-3-10 23:45</a>
+
+对呀，他现在是这家公司的CEO</blockquote>
+Wanted:Dead出新预告才想起，松井宏明、冈本好古近年都在搞这个
+

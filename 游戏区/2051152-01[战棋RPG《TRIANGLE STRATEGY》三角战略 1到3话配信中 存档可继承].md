@@ -8810,3 +8810,19 @@ https://hyperwiki.jp/pts/
 
 没看有文本说她到了其他去啊？
 
+
+
+*****
+
+####  dren_zheng  
+##### 798#       发表于 2022-3-12 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55015047&amp;ptid=2051152" target="_blank">先生空气 发表于 2022-3-12 12:20</a>
+
+枪圣这种没有功能性也没有穿甲的何德何能s</blockquote>
+看难度啊
+
+困难难度只能龟缩流，强圣的确不行
+
+但普通难度有跳跃能上下悬崖跳出包围、有长枪远击白嫖对手打夹击，还有投枪打远程，是跟主角一样的多面手
+
