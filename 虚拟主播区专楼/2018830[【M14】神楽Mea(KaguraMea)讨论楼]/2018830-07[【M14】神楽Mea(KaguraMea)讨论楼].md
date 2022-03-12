@@ -6316,3 +6316,33 @@ MEA好努力 语音很丰富<img src="https://static.saraba1st.com/image/smiley/
 
 【中字先行版】杀戮幻影Vtuber联动 神乐Mea个人 0%共鸣语音  [https://b23.tv/ekp72WF](https://b23.tv/ekp72WF)
 
+
+
+*****
+
+####  onlv星骸  
+##### 9682#       发表于 2022-3-12 10:46
+
+这语音居然这么丰富
+
+*****
+
+####  T_Hb  
+##### 9683#       发表于 2022-3-12 10:52
+
+走路出血是真的有点东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这烂梗化用的这么好
+
+*****
+
+####  T_Hb  
+##### 9684#       发表于 2022-3-12 10:52
+
+风怒
+
+*****
+
+####  gongge666  
+##### 9685#       发表于 2022-3-12 10:53
+
+这个建模也太热血英豪了
+
