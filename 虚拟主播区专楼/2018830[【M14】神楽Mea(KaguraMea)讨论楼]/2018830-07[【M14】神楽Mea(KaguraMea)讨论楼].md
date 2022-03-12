@@ -6378,3 +6378,14 @@ MEA好努力 语音很丰富<img src="https://static.saraba1st.com/image/smiley/
 
 那是3d模型上的蒙皮，这吊游戏怎么一个音频都找不到，恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 9690#       发表于 2022-3-12 13:27
+
+手游联动的当天，你咩姐选择的是：快乐lol！
+
+nmd倒是自己玩下这手游啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
