@@ -8794,3 +8794,19 @@ https://hyperwiki.jp/pts/
 
 反正这游戏追等级也就几回合 发现一些常用角色不适合某些战斗的时候再上板凳队员也是可以的 留点培养资源就行
 
+
+
+*****
+
+####  dren_zheng  
+##### 797#       发表于 2022-3-12 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55012730&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-12 03:07</a>
+
+这么说起来有个乐子，主角家族的象征是鹰，但家族的名字是wolffort，其实是狼堡
+
+哦说起来，女主最后去的地 ...</blockquote>
+女主角结局不是一直在各地流窜当了尼姑在布教，被民众当狗赶吧
+
+没看有文本说她到了其他去啊？
+

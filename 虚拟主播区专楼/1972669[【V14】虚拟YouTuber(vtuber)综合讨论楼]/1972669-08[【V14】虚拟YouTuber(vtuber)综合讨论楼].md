@@ -10445,3 +10445,16 @@ BE才能起飞<img src="https://static.saraba1st.com/image/smiley/face2017/034.p
 
 syl，女同be，感觉不如mihiru
 
+
+
+*****
+
+####  fastary  
+##### 11432#       发表于 2022-3-12 13:49
+
+ 本帖最后由 fastary 于 2022-3-12 14:03 编辑 
+
+才想起来完整看了眼stpr的通告，怎么公司运营发通告写得跟stf的感想文一样，キモ<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">啊，不会因为本人就是社长所以甚至不肯让stf去抄一篇正经处罚通告吧？作为社长也够垃跨了…
+
+顺便b站すとぷり和ななもり的账号只发歌所以果然也没动静，不过ななもり最新投稿(3.2发布)下面已经有很多人开骂了
+
