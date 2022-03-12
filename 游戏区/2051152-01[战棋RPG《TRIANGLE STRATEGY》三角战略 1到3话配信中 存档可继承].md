@@ -8862,3 +8862,66 @@ https://hyperwiki.jp/pts/
 帖子标题:《三角战略》困难模式角色强度排名及搭配推荐</blockquote>
 这排名没奥罗拉没铁匠，我觉得是没试过全人物就写了的
 
+
+
+*****
+
+####  leachiman  
+##### 802#         楼主| 发表于 2022-3-12 14:48
+
+我的常用是
+
+前排：管家、盾哥、鹰盾
+
+辅助：吉拉、眼镜、男主
+
+法师：女主、琥珀
+
+视关卡轮换：鹰弓、猎人、弓圣、铁匠、安娜
+
+*****
+
+####  blackll7  
+##### 803#       发表于 2022-3-12 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不知道，我只知道这游戏困难不带铁匠尼玛能玩？
+
+*****
+
+####  艾特娜  
+##### 804#       发表于 2022-3-12 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55016536&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-3-12 14:48</a>
+
+我的常用是
+
+前排：管家、盾哥、鹰盾
+
+辅助：吉拉、眼镜、男主</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">管家和吉拉也戴眼镜啊，这样管TP哥叫眼镜感觉怪怪的
+
+有人试过用妹妹当主奶吗，我还没拿这个角色
+
+1周目不规划的话得5周目才能全人物这点我觉得有点反人类了
+
+*****
+
+####  leachiman  
+##### 805#         楼主| 发表于 2022-3-12 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55016586&amp;ptid=2051152" target="_blank">艾特娜 发表于 2022-3-12 14:53</a>
+
+管家和吉拉也戴眼镜啊，这样管TP哥叫眼镜感觉怪怪的
+
+有人试过用妹妹当主奶吗，我还没拿这个角色</blockquote>
+其实我也叫他tp哥，但不知道为啥很多人叫他眼镜
+
+*****
+
+####  Aresu  
+##### 806#       发表于 2022-3-12 14:56
+
+会去自由战斗刷资源的玩法推荐药师 双投群体回复药一回合能加10点tp
+
+后排成员大部分都有用武之地 目前玩下来没收到的人只有三个1600信念的以及15章舞女路线以外的三个 现有后排里面铁匠跟老板娘出场率比较高
+
