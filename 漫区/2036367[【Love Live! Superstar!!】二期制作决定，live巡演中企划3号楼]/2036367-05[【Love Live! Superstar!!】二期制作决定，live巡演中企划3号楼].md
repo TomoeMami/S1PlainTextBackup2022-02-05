@@ -3800,3 +3800,16 @@ nagi一如既往的稳定，solo的舞姿太美
 
 <img src="https://img.saraba1st.com/forum/202203/12/224137i4mg3ookkbpd4tde.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 6295#       发表于 2022-3-12 23:06
+
+ 本帖最后由 iuhehc 于 2022-3-12 23:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55021474&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-12 22:41</a>
+
+不是</blockquote>
+你仔细看看切入切出的画面，这个视角和镜头位置对不上，手握雨伞的姿势也，还有切入那一瞬间的脚步，我觉得是彩排录好了，线上用这一段
+
