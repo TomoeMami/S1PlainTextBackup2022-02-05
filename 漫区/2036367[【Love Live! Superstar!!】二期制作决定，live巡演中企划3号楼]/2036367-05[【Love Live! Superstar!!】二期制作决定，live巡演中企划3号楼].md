@@ -2725,3 +2725,41 @@ pay和鲤鱼这两套衣服可真好看啊
 
 微博上看到的，笑出声
 
+
+
+*****
+
+####  仟音一心  
+##### 6215#       发表于 2022-3-12 10:26
+
+为豪华BBQ食材充满干劲的🐟 byNi老师
+
+🐟的强大在于知道自己跳错了还能知道误差了多少然后还能自己纠正过来，这节奏感绝对团内第一了，和可可设定完全契合，就是本人。
+
+此外，可可会在猜拳时后出作弊，而🐟会在抽鬼牌时偷偷看牌，还是本人。
+
+AD4BAE13-1572-4219-9660-592456BA7F09.jpeg
+(148.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-12 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/12/102122z4o02o66u64v20r2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6216#       发表于 2022-3-12 10:29
+
+希望今天舞台和衣服都给我豪华升级<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6217#       发表于 2022-3-12 10:39
+
+鲤鱼b博转了那个b站票宣传诶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
