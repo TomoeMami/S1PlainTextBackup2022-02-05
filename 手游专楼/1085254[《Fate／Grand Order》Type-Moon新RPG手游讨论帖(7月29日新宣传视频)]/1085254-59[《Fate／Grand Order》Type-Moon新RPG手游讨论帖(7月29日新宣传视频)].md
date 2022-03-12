@@ -2338,3 +2338,12 @@ yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你拼死拼活花几个小时打几十回合打完一个本，拿10个茶壶，然后仔细回想下平时活动多刷10次本才花多少时间
 
+
+
+*****
+
+####  rooarr  
+##### 87210#       发表于 2022-3-12 23:22
+
+我已经用脚投票放弃这几个本了，纯粹恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
