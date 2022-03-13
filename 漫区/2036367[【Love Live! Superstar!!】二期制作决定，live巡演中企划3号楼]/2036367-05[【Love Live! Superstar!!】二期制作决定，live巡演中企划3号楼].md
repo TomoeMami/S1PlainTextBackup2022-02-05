@@ -4495,3 +4495,169 @@ E1BA8A39-7321-49A3-A3F9-59C3F879BE13.jpeg
 
 幸好单推星团，钱包压力没那么大，不想看别人掐架也无视了
 
+
+
+*****
+
+####  普之舜舜  
+##### 6357#       发表于 2022-3-13 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029230&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-13 18:44</a>
+
+战吧是虹的大本营，但好多人除了动画，其他东西了解的都太少了，说起企划，销量啥的根本你说东他说西，没啥 ...</blockquote>
+还好吧，年前我发三团聚会楼，那边回复很多的
+
+*****
+
+####  普之舜舜  
+##### 6358#       发表于 2022-3-13 18:48
+
+主楼能编辑下吗？
+
+*****
+
+####  iuhehc  
+##### 6359#       发表于 2022-3-13 18:48
+
+ 本帖最后由 iuhehc 于 2022-3-13 18:50 编辑 
+
+不知道这个乐队怎么编排，我觉得轻音的话跟星歌曲不太搭的来啊，不然就重编一下，星的歌感觉就是适合大乐团来
+
+*****
+
+####  player3960  
+##### 6360#       发表于 2022-3-13 18:49
+
+单推，我是怕星团下半年长草，现在放心了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  Enakina  
+##### 6361#       发表于 2022-3-13 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029264&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-03-13 18:48:17</a>
+还好吧，年前我发三团聚会楼，那边回复很多的</blockquote>那是哪里人多就去哪里了，但你一但撕起来，一堆云粉丝就冒出来了，之前几个pvp的帖子都挺蠢的，不过也是贴吧的特色了吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  普之舜舜  
+##### 6362#       发表于 2022-3-13 18:50
+
+对了，二期我们的花田先生能把恋恋写好吗?希望别整烂活
+
+*****
+
+####  仟音一心  
+##### 6363#       发表于 2022-3-13 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029267&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-3-13 18:48</a>
+主楼能编辑下吗？</blockquote>
+可能，没多久就要开4号楼了。
+
+*****
+
+####  普之舜舜  
+##### 6364#       发表于 2022-3-13 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029169&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-3-13 18:40</a>
+
+可以预见萌战吧又要打起来了</blockquote>
+已经打起来了，看来很多人对花田表示不满
+
+*****
+
+####  寒风夜  
+##### 6365#       发表于 2022-3-13 18:54
+
+倒不关心吵架，只担忧连着出2者的制作
+
+*****
+
+####  普之舜舜  
+##### 6366#       发表于 2022-3-13 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029285&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-13 18:50</a>
+
+可能，没多久就要开4号楼了。</blockquote>
+泥潭的翻页bug到现在还可能存在。那边的寒蝉的楼都已经几万了，还是很坚挺
+
+*****
+
+####  lj205  
+##### 6367#       发表于 2022-3-13 18:57
+
+名古屋给我放2单消息啊！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 6368#       发表于 2022-3-13 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">星虹双推  真没钱了啊 又是live又是cd的 本来觉得今年应该就虹为主的，，，，，7月又，，，，，，，
+
+*****
+
+####  Enakina  
+##### 6369#       发表于 2022-3-13 18:58
+
+草，我突然想到虹2作画拉了是不是也会怪到星这里了，希望别拉吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  寒风夜  
+##### 6370#       发表于 2022-3-13 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029309&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-3-13 18:52</a>
+
+已经打起来了，看来很多人对花田表示不满</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正1期的脚本就够那什么了
+
+*****
+
+####  寒风夜  
+##### 6371#       发表于 2022-3-13 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029309&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-3-13 18:52</a>
+
+已经打起来了，看来很多人对花田表示不满</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正1期的脚本就够那什么了
+
+*****
+
+####  寒风夜  
+##### 6372#       发表于 2022-3-13 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029370&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-13 18:58</a>
+
+草，我突然想到虹2作画拉了是不是也会怪到星这里了，希望别拉吧
+
+  -- 来自 能手机投票的 Stage1官方 Andro ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要拉了那星也得寄啊，这不得在意2部
+
+*****
+
+####  普之舜舜  
+##### 6373#       发表于 2022-3-13 19:03
+
+好像有星团的情报，支付宝说过二期可堇关系会迎来很大的变化，可可会受挫之类
+
+*****
+
+####  普之舜舜  
+##### 6374#       发表于 2022-3-13 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029370&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-13 18:58</a>
+
+草，我突然想到虹2作画拉了是不是也会怪到星这里了，希望别拉吧
+
+  -- 来自 能手机投票的 Stage1官方 Andro ...</blockquote>
+企划那边其实是不冲突的，动画是两组人做的
+
