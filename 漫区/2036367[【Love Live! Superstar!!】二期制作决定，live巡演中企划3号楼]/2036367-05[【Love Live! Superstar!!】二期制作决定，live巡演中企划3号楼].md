@@ -4248,3 +4248,131 @@ with k-on,直接找sphere么<img src="https://static.saraba1st.com/image/smiley/
 
 演唱会居然上乐队，可以噢，好奇会玩出什么花样，不过这之前能不能再出张单？估计名古屋公布？
 
+
+
+*****
+
+####  player3960  
+##### 6333#       发表于 2022-3-13 18:07
+
+好了，下半年星团也有的忙了，之前还担心给虹二让路要长草，这还真就有点刚正面的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉要血雨腥风了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 6334#       发表于 2022-3-13 18:08
+
+企划看来是一点也不关心粉丝钱包够不够了啊 这动画哪组做 2组忙不过来吧
+
+*****
+
+####  黑雪姫  
+##### 6335#       发表于 2022-3-13 18:09
+
+二单选举呢？ 6月大阪上公布？
+
+*****
+
+####  damian-wade  
+##### 6336#       发表于 2022-3-13 18:13
+
+这么快，与其说二期，不如说分割放送<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">和一期不会有太多改变了
+
+*****
+
+####  寒风夜  
+##### 6337#       发表于 2022-3-13 18:14
+
+ 本帖最后由 寒风夜 于 2022-3-13 18:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028792&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-3-13 18:08</a>
+
+企划看来是一点也不关心粉丝钱包够不够了啊 这动画哪组做 2组忙不过来吧</blockquote>
+危险危险 
+
+*****
+
+####  寒风夜  
+##### 6338#       发表于 2022-3-13 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028792&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-3-13 18:08</a>
+
+企划看来是一点也不关心粉丝钱包够不够了啊 这动画哪组做 2组忙不过来吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太忙了88
+
+*****
+
+####  Enakina  
+##### 6339#       发表于 2022-3-13 18:15
+
+ 本帖最后由 Enakina 于 2022-3-13 18:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028773&amp;ptid=2036367" target="_blank">player3960 发表于 2022-03-13 18:07:10</a>
+好了，下半年星团也有的忙了，之前还担心给虹二让路要长草，这还真就有点刚正面的意思了 ...</blockquote>刚呗，标题我都想好了，虹那边说我们动画质量爆杀你们，星这边说我们整体实力高，建议提前掌握经验密码<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，说实话感觉虹星这边是有矛盾的隐患的，总觉得会有个机会就爆发
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stygian  
+##### 6340#       发表于 2022-3-13 18:15
+
+我是真的希望能让她们休息半年好好充电下的，打铁那个嗓子啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6341#       发表于 2022-3-13 18:18
+
+然后，10🈷️是那个虚拟学园偶像
+
+*****
+
+####  Blackson  
+##### 6342#       发表于 2022-3-13 18:18
+
+接在虹团二期播完后。感觉事情不妙，怕是凶多吉少(对双方而言)
+
+*****
+
+####  Piano-Forest  
+##### 6343#       发表于 2022-3-13 18:19
+
+ 本帖最后由 Piano-Forest 于 2022-3-13 18:24 编辑 
+
+💫TVアニメ2期💫
+
+本日発表🎊
+
+「ラブライブ！スーパースター!!」TVアニメ2期、
+
+NHK Eテレにて2022年7月放送開始予定💫💫
+
+新たな物語を、どうぞ楽しみにお待ちください✨
+<img src="https://p.sda1.dev/5/cccf9e8a573f345b69f9392252887a05/20220313_181924.jpg" referrerpolicy="no-referrer">
+
+💫✨💫✨💫✨💫✨💫
+
+ラブライブ！スーパースター!!
+
+待望の2期…7月から放送開始！
+
+🎵Eテレ 毎週日曜  夜7時
+
+　　　どうぞお楽しみに🎵
+
+💫✨💫✨💫✨💫✨💫
+<img src="https://p.sda1.dev/5/1b3ba43e6546fea09ad520a0baf0b360/anime_20220313lovelive.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/ac73cd78de3ac2d03e5804e312a0aebf/anime_20220313lovelive2.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 6344#       发表于 2022-3-13 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028882&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-13 18:15</a>
+
+刚呗，标题我都想好了，虹那边说我们动画质量爆杀你们，星这边说我们整体实力高，建议提前掌握经验密码[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">运营毛病
+
