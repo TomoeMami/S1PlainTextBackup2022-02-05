@@ -5175,3 +5175,17 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6410#       发表于 2022-3-13 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55031519&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-3-13 22:10</a>
+
+楼友，你连发两条是抽风了吗？前面有个回复我的也是连发两条
+
+—— 来自 OPPO PDKM00, And ...</blockquote>
+肯定是抽风了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">怎么删不掉啊啊啊啊啊啊
+
