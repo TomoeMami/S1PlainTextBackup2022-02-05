@@ -3864,3 +3864,14 @@ nagi一如既往的稳定，solo的舞姿太美
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 6300#       发表于 2022-3-13 08:49
+
+awsl，感觉好多年没看到这个缩写了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
