@@ -9302,3 +9302,56 @@ SE的游戏版本怎么算的
 
 在后面的有一章，发现了某个重要事项的时候，日语语音的管家在言语中表现强烈情感的时候，英文语音在捧读
 
+
+
+*****
+
+####  deathyue  
+##### 839#       发表于 2022-3-13 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026669&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-13 14:30</a>
+
+英文语音建议不要听，真的毫无情感，也不清楚有没有技术
+
+在后面的有一章，发现了某个重要事项的时候，日 ...</blockquote>
+也是，与其听英文和字幕不少对不上出戏。。还是切成日文听不懂就不用关心这点安心玩游戏了
+
+*****
+
+####  繭  
+##### 840#       发表于 2022-3-13 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026633&amp;ptid=2051152" target="_blank">deathyue 发表于 2022-3-13 14:25</a>
+买的实体版昨天刚邮寄到，今天开玩，想到自己也听不懂日文，就开了英文语音和中文字幕，但怎么感觉这中文翻 ...</blockquote>
+因为中文字幕都是以日语为标准翻译的，不过确实很多地方是意译
+
+
+
+*****
+
+####  llysander  
+##### 841#       发表于 2022-3-13 14:51
+
+第五章拿到马戏团萝莉
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们认真点，打仗呢把孩子带上干啥（不过主角台词里表示的是放着更惨，我们只想喂萝莉吃点饭
+
+一看，丢道具，好家伙这游戏消耗品都是限量供应的怎么丢的起。
+
+再一看，立一个沙包，好吧还算有点作用。
+
+再再一看，这个幻象承伤100%攻击力还是100%默认最高仇恨无视障碍高度4格投送每三回合丢一次<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 碉堡了
+
+*****
+
+####  萝卜迷  
+##### 842#       发表于 2022-3-13 15:02
+
+道具真不能无限刷吗？
+
+*****
+
+####  萝卜迷  
+##### 843#       发表于 2022-3-13 15:02
+
+道具真不能无限刷吗？
+
