@@ -3067,3 +3067,17 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 271#       发表于 2022-3-13 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55018169&amp;ptid=2050204" target="_blank">キラ様 发表于 2022-3-12 17:48</a>
+
+只求主线快点更新
+
+但是按照目前的情况来看第四章四月前半都不一定有戏</blockquote>
+问下是跑哪里的？
+

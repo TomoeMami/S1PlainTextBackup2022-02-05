@@ -4759,3 +4759,211 @@ B站和微博上大佬的翻译：
 
 <img src="https://img.saraba1st.com/forum/202203/13/194417xjjboposyy0bspss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6383#       发表于 2022-3-13 19:49
+
+今日
+
+B592CAA0-FFE2-43B5-BBF1-28E03CBE8D54.jpeg
+(283.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194859wqc0tu6v7ouu6ai7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+73B3FA0A-ACB4-4C03-B7E3-DC65C4CA21F7.jpeg
+(1.1 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194859htffppfmycioc5py.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0C06A8EE-0C28-4CD9-9FD2-EB48FEEF354F.jpeg
+(438.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194859rsepremw9ewprsr9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+99E165D3-65D7-4151-A7C9-AD8B87C64947.jpeg
+(436.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194859e1gbvvgxeib1ebbx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4BB3FF91-0D62-48D7-9685-F4B834D2D305.jpeg
+(432.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194900xhf6et9i66il9bsq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F5EFABDF-28C2-4069-84C4-398CEBA72B72.jpeg
+(296.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194900xhv1hd21ynvvxzw0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F898F91F-2862-49E5-963B-6ECD77E4E26B.jpeg
+(289.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194900bnpyx88nlldiph87.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+03268EED-7A1E-4BDD-B009-B417C1F924E9.jpeg
+(280.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194900i61tzxpr6i66dtbh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5741908D-3BDD-4064-97D2-C593014DF4F5.jpeg
+(111.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194900phgihuh822xxw88v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0CE157ED-C6C3-4AB6-8695-B542BCF29AC0.jpeg
+(246.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194900mra9juaar0t9rruq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+48E50B40-7BDF-4193-B641-7E0223AA6DFC.jpeg
+(306.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194901zf1v144ahvfznh9a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0FF18D3C-302C-486C-B552-4F7921AD7157.gif
+(1.57 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194901yb42m35w35j5jmu0.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6384#       发表于 2022-3-13 19:49
+
+ 本帖最后由 iuhehc 于 2022-3-13 19:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029688&amp;ptid=2036367" target="_blank">stygian 发表于 2022-3-13 19:30</a>
+
+主要就是弦乐编的贼多得放采样，其他就还好，新歌也是乐队编制为主</blockquote>
+明明有弦乐组的话也不错的..轻音、轻音，还是等到时候看吧，也许单纯乐队更能跟紧整场
+
+*****
+
+####  Enakina  
+##### 6385#       发表于 2022-3-13 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029469&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-03-13 19:10:22</a>
+ll主吧我可以和吧务管，不至于会吵起来</blockquote>主吧还好，其实活跃度没那么高，之前都快凉了。也就那几个搞反串比较烦，不过也是经典贴吧味了，不得不尝
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 6386#       发表于 2022-3-13 19:52
+
+星团的歌弦乐多刚好改编一下挺好的
+
+*****
+
+####  仟音一心  
+##### 6387#       发表于 2022-3-13 20:00
+
+光速出图
+
+7421A303-6AC5-4A5F-B8F9-F265EDF0023F.jpeg
+(116.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/195954z3rr32swizftrnt3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D611A060-1070-4DF1-949F-B86B28CFC5FD.jpeg
+(155.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/195954tzwcrzrk4pip9ek1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B891D3DF-BCDB-492D-8A7F-4B932A06B5CC.jpeg
+(438.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/195955jbbxs2gzyx4sgnhh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
+(160.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/195955b05177iec0ea1h7u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+51ADE6F5-7E75-4748-BCD1-5C5925B9CA34.jpeg
+(149.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/195955xnefj6se5j6u5gf5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6388#       发表于 2022-3-13 20:01
+
+<blockquote>Enakina 发表于 2022-3-13 19:50
+主吧还好，其实活跃度没那么高，之前都快凉了。也就那几个搞反串比较烦，不过也是经典贴吧味了，不得不尝
+
+ ...</blockquote>
+主吧水之后就挺凉的，虹动画也没涨多少，星动画回暖了一波热度，动画一巡结束凉了一会。然后就是某吧引流的时候涨了一些，现在他们引完了，热度也下去了。现在也就偶尔处理一下一些争议贴和回复
+
