@@ -588,3 +588,12 @@ rpg的任务脚本是最难弄的，结果老头环直接给砍完了。cdpr要�
 
 唉，波兰人做的fps太古典了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerdnerd  
+##### 63#       发表于 2022-3-13 11:39
+
+CDPR属于不会做游戏的，巫师3这种还不如把游玩部分砍了做个AVG。
+

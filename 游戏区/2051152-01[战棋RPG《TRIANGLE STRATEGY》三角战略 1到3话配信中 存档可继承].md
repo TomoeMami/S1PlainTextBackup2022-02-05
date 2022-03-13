@@ -9079,3 +9079,57 @@ https://hyperwiki.jp/pts/
 
 要打完美结局的话必须多周目否则收不全队友，而全队友是必须的条件？
 
+
+
+*****
+
+####  leachiman  
+##### 822#         楼主| 发表于 2022-3-13 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025012&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-13 11:16</a>
+
+要打完美结局的话必须多周目否则收不全队友，而全队友是必须的条件？</blockquote>
+走特定的路线就行了，不需要全队友
+
+*****
+
+####  HGCG3  
+##### 823#       发表于 2022-3-13 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025075&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-3-13 11:22</a>
+
+走特定的路线就行了，不需要全队友</blockquote>
+确认一下，特定路线是，
+
+第一次去铁国，
+
+第二次不送王子不放火
+
+第三次不信奸臣
+
+第四次送私盐
+
+第五次公开身份
+
+第六次反对交出老婆的族人
+
+第七次炸桥
+
+第八次去见老爹
+
+这样第九次就有第四项了，对吗？
+
+*****
+
+####  leachiman  
+##### 824#         楼主| 发表于 2022-3-13 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025223&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-13 11:36</a>
+
+确认一下，特定路线是，
+
+第一次去铁国，
+
+第二次不送王子不放火</blockquote>
+24568就够了，其他不影响
+
