@@ -3875,3 +3875,17 @@ awsl，感觉好多年没看到这个缩写了。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  cat1230  
+##### 6301#       发表于 2022-3-13 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55023746&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-3-13 08:49</a>
+
+awsl，感觉好多年没看到这个缩写了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+b站还算很常见，论坛里确实没啥人用了。
+
