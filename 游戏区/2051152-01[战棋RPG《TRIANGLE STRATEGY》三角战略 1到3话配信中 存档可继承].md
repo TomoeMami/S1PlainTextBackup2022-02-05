@@ -9413,3 +9413,15 @@ SE的游戏版本怎么算的
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  minysun  
+##### 849#       发表于 2022-3-13 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55027255&amp;ptid=2051152" target="_blank">pf67 发表于 2022-3-13 15:37</a>
+真结局要见老爹这一条真的有影响么？
+15章重新走了王子分支，发现完成后军师回来还是会把老爹遗言告诉主角 ...</blockquote>
+表遗言是你爸爸不是你爸爸，里遗言选择自己路线不要盲信天平才是关键
+

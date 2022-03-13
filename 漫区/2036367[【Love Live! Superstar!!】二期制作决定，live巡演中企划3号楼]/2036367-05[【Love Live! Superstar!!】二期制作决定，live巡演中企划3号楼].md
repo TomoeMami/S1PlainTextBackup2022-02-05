@@ -4005,3 +4005,15 @@ b站还算很常见，论坛里确实没啥人用了。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 6310#       发表于 2022-3-13 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55027280&amp;ptid=2036367" target="_blank">player3960 发表于 2022-03-13 15:40:35</a>
+这东西没啥好造假的吧，本来就几秒钟，拍到啥是啥</blockquote>没啥，昨天有人说是摆设的，今天算确定一下了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
