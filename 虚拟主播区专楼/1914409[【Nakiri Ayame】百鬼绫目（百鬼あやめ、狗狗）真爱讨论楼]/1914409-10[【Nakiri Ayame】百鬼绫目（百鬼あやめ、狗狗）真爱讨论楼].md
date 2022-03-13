@@ -5188,3 +5188,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">居然又在跟96猫打枪了
 
+
+
+*****
+
+####  stedckk  
+##### 14018#       发表于 2022-3-14 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总又换id了啊，最近疯狂单排，是因为发生了悲伤的事（润姨？），只能用lol来麻醉自己吗？
+
