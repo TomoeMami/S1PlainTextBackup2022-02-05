@@ -5135,3 +5135,43 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
 
 所以会是缪二还是水二呢
 
+
+
+*****
+
+####  普之舜舜  
+##### 6407#       发表于 2022-3-13 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55031078&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-3-13 21:35</a>
+星团单推目前钱包还顶得住只希望二期可可不要人物崩塌了，不然花田就等着遗臭万年吧 ...</blockquote>
+楼友，你连发两条是抽风了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面有个回复我的也是连发两条
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 6408#       发表于 2022-3-13 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030865&amp;ptid=2036367" target="_blank">player3960 发表于 2022-3-13 21:14</a>
+因为在那讨论星迟早会有贵物出现，所以我基本放弃贴吧了，s1专楼和NGA专楼，加几个群都聊不过来
+
+   ...</blockquote>
+毕竟贴吧那些很容易有乐子人，哎，上了首页之后很多人都来了，哎。不过贴吧时效性太强了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 6409#       发表于 2022-3-13 22:11
+
+ 本帖最后由 普之舜舜 于 2022-3-13 22:12 编辑 
+
+说起拉拉群，我推荐一个大群：
+822810082
+这群里面很多拉拉人，气氛也不错。
+如果不适合那我就删除了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

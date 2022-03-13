@@ -10811,3 +10811,12 @@ vox还挺会营业的，再吵下去……不排除他可能换个大陆的FA<im
 
 Now Singing...未来への咆哮
 
+
+
+*****
+
+####  越动天下  
+##### 11464#       发表于 2022-3-13 22:15
+
+弹幕有点像以前的上手天才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 今天晚上同接和sc估计赢麻了
+

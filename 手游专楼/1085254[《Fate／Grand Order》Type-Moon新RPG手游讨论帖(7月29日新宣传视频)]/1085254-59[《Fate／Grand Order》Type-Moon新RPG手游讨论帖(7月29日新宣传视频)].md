@@ -2347,3 +2347,94 @@ yls：我天天在nga潜水，看到你们为了打几个异闻带本开始吹�
 
 我已经用脚投票放弃这几个本了，纯粹恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 87211#       发表于 2022-3-13 00:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就打了一个萨老师的本
+
+虽然是打了强化解除的乱按,但是挺折磨
+
+*****
+
+####  不垃圾屌丝  
+##### 87212#       发表于 2022-3-13 22:15
+
+今天闲着没事打掉了，摩根梅林C呆铁三角万能
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gpx234mqx  
+##### 87213#       发表于 2022-3-13 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55021302&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-12 22:25</a>
+
+你拼死拼活花几个小时打几十回合打完一个本，拿10个茶壶，然后仔细回想下平时活动多刷10次本才花多 ...</blockquote>
+没啥意思，又不是不会过期，39个又不能存着
+
+*****
+
+####  gpx234mqx  
+##### 87214#       发表于 2022-3-13 22:19
+
+街机角色2d设定图
+
+740741CD-99D2-43FB-BDDC-0F0B13A36A60.jpeg
+(128.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/221841acvjhwh6y8y0b8h8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E5F5A006-B642-442C-AF39-5910F50E02EB.jpeg
+(147.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/221842wq6fhh69q6reuh4h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10BDEA3F-E7BA-4FF4-A3BE-CAFB176B3EBE.jpeg
+(115.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/221843dnlvsyepe4cvpt4z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
+(119.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/221843fl4kplopzzk766k2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6658B6B0-8C6B-4AA7-A4CB-368B1AF78488.jpeg
+(146.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/221844e6u6ikk1o4hccfqi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+157C1782-141E-44E1-A149-2DD142EE9F89.jpeg
+(171.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/221844dhwm34c5ila5440l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
