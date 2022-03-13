@@ -9355,3 +9355,38 @@ SE的游戏版本怎么算的
 
 道具真不能无限刷吗？
 
+
+
+*****
+
+####  听风不是雨  
+##### 844#       发表于 2022-3-13 15:06
+
+<blockquote>llysander 发表于 2022-3-13 14:51
+第五章拿到马戏团萝莉
+
+你们认真点，打仗呢把孩子带上干啥（不过主角台词里表示的是放着更惨，我们只 ...</blockquote>
+困难难度下分身基本只能抗两刀，在学会分身爆炸被动之前还是纯挨打的靶子，3tp换敌人2个行动轮感觉性价比不高，真空期也长，还有主要就是本身作战能力太拉稀了，其他控场角色像刺客舞女鹰弓这些单拎出来都是能打的，萝莉本体又不能抗又没伤害，分身爆炸伤害也就那样
+
+*****
+
+####  繭  
+##### 845#       发表于 2022-3-13 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026058&amp;ptid=2051152" target="_blank">妄想中毒 发表于 2022-3-13 13:14</a>
+我发现入队角色里甚至还有小孩子，严肃的战争题材这么随便使用童子军真的好吗 ...</blockquote>
+你说小丑女的话，入队剧情不都说的很清楚是因为战争无处可去所以才被收留的吗……
+
+*****
+
+####  繭  
+##### 846#       发表于 2022-3-13 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025981&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-13 13:03</a>
+不交出王子
+
+王子防守战不放火
+
+运送私盐</blockquote>
+交王子也可以的，因为关键其实是不使用机关，交了不用打自然就不会用到了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
