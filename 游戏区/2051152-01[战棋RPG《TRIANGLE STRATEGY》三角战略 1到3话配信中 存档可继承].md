@@ -9443,3 +9443,22 @@ SE的游戏版本怎么算的
 
 一周目不看攻略选信念的情况下投票是不是就只能随缘了，第七话点数不达标我一个人都说服不了全是态度冷淡只能把罗兰交出去
 
+
+
+*****
+
+####  DARK_HGCG  
+##### 852#       发表于 2022-3-13 16:54
+
+有DLC的话能不能和安娜在一起这姑娘真好短发白毛百依百顺又能偷鸡摸狗
+
+*****
+
+####  罐子  
+##### 853#       发表于 2022-3-13 16:57
+
+干，返攻王都不管怎么sl都是炸大坝发洪水<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+试了好几次都不行，算了，都是队友逼的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
