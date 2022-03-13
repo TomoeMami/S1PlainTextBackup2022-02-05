@@ -9754,3 +9754,23 @@ ok，懂了
 
 到了最终决战前终于出来一批小剧场了，在回忆剧情里按X居然还可以看到当时的人物信息和立绘，管家年轻时是不戴眼镜的，眼镜的外号还是给TP哥吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 880#       发表于 2022-3-13 23:43
+
+完美结局里古斯塔多夫和艾格丝昂都豹变的好奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+突然就弱智了，拒绝合作的理由都很一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 881#       发表于 2022-3-13 23:55
+
+话说扣脚想了想，三角这套系统，感觉是皇骑和轨迹杂交的产物
+
+而且更偏2d时代的轨迹一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ctb+走格子+普通战技+s技
+

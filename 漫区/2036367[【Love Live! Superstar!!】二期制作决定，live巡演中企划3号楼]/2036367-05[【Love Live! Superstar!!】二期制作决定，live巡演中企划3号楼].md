@@ -5232,3 +5232,14 @@ EB3B0162-E04B-4C25-98F6-0B2FD00628CC.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/13/233206yihxhnihdq1kn87h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Skyline_R  
+##### 6413#       发表于 2022-3-13 23:56
+
+我印象里花田大老师在LL写的二期好像也一直都差点意思，包括缪2期感觉稍稍逊色与1期，水2期就别说了
+
+算了，大不了就当是十月接唐诱2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
