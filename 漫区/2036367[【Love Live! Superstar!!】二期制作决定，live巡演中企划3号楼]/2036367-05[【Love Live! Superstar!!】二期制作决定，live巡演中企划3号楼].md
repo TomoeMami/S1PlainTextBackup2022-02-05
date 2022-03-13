@@ -5038,3 +5038,51 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
 
 今天sayu的solo比昨天好太多了感染力超强，听得有点热泪盈眶
 
+
+
+*****
+
+####  Norkey1  
+##### 6397#       发表于 2022-3-13 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029230&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-13 18:44</a>
+战吧是虹的大本营，但好多人除了动画，其他东西了解的都太少了，说起企划，销量啥的根本你说东他说西，没啥 ...</blockquote>
+实际上虹除了动画和live能说一说其他真没什么可说，论中之人虹也不像是重心，论企划爹不疼娘不爱的，销量也不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6398#       发表于 2022-3-13 20:50
+
+说起来1st的BD啥时候卖啊
+
+*****
+
+####  Enakina  
+##### 6399#       发表于 2022-3-13 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030531&amp;ptid=2036367" target="_blank">Norkey1 发表于 2022-03-13 20:43:18</a>
+实际上虹除了动画和live能说一说其他真没什么可说，论中之人虹也不像是重心，论企划爹不疼娘不爱的，销量 ...</blockquote>战吧也慢慢把对虹的关注从动画扩大到中之人了，虹4帖子都有好几千了，这倒也挺好。还老有人爱阴阳怪气主吧都变成星吧了，明明是你们都去战吧水了。单推虹的话，战吧的确是个不错的选择，我还挺推荐的，不过单推虹的也不会点了这个专楼看见我这条吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 6400#       发表于 2022-3-13 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030623&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-13 20:51</a>
+
+战吧也慢慢把对虹的关注从动画扩大到中之人了，虹4帖子都有好几千了，这倒也挺好。还老有人爱阴阳怪气主吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">战吧的星2nd专楼只有100来层楼
+
+*****
+
+####  Enakina  
+##### 6401#       发表于 2022-3-13 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030634&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-03-13 20:52:27</a>
+战吧的星2nd专楼只有100来层楼</blockquote>水也差不多，没多少人讨论。所以我才说战吧才是虹的大本营嘛，涉及到和虹的pvp基本一边倒的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
