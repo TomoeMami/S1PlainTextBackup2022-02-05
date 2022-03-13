@@ -9688,3 +9688,20 @@ SE的游戏版本怎么算的
 
 满足这些条件的话其他分支随意？
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 874#       发表于 2022-3-13 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030738&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-13 21:00</a>
+我知道了
+
+是不是进真结局的关键是
+
+1 放火机关要知道，但不能用，要留着当底牌</blockquote>
+对的，就是这五个分支
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

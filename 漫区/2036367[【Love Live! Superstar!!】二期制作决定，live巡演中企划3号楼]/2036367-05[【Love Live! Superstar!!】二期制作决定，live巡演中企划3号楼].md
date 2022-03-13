@@ -5086,3 +5086,17 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 6402#       发表于 2022-3-13 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030706&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-03-13 20:57:15</a>
+水也差不多，没多少人讨论。所以我才说战吧才是虹的大本营嘛，涉及到和虹的pvp基本一边倒的
+
+ ...</blockquote>因为在那讨论星迟早会有贵物出现，所以我基本放弃贴吧了，s1专楼和NGA专楼，加几个群都聊不过来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
