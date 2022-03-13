@@ -9745,3 +9745,12 @@ SE的游戏版本怎么算的
 交基友没影响，核心在不烧城</blockquote>
 ok，懂了
 
+
+
+*****
+
+####  听风不是雨  
+##### 879#       发表于 2022-3-13 23:26
+
+到了最终决战前终于出来一批小剧场了，在回忆剧情里按X居然还可以看到当时的人物信息和立绘，管家年轻时是不戴眼镜的，眼镜的外号还是给TP哥吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
