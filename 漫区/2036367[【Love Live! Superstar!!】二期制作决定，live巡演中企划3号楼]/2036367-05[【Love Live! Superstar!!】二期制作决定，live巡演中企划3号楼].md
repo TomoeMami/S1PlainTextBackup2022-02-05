@@ -4967,3 +4967,56 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
  ...</blockquote>
 主吧水之后就挺凉的，虹动画也没涨多少，星动画回暖了一波热度，动画一巡结束凉了一会。然后就是某吧引流的时候涨了一些，现在他们引完了，热度也下去了。现在也就偶尔处理一下一些争议贴和回复
 
+
+
+*****
+
+####  仟音一心  
+##### 6389#       发表于 2022-3-13 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030060&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-3-13 20:01</a>
+主吧水之后就挺凉的，虹动画也没涨多少，星动画回暖了一波热度，动画一巡结束凉了一会。然后就是某吧引流 ...</blockquote>
+但我喜欢主吧人少但是其乐融融的氛围，其他吧都没有。
+
+*****
+
+####  Enakina  
+##### 6390#       发表于 2022-3-13 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030060&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-03-13 20:01:49</a>
+主吧水之后就挺凉的，虹动画也没涨多少，星动画回暖了一波热度，动画一巡结束凉了一会。然后就是某吧引流 ...</blockquote>嗯，挺好，没那么难管。等到4月，虹二期估计还是在战吧聊的多，主吧那边也没那么大压力
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  kata魂  
+##### 6391#       发表于 2022-3-13 20:12
+
+坐等第一集可可的第一句台词就是接到父亲的电话说不用回国了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6392#       发表于 2022-3-13 20:21
+
+<blockquote>仟音一心 发表于 2022-3-13 20:07
+但我喜欢主吧人少但是其乐融融的氛围，其他吧都没有。</blockquote>
+那些吵架，有吵架倾向的我都删帖或者屏蔽了。所以就看起来人很少。
+
+*****
+
+####  绯想alter2nd  
+##### 6393#       发表于 2022-3-13 20:21
+
+不应该是唐悠悠过来拽人被live感化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liu461  
+##### 6394#       发表于 2022-3-13 20:22
+
+第一季加农具足虫她们的故事心结都讲的差不多，可不该轮到可可吃瘪回了<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
