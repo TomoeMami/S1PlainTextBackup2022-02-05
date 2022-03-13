@@ -4376,3 +4376,122 @@ NHK Eテレにて2022年7月放送開始予定💫💫
 刚呗，标题我都想好了，虹那边说我们动画质量爆杀你们，星这边说我们整体实力高，建议提前掌握经验密码[f:0 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">运营毛病
 
+
+
+*****
+
+####  soranoguiji  
+##### 6345#       发表于 2022-3-13 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这是在养蛊吗
+
+*****
+
+####  player3960  
+##### 6346#       发表于 2022-3-13 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028882&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-03-13 18:15:19</a></blockquote>肯定要横向对比的，千载难逢的机会，动画销量歌曲各方面，贴吧估计能战到昏天暗地，缪水再来？啧啧啧不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑雪姫  
+##### 6347#       发表于 2022-3-13 18:33
+
+星团有三期动画的可能性很大
+
+*****
+
+####  普之舜舜  
+##### 6348#       发表于 2022-3-13 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54979746&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-3-9 17:12</a>
+
+应该不会，毕竟4月虹团，起码得和虹2期的bd错开，10月的话两部会重合很大的
+
+—— 来自 OPPO PDKM00, And ...</blockquote>
+错了。我超，7月就2期了
+
+*****
+
+####  仟音一心  
+##### 6349#       发表于 2022-3-13 18:35
+
+白老师的鲤P
+
+E1BA8A39-7321-49A3-A3F9-59C3F879BE13.jpeg
+(380.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/183530ak7anjgmr5jnjm85.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8A974A15-4C96-438A-8AE3-E8788E7BBDC8.jpeg
+(297.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/183530v5addkg95kp3aah9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6350#       发表于 2022-3-13 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029078&amp;ptid=2036367" target="_blank">player3960 发表于 2022-03-13 18:32:32</a>
+肯定要横向对比的，千载难逢的机会，动画销量歌曲各方面，贴吧估计能战到昏天暗地，缪水再来？啧啧啧不敢想 ...</blockquote>现在某些极端虹粉除了动画，就最爱用的就是我们虹bd销量爆杀你们，可二期你觉得虹还能卖多少呢，他们真的不在想想吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6351#       发表于 2022-3-13 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以预见萌战吧又要打起来了
+
+*****
+
+####  寒风夜  
+##### 6352#       发表于 2022-3-13 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这7月就2 是真的震惊，，太勇了
+
+*****
+
+####  lj205  
+##### 6353#       发表于 2022-3-13 18:43
+
+星星单推人表示活动安排满真是幸福，就是看到有人说轻音部是要加入新成员简直无语，明明就是个演唱会专属乐队性质，也是太能发散
+
+*****
+
+####  蜜梨柑  
+##### 6354#       发表于 2022-3-13 18:43
+
+ 本帖最后由 蜜梨柑 于 2022-3-13 18:46 编辑 
+
+2期主视觉图就是2nd主视觉图吗syl轻音部明显是水浦之星交响乐团性质的
+
+*****
+
+####  Enakina  
+##### 6355#       发表于 2022-3-13 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029169&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-03-13 18:40:20</a>
+可以预见萌战吧又要打起来了</blockquote>战吧是虹的大本营，但好多人除了动画，其他东西了解的都太少了，说起企划，销量啥的根本你说东他说西，没啥交流必要，图一乐吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 6356#       发表于 2022-3-13 18:47
+
+幸好单推星团，钱包压力没那么大，不想看别人掐架也无视了
+
