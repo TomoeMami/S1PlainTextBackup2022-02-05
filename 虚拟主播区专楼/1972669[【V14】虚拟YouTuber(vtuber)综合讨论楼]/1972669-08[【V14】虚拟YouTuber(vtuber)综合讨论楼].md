@@ -10732,3 +10732,23 @@ crossick的“分手”都成梗了吧，没联动是分手，有联动没交流
 
 那可是高浓度cn啊
 
+
+
+*****
+
+####  fastary  
+##### 11457#       发表于 2022-3-13 17:30
+
+考虑到fulgur是看微博的，mysta也差点搞出事，vox应该不至于犯事<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+类似争议今后都会是和稀泥回避不谈的处理吧
+
+*****
+
+####  Ketestrait  
+##### 11458#       发表于 2022-3-13 17:37
+
+ 本帖最后由 Ketestrait 于 2022-3-13 17:41 编辑 
+
+夜见和MAO这老头环比谁boss杀得多，然后MAO开局逛街逛进史东城，夜见开局龙息废墟传送陷阱直达盖利德，属实娱乐主播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

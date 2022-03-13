@@ -9521,3 +9521,15 @@ SE的游戏版本怎么算的
 试了好几次都不行，算了，都是队友逼的</blockquote>
 会不会是RPG环节没有找到说服队友的关键信息
 
+
+
+*****
+
+####  灰狼  
+##### 858#       发表于 2022-3-13 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028046&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-13 16:54</a>
+
+有DLC的话能不能和安娜在一起这姑娘真好短发白毛百依百顺又能偷鸡摸狗</blockquote>
+安娜我有时候会看成一方通行
+
