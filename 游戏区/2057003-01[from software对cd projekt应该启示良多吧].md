@@ -579,3 +579,12 @@ rpg的任务脚本是最难弄的，结果老头环直接给砍完了。cdpr要�
 两者都是超短的主线，毫无剧情的地牢和副本，真要算内容我怀疑两者差不多，只不过下环的地牢我过一个路口都 ...</blockquote>
 本來有螳螂刀爬牆，來不及做完，刪了。
 
+
+
+*****
+
+####  985604670  
+##### 62#       发表于 2022-3-13 11:23
+
+唉，波兰人做的fps太古典了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

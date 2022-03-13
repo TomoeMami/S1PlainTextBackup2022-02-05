@@ -9053,3 +9053,29 @@ https://hyperwiki.jp/pts/
 
 想问一下这游戏美版也是有中文的么？
 
+
+
+*****
+
+####  hellightning  
+##### 819#       发表于 2022-3-13 11:04
+
+啊，好想玩啊......买的实体已经卡在上海快五天没动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 820#       发表于 2022-3-13 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55024857&amp;ptid=2051152" target="_blank">塞斯克法 发表于 2022-3-13 11:02</a>
+
+想问一下这游戏美版也是有中文的么？</blockquote>
+有，我是美版卡带，配音也可以换日英
+
+*****
+
+####  HGCG3  
+##### 821#       发表于 2022-3-13 11:16
+
+要打完美结局的话必须多周目否则收不全队友，而全队友是必须的条件？
+
