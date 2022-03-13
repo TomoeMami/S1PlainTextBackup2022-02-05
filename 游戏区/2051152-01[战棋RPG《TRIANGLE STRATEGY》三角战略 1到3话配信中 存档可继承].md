@@ -9462,3 +9462,62 @@ SE的游戏版本怎么算的
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  dren_zheng  
+##### 854#       发表于 2022-3-13 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026843&amp;ptid=2051152" target="_blank">llysander 发表于 2022-3-13 14:51</a>
+
+第五章拿到马戏团萝莉
+
+你们认真点，打仗呢把孩子带上干啥（不过主角台词里表示的是放着更惨，我们只 ...</blockquote>
+万金油角色
+
+1、每回合可以丢石头给队友白嫖2点战巧点数
+
+2、能偷对面技能，赚个治疗什么的
+
+3、分身吸引火力，还能当成瞬移用
+
+主要是1，有空位我尽量带她后困难下打得很久，能白嫖好多战巧
+
+*****
+
+####  dren_zheng  
+##### 855#       发表于 2022-3-13 17:08
+
+投票不是一贯的中立1正反相等吗？
+
+随便说得其中一个角色，就是取得大多数了，就进自己想进的路线啊
+
+我玩到2周目快通关了都是如此
+
+*****
+
+####  dren_zheng  
+##### 856#       发表于 2022-3-13 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026094&amp;ptid=2051152" target="_blank">萝卜迷 发表于 2022-3-13 13:18</a>
+
+木桶机器人要怎么用？还有漆黑枷锁哪里拿？</blockquote>
+木桶不就是待机一回合攻击一回合，轮流来就好了？
+
+攻击的几个技能都是超大地图炮，就选能打到最多敌人的那个技能啊
+
+比如打位于高度5以上的所有敌人，反反包围
+
+*****
+
+####  HGCG3  
+##### 857#       发表于 2022-3-13 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028077&amp;ptid=2051152" target="_blank">罐子 发表于 2022-3-13 16:57</a>
+
+干，返攻王都不管怎么sl都是炸大坝发洪水
+
+试了好几次都不行，算了，都是队友逼的</blockquote>
+会不会是RPG环节没有找到说服队友的关键信息
+
