@@ -2438,3 +2438,12 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/13/221844dhwm34c5ila5440l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sin.yugi  
+##### 87215#       发表于 2022-3-14 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还好吧，小牛那个本，第一面调整好技能cd和np满了进二面，筋肉ruler两个宝具小牛就归西了，完全不费力
+
