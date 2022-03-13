@@ -10839,3 +10839,13 @@ Now Singing...未来への咆哮
 
 2022-3-13 23:49 上传
 
+
+
+*****
+
+####  吃咸菜的  
+##### 11466#       发表于 2022-3-14 02:50
+
+有人降低了nanamori和活动者A的对话音高，有P丸粉听一下这东西顶真吗？
+[https://twitter.com/5AHKnB6KZ4MXeCL/status/1502311725663547393](https://twitter.com/5AHKnB6KZ4MXeCL/status/1502311725663547393)
+
