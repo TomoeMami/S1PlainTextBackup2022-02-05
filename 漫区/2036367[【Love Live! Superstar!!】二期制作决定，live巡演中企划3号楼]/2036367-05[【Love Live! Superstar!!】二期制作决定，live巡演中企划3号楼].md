@@ -4708,3 +4708,54 @@ ll主吧我可以和吧务管，不至于会吵起来</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6380#       发表于 2022-3-13 19:29
+
+ 本帖最后由 aoaoaodedede 于 2022-3-13 19:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029407&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-3-13 19:03</a>
+
+好像有星团的情报，支付宝说过二期可堇关系会迎来很大的变化，可可会受挫之类 ...</blockquote>
+搬运原文，
+
+pay说的是 <blockquote>あとは、すみれちゃんと可可ちゃんの関係性がきっと大事な見どころになると思うので、皆さんも絶対見逃さないでくださいね！</blockquote>
+，
+
+鲤鱼说的是 <blockquote>可可ちゃんにとっては、大変なことになるかも……？　いっぱいいっぱいになることもあるかもしれないですけど、楽しみに待っていてください！</blockquote>
+B站和微博上大佬的翻译：
+[https://www.bilibili.com/read/cv15591160](https://www.bilibili.com/read/cv15591160)
+[https://weibo.com/ttarticle/p/show?id=2309404745119600607538](https://weibo.com/ttarticle/p/show?id=2309404745119600607538)
+
+原文：
+[https://febri.jp/topics/llss_1stal_1/](https://febri.jp/topics/llss_1stal_1/)
+[https://febri.jp/topics/llss_1stal_3/](https://febri.jp/topics/llss_1stal_3/)
+
+*****
+
+####  stygian  
+##### 6381#       发表于 2022-3-13 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029269&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-3-13 18:48</a>
+
+不知道这个乐队怎么编排，我觉得轻音的话跟星歌曲不太搭的来啊，不然就重编一下，星的歌感觉就是适合大乐团 ...</blockquote>
+主要就是弦乐编的贼多得放采样，其他就还好，新歌也是乐队编制为主
+
+*****
+
+####  仟音一心  
+##### 6382#       发表于 2022-3-13 19:44
+
+第6人两份工了
+
+474FEACA-C5EC-4189-8A5A-156589908050.jpeg
+(165.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 19:44 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/194417xjjboposyy0bspss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

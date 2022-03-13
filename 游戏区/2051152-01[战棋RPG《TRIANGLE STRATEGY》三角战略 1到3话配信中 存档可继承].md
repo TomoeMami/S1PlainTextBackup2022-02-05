@@ -9558,3 +9558,17 @@ SE的游戏版本怎么算的
 
 法师的武器威力跟法术威力有没有关系的?
 
+
+
+*****
+
+####  先生空气  
+##### 862#       发表于 2022-3-13 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55028764&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-13 18:06</a>
+
+老头弓要怎么用？</blockquote>
+超长射程，收拾后排的法师用或者补刀对面后撤的单位。虽然重要性不如鹰弓，但是因为射程长，所以我是放弃猎人选这个。
+
+不过猎人自己的睡眠和破甲也很强就是了
+
