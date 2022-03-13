@@ -10703,3 +10703,14 @@ crossick的“分手”都成梗了吧，没联动是分手，有联动没交流
 
 <img src="https://img.saraba1st.com/forum/202107/18/184559v28289fen4eyrs8s.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11455#       发表于 2022-3-13 15:29
+
+不知道中文富婆打钱能不能比yhm多<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+要是中文圈和日文圈为了他以后学啥用打钱battle那不是赚疯了，sc维持世界第一不是梦（草
+

@@ -9390,3 +9390,26 @@ SE的游戏版本怎么算的
 运送私盐</blockquote>
 交王子也可以的，因为关键其实是不使用机关，交了不用打自然就不会用到了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萝卜迷  
+##### 847#       发表于 2022-3-13 15:37
+
+<blockquote>dren_zheng 发表于 2022-3-6 11:38
+这游戏，优点是战场上角色的特点分明，比如同样是弓，几个弓的差异巨大
+
+缺点嘛，剧情文本太多看剧30分钟打 ...</blockquote>
+几个弓求讲解
+
+*****
+
+####  pf67  
+##### 848#       发表于 2022-3-13 15:37
+
+真结局要见老爹这一条真的有影响么？
+15章重新走了王子分支，发现完成后军师回来还是会把老爹遗言告诉主角啊
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
