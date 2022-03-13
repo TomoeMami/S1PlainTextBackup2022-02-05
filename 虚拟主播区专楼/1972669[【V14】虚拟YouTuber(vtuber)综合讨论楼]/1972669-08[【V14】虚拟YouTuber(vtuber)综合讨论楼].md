@@ -10636,3 +10636,18 @@ ymen油管3万订阅甚至直接在推上说抱歉不搞纪念回了会继续努
 
 省一楼，EMA生日（？）纪念，作为一个歌势太懂直播了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11449#       发表于 2022-3-13 12:33
+
+ 本帖最后由 fastary 于 2022-3-13 12:35 编辑 
+
+草，黑客去akn凸待聊最协暗示了好几次“要是有队长找我的话我就去了呢”没准真有可能饭屋？也有可能只是暗示最协出场……
+
+只要有就很好了，光练习赛就可以确保一周的直播量(抹泪)
+
+而且还一直组排打派到早上还去请教丽姐，莫名欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
