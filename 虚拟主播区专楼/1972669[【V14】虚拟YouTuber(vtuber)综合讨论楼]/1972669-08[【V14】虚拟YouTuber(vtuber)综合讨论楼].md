@@ -10683,3 +10683,14 @@ ymen油管3万订阅甚至直接在推上说抱歉不搞纪念回了会继续努
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 昨晚直播sky有提这事，说她俩都在搬家，而且她刚回归很多都需要准备，等稳定下来会有crossick联动...
 
+
+
+*****
+
+####  rzrbtk  
+##### 11453#       发表于 2022-3-13 14:44
+
+crossick的“分手”都成梗了吧，没联动是分手，有联动没交流是分手，交流不够甜是分手，其中一方和其他人贴贴是分手，自肃强调礼仪也是分手，设定上根本没交往啊，多一些原教旨派尊重设定🙏
+
+真分手还得看口了回归，以她的性格，杀完鱼就要搞郡郡了<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
