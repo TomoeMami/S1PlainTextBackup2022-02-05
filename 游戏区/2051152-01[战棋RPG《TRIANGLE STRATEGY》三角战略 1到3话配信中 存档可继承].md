@@ -9252,3 +9252,40 @@ SE的游戏版本怎么算的
 
 王国其实也就直辖王都吧，外面实际是御三家的地盘
 
+
+
+*****
+
+####  llysander  
+##### 835#       发表于 2022-3-13 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025996&amp;ptid=2051152" target="_blank">妄想中毒 发表于 2022-3-13 13:06</a>
+
+第五话王城被偷袭太奇怪了，敌军行军都走到王城了都没守卫发现，难道城市外面的野外地区都全部不设防不设关 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">去掉魔法 ，看建筑/生活也就公元2世纪水平，海森德那边可能更落后点。
+
+王国标准分封制，而且故事里这块地非常非常小，开始的时候主角轻装人员从沃尔佛特前往王都只用了一天，可以在地图上比一下这个尺寸。
+
+宰相显然准备战争很久了，提前安排好一天内突过去，精锐斩首也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+地盘小剧情里说周围有天险隔开，盐被控制没法保存食品远行，于是挤在一起村斗
+
+*****
+
+####  先生空气  
+##### 836#       发表于 2022-3-13 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026094&amp;ptid=2051152" target="_blank">萝卜迷 发表于 2022-3-13 13:18</a>
+
+木桶机器人要怎么用？还有漆黑枷锁哪里拿？</blockquote>
+你可以当成一个长距离随机AOE轰炸导弹反射器、
+
+至少真结局能用（）
+
+*****
+
+####  deathyue  
+##### 837#       发表于 2022-3-13 14:25
+
+买的实体版昨天刚邮寄到，今天开玩，想到自己也听不懂日文，就开了英文语音和中文字幕，但怎么感觉这中文翻译有问题，每句话总要吃掉几个词。。。给人一种在意译的感觉。。。。一个最简单的yes father，中文就只剩  是，等会切日文字幕看看能对上不
+
