@@ -5020,3 +5020,21 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
 
 第一季加农具足虫她们的故事心结都讲的差不多，可不该轮到可可吃瘪回了<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6395#       发表于 2022-3-13 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55030246&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-3-13 20:21</a>
+那些吵架，有吵架倾向的我都删帖或者屏蔽了。所以就看起来人很少。</blockquote>
+必然的，没有吧务管理，任何有热度的贴吧很快就会不堪入目。
+
+*****
+
+####  starring  
+##### 6396#       发表于 2022-3-13 20:37
+
+今天sayu的solo比昨天好太多了感染力超强，听得有点热泪盈眶
+
