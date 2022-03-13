@@ -608,3 +608,16 @@ CDPR属于不会做游戏的，巫师3这种还不如把游玩部分砍了做个
 
 cdpr擅长的是讲故事，打磨好的部分依然很出色也是我喜欢的。至于游戏性玩法还有夜城本身的堆料，前者本来就不是cdpr的强项，后者不知道咋想的这么恐怖的工程量就敢吹。
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 65#       发表于 2022-3-13 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54988946&amp;ptid=2057003" target="_blank">windtrack 发表于 2022-3-10 11:15</a>
+我还是觉得媒体要背大锅，2077和老头环发售前要是没那么多媒体往天上吹，也不会有那么多跟风玩家买 ...</blockquote>
+2077基本就是没做完，媒体不背这个锅
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

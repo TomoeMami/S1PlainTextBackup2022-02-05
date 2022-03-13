@@ -9148,3 +9148,65 @@ SE的游戏版本怎么算的
 
 想如果游戏喜欢等骨折时港服补个票又怕读不到现在卡带的存档
 
+
+
+*****
+
+####  HGCG3  
+##### 826#       发表于 2022-3-13 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025250&amp;ptid=2051152" target="_blank">leachiman 发表于 2022-3-13 11:39</a>
+
+24568就够了，其他不影响</blockquote>
+谢谢
+
+所以第一次去教国也行吧？
+
+*****
+
+####  萝卜迷  
+##### 827#       发表于 2022-3-13 13:01
+
+不能一次性收到所有队友吗
+
+*****
+
+####  HGCG3  
+##### 828#       发表于 2022-3-13 13:02
+
+老婆不好
+
+还是安娜好
+
+最喜欢安娜了
+
+*****
+
+####  dren_zheng  
+##### 829#       发表于 2022-3-13 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55025223&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-13 11:36</a>
+
+确认一下，特定路线是，
+
+第一次去铁国，
+
+第二次不送王子不放火</blockquote>
+不交出王子
+
+王子防守战不放火
+
+运送私盐
+
+公开罗兰身份
+
+不交出老婆族人
+
+发现岩盐
+
+不炸水库（炸桥炸艇都行）
+
+回家看望父亲
+
+大概这样，8项
+
