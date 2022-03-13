@@ -10752,3 +10752,27 @@ crossick的“分手”都成梗了吧，没联动是分手，有联动没交流
 
 夜见和MAO这老头环比谁boss杀得多，然后MAO开局逛街逛进史东城，夜见开局龙息废墟传送陷阱直达盖利德，属实娱乐主播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11459#       发表于 2022-3-13 17:50
+
+ 本帖最后由 布莱士·西伯利 于 2022-3-13 18:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">海牛还是好可爱。气氛对比四年前确实长大了点，略感慨。
+
+不过说话方式是不是比以前色气了一些...？
+
+じゃねばいばいどん了！
+
+从刚出道六年级还是初一到现在高二甚至高三，再过一两年就大学生了。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">要做个好姑娘啊，至少像你爱丽丝阿姨那样。
+
+*****
+
+####  Paisley  
+##### 11460#       发表于 2022-3-13 18:00
+
+vox还挺会营业的，再吵下去……不排除他可能换个大陆的FA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

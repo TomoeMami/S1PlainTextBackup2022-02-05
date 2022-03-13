@@ -4115,3 +4115,136 @@ FF75B43A-79BE-4EA5-B0D2-A69415C7EBD1.jpeg
 
 nako边说话鲤鱼边吸鼻涕
 
+
+
+*****
+
+####  iuhehc  
+##### 6319#       发表于 2022-3-13 17:50
+
+我超，2期，7月太快了吧！！
+
+*****
+
+####  仟音一心  
+##### 6320#       发表于 2022-3-13 17:50
+
+<blockquote>梦想是很容易忘记的
+
+大家请在忘记前记下来吧
+
+大家也记住这重要的Sunday吧 </blockquote>
+
+6D83B049-C34E-45AF-A1DA-7076FB30DC28.jpeg
+(1.21 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 17:50 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/175044r935gkxvsypd7gdz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6321#       发表于 2022-3-13 17:52
+
+<img src="https://img.saraba1st.com/forum/202203/13/175201hv1rdukdvarf1mm2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220313175127.png</strong> (66.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 17:52 上传
+
+<img src="https://img.saraba1st.com/forum/202203/13/175202tsgqgh6cxkf16ghx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220313175132.png</strong> (75.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-13 17:52 上传
+
+*****
+
+####  寒风夜  
+##### 6322#       发表于 2022-3-13 17:52
+
+这就。。。你 这7月，，，虹bd才开卖1卷呢
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6323#       发表于 2022-3-13 17:52
+
+好快的二期
+
+*****
+
+####  stygian  
+##### 6324#       发表于 2022-3-13 17:52
+
+惊呆了，搞这么赶。。。
+
+*****
+
+####  iuhehc  
+##### 6325#       发表于 2022-3-13 17:53
+
+真没想到2期居然7月，猜10月或者明年1月的，这么一说访谈鲤p谈可堇剧情估计现在她们已经知道大概了
+
+*****
+
+####  cat1230  
+##### 6326#       发表于 2022-3-13 17:55
+
+刚才看公布7月动画第二季我都呆了。以前都是猜明年啊。真是劲爆。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  寒风夜  
+##### 6327#       发表于 2022-3-13 17:55
+
+想不到。。我 想的最快也23年1
+
+*****
+
+####  优妮可  
+##### 6328#       发表于 2022-3-13 17:55
+
+这么说虹做完了啊，牛逼
+
+*****
+
+####  乙山法純  
+##### 6329#       发表于 2022-3-13 17:57
+
+with k-on,直接找sphere么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TRIScRE  
+##### 6330#       发表于 2022-3-13 17:58
+
+ 本帖最后由 TRIScRE 于 2022-3-13 17:59 编辑 
+
+又是NHK教育台 估计同步又无了
+
+
+
+*****
+
+####  寒风夜  
+##### 6331#       发表于 2022-3-13 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6332#       发表于 2022-3-13 18:06
+
+演唱会居然上乐队，可以噢，好奇会玩出什么花样，不过这之前能不能再出张单？估计名古屋公布？
+
