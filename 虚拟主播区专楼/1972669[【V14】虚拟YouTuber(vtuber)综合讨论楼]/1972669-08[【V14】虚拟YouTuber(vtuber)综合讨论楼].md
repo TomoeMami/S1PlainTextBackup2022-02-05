@@ -10714,3 +10714,21 @@ crossick的“分手”都成梗了吧，没联动是分手，有联动没交流
 
 要是中文圈和日文圈为了他以后学啥用打钱battle那不是赚疯了，sc维持世界第一不是梦（草
 
+
+
+*****
+
+####  winda  
+##### 11456#       发表于 2022-3-13 16:39
+
+<img src="https://img.saraba1st.com/forum/202203/13/163918tvtmmdzo7yqfzyo1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220313_151618.jpg</strong> (207.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-13 16:39 上传
+
+那可是高浓度cn啊
+

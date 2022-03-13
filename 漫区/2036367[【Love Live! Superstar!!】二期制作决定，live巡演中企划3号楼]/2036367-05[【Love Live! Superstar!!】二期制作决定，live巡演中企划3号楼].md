@@ -4026,3 +4026,33 @@ b站还算很常见，论坛里确实没啥人用了。
 
 跟昨天完全相反，大疆：？
 
+
+
+*****
+
+####  iuhehc  
+##### 6312#       发表于 2022-3-13 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55027280&amp;ptid=2036367" target="_blank">player3960 发表于 2022-3-13 15:40</a>
+
+这东西没啥好造假的吧，本来就几秒钟，拍到啥是啥
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+如果是录像为什么就会被叫做造假呢，这不是为了更好的舞台效果么..
+
+*****
+
+####  iuhehc  
+##### 6313#       发表于 2022-3-13 16:27
+
+ 本帖最后由 iuhehc 于 2022-3-13 16:29 编辑 
+
+今天这个水色星期天，切入画面切出也和镜头位置不一样，比昨天更明显明显，倒是和昨天的镜头位置对的上，我觉得昨天是用的彩排的，今天是用昨天的
+
+*****
+
+####  乙山法純  
+##### 6314#       发表于 2022-3-13 16:32
+
+LIVE肯定用备案，不然就和撒贝宁一样，你鱼姐拆个CD都能洒一地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
