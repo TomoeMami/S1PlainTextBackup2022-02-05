@@ -5100,3 +5100,29 @@ BE54BF9B-9EAE-4EFB-BF10-D1D055C53511.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6403#       发表于 2022-3-13 21:35
+
+星团单推目前钱包还顶得住<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">只希望二期可可不要人物崩塌了，不然花田就等着遗臭万年吧
+
+*****
+
+####  甘蓝巧克力  
+##### 6404#       发表于 2022-3-13 21:35
+
+星团单推目前钱包还顶得住<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">只希望二期可可不要人物崩塌了，不然花田就等着遗臭万年吧
+
+*****
+
+####  welcom  
+##### 6405#       发表于 2022-3-13 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55031078&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-3-13 21:35</a>
+
+星团单推目前钱包还顶得住只希望二期可可不要人物崩塌了，不然花田就等着遗臭万年吧 ...</blockquote>
+我有感觉，崩是会崩的，毕竟花田一直都这样，最终观感会怎样倒是另说
+
