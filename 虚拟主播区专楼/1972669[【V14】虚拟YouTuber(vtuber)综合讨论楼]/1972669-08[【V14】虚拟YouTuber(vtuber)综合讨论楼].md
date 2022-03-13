@@ -10776,3 +10776,18 @@ crossick的“分手”都成梗了吧，没联动是分手，有联动没交流
 
 vox还挺会营业的，再吵下去……不排除他可能换个大陆的FA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11461#       发表于 2022-3-13 19:01
+
+看到黑客突然分享了个sonny模仿虹liver(包括黛灰)的切片
+
+→几分钟前分享的，没打自己tag
+
+→上推搜到几小时前只有两三条推提到了这件事
+
+什么自搜之鬼<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

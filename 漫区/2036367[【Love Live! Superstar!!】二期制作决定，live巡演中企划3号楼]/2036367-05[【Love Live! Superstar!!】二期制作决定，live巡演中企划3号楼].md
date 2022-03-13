@@ -4661,3 +4661,50 @@ E1BA8A39-7321-49A3-A3F9-59C3F879BE13.jpeg
   -- 来自 能手机投票的 Stage1官方 Andro ...</blockquote>
 企划那边其实是不冲突的，动画是两组人做的
 
+
+
+*****
+
+####  Enakina  
+##### 6375#       发表于 2022-3-13 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029420&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-03-13 19:04:44</a>
+企划那边其实是不冲突的，动画是两组人做的</blockquote>不是的，网传的虹是日升2组做的，星还是传统八组做的已经不对了。之前有人考察过，做虹的时候八组和二组就已经合并成新二组了，虽然虹的画风有点区别，但还是传统的拉拉制作组做的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 6376#       发表于 2022-3-13 19:10
+
+ll主吧我可以和吧务管，不至于会吵起来
+
+*****
+
+####  普之舜舜  
+##### 6377#       发表于 2022-3-13 19:11
+
+ 本帖最后由 普之舜舜 于 2022-3-13 19:16 编辑 
+
+看staff表，那两拨不是一样的，希望不要太撞了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 6378#       发表于 2022-3-13 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55029469&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-3-13 19:10</a>
+
+ll主吧我可以和吧务管，不至于会吵起来</blockquote>
+辛苦吧务了，每次看贴吧有的就纯粹是搞乱的
+
+*****
+
+####  player3960  
+##### 6379#       发表于 2022-3-13 19:23
+
+真要说对第二季期待什么，好像还真就可可回国了，因为你说不写吧，一季的伏笔不收，那就很奇怪，不能当无事发生。你说写吧，花田那水平要是整烂活，可可就寄了，纠结的很<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
