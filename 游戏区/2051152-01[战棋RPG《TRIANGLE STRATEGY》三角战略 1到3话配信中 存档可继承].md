@@ -10128,3 +10128,25 @@ ok，懂了
 
 二周目走的完美线，主角七圣人就莫名其妙了，罗兰卖国也非常突兀
 
+
+
+*****
+
+####  艾特娜  
+##### 911#       发表于 2022-3-14 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036019&amp;ptid=2051152" target="_blank">Niyah 发表于 2022-3-14 10:41</a>
+
+刚玩到第三章，话说这个立绘是不是有点太......露骨了点，出场的七圣人和男主国家的贵族看面相就非善类（医 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没几个看着像好人，但有的看起来坏极了到最后其实是好人
+
+*****
+
+####  艾特娜  
+##### 912#       发表于 2022-3-14 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55037757&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-14 12:50</a>
+
+一周目RPG模式搜刮的东西二周目就没有了？然后能偷盗？怎么偷？</blockquote>
+要拿到第一章出现的那个女强盗。11章选择保护老婆的族人，15章选择跟老婆去保护村子。跟真结局冲突。
+
