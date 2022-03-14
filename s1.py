@@ -226,7 +226,6 @@ async def UpdateThread(threaddict,semaphore):
 
 
 async def main():
-
     tasks = []
     threaddicts = {}
     semaphore = asyncio.Semaphore(12)
@@ -242,7 +241,6 @@ async def main():
     await asyncio.gather(*tasks)
 
 if __name__ == '__main__':
-
     with open(rootdir+'ErrorLog.txt','w',encoding='utf-8') as f:
         f.write('\n')
     asyncio.run(main())
