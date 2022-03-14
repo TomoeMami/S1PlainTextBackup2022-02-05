@@ -708,3 +708,17 @@ fs流动率一直很大，基本都是招新为主，社内平均年龄也都很
 
 去fs的真就是冲着宫崎英高
 
+
+
+*****
+
+####  barry.allen  
+##### 67#       发表于 2022-3-14 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55031202&amp;ptid=2057631" target="_blank">ppa11 发表于 2022-3-13 21:46</a>
+
+冷知识：任天堂在意向就职投票里，19年还是20年曾经得过全国第二（全国第一是gwy）。
+
+冷知识2：当年任天 ...</blockquote>
+gwy是哪
+
