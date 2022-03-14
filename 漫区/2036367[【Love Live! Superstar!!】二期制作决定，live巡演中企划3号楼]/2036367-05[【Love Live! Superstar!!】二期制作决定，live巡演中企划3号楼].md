@@ -5676,3 +5676,15 @@ Sayurin这基本纯新人，广播还直接拿了个大奖，傻子都知道该�
   -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得奖的这个广播本身就是猛推的一环啊
 
+
+
+*****
+
+####  Enakina  
+##### 6441#       发表于 2022-3-14 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55045165&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-03-14 23:13:27</a>
+得奖的这个广播本身就是猛推的一环啊</blockquote>我知道，那个广播本来就是主推的才给的。不过能得奖还挺意外的，所以事务所直接拉满就得了。说起来之前出写真集，5厕就一堆说轻松过万的（虽然是在阴阳怪气，不过也说明人气的确很高了）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

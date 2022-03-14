@@ -6657,3 +6657,68 @@ zqsg采访原来还有</blockquote>
 
 “原来是她”这个梗可以玩到你咩姐退休<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 9714#       发表于 2022-3-14 23:32
+
+存一个fafa翻译的采访稿（下篇）
+[https://b23.tv/42OFuMW](https://b23.tv/42OFuMW)
+
+<img src="https://img.saraba1st.com/forum/202203/14/233034t6ec1xxxxc61xq61.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1D559302-3BF1-4E6B-8EEC-DA99095B5A6B.jpeg</strong> (99.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/233047l886c6cc9epzcc66.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A4A1D8AE-0DBD-496B-B5E1-493C1FD8B409.jpeg</strong> (308.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/233101tyckkkhtxcykccyx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>60CC83CE-80AC-4504-9535-27643E343207.jpeg</strong> (320.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/233118nz31j3mw3aa2wx5v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6A7B2575-A0E6-483C-91AD-A3132B4CCDD4.jpeg</strong> (358.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/233132fp1isbwzb8sapblb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB4F8DD6-7F83-46DB-8241-52C8C92E6799.jpeg</strong> (127.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/233156m9394byb5e55yn9y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ED90E834-E4A7-45F3-B876-8F9AD417B547.jpeg</strong> (154.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 23:31 上传
+
+*****
+
+####  やト  
+##### 9715#       发表于 2022-3-14 23:35
+
+一开始就没挂过鱼板的白字岂不是爽到
+

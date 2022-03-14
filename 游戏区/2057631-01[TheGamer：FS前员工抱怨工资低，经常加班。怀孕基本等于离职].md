@@ -814,3 +814,15 @@ fa和恶魂同期了，宫崎说过在这期间很忙233
 那就是了，我的记忆跟你所说差不多，看来宫崎4代参与程度或者话语权较低？ ...</blockquote>
 怎么可能把当时的命脉给新人呢....
 
+
+
+*****
+
+####  慕容断月  
+##### 75#       发表于 2022-3-14 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55045004&amp;ptid=2057631" target="_blank">若菜 发表于 2022-3-14 22:57</a>
+
+怎么可能把当时的命脉给新人呢....</blockquote>
+到4那会儿也入职有个一两年了，真有能力（各种意义上）也该冒头了
+
