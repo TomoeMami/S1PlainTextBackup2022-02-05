@@ -10216,3 +10216,89 @@ ok，懂了
 
 啊我现在知道只看过高达seed的种白是什么样子了，因为我现在就是这个逼样（虽然我还是玩过fft的）
 
+
+
+*****
+
+####  Petilil  
+##### 921#       发表于 2022-3-14 16:35
+
+<blockquote>灰狼 发表于 2022-3-14 16:17
+剧情里给的解释是管家和主角强调自由，所以不能给罗洁儿族特别的照顾。而且其实结局里不止罗洁儿族，很多 ...</blockquote>
+管家线居然是强调自由的么，我怎么看管家都是利益线代言人…这么说老婆线代表的是利益？
+
+*****
+
+####  艾特娜  
+##### 922#       发表于 2022-3-14 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55040562&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-14 16:35</a>
+
+管家线居然是强调自由的么，我怎么看管家都是利益线代言人…这么说老婆线代表的是利益？ ...</blockquote>
+管家是利益的代言人，但管家线是自由，抛弃道德，所以老婆不走，王子走了
+
+老婆是自由的代言人，但老婆线是道德，抛弃利益，所以王子留下，管家走了
+
+*****
+
+####  riin1  
+##### 923#       发表于 2022-3-14 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55037880&amp;ptid=2051152" target="_blank">LiberaMe 发表于 2022-3-13 20:58</a>
+
+我说，谁跟我透个信？
+
+教国的圣人们汇报的那个帐篷里是不是压根就没人或者坐着个上去踹一脚只会“嗯，开饭 ...</blockquote>
+一般来说jrpg不露面的戴面具的都是有秘密的，不过也有例外，比如罗兰他师傅戴面具就不是有啥秘密
+
+*****
+
+####  LiberaMe  
+##### 924#       发表于 2022-3-14 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55041047&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-14 17:12</a>
+
+一般来说jrpg不露面的戴面具的都是有秘密的，不过也有例外，比如罗兰他师傅戴面具就不是有啥秘密 ...</blockquote>
+子安配的人我估计一定没死·····虽然也没再遇到
+
+*****
+
+####  riin1  
+##### 925#       发表于 2022-3-14 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55041062&amp;ptid=2051152" target="_blank">LiberaMe 发表于 2022-3-14 01:14</a>
+
+子安配的人我估计一定没死·····虽然也没再遇到</blockquote>
+他是个支线人物，后期靠数值可以入队。明明是个挺有剧情发展潜力的角色，结果就几句话带过了
+
+*****
+
+####  灰狼  
+##### 926#       发表于 2022-3-14 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55040562&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-14 16:35</a>
+
+管家线居然是强调自由的么，我怎么看管家都是利益线代言人…这么说老婆线代表的是利益？ ...</blockquote>
+你可以去看管家线里和古斯特德弗的辩论，就真是“我比你更自由”
+
+自己这个游戏里的自由本身就是一种“我想干啥就干啥，比如在严肃场合做出巨魔发言”，自由竞争也是，这个逻辑下赶走王子自立为王也是自由的一种
+
+*****
+
+####  听风不是雨  
+##### 927#       发表于 2022-3-14 17:19
+
+<blockquote>LiberaMe 发表于 2022-3-14 17:14
+子安配的人我估计一定没死·····虽然也没再遇到</blockquote>
+后期入队npc，盲猜需要保粉毛族才能入队，因为设定上他是落水之后被粉毛族的人救了，但是失忆了很久，突然有一天想起了主角团的事才决定来加入，我打的管家线他是在攻打教国前加入，正好打教国第一战就是打一大批骑兵，圣也是对马特攻，正好顶罗兰的位置
+
+*****
+
+####  riin1  
+##### 928#       发表于 2022-3-14 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55039532&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-13 23:19</a>
+
+其实主角帮忙啥的都是其次，主要还是要用七圣人这个位置收买主角，而主角他们确实也需要外援 ...</blockquote>
+还是太怪了，首先主角的信仰能支撑这个地位吗，盐国教内该有多少不满的声音？其次七圣人权限或多或少都有可能接触国家机密吧，这是个巨大的风险。其他六个圣人应该还是互相知根知底的（？）
+
