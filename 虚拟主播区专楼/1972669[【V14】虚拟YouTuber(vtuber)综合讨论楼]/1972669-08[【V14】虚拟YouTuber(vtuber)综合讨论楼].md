@@ -10849,3 +10849,15 @@ Now Singing...未来への咆哮
 有人降低了nanamori和活动者A的对话音高，有P丸粉听一下这东西顶真吗？
 [https://twitter.com/5AHKnB6KZ4MXeCL/status/1502311725663547393](https://twitter.com/5AHKnB6KZ4MXeCL/status/1502311725663547393)
 
+
+
+*****
+
+####  Ketestrait  
+##### 11467#       发表于 2022-3-14 10:38
+
+<img src="https://tva3.sinaimg.cn/large/7c16af6bly1h097lnghxhj21hc0u01bv.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax2.sinaimg.cn/large/7c16af6bly1h097lrcf6uj21hc0u07rn.jpg" referrerpolicy="no-referrer">
+
+提问：业界人脉最差的箱是____
+

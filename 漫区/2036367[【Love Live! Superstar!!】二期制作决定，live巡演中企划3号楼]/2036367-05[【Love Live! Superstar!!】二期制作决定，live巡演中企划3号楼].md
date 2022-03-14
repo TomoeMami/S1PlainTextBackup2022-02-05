@@ -5289,3 +5289,30 @@ EB3B0162-E04B-4C25-98F6-0B2FD00628CC.jpeg
 
 别的动画组分割是为了中途给制作人员修整下..日升你不做裂裂动画 马上就马不停蹄的做虹咲的动画了
 
+
+
+*****
+
+####  D麦林  
+##### 6417#       发表于 2022-3-14 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55034584&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-3-14 08:45</a>
+很喜欢贴吧那句话，吹吹不到河内，骂骂不到京极。
+
+星很明显的分割放送吧，那个摆烂的结局就好像24集播到12 ...</blockquote>
+怎么可能没人画萝卜 今年除了多安之岛还有水星的魔女呢 都是被寄予厚望的大作（
+
+*****
+
+####  ads147147  
+##### 6418#       发表于 2022-3-14 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55035954&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-3-14 10:36</a>
+
+怎么可能没人画萝卜 今年除了多安之岛还有水星的魔女呢 都是被寄予厚望的大作（ ...</blockquote>
+想起那句话：
+
+痞子：等jump上的机甲漫画动画化，就会有超越鬼灭的机甲动画作品了。
+
+水星现在都没谱，我是觉得大概率第二个钢钉。
+

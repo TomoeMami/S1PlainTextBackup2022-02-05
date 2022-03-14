@@ -722,3 +722,19 @@ fs流动率一直很大，基本都是招新为主，社内平均年龄也都很
 冷知识2：当年任天 ...</blockquote>
 gwy是哪
 
+
+
+*****
+
+####  barry.allen  
+##### 68#       发表于 2022-3-14 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55033649&amp;ptid=2057631" target="_blank">ts1abaras 发表于 2022-3-14 02:07</a>
+
+照理说人员流动性应该很大，而且项目会不稳定。
+
+但几年稳定一个大作，美术关卡也一直在线，这说明？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">美术和关卡设计待遇不低，团队稳定
+
+程序优化之类的估计是临时工干的
+
