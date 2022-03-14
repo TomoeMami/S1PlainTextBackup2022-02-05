@@ -6594,3 +6594,39 @@ zqsg采访原来还有</blockquote>
 你咩姐推特转发的vcp节目组弄来的记者采访稿（下篇）
 [https://premium.kai-you.net/article/500](https://premium.kai-you.net/article/500)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9709#       发表于 2022-3-14 22:22
+
+注册了个号，结果还要会员付费才能看全文，不要太过分了霓虹人，国产乐色新闻网站下载APP也能看了啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  路人庚  
+##### 9710#       发表于 2022-3-14 22:26
+
+你咩姐给一个今天刚出道的虚拟人的翻唱曲唱了几段和声
+
+新虚拟人的翻唱曲链接：[https://youtu.be/68L95eq-Ixg](https://youtu.be/68L95eq-Ixg)
+
+<img src="https://img.saraba1st.com/forum/202203/14/222525xwxxtmb3ejj66pfp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EEC3F130-D419-4CF6-83C9-861D3BEF80F0.jpeg</strong> (314.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/222627pkood2hhsd1n5t2s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>975FD3CE-F27B-46A3-80A6-63BEEA5E92E6.jpeg</strong> (171.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 22:26 上传
+
