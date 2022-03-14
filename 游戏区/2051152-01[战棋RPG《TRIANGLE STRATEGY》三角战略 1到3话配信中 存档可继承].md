@@ -10085,3 +10085,46 @@ ok，懂了
 
 教国的圣人们汇报的那个帐篷里是不是压根就没人或者坐着个上去踹一脚只会“嗯，开饭啦？”的老头儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  听风不是雨  
+##### 908#       发表于 2022-3-14 13:07
+
+<blockquote>LiberaMe 发表于 2022-3-14 12:58
+我说，谁跟我透个信？
+
+教国的圣人们汇报的那个帐篷里是不是压根就没人或者坐着个上去踹一脚只会“嗯，开饭 ...</blockquote>
+没人算是说对了，里面的东西确实不太算人
+
+*****
+
+####  DARK_HGCG  
+##### 909#       发表于 2022-3-14 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55037880&amp;ptid=2051152" target="_blank">LiberaMe 发表于 2022-3-14 12:58</a>
+
+我说，谁跟我透个信？
+
+教国的圣人们汇报的那个帐篷里是不是压根就没人或者坐着个上去踹一脚只会“嗯，开饭 ...</blockquote>
+里面是一个女机器人
+
+能全屏攻击我方所有TP在3以上的人，简直恶心
+
+*****
+
+####  dren_zheng  
+##### 910#       发表于 2022-3-14 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55033947&amp;ptid=2051152" target="_blank">riin1 发表于 2022-3-14 05:50</a>
+
+这个剧本一个不太合理的地方就是主角的七圣人定位，描写得过于仓促简单，把盐国的委任写的不太合理 ...</blockquote>
+这个不合理，最大的原因在于路线发展方式，是多路线然后会合再分歧的
+
+会导致一些共同的剧情设定，如果走的特定路线会显得很不合理，需要在特定路线时才合理
+
+我一周目走的是交出罗兰、交出部族、跟盐国一起抗争铁国、炸水库的线，那么主角成为七圣人就挺合理的，同理罗兰因为一系列苦难最终卖国也挺合理
+
+二周目走的完美线，主角七圣人就莫名其妙了，罗兰卖国也非常突兀
+
