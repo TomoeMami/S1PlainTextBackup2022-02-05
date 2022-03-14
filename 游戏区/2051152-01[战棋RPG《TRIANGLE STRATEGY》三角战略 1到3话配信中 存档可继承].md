@@ -10491,3 +10491,25 @@ ok，懂了
 
 感谢，肯定不会二周目的，那就让王子去送了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HGCG3  
+##### 944#       发表于 2022-3-14 22:58
+
+粉毛酋长居然没一条路线可以收？
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 945#       发表于 2022-3-14 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042122&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-14 18:55</a>
+封建小国，外敌环伺，一日怀璧，惨遭兵灾
+
+贵族主角，武德丰沛，杀人放火，走私整活
+
+遇事投票，仅限家将，表 ...</blockquote>
+下期视频你来写稿<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
