@@ -10350,3 +10350,44 @@ ok，懂了
 还是太怪了，首先主角的信仰能支撑这个地位吗，盐国教内该有多少不满的声音？其次七圣人权限或多或少都有 ...</blockquote>
 教国人基本都是放弃思考的，只要说“这是教皇的命令”就没人敢反对，而且资信不发达的年代，民众哪知道他实际上虔诚不虔诚，教皇说他是他就是
 
+
+
+*****
+
+####  HGCG3  
+##### 933#       发表于 2022-3-14 18:55
+
+封建小国，外敌环伺，一日怀璧，惨遭兵灾
+
+贵族主角，武德丰沛，杀人放火，走私整活
+
+遇事投票，仅限家将，表面民主，幕后暗箱
+
+夺了国王鸟位，操翻宗教势力，打破行业垄断，大力发展经济，贫富差距扩大，引发国内叛乱
+
+这真是个奇葩小国
+
+<img src="https://img.saraba1st.com/forum/202203/14/185403n01mvbmar03n0aay.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (267.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 18:54 上传
+
+*****
+
+####  llysander  
+##### 934#       发表于 2022-3-14 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042122&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-14 18:55</a>
+
+封建小国，外敌环伺，一日怀璧，惨遭兵灾
+
+贵族主角，武德丰沛，杀人放火，走私整活
+
+遇事投票，仅限家将，表 ...</blockquote>
+喜欢这个结局，加冕的时候还没人上来送左轮。
+
+所谓投票只是观察家臣倾向的信息收集手段<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这波在第五层
+

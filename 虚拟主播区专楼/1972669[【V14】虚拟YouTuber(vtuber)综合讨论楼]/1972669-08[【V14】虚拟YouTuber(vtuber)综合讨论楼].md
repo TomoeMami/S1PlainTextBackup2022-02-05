@@ -10870,3 +10870,17 @@ Now Singing...未来への咆哮
 
 我怎么不记得虹有几个打猛汉的
 
+
+
+*****
+
+####  FCCHua  
+##### 11469#       发表于 2022-3-14 18:53
+
+[https://youtu.be/RjQlLJInKU8](https://youtu.be/RjQlLJInKU8)
+コーラスに関しては左右で音が分かれてます🥳
+左はリサとヘンディーさん
+右はひなのとかみとさん！
+聴き比べてみてくれぃっ💁‍♀️
+noah不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
