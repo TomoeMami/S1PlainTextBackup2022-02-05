@@ -14971,3 +14971,27 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 御田这两父子是真的把人看恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  C男人  
+##### 56743#       发表于 2022-3-14 19:24
+
+物品吃果实这事儿还是太奇怪了。
+
+虽然有过 “吃了狗狗果实的枪”，但好歹能明白是把果实塞枪口里了。
+
+如果把果实放在草帽里就算吃了，
+
+那用来装果实的篮子、盘子都变成果实能力者。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gs2-d2up  
+##### 56744#       发表于 2022-3-14 19:28
+
+草帽如果吃了果实还挺有趣的，也正好把草帽当做第十个伙伴。
+

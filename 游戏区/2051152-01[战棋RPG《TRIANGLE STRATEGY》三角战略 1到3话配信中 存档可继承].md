@@ -10391,3 +10391,40 @@ ok，懂了
 
 所谓投票只是观察家臣倾向的信息收集手段<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这波在第五层
 
+
+
+*****
+
+####  riin1  
+##### 935#       发表于 2022-3-14 19:21
+
+60h通关了一周目老婆线，我总感觉最后主角没死
+
+不过最后这群人如愿到了centralia还挺不错的，如果有续作倒是反而有可能在这个新大陆上展开
+
+*****
+
+####  riin1  
+##### 936#       发表于 2022-3-14 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042241&amp;ptid=2051152" target="_blank">llysander 发表于 2022-3-14 03:06</a>
+
+喜欢这个结局，加冕的时候还没人上来送左轮。
+
+所谓投票只是观察家臣倾向的信息收集手段这波在第五 ...</blockquote>
+记名投票，谁同意，谁反对<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Magnesium  
+##### 937#       发表于 2022-3-14 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026669&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-13 14:30</a>
+
+英文语音建议不要听，真的毫无情感，也不清楚有没有技术
+
+在后面的有一章，发现了某个重要事项的时候，日 ...</blockquote>
+军师日语 CV 上田燿司的演绎非常棒，前期没什么感觉，最后定解决的投票之后的表演非常突出，军师线和老婆线都有非常出色的表演（其他线还没玩），一条线老军师的鞠躬尽瘁完全表演出来了，另一条线的表演也是燃爆。
+
+可惜像素演出太拉了，就是小人平移加点粒子特效，还不如皮影戏。
+
