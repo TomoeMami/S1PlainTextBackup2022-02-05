@@ -5243,3 +5243,18 @@ EB3B0162-E04B-4C25-98F6-0B2FD00628CC.jpeg
 
 算了，大不了就当是十月接唐诱2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kria  
+##### 6414#       发表于 2022-3-14 08:35
+
+<blockquote>普之舜舜 发表于 2022-3-13 22:11
+说起拉拉群，我推荐一个大群：
+
+822810082
+
+这群里面很多拉拉人，气氛也不错。</blockquote>
+不会踢人？我不時常在
+
