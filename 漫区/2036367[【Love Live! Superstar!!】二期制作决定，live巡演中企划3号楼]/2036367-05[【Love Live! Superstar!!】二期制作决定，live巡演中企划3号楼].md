@@ -5662,3 +5662,17 @@ FMH66UDaMAQ1yeL.jpg
 
 <img src="https://img.saraba1st.com/forum/202203/14/222748y5c1tzk0klii1b3i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6440#       发表于 2022-3-14 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043264&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-14 20:29</a>
+
+Sayurin这基本纯新人，广播还直接拿了个大奖，傻子都知道该猛推吧
+
+  -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得奖的这个广播本身就是猛推的一环啊
+

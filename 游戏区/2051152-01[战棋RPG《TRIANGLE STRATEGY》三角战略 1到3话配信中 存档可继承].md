@@ -10513,3 +10513,22 @@ ok，懂了
 遇事投票，仅限家将，表 ...</blockquote>
 下期视频你来写稿<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PLuckSword  
+##### 946#       发表于 2022-3-14 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042524&amp;ptid=2051152" target="_blank">Magnesium 发表于 2022-3-14 19:35</a>
+
+军师日语 CV 上田燿司的演绎非常棒，前期没什么感觉，最后定解决的投票之后的表演非常突出，军师线和老婆 ...</blockquote>
+选了老婆线后那段冲突真心赞爆
+
+*****
+
+####  Aresu  
+##### 947#       发表于 2022-3-14 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个打架演出太兼用卡了 信念不够看罗兰线 老婆离队也有打架吗
+
