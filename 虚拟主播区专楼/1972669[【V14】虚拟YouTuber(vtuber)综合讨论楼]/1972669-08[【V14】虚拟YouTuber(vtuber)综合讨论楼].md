@@ -10926,3 +10926,27 @@ noah不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 是时候集合管人的阴暗面（毕业生）出个企划了
 
+
+
+*****
+
+####  宫宝兔丁  
+##### 11475#       发表于 2022-3-14 20:54
+
+叶这3D太好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11476#       发表于 2022-3-14 21:04
+
+黑黑两人的3D都改了好几版了吧，就是技术菜了点
+
+syl，おれあぽインタビュー最后的最后还特别要求加了一句
+
+※お二人の間に恋愛感情は一切ない、とのことです。
+
+这不是flag都不行了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+以此为契机解散是吧
+

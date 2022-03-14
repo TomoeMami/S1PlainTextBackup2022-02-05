@@ -10446,3 +10446,15 @@ ok，懂了
 
 这游戏战斗中死人会涉及剧情么，会的话要SL了
 
+
+
+*****
+
+####  leachiman  
+##### 940#         楼主| 发表于 2022-3-14 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043337&amp;ptid=2051152" target="_blank">红魔馆的糖 发表于 2022-3-14 20:35</a>
+
+这游戏战斗中死人会涉及剧情么，会的话要SL了</blockquote>
+不影响
+
