@@ -10482,3 +10482,12 @@ ok，懂了
 
 一周目就别折腾自己打困难不死人了，阵容和培养都不成型，太累
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 943#       发表于 2022-3-14 21:37
+
+感谢，肯定不会二周目的，那就让王子去送了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
