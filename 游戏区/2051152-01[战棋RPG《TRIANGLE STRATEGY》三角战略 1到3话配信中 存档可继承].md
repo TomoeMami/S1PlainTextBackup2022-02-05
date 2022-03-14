@@ -10532,3 +10532,44 @@ ok，懂了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个打架演出太兼用卡了 信念不够看罗兰线 老婆离队也有打架吗
 
+
+
+*****
+
+####  CQTK  
+##### 948#       发表于 2022-3-15 02:10
+
+死人之后撤退重打还算死亡吗，自动存档竟然用一次就消失了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  灰狼  
+##### 949#       发表于 2022-3-15 02:14
+
+<blockquote>Aresu 发表于 2022-3-14 23:16
+那个打架演出太兼用卡了 信念不够看罗兰线 老婆离队也有打架吗</blockquote>
+有啊，虽然那个就是老婆念了一堆咒男主单方面挨打
+
+*****
+
+####  听风不是雨  
+##### 950#       发表于 2022-3-15 02:55
+
+<blockquote>CQTK 发表于 2022-3-15 02:10
+死人之后撤退重打还算死亡吗，自动存档竟然用一次就消失了
+
+  -- 来自 有消息提醒的 Stage1官方 And ...</blockquote>
+因为撤退保留经验值和点数，所以死人后撤退是会导致最后拿不到复活饰品的
+
+*****
+
+####  CQTK  
+##### 951#       发表于 2022-3-15 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55046600&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-03-15 02:55:04</a>
+因为撤退保留经验值和点数，所以死人后撤退是会导致最后拿不到复活饰品的 ...</blockquote>好吧，看来还是得读档了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

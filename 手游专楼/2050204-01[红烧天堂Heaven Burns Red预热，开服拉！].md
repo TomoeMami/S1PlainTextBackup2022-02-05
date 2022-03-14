@@ -3094,3 +3094,20 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 我喜欢day11，两张地图，放置的时间可以比较长，不用一直盯着手机/平板，战斗全自动就可以，练度低一点应该也没事，全程有洛丽塔白毛辅助回血
 
+
+
+*****
+
+####  BrainDead  
+##### 275#       发表于 2022-3-15 02:59
+
+第三章Free Time去音乐室，选第三个选项整理乐器。。。居然有刀，我傻了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202203/15/025829fbpp2zqquuqcil6o.jpg" referrerpolicy="no-referrer">
+
+<strong>BSM{5VU@N]11ZM4(9PTV0{2.jpg</strong> (203.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-15 02:58 上传
+
