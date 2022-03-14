@@ -5372,3 +5372,17 @@ EB3B0162-E04B-4C25-98F6-0B2FD00628CC.jpeg
 ----发送自 Xiaomi Redmi K20 Pro,Android  ...</blockquote>
 还等着菜宝多爆点配音现场的料，而且多一份工资也好<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 6424#       发表于 2022-3-14 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55032718&amp;ptid=2036367" target="_blank">Skyline_R 发表于 2022-3-13 23:56</a>
+
+我印象里花田大老师在LL写的二期好像也一直都差点意思，包括缪2期感觉稍稍逊色与1期，水2期就别说了
+
+算了， ...</blockquote>
+现场乐队伴奏，随便安了个名字
+
