@@ -9981,3 +9981,43 @@ ok，懂了
 
 刚玩到第三章，话说这个立绘是不是有点太......露骨了点，出场的七圣人和男主国家的贵族看面相就非善类（医法院院长还挺好看的）。还有探索模式一按R加速眼睛就花了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 899#       发表于 2022-3-14 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036019&amp;ptid=2051152" target="_blank">Niyah 发表于 2022-3-14 10:41</a>
+
+刚玩到第三章，话说这个立绘是不是有点太......露骨了点，出场的七圣人和男主国家的贵族看面相就非善类（医 ...</blockquote>
+反正我觉得大部分都不像好人，难得几个配角看着顺眼点。
+
+王子算长得像好人的了。
+
+男主本身一脸不像好人的样子。
+
+*****
+
+####  灰狼  
+##### 900#       发表于 2022-3-14 10:56
+
+ 本帖最后由 灰狼 于 2022-3-14 10:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036202&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-14 10:54</a>
+
+反正我觉得大部分都不像好人，难得几个配角看着顺眼点。
+
+王子算长得像好人的了。
+
+男主本身一脸不像好人的 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/14/105623kk2ek5m78okqa8m5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220311152901.png</strong> (13.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 10:56 上传
+
+网上看到的呆萌图
+
