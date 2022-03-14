@@ -10021,3 +10021,22 @@ ok，懂了
 
 网上看到的呆萌图
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 901#       发表于 2022-3-14 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036242&amp;ptid=2051152" target="_blank">灰狼 发表于 2022-3-14 10:56</a>
+
+网上看到的呆萌图</blockquote>
+基本上画成这样都能变萌吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 902#       发表于 2022-3-14 11:19
+
+话说看发色，我总觉得老皇帝头上多少带点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -5316,3 +5316,26 @@ EB3B0162-E04B-4C25-98F6-0B2FD00628CC.jpeg
 
 水星现在都没谱，我是觉得大概率第二个钢钉。
 
+
+
+*****
+
+####  D麦林  
+##### 6419#       发表于 2022-3-14 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036009&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-3-14 10:40</a>
+
+想起那句话：
+
+痞子：等jump上的机甲漫画动画化，就会有超越鬼灭的机甲动画作品了。</blockquote>
+要是水星也寄了的话那我觉得以后也别做什么高达TV动画了 安心搞胶吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 6420#       发表于 2022-3-14 11:11
+
+鲤鱼现在日语进步挺多的，相比一年前。也不一定要菜宝帮忙了吧
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
