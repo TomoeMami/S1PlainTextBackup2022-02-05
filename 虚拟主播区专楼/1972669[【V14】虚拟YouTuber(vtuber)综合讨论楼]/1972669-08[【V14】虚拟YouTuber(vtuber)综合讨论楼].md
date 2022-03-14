@@ -10902,3 +10902,27 @@ noah不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 润姨这同接，虹杏什么垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 11472#       发表于 2022-3-14 20:30
+
+刚发现おれあぽインタビュー出了
+简直大型flag啊……
+
+*****
+
+####  IDIDIDID  
+##### 11473#       发表于 2022-3-14 20:31
+
+你虹怎么还没有给一哥二哥修一下3D
+
+*****
+
+####  藤原银  
+##### 11474#       发表于 2022-3-14 20:43
+
+是时候集合管人的阴暗面（毕业生）出个企划了
+

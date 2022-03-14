@@ -2719,3 +2719,39 @@ se对这个IP就没上心过吧，除了个破手游就是在各种作品里联�
 
 手游设计的几个角色和原创形态挺好的
 
+
+
+*****
+
+####  chiefshi  
+##### 271#       发表于 2022-3-14 20:28
+
+现在在模拟器上玩一代是ps1版的好还是psp版的好啊
+
+*****
+
+####  whzfjk  
+##### 272#       发表于 2022-3-14 20:30
+
+就这批发的高端特效 GUST 那也是拍马都追不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫将军  
+##### 273#       发表于 2022-3-14 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55002039&amp;ptid=2056968" target="_blank">无动于衷 发表于 2022-3-11 10:54</a>
+一个想法不一定对
+
+吹北欧女神系列的人无一例外都是在吹战斗系统</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生存档案也就蹭个vp热度，游戏系统一塌糊涂
+
+*****
+
+####  猫将军  
+##### 274#       发表于 2022-3-14 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043251&amp;ptid=2056968" target="_blank">chiefshi 发表于 2022-3-14 20:28</a>
+现在在模拟器上玩一代是ps1版的好还是psp版的好啊</blockquote>
+ps1版有伪决 爽快度肯定ps1版
+

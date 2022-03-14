@@ -6530,3 +6530,42 @@ nmd倒是自己玩下这手游啊<img src="https://static.saraba1st.com/image/sm
 
 VCP
 
+
+
+*****
+
+####  路人庚  
+##### 9706#       发表于 2022-3-14 20:21
+
+ 本帖最后由 路人庚 于 2022-3-14 20:35 编辑 
+
+zqsg采访原来还有
+
+<img src="https://img.saraba1st.com/forum/202203/14/202343zhkk59uvzu9t4s9k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D5E8F791-B3F6-49D7-9D3D-03195FCF432A.jpeg</strong> (254.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 20:23 上传
+
+你咩姐也要小小的凡尔赛一把（）
+
+（虽然后来也是说过最开始确实没搞清楚是会拿到钱的比赛
+
+<img src="https://img.saraba1st.com/forum/202203/14/202805d7v6rglwzftt3kvm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>113CB13F-B73D-450F-A9D1-6AA0AEDE4B18.jpeg</strong> (222.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 20:28 上传
+
+排练和商谈多到脑子晕掉
+
+虽然没空开播但也还是用各种方式开播
+
+太难了已经记不太清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（采访精准踩雷，虽然这雷基本也避不开
+
+后面没注册看不到了（等一个有能人<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
