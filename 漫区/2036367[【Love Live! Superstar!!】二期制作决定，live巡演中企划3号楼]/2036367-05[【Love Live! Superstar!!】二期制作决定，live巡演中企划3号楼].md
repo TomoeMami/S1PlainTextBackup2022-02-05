@@ -5697,3 +5697,16 @@ Sayurin这基本纯新人，广播还直接拿了个大奖，傻子都知道该�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，第一排，哈哈，节目性拉满。
 
+
+
+*****
+
+####  iuhehc  
+##### 6443#       发表于 2022-3-15 07:09
+
+ 本帖最后由 iuhehc 于 2022-3-15 07:11 编辑 
+
+不过那位鲤友的vlog被鲤鱼大半夜点赞了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
