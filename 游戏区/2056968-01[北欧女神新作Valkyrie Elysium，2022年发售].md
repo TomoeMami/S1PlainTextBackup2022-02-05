@@ -2670,3 +2670,12 @@ Wanted:Dead出新预告才想起，松井宏明、冈本好古近年都在搞这
 
 生存档案就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个系统和数值也想碰瓷？唯一一个气的我直接导到破解psv里自己写金手指的游戏
 
+
+
+*****
+
+####  Mercurius.  
+##### 267#       发表于 2022-3-14 09:02
+
+不知道的还以为这画面是要上NS
+
