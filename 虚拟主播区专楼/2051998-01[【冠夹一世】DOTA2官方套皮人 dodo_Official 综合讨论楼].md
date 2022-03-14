@@ -4318,3 +4318,12 @@ dodo能不能过生日来个SFsolo啊。
 
 刀狗从来不是穷逼，只是不给刀塔主播打钱罢了。
 
+
+
+*****
+
+####  反方向的波  
+##### 510#       发表于 2022-3-14 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夹夹今天要被打哭喽，16分钟0/8/1
+

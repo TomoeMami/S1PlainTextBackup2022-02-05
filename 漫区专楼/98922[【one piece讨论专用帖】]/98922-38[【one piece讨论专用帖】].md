@@ -14995,3 +14995,23 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 草帽如果吃了果实还挺有趣的，也正好把草帽当做第十个伙伴。
 
+
+
+*****
+
+####  kf9999  
+##### 56745#       发表于 2022-3-14 19:52
+
+草帽如果吃了果实，那巴基历史评价得再往上升了，当年3把飞刀把草帽捅穿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 56746#       发表于 2022-3-14 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042423&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-14 19:24</a>
+物品吃果实这事儿还是太奇怪了。
+
+虽然有过 “吃了狗狗果实的枪”，但好歹能明白是把果实塞枪口里了。</blockquote>
+吃果实的物品仅限动物系，原理和人造恶魔果实差不多。
+
