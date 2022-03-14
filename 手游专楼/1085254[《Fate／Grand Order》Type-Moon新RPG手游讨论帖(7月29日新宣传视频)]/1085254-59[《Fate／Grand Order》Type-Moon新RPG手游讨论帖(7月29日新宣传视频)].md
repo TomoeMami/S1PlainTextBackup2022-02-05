@@ -2447,3 +2447,14 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还好吧，小牛那个本，第一面调整好技能cd和np满了进二面，筋肉ruler两个宝具小牛就归西了，完全不费力
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 87216#       发表于 2022-3-14 18:05
+
+光是出设定图，你快点在手机端实装啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+我现在就想要提妈和梅莉！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

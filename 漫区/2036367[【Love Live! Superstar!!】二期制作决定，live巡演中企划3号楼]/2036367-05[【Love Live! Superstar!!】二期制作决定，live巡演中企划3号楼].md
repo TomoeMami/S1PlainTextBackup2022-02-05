@@ -5442,3 +5442,20 @@ Pay子世界史拿到5分开始得瑟了</blockquote>
 Pay子世界史拿到5分开始得瑟了</blockquote>
 这XXX最讨厌了的强者发言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 6431#       发表于 2022-3-14 18:10
+
+现地说小星星「ひとすじの流れ星」那一句有特殊灯光演出
+
+<img src="https://img.saraba1st.com/forum/202203/14/181008f9c0lbka5s6nms09.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (104.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 18:10 上传
+
