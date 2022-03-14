@@ -5688,3 +5688,12 @@ Sayurin这基本纯新人，广播还直接拿了个大奖，傻子都知道该�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cat1230  
+##### 6442#       发表于 2022-3-15 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，第一排，哈哈，节目性拉满。
+
