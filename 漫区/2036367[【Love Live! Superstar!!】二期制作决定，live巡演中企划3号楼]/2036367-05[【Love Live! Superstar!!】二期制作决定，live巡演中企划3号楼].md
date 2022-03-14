@@ -5563,3 +5563,75 @@ EB67F179-195D-456D-8D57-AF27E96C888F.jpeg
 
 作者：@haruman4628<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 6437#       发表于 2022-3-14 22:24
+
+pay创造俱乐部的吉祥物，比打铁人偶，红薯美正常太多<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202203/14/222327sb0p0ngwpn0bf4ln.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220314221438.png</strong> (61.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 22:23 上传
+
+FLj6bfkaUAAT4n0.jpg
+(613.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/222337doh4cbro0jkjrw4v.jpg" referrerpolicy="no-referrer">
+
+FMH66UDaMAQ1yeL.jpg
+(337.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-14 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202203/14/222341x33wb5vztypwmrtw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 6438#       发表于 2022-3-14 22:24
+
+第7回アニラジアワード 
+
+癒しラジオ賞　『上田麗奈のひみつばこ』 
+
+大笑いラジオ賞　『ホロライブpresents Vのすこんなオタ活なんだワ！』 
+
+ためになるラジオ賞　『富田美憂・前田佳織里の“調査のご依頼、お待ちしてます！”』 
+
+企画ラジオ賞　『小林さんのラジオは９番目ぐらいを目指す』 
+
+復活希望ラジオ賞　『ここいば！』 
+
+ひとりラジオ賞　『Salon de Tanedaへようこそ♪』 
+
+特別ラジオ賞　『鷲崎健・千葉翔也 今んとこやや好き』 
+
+最優秀男性ラジオ賞　『東海オンエア虫眼鏡・島﨑信長 声YouラジオZ』 
+
+かわいいラジオ賞　『ラジオどっとあい 伊達さゆりの伊達ちゃんは伊達じゃない！！！』 
+
+え　ちなラジオ賞　『異種族レビュアーズ 食酒亭ラジオ』 
+
+かっこいいラジオ賞　『神尾晋一郎チャンネル』 
+
+最優秀男女ラジオ賞　『告RADIO3』 
+
+最優秀女性ラジオ賞　『夕実＆梨沙のラフストーリーは突然に』 
+
+最優秀ラジオ大賞　『夕実＆梨沙のラフストーリーは突然に』 
+
+这个奖分类还挺有意思的，除了打铁，146也一起拿了一个。
+

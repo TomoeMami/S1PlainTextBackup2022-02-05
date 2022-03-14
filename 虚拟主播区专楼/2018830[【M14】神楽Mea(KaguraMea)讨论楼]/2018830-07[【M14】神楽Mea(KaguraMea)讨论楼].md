@@ -6580,3 +6580,17 @@ zqsg采访原来还有
 zqsg采访原来还有</blockquote>
 这个的来源是？
 
+
+
+*****
+
+####  路人庚  
+##### 9708#       发表于 2022-3-14 22:08
+
+ 本帖最后由 路人庚 于 2022-3-14 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55044268&amp;ptid=2018830" target="_blank">TiHaru 发表于 2022-3-14 21:53</a>
+
+这个的来源是？</blockquote>
+你咩姐推特转发的vcp节目组弄来的记者采访稿（下篇）
+[https://premium.kai-you.net/article/500](https://premium.kai-you.net/article/500)
+
