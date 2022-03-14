@@ -10040,3 +10040,28 @@ ok，懂了
 
 话说看发色，我总觉得老皇帝头上多少带点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  繭  
+##### 903#       发表于 2022-3-14 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036573&amp;ptid=2051152" target="_blank">古畑任三郎2015 发表于 2022-3-14 11:19</a>
+话说看发色，我总觉得老皇帝头上多少带点</blockquote>
+金发随着年龄增长越变越深是正常的，至于男主那大概是随妈吧
+
+*****
+
+####  繭  
+##### 904#       发表于 2022-3-14 12:29
+
+不如说幸好男主发色没随爹，不然那才是要出大问题了
+
+*****
+
+####  天妇罗  
+##### 905#       发表于 2022-3-14 12:37
+
+看来这游戏真的不是碰瓷皇骑FFT哦，有真材实料的
+

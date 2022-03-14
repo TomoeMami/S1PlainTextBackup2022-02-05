@@ -5359,3 +5359,16 @@ EB3B0162-E04B-4C25-98F6-0B2FD00628CC.jpeg
 ----发送自 Xiaomi Redmi K20 Pro,Android  ...</blockquote>
 但何必呢？让菜宝多领份工资＋多点酸菜鱼工作交流不香吗？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 6423#       发表于 2022-3-14 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55036456&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-3-14 11:11</a>
+鲤鱼现在日语进步挺多的，相比一年前。也不一定要菜宝帮忙了吧
+
+----发送自 Xiaomi Redmi K20 Pro,Android  ...</blockquote>
+还等着菜宝多爆点配音现场的料，而且多一份工资也好<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
