@@ -15015,3 +15015,17 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 虽然有过 “吃了狗狗果实的枪”，但好歹能明白是把果实塞枪口里了。</blockquote>
 吃果实的物品仅限动物系，原理和人造恶魔果实差不多。
 
+
+
+*****
+
+####  柏露伯德  
+##### 56747#       发表于 2022-3-14 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55033187&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-3-14 00:42</a>
+
+这是夺舍了？路飞变成游戏王那样的两个人格？</blockquote>
+双人格 vs 双果实
+
+不吃亏
+

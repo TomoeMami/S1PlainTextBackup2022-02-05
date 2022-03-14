@@ -10458,3 +10458,27 @@ ok，懂了
 这游戏战斗中死人会涉及剧情么，会的话要SL了</blockquote>
 不影响
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 941#       发表于 2022-3-14 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043337&amp;ptid=2051152" target="_blank">红魔馆的糖 发表于 2022-3-14 20:35</a>
+
+这游戏战斗中死人会涉及剧情么，会的话要SL了</blockquote>
+据说完全不死人通关以后给一个饰品，50%几率复活。
+
+*****
+
+####  dren_zheng  
+##### 942#       发表于 2022-3-14 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043337&amp;ptid=2051152" target="_blank">红魔馆的糖 发表于 2022-3-14 20:35</a>
+
+这游戏战斗中死人会涉及剧情么，会的话要SL了</blockquote>
+不死人通关给个饰品
+
+一周目就别折腾自己打困难不死人了，阵容和培养都不成型，太累
+
