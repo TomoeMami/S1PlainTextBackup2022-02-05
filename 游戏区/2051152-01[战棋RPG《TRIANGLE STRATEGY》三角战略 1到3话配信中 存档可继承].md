@@ -9866,3 +9866,17 @@ ok，懂了
 
 以及管家的塑造真的把隔壁风华雪月那个小黑吊着打
 
+
+
+*****
+
+####  llysander  
+##### 888#       发表于 2022-3-14 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55026935&amp;ptid=2051152" target="_blank">萝卜迷 发表于 2022-3-13 15:02</a>
+
+道具真不能无限刷吗？</blockquote>
+看偷窃列表应该是可以的，消耗品大多都在杂兵身上，想定奖励也有
+
+不过这也太折磨了
+
