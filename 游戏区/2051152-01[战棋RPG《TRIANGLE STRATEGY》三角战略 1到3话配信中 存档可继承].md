@@ -10745,3 +10745,17 @@ ok，懂了
 
 天气姐姐的全屏雷击似乎很厉害？
 
+
+
+*****
+
+####  Aresu  
+##### 967#       发表于 2022-3-15 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55053915&amp;ptid=2051152" target="_blank">洗洁精 发表于 2022-3-15 16:51</a>
+
+天气姐姐的全屏雷击似乎很厉害？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">命中十分有问题 带了首饰平均命中只有三四十
+
+不过敌方奶妈少的时候开场sl一下还是可以晕几个人的 比如15章回去找西蒙那关
+
