@@ -6044,3 +6044,14 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 [http://fate.5ch.net/test/read.cgi/lovelive/1647342287](http://fate.5ch.net/test/read.cgi/lovelive/1647342287)
 [https://www.youtube.com/watch?v=2ljiPvTJ-PM](https://www.youtube.com/watch?v=2ljiPvTJ-PM)
 
+
+
+*****
+
+####  Enakina  
+##### 6472#       发表于 2022-3-15 21:50
+
+大家是不是有点想多了啊，之前一巡鲤鱼指观众让换色，吐槽说好好听我说话之类的都有人担忧，可根本没那么夸张啊。我咋看的是这些东西最多是被某吧拿来当论点去硬带呢，还带的特别尬
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
