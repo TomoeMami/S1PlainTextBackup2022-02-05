@@ -1631,3 +1631,16 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 能接受延迟的话橘子服也行，不能的话除了日服也没选择了
 
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 96#       发表于 2022-3-16 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54827345&amp;ptid=2046838" target="_blank">全装甲夏亚 发表于 2022-2-25 13:52</a>
+有没有推荐的主机服务器啊，日服打不下去了，转换器大佐队打不过啊</blockquote>
+美服吧，美服比欧服好，欧服队友真的各种奇葩。（指铂金段位）
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
