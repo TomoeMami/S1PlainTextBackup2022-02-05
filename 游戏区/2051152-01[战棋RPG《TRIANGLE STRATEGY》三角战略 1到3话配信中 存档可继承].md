@@ -10817,3 +10817,15 @@ ok，懂了
 
 理论上4条线里面只有2条是和女主成功CP的，剩下一条姑且算有个CP（虽然对象有点怪），另一套线么...
 
+
+
+*****
+
+####  dren_zheng  
+##### 973#       发表于 2022-3-15 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55056694&amp;ptid=2051152" target="_blank">Meltina 发表于 2022-3-15 20:48</a>
+
+有没有人给点建议这游戏过程中震动对体验的影响大不大，一般是什么时候有震动的？正在考虑要不要用Lite来玩 ...</blockquote>
+这游戏字体偏小，个人觉得不大适合掌机玩，特别是LITE
+
