@@ -7015,3 +7015,16 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9744#       发表于 2022-3-15 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55054777&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2022-3-15 17:57</a>
+她推没看到啊，这不会是b限联动吧</blockquote>
+[https://youtu.be/KwWNrpNdQuM](https://youtu.be/KwWNrpNdQuM)
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
