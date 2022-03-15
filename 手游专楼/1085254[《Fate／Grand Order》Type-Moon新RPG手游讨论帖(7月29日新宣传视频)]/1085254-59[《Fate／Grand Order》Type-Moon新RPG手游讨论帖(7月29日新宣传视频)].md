@@ -2458,3 +2458,17 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 我现在就想要提妈和梅莉！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  失落之翼  
+##### 87217#       发表于 2022-3-15 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55041618&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-3-14 18:05</a>
+
+光是出设定图，你快点在手机端实装啊
+
+我现在就想要提妈和梅莉！ ...</blockquote>
+不是说街机和手机版权有些不通么？所以团长硬是给嘎了鸡子性转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
