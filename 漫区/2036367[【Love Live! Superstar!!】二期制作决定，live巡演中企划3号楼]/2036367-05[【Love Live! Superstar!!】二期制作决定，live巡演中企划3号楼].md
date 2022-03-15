@@ -5828,3 +5828,14 @@ A74FBB9F-EA35-45C8-9EC0-1C6A4912B3F3.jpeg
 
 什么不默契 这叫十人十色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（五人五色
 
+
+
+*****
+
+####  player3960  
+##### 6453#       发表于 2022-3-15 16:33
+
+不默契是星团的特色，不得不品<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

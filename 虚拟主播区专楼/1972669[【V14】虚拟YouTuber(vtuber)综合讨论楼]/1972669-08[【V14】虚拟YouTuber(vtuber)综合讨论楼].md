@@ -10985,3 +10985,20 @@ syl，おれあぽインタビュー最后的最后还特别要求加了一句</
 
 草有点好笑，yugo播原神封面用了国人画手描图es卡面的fa，推上有人出警然后被国内es粉发现搬来微博挂结果转发一溜的“是原批啊那没事了”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃咸菜的  
+##### 11480#       发表于 2022-3-15 16:27
+
+葛叶一专首周5w2
+<img src="https://p.sda1.dev/5/b379eb6fff8e56d5530d98912b4bde75/IMG_20220315_162651.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 11481#       发表于 2022-3-15 16:43
+
+🙋🧎🙇
+
