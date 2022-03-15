@@ -10867,3 +10867,15 @@ ok，懂了
 
 话说友军阵亡的话会影响不死成就么
 
+
+
+*****
+
+####  Aresu  
+##### 978#       发表于 2022-3-16 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55059564&amp;ptid=2051152" target="_blank">ryj 发表于 2022-3-16 01:22</a>
+
+话说友军阵亡的话会影响不死成就么</blockquote>
+会    
+
