@@ -6923,3 +6923,35 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 其实，我也没有挂过🍥<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 9736#       发表于 2022-3-15 13:30
+
+今年就是正式气死事业民的一年
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  往世雷书  
+##### 9737#       发表于 2022-3-15 13:34
+
+气死好啊，真正的事业民赚钱学技能去了，虚假的事业民只在论坛敲键盘。动画碟片排名视频里总有人说这个高了那个低了，一般都反问一句“你自己买了多少”，着急的事业民们自己又为数据增长做了多少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|欢乐多|
+
+查看全部评分
+

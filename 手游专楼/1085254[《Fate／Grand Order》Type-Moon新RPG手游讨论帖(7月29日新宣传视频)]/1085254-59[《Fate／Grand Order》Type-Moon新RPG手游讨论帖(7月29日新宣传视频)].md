@@ -2485,3 +2485,15 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 还好吧，小牛那个本，第一面调整好技能cd和np满了进二面，筋肉ruler两个宝具小牛就归西了，完全不费 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">筋肉ruler是哪个 金钻头?  一宝具能打300多万?
 
+
+
+*****
+
+####  sin.yugi  
+##### 87219#       发表于 2022-3-15 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55050714&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-14 23:40</a>
+
+筋肉ruler是哪个 金钻头?  一宝具能打300多万?</blockquote>
+对金砖头，小牛只有340万血，一个黑杯恶特攻宝具170万血很轻松。打掉一条血就结束了
+
