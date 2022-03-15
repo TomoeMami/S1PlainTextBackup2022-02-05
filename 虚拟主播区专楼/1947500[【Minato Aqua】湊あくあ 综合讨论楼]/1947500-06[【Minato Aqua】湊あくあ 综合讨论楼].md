@@ -8666,3 +8666,14 @@ twttier官方：鉴定为假
 
 除了会限从来没有公开说明不播，这也算休止吗
 
+
+
+*****
+
+####  面具13  
+##### 8487#       发表于 2022-3-15 23:02
+
+在夸宝那里不入会员的不算人，只是直播数据罢了，正直どうでもいい。打sc的很少有不是会员的。
+
+会限外自然不算休止，不过活动的是那个伪物vtwiiter<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 休止期间涨了好多推特关注呢
+
