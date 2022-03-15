@@ -10691,3 +10691,15 @@ ok，懂了
 
 有没有推荐的中文攻略站
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 962#       发表于 2022-3-15 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55051800&amp;ptid=2051152" target="_blank">linhaitora 发表于 2022-3-15 14:10</a>
+
+有没有推荐的中文攻略站</blockquote>
+中文就贴吧上搜搜看吧，wiki啥的只能看日文的了。
+
