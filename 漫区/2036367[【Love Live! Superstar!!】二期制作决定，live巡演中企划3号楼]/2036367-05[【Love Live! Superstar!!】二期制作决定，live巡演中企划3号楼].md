@@ -5863,3 +5863,64 @@ A74FBB9F-EA35-45C8-9EC0-1C6A4912B3F3.jpeg
 
 第一期把四部都介绍完了，这第二期能整啥，剧透虹二星二吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  仟音一心  
+##### 6456#       发表于 2022-3-15 19:26
+
+ 本帖最后由 仟音一心 于 2022-3-15 19:30 编辑 
+
+所有有趣的梗一个都没译出来
+
+AAF48F4E-3476-4411-BBAB-38ACEF2B12CE.jpeg
+(490.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-15 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202203/15/192645j2b9banuuww6surz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A758172C-CE1A-49EB-8154-775B841DB694.jpeg
+(111.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-15 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202203/15/193029idngozgfzu1r5ymh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6457#       发表于 2022-3-15 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整点杂谈卖点谷子咯 
+
+*****
+
+####  优妮可  
+##### 6458#       发表于 2022-3-15 19:28
+
+跨年，各自的live能聊的不少，还有玩游戏，念信，工商
+
+*****
+
+####  一个陆仁贾  
+##### 6459#       发表于 2022-3-15 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55055801&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-15 19:26</a>
+所有有趣的梗一个都没译出来，以下是『我的妈呀』</blockquote>
+被河蟹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iuhehc  
+##### 6460#       发表于 2022-3-15 19:34
+
+已经预想到翻译要做到信达雅是件很难的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15041,3 +15041,23 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 吃果实的物品仅限动物系，原理和人造恶魔果实差不多。</blockquote>
 你的意思是，如果草帽吃了果实，也仅限动物系？ 
 
+
+
+*****
+
+####  仟音一心  
+##### 56749#       发表于 2022-3-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55055671&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-15 19:16</a>
+你的意思是，如果草帽吃了果实，也仅限动物系？</blockquote>
+是啊，这方面已经讨论滥了。
+
+*****
+
+####  klzxs  
+##### 56750#       发表于 2022-3-15 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">说起来，joyboy这个笑的特殊让我想起来和之国还有smile果实的事
+
+说不定也能对应一下
+
