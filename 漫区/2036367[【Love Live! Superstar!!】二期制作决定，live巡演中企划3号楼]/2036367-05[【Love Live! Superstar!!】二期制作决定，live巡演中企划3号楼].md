@@ -5710,3 +5710,27 @@ Sayurin这基本纯新人，广播还直接拿了个大奖，傻子都知道该�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 6444#       发表于 2022-3-15 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55046934&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-3-15 07:09</a>
+
+不过那位鲤友的vlog被鲤鱼大半夜点赞了
+
+—— 来自 S1Fun</blockquote>
+
+他三天两头被🐟点赞的，说不定都认识了（我和他在同一个群里）
+
+A1A2C850-373F-4DEC-B60F-CC6FCEC4F34D.jpeg
+(215.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-15 08:07 上传
+
+<img src="https://img.saraba1st.com/forum/202203/15/080753ul87l678b1n1b777.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
