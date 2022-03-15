@@ -5235,3 +5235,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总玩不来这种高秀的英雄的啦 很蓝的
 
+
+
+*****
+
+####  因为你不会  
+##### 14023#       发表于 2022-3-15 18:29
+
+还记得绫总当年玩个狐狸被亚索凎烂
+
