@@ -6858,3 +6858,23 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 你麻这采访不也说了，不想跟风，想有点名气但不太出名，所以和热度躲着走不打游戏、脑死歌回、自频道联动少等等诸多气死事业民操作不都说得通了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9729#       发表于 2022-3-15 11:07
+
+属于是典型又不典型的yhm了。<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+非要说就是和……有点像。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  藤原银  
+##### 9730#       发表于 2022-3-15 11:17
+
+小麻还年轻
+

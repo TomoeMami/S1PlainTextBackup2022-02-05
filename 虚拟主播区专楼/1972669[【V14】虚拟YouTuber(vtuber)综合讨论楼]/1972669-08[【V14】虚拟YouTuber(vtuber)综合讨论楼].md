@@ -10950,3 +10950,18 @@ syl，おれあぽインタビュー最后的最后还特别要求加了一句
 
 以此为契机解散是吧
 
+
+
+*****
+
+####  FCCHua  
+##### 11477#       发表于 2022-3-15 11:13
+
+ 本帖最后由 FCCHua 于 2022-3-15 11:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043700&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-3-14 21:04</a>
+黑黑两人的3D都改了好几版了吧，就是技术菜了点
+
+syl，おれあぽインタビュー最后的最后还特别要求加了一句</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lisa:
+今日は20時からかみとひなーの山Pでフリング・トゥ・ザ・フィニッシュとかいうゲームをします🐍
+
