@@ -6034,3 +6034,13 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  乙山法純  
+##### 6471#       发表于 2022-3-15 21:16
+
+[http://fate.5ch.net/test/read.cgi/lovelive/1647342287](http://fate.5ch.net/test/read.cgi/lovelive/1647342287)
+[https://www.youtube.com/watch?v=2ljiPvTJ-PM](https://www.youtube.com/watch?v=2ljiPvTJ-PM)
+

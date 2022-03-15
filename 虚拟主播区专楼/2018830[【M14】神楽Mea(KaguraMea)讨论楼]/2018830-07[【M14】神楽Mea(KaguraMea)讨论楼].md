@@ -7053,3 +7053,12 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不懂就问，这企划在索尼的里面寿命排行如何
 
+
+
+*****
+
+####  路人庚  
+##### 9748#       发表于 2022-3-15 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是很懂日综企划，估计也就算一般吧
+
