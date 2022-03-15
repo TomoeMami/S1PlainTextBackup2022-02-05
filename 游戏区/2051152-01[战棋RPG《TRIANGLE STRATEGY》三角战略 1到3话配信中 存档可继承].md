@@ -10770,3 +10770,12 @@ ok，懂了
 
 顺便时间法师的声优是外行吧？真正太？
 
+
+
+*****
+
+####  灰谷真实  
+##### 969#       发表于 2022-3-15 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主角怎么这么像哈萨维。就是本人.jpg
+

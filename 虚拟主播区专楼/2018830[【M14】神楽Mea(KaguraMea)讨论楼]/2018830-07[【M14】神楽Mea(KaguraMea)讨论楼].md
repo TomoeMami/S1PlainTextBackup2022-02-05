@@ -7028,3 +7028,19 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  路人庚  
+##### 9745#       发表于 2022-3-15 20:02
+
+这次连你咩姐的声音都听不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼看来是已经想跑路了
+
+*****
+
+####  やト  
+##### 9746#       发表于 2022-3-15 20:12
+
+ 好似喵
+
