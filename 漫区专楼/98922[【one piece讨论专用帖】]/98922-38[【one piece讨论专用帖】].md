@@ -15029,3 +15029,15 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 不吃亏
 
+
+
+*****
+
+####  C男人  
+##### 56748#       发表于 2022-3-15 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042794&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-14 19:57</a>
+
+吃果实的物品仅限动物系，原理和人造恶魔果实差不多。</blockquote>
+你的意思是，如果草帽吃了果实，也仅限动物系？ 
+
