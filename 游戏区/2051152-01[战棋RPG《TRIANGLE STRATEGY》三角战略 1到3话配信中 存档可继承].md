@@ -10703,3 +10703,24 @@ ok，懂了
 有没有推荐的中文攻略站</blockquote>
 中文就贴吧上搜搜看吧，wiki啥的只能看日文的了。
 
+
+
+*****
+
+####  linhaitora  
+##### 963#       发表于 2022-3-15 14:52
+
+主要想找全角色使用心得，不知道哪里有
+
+*****
+
+####  minysun  
+##### 964#       发表于 2022-3-15 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55050481&amp;ptid=2051152" target="_blank">洗洁精 发表于 2022-3-15 12:25</a>
+
+活力戒指怎么拿？
+
+还有一共多少个奶妈？</blockquote>
+开局送的一个，然后酒馆老阿姨、王妹（15话基友线拿）和贤者算有回血技能，然后其他队友里面的药师和马戏团妹妹算是技能流回血人，最后拿到时魔后可以用时光倒流回血及重置debuff。
+
