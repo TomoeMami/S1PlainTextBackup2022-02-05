@@ -8677,3 +8677,12 @@ twttier官方：鉴定为假
 
 会限外自然不算休止，不过活动的是那个伪物vtwiiter<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 休止期间涨了好多推特关注呢
 
+
+
+*****
+
+####  andeloz  
+##### 8488#       发表于 2022-3-16 02:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">别急 夸夸一定是在练习游戏为之后的直播做准备 等一个复归然后惊艳所有人
+
