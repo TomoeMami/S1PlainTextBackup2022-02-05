@@ -15061,3 +15061,36 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 说不定也能对应一下
 
+
+
+*****
+
+####  斯塔久  
+##### 56751#       发表于 2022-3-15 19:42
+
+ 本帖最后由 斯塔久 于 2022-3-15 19:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55042423&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-14 19:24</a>
+
+物品吃果实这事儿还是太奇怪了。
+
+虽然有过 “吃了狗狗果实的枪”，但好歹能明白是把果实塞枪口里了。</blockquote>
+你说的这个问题，确实很奇怪，比如下图，装了蝾螈果实的袋子就没有变成能力者。
+
+<img src="https://img.saraba1st.com/forum/202203/15/194150g03vu3xh6v5h6v51.jpg" referrerpolicy="no-referrer">
+
+<strong>fd4170ad-c7d8-11e8-882e-024352452ce0.jpg</strong> (140.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-15 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202203/15/194154u17jvy4stqv1tst1.jpg" referrerpolicy="no-referrer">
+
+<strong>fcc0fd39-c7d8-11e8-882e-024352452ce0.jpg</strong> (80.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-15 19:41 上传
+
+只能说，恶魔果实这东西，设定的透明度还很低，有些人 “讨论滥了” 都还没搞明白。 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
