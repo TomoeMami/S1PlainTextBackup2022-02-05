@@ -6000,3 +6000,26 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 艹鲤鱼那段说虹靠人数取胜的完全是炎上言论，不知道善于读空气的日本人受不受得了...
 
+
+
+*****
+
+####  cybernetics31  
+##### 6467#       发表于 2022-3-15 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这两相互拱火 日本人应该能看出来吧
+
+*****
+
+####  稀勢のささ  
+##### 6468#       发表于 2022-3-15 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野生熟肉早就有了 要炎早炎了
+
+*****
+
+####  甘蓝巧克力  
+##### 6469#       发表于 2022-3-15 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方憋了三个月终于生出来了，但还不如民间翻译，这是没把菜宝和鲤鱼姐抓来烤肉吗
+
