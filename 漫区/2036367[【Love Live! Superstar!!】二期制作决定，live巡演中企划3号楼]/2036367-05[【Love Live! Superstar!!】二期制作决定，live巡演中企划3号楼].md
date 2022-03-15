@@ -5769,3 +5769,26 @@ CV逆输入了<img src="https://static.saraba1st.com/image/smiley/face2017/081.p
 
 话说可可的水色のSunday里面的中文歌词竟然有「無间」这个词，这俩字单独拿出来在现代算不上常用词...感觉不像是一般日本人能写出来的。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6448#       发表于 2022-3-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55050557&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-3-15 12:29</a>
+
+话说可可的水色のSunday里面的中文歌词竟然有「無间」这个词，这俩字单独拿出来在现代算不上常用词...感觉 ...</blockquote>
+不知道水色のSunday的中文是谁写的，但是Oh! レディ・ステディ・ポジティブ的中文歌词部分可以看看这个动态
+[https://t.bilibili.com/586281792030568975](https://t.bilibili.com/586281792030568975)
+
+*****
+
+####  Enakina  
+##### 6449#       发表于 2022-3-15 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55050557&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-03-15 12:29:37</a>
+话说可可的水色のSunday里面的中文歌词竟然有「無间」这个词，这俩字单独拿出来在现代算不上常用词...感 ...</blockquote>宫岛纯子有转发，是台湾那边的作词家，叫啥忘了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
