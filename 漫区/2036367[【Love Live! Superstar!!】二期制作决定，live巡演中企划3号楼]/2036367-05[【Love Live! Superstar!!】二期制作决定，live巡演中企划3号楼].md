@@ -5744,3 +5744,17 @@ A1A2C850-373F-4DEC-B60F-CC6FCEC4F34D.jpeg
 才发现鲤鱼的一专talk是40秒，赚到
 昨天玩票性质试着抽了星的一场，不过才25秒，只能当个顺便吧
 
+
+
+*****
+
+####  adw667  
+##### 6446#       发表于 2022-3-15 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55043662&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-3-14 21:01</a>
+
+作者：@haruman4628</blockquote>
+CV逆输入了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+叶月恋：我现在换CV来不及了吧
+
