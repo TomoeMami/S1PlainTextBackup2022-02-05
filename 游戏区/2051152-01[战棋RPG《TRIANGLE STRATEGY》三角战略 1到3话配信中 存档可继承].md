@@ -10779,3 +10779,12 @@ ok，懂了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主角怎么这么像哈萨维。就是本人.jpg
 
+
+
+*****
+
+####  Meltina  
+##### 970#       发表于 2022-3-15 20:48
+
+有没有人给点建议这游戏过程中震动对体验的影响大不大，一般是什么时候有震动的？正在考虑要不要用Lite来玩
+

@@ -15094,3 +15094,14 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 只能说，恶魔果实这东西，设定的透明度还很低，有些人 “讨论滥了” 都还没搞明白。 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  仟音一心  
+##### 56752#       发表于 2022-3-15 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55055980&amp;ptid=98922" target="_blank">斯塔久 发表于 2022-3-15 19:42</a>
+你说的这个问题，确实很奇怪，比如下图，装了蝾螈果实的袋子就没有变成能力者。</blockquote>
+说了啊，物品吃果实要用贝加庞克的技术，没有干涉大抵就是用真果实回收。
+

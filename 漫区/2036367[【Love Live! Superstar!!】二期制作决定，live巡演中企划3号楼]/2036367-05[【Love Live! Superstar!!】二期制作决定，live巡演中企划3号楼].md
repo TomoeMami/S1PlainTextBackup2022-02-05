@@ -6023,3 +6023,14 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方憋了三个月终于生出来了，但还不如民间翻译，这是没把菜宝和鲤鱼姐抓来烤肉吗
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 6470#       发表于 2022-3-15 20:57
+
+日本那边看这些拱火桥段是什么感想？
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
