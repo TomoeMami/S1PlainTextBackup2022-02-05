@@ -5226,3 +5226,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 但是这个不是亚索啊
 
+
+
+*****
+
+####  Fami水  
+##### 14022#       发表于 2022-3-15 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总玩不来这种高秀的英雄的啦 很蓝的
+
