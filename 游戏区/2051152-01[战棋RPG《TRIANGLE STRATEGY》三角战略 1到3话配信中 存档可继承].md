@@ -11118,3 +11118,26 @@ ok，懂了
 另外二周目哪里可以看到三个指标的具体到了多少 ...</blockquote>
 要第五章才能看
 
+
+
+*****
+
+####  Onelooker  
+##### 999#       发表于 2022-3-17 04:17
+
+nmd，粉毛和我还没领证吧，怎么处处跟我抬杠<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰狼  
+##### 1000#       发表于 2022-3-17 05:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55074052&amp;ptid=2051152" target="_blank">Onelooker 发表于 2022-3-17 04:17</a>
+
+nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
+
+—— 来自 S1Fun</blockquote>
+说明你的心在管家或者王子那里<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

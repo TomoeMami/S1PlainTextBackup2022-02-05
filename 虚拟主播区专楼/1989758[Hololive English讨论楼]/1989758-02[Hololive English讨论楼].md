@@ -1877,3 +1877,12 @@ Ame体育座り可爱<img src="https://static.saraba1st.com/image/smiley/face201
 
 Kiwawa 独家爆料<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">Ame找人做了几个方便vrc多方音频同步和避免回音的插件，以后大家可以在vrc里开远程卡拉ok了。预计很快会有kiwawa和gura的卡拉OK collab
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1665#       发表于 2022-3-17 05:38
+
+马尾ina 太可爱了
+
