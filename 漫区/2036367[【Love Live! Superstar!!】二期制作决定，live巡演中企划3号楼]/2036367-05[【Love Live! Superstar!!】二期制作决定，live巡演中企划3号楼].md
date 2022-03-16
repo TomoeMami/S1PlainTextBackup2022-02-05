@@ -6467,3 +6467,14 @@ F203B28F-E781-4568-AD4F-6A060AB51F9B.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/16/183948it0z90wrwgstjttj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 6498#       发表于 2022-3-16 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55068653&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-16 18:39</a>
+JOYPOLIS SPORTS仙台中山店</blockquote>
+“小小的朋友”
+
