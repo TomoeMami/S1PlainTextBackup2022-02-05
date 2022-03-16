@@ -11414,3 +11414,19 @@ S1误我<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" re
 
 Syl，黑客总是在troll，过去一年都冲锋在第一线，真的很不日本人（也不算就是了）
 
+
+
+*****
+
+####  藤原银  
+##### 11523#       发表于 2022-3-16 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿葵和韩国人打枪是有点乐了
+
+*****
+
+####  IDIDIDID  
+##### 11524#       发表于 2022-3-16 21:55
+
+杏有几个爆了不少棒子金币的，葵皇学一下怎么了
+

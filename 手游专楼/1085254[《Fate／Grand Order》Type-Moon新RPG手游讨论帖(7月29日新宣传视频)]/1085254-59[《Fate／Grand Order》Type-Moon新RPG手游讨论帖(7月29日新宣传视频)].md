@@ -2752,3 +2752,21 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 新的高难基本都是以前活动的高难，留主力留到最后结果最后个是2期还是3期的泳装高难特简单<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 87248#       发表于 2022-3-16 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">锁卡+就送材料.....连护符也不给
+
+这些垃圾新高难我根本碰都不想碰好么
+
+*****
+
+####  保罗赫伯特  
+##### 87249#       发表于 2022-3-16 22:04
+
+挑了一个带金蛋的高难本打，进去一看这不是莫利亚迪活动时候那个老福的高难本吗，已经懒到不想出新高难，直接拿以前的出来凑数了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
