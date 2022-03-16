@@ -7122,3 +7122,28 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看来体重是绷不住了
 
+
+
+*****
+
+####  十九号大侠  
+##### 9755#       发表于 2022-3-16 21:24
+
+有一说一，小麻身体还真的行，不容易生病
+
+*****
+
+####  ashero  
+##### 9756#       发表于 2022-3-16 21:34
+
+就冲着这最近学的指团歌 我宣布vcp就是神企划<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 9757#       发表于 2022-3-16 21:34
+
+什么时候出个神级mv再说这话吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

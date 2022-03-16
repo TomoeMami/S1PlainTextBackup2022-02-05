@@ -582,3 +582,14 @@ atlus和ca，但是我现在只想看他们吃屎<img src="https://static.saraba
 
 系列扑街一直到突然翻身，傍上大ip做着小众类型里的3a
 
+
+
+*****
+
+####  处男鉴黄师  
+##### 65#       发表于 2022-3-16 21:42
+
+fs一直是有潜力的，当年在PS上的初代装甲核心惊为天人，又酷炫又硬核完美满足了我中二时期开机器人biubiubiu的梦想。游戏里有PS时代里罕见的3D地图，可以旋转可以拉近拉远把场景空间分布看得一清二楚。当时就想以后要是有3D月下那么地图就应该这种样子。
+
+后来很讽刺，被婆罗门称为继承月下地图精髓的魂系列连个2D地图都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

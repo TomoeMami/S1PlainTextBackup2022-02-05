@@ -2736,3 +2736,19 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 2022-3-16 20:58 上传
 
+
+
+*****
+
+####  千叶铁矢  
+##### 87246#       发表于 2022-3-16 21:39
+
+旧高难随便打打就过了。新高难第一个螃蟹还是用酒吞带天草礼装，就是有点扛不住，等晚上一令咒加血吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 87247#       发表于 2022-3-16 21:45
+
+新的高难基本都是以前活动的高难，留主力留到最后结果最后个是2期还是3期的泳装高难特简单<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
