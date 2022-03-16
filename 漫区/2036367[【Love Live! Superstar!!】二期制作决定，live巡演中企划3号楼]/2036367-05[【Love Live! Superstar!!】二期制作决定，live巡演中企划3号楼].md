@@ -6227,3 +6227,16 @@ Sunday里的中文是鲤鱼要求的啊<img src="https://static.saraba1st.com/im
 
 这期广播熟肉已经出了，nako的握力居然这么弱～～
 
+
+
+*****
+
+####  仟音一心  
+##### 6490#       发表于 2022-3-16 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55064343&amp;ptid=2036367" target="_blank">stygian 发表于 2022-3-16 12:56</a>
+岚珠可可设定和中之人正好是反过来的，一个混血一个纯中国人
+
+日韩混血还有个pile，按日本这在日比例我觉 ...</blockquote>
+岚珠设定是香港出身的中日混血，母亲是虹咲学园理事长，父亲没提过。这么看似乎父亲中国人，父母国籍与可可相反。
+
