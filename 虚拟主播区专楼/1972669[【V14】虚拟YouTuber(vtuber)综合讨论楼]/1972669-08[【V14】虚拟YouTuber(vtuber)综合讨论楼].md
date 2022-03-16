@@ -11050,3 +11050,32 @@ https://youtu.be/QDpEL5Jb-_A
 rsq与踩线主播们应该知道的关于色色直播的现实与里。
 [https://www.bilibili.com/video/BV17U4y1Z7Cy](https://www.bilibili.com/video/BV17U4y1Z7Cy)
 
+
+
+*****
+
+####  Suny08  
+##### 11486#       发表于 2022-3-16 11:05
+
+Vta 这种cylx 还真的能转正进本社啊
+
+*****
+
+####  rzrbtk  
+##### 11487#       发表于 2022-3-16 11:12
+
+新女人，三色战队，像手游，喜欢冷淡蓝毛（的脸
+
+*****
+
+####  fastary  
+##### 11488#       发表于 2022-3-16 11:18
+
+ 本帖最后由 fastary 于 2022-3-16 11:27 编辑 
+
+女性成员4个出道了3个，vta频道所有三人相关视频和播放列表已经删除，目前还剩男5女1……本来还想斗个虫看出道三人能出道是比其他人好多少来着<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">说起来昨天晚上直播最后黑客联合axia欺负甲斐田的时候还提了一句要想好出道就会这样再进vta，难道这也是一种暗示？
+
+不会以后虹出新人就是先进vta发个素皮培训试播，感觉可以了再化妆整容本社出道吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还是说素人统一过一道vta，通讯录本社直接出道？
+

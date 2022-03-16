@@ -10991,3 +10991,19 @@ ok，懂了
 
 所以我是19章汇合以后才刷的。
 
+
+
+*****
+
+####  zzzeven  
+##### 989#       发表于 2022-3-16 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55062548&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-16 10:58</a>
+
+驻扎所随时可以刷啊，我是隐藏结局在19章刷。
+
+17章整个在投票吧？
+
+隐藏结局18章分了三队，不太好刷。</blockquote>
+对，分三队了，管家这里有点难打，很多角色等级没练
+
