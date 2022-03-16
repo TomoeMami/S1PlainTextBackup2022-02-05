@@ -6149,3 +6149,12 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6482#       发表于 2022-3-16 10:13
+
+没有韩国角色，想起被韩国人冲没的黑塔利亚动画任勇洙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

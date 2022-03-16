@@ -10911,3 +10911,29 @@ ok，懂了
 
 最高级的武器材料怎么刷
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 982#       发表于 2022-3-16 10:11
+
+话说感觉物理最强的是铁拳无敌老太婆
+闪避高输出强，人群里几乎无敌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">比她徒弟强多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zzzeven  
+##### 983#       发表于 2022-3-16 10:16
+
+一周目，最后分3队打有点难，有些没练级过的人，上去就是脆皮鸡
+
+*****
+
+####  飞…陨  
+##### 984#       发表于 2022-3-16 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一周目卡素材也太恶心了  枪圣入队只能拿把木枪丢人
+
