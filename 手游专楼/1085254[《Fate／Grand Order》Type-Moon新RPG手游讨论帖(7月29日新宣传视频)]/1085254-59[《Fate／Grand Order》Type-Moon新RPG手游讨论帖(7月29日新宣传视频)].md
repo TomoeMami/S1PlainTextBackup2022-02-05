@@ -2630,3 +2630,21 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">米弓斯巴达有什么新式打法么
 
+
+
+*****
+
+####  J-002  
+##### 87236#       发表于 2022-3-16 19:06
+
+高难估计我打不完了，练起来的人都不够塞满7组的更别提打过了
+
+*****
+
+####  vacuumsword  
+##### 87237#       发表于 2022-3-16 19:19
+
+我的一宝王姐好水枪啊，带上单杀狐全套都秒不掉第三面
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
