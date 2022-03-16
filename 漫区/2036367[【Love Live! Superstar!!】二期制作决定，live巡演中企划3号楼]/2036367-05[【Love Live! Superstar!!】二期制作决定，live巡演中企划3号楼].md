@@ -6128,3 +6128,12 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  黑雪姫  
+##### 6480#       发表于 2022-3-16 09:25
+
+拉板有个新串竟然在讨论为啥企划有俩中国人角色却没有一个韩国人角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
