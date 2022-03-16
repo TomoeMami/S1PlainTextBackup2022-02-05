@@ -2770,3 +2770,12 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 挑了一个带金蛋的高难本打，进去一看这不是莫利亚迪活动时候那个老福的高难本吗，已经懒到不想出新高难，直接拿以前的出来凑数了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87250#       发表于 2022-3-16 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新高难完全不想碰啊
+
