@@ -2574,3 +2574,39 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 高难本锁船，yls有大病
 
+
+
+*****
+
+####  vacuumsword  
+##### 87230#       发表于 2022-3-16 17:27
+
+ 本帖最后由 vacuumsword 于 2022-3-16 17:31 编辑 
+
+还没进游戏，看说明这还不是爬塔那种时间锁，是全程锁么。好吧两个7关组合
+
+*****
+
+####  alucardcz  
+##### 87231#       发表于 2022-3-16 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55067841&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-3-16 17:18</a>
+
+比爬塔恶心多了 是高难锁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拐的时代结束了！（不是
+
+*****
+
+####  eyeego  
+##### 87232#       发表于 2022-3-16 17:31
+
+你游第二个二次强化的技能？
+再也不用担心天之弱智发作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87233#       发表于 2022-3-16 17:46
+
+第一个本就掉礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
