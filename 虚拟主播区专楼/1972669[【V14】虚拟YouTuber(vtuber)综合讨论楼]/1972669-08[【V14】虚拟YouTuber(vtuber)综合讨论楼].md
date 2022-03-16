@@ -11330,3 +11330,17 @@ pt姐现在看起来不错是因为已经走出来了也确立自己的路线风
 这种预出道平台优点是比较好在心理素质和配信频道筛素人吧，之前看到挺多人说感觉茜一直在播也慢慢好起来了 ...</blockquote>
 只能说现在虹的这种女性主导市场利好了小红吧，她这种线充式风格很能吸引女粉的，现在都在抖音上开始推荐衣服和美妆了，夜见都靠比较好的衣品吸了不少女粉的，这也算是虹女的一个出路吧
 
+
+
+*****
+
+####  毛头小希  
+##### 11516#       发表于 2022-3-16 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55064434&amp;ptid=1972669" target="_blank">winda 发表于 2022-3-16 13:03</a>
+
+刚出道的帕特姐吸虹杏的双流量，那可是edens第二的数据</blockquote>
+关注数或许是，但是同接和SC就不是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且pt姐上来就跟枪男称兄道弟的真有杏独角兽去看吗
+
