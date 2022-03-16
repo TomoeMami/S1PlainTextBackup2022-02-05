@@ -11365,3 +11365,12 @@ pt姐现在看起来不错是因为已经走出来了也确立自己的路线风
 
 像琥珀宝去旅游去打球去happy打工都懒得播，除非被ngo呼唤，感觉进来虹就是纯乐<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oceanneo  
+##### 11519#       发表于 2022-3-16 16:39
+
+星川的形象虽然很直观，但也是长时间塑造下来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
