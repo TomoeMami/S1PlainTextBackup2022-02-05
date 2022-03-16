@@ -11079,3 +11079,50 @@ Vta 这种cylx 还真的能转正进本社啊
 
 还是说素人统一过一道vta，通讯录本社直接出道？
 
+
+
+*****
+
+####  マドマコ  
+##### 11489#       发表于 2022-3-16 11:29
+
+感觉她们三个的衣服还没有穿培训班的统一制服好看<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwera3469  
+##### 11490#       发表于 2022-3-16 11:32
+
+像手游角色，特别是红毛感觉能幻视一堆，顺便首播3.20
+
+
+
+*****
+
+####  poipanchao  
+##### 11491#       发表于 2022-3-16 11:35
+
+居然真的能出道吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+话说你虹是不是飘了，竟然敢出女人了
+
+*****
+
+####  fastary  
+##### 11492#       发表于 2022-3-16 11:39
+
+vta就看了两眼男人初配信，有人还记得出道几位什么情况吗
+
+*****
+
+####  帕克桑  
+##### 11493#       发表于 2022-3-16 11:41
+
+你虹运营真的不行 这不紧急出一波各色头发能唱歌的男新人吃鲸落<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11494#       发表于 2022-3-16 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">镝木成了女性组剩下的没想到，看着经验最足，还和海妹联动上了，本来都以为马上高升了
+

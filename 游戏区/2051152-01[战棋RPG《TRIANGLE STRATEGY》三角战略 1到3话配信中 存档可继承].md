@@ -11007,3 +11007,27 @@ ok，懂了
 隐藏结局18章分了三队，不太好刷。</blockquote>
 对，分三队了，管家这里有点难打，很多角色等级没练
 
+
+
+*****
+
+####  艾特娜  
+##### 990#       发表于 2022-3-16 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55062786&amp;ptid=2051152" target="_blank">zzzeven 发表于 2022-3-16 11:13</a>
+
+对，分三队了，管家这里有点难打，很多角色等级没练</blockquote>
+铁匠搭梯子+3个弓箭手，注意先集火远程就能无伤过了
+
+
+
+*****
+
+####  艾特娜  
+##### 991#       发表于 2022-3-16 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55061622&amp;ptid=2051152" target="_blank">洗洁精 发表于 2022-3-16 10:04</a>
+
+最高级的武器材料怎么？特级铁材这种</blockquote>
+等二周目吧，一周目是肯定不够用的
+
