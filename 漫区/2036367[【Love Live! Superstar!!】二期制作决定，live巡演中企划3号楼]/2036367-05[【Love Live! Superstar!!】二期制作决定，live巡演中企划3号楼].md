@@ -6577,3 +6577,14 @@ D35A95C4-FBC7-409D-9B9C-E227DF11FE0C.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指望日本人会看出来2国人阿宅开玩笑本身就不太现实嘛
 
+
+
+*****
+
+####  lj205  
+##### 6504#       发表于 2022-3-16 22:56
+
+福岛宫城地震，震度7级以上，在东京和大阪的都表示震了好几次
+
+佩佩和菜宝都发了推，东京那边好像部分地区停电，希望大家都平安，特别是打铁的家人
+

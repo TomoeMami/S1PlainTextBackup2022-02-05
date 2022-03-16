@@ -7241,3 +7241,67 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  黒長直姫  
+##### 9770#       发表于 2022-3-16 22:42
+
+应该挺远的吧
+
+*****
+
+####  aliade  
+##### 9771#       发表于 2022-3-16 22:43
+
+60km 7.3
+体感6+
+应该很可怕
+
+*****
+
+####  yywzjsw  
+##### 9772#       发表于 2022-3-16 22:44
+
+福岛？是不是又要漏了
+
+*****
+
+####  路人庚  
+##### 9773#       发表于 2022-3-16 22:45
+
+据日本东京朋友说，刚刚这个是他去东京这几年，摇的最狠最久的一次<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+你咩姐的设备……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 9774#       发表于 2022-3-16 22:48
+
+回来了
+
+*****
+
+####  T_Hb  
+##### 9775#       发表于 2022-3-16 22:49
+
+报平安了
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 9776#       发表于 2022-3-16 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第一反应是有没有东京地震概念股
+
+*****
+
+####  路人庚  
+##### 9777#       发表于 2022-3-16 22:56
+
+显示器差点报废
+
+你咩姐：应该还能再播一会。刚刚一瞬间都开始考虑要死了怎么办了，而且就算现在关了直播也会开始忧郁的，好歹开播了也就让我死之前做些我想做的事吧，至少到我满足为止<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
