@@ -11031,3 +11031,38 @@ ok，懂了
 最高级的武器材料怎么？特级铁材这种</blockquote>
 等二周目吧，一周目是肯定不够用的
 
+
+
+*****
+
+####  SEGA  
+##### 992#       发表于 2022-3-16 11:41
+
+<blockquote>zzzeven 发表于 2022-3-16 11:13
+对，分三队了，管家这里有点难打，很多角色等级没练</blockquote>
+这关是最刺激好玩的，特别是没有提前知道攻略的前提下。我是一周目意外进去普通难度，每队平均7人，这队能加血的就一个没练过的药师。最后能过也是惊险刺激。
+
+*****
+
+####  dren_zheng  
+##### 993#       发表于 2022-3-16 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55061912&amp;ptid=2051152" target="_blank">飞…陨 发表于 2022-3-16 10:21</a>
+
+一周目卡素材也太恶心了  枪圣入队只能拿把木枪丢人</blockquote>
+2周目仍然卡素材
+
+3周目后可以直接买最终素材
+
+*****
+
+####  yangchunsiyue  
+##### 994#       发表于 2022-3-16 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55063213&amp;ptid=2051152" target="_blank">SEGA 发表于 2022-3-16 11:41</a>
+
+这关是最刺激好玩的，特别是没有提前知道攻略的前提下。我是一周目意外进去普通难度，每队平均7人，这队 ...</blockquote>
+我非常简单大家不停吃药过去的……
+
+烧了两块地……
+

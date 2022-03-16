@@ -11126,3 +11126,47 @@ vta就看了两眼男人初配信，有人还记得出道几位什么情况吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">镝木成了女性组剩下的没想到，看着经验最足，还和海妹联动上了，本来都以为马上高升了
 
+
+
+*****
+
+####  qwera3469  
+##### 11495#       发表于 2022-3-16 11:45
+
+说不定下一批就和几个男人一起出道呢，全女感觉还不如几个男的一个女的
+
+*****
+
+####  渡鸦骑士  
+##### 11496#       发表于 2022-3-16 11:47
+
+所以彩虹每次都是八到10个一批人然后分三四批出道是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 11497#       发表于 2022-3-16 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这么久了终于出新人了啊。
+
+*****
+
+####  毛头小希  
+##### 11498#       发表于 2022-3-16 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55063278&amp;ptid=1972669" target="_blank">qwera3469 发表于 2022-3-16 11:45</a>
+
+说不定下一批就和几个男人一起出道呢，全女感觉还不如几个男的一个女的</blockquote>
+几个男的一个女的
+
+是让那个女生像pt姐yugo一样担任拉仇恨的角色是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大人，时代变啦
+
+*****
+
+####  布莱士·西伯利  
+##### 11499#       发表于 2022-3-16 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">觉得还行。
+
