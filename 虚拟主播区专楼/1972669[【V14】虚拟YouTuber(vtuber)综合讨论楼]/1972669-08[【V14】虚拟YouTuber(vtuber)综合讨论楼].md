@@ -11243,3 +11243,40 @@ pt姐现在看起来不错是因为已经走出来了也确立自己的路线风
 
 现在黑子就少很多，一个是黑子的热情随着时间消退了，一个是前阵子trz两个人的粉火力转移变为互相攻击，再然后就是月末月初红色条子那个事情了……
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11508#       发表于 2022-3-16 12:50
+
+ 本帖最后由 alcoholic1000 于 2022-3-16 12:56 编辑 
+
+看了首播印象是挺普通的萌え声生主，不太清楚培训几个月效果如何
+
+大概率还有一期，vta男v发展到后面同接有好几百还算可以
+
+Syl，皮都真不错，推其它v时就展望过二色こぺ登虹（被骗上你虹贼船），没想到真来了
+
+画师相关：小小蓝→二色こぺ，小小红→铲弟、金鱼坂めいろ，小小黄→en4期luca、5期Alban
+
+补个图
+
+<img src="https://img.saraba1st.com/forum/202203/16/125651moqe9rncec6dh8e9.jpg" referrerpolicy="no-referrer">
+
+<strong>爆誕！産声！発信！前進だおぎゃ！.jpg</strong> (211.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-16 12:56 上传
+
+*****
+
+####  winda  
+##### 11509#       发表于 2022-3-16 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55064157&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-3-16 12:42</a>
+
+pt姐现在看起来不错是因为已经走出来了也确立自己的路线风格了，你是不知道出道头三个月pt姐被围攻得多厉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚出道的帕特姐吸虹杏的双流量，那可是edens第二的数据
+

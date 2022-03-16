@@ -6167,3 +6167,63 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">韩国那边刚上了个韩版ykw，还想着要韩国角色不会爆炸么。
 
+
+
+*****
+
+####  stygian  
+##### 6484#       发表于 2022-3-16 12:42
+
+ 本帖最后由 stygian 于 2022-3-16 12:44 编辑 
+
+刻板印象中国人属性就不说了，当代中国人属性岚珠有钱+大。大咧咧，可可不读空气想啥说啥+行动力爆表，韩国人能有啥属性，爱吃泡菜？容易激动？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 6485#       发表于 2022-3-16 12:48
+
+可能会来一个要把学园偶像申遗的韩国人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 6486#       发表于 2022-3-16 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55064160&amp;ptid=2036367" target="_blank">stygian 发表于 2022-3-16 12:42</a>
+
+刻板印象中国人属性就不说了，当代中国人属性岚珠有钱+大。大咧咧，可可不读空气想啥说啥+行动力爆表，韩国 ...</blockquote>
+岚珠可可设定都是中日混血吧，日韩混血...爱香？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 6487#       发表于 2022-3-16 12:54
+
+原来对谈活动确定第二期了。期待大佬小作文了。
+
+「LoveLive! Series Presents ~ 2nd 岚珠和可可 的特别节目~」★粉丝来信募集开启女 众所期待的「LoveLive! Series Presents~ 2nd 岚珠和可可的特别节目~」决定制作了！！ 经过3个月的期待，大家是不是还有很多话想跟 菜宝和鲤鱼说呀？ 快前往 http://t.cn/A66foFpg 留下你想对两位说 的话吧！ 菜宝和鲤鱼将从所有玩家来信中选出几封，在下 个月播出的特别节目中进行回应哦！ ※节目播出详细日期将在后续公布
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 6488#       发表于 2022-3-16 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55064286&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-3-16 12:51</a>
+
+岚珠可可设定都是中日混血吧，日韩混血...爱香？</blockquote>
+岚珠可可设定和中之人正好是反过来的，一个混血一个纯中国人
+
+日韩混血还有个pile，按日本这在日比例我觉得应该不止这俩
+
+*****
+
+####  lj205  
+##### 6489#       发表于 2022-3-16 12:57
+
+Sunday里的中文是鲤鱼要求的啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+这期广播熟肉已经出了，nako的握力居然这么弱～～
+
