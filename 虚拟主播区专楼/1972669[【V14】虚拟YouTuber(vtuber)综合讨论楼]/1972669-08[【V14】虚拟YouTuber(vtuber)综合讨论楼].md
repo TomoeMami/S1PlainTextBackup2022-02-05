@@ -11215,3 +11215,31 @@ yugo特殊情况吧，帕特好歹有箱推热度，总比世怜女强吧
 
 这VTA的女的我出道好奇还真去看过 还在本楼repo了 别的不说声线就素人的不行 如同路边随便拉的，这也能正式出道我是真的没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 11505#       发表于 2022-3-16 12:38
+
+本社每年一组就出这种东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwera3469  
+##### 11506#       发表于 2022-3-16 12:41
+
+说不定培训俩月训练出来了呢
+
+*****
+
+####  毛头小希  
+##### 11507#       发表于 2022-3-16 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55063704&amp;ptid=1972669" target="_blank">qwera3469 发表于 2022-3-16 12:11</a>
+
+yugo特殊情况吧，帕特好歹有箱推热度，总比世怜女强吧</blockquote>
+pt姐现在看起来不错是因为已经走出来了也确立自己的路线风格了，你是不知道出道头三个月pt姐被围攻得多厉害，录播的评论栏还有点踩数简直不能看（当然点踩数早就不显示了），幸好pt姐是超级阳角，不然撑不住毕业都不奇怪
+
+现在黑子就少很多，一个是黑子的热情随着时间消退了，一个是前阵子trz两个人的粉火力转移变为互相攻击，再然后就是月末月初红色条子那个事情了……
+
