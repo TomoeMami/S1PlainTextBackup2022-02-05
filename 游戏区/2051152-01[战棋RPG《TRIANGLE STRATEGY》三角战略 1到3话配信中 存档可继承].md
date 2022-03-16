@@ -11090,3 +11090,17 @@ ok，懂了
 
 另外二周目哪里可以看到三个指标的具体到了多少
 
+
+
+*****
+
+####  听风不是雨  
+##### 997#       发表于 2022-3-16 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55072391&amp;ptid=2051152" target="_blank">来看你 发表于 2022-3-16 23:10</a>
+
+2周目第一关就有点难啊，话说特级材料好缺啊没地方刷啊
+
+另外二周目哪里可以看到三个指标的具体到了多少 ...</blockquote>
+弓圣那里也就是晋升的地方可以看三维，还有没入队的支线NPC要求
+

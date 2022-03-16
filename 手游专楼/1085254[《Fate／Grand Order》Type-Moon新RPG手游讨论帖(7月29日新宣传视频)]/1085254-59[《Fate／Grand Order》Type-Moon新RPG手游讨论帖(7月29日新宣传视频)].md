@@ -2800,3 +2800,12 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 感觉换了新公司之后确实是有在做事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 虽然可能过多一年又开始能躺何站了。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87253#       发表于 2022-3-16 23:34
+
+Ω始皇帝 听上去很牛逼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
