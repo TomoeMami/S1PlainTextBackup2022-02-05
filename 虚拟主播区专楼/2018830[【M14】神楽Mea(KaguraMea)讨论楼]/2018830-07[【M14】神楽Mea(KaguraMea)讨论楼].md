@@ -7432,3 +7432,12 @@ i want be with you
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">刚才差点吓死 又看到报你日核电站异常了 日本人到底行不行啊
 
+
+
+*****
+
+####  路人庚  
+##### 9792#       发表于 2022-3-17 00:02
+
+确实，还好你咩姐后来连回来了，不然只听前一个直播最后的几声确实很让人心肺停止
+
