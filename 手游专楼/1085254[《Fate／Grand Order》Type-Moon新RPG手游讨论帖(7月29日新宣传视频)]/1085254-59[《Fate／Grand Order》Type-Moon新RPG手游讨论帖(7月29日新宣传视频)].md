@@ -2610,3 +2610,14 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 第一个本就掉礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  承尘  
+##### 87234#       发表于 2022-3-16 17:58
+
+这锁法<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，这活整得太烂了吧
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
