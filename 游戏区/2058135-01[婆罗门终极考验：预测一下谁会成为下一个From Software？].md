@@ -571,3 +571,14 @@ atlus和ca，但是我现在只想看他们吃屎<img src="https://static.saraba
 成为FS这个问题就很……又没有量化标准，到底怎样才算成了FS。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">拥有一大批核心粉丝不离不弃，系列作品受众越来越大，最终某部作品举世关注，首月破千万销量这样的公司。
 
+
+
+*****
+
+####  isa2456  
+##### 64#       发表于 2022-3-16 21:18
+
+拉瑞安吧
+
+系列扑街一直到突然翻身，傍上大ip做着小众类型里的3a
+
