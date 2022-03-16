@@ -6568,3 +6568,12 @@ D35A95C4-FBC7-409D-9B9C-E227DF11FE0C.jpeg
 拉板日本人貌似很在意菜宝说鲤鱼个很大....</blockquote>
 这么会读空气都没看出来啊两个人在开玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 6503#       发表于 2022-3-16 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指望日本人会看出来2国人阿宅开玩笑本身就不太现实嘛
+

@@ -2685,3 +2685,54 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 梅林、杀狐、奥宝、大魔王拐西嫂，陈宫送拐，米弓被西嫂特攻两枪直接戳死，红卡现在的输出真是上天了，40 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下没有挂西嫂和村正的好友 难受
 
+
+
+*****
+
+####  alucardcz  
+##### 87241#       发表于 2022-3-16 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55069963&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-16 20:13</a>
+
+看了下没有挂西嫂和村正的好友 难受</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你要村正干什么
+
+*****
+
+####  qixinno2  
+##### 87242#       发表于 2022-3-16 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">翻页
+
+*****
+
+####  qixinno2  
+##### 87243#       发表于 2022-3-16 20:47
+
+翻页
+
+*****
+
+####  qixinno2  
+##### 87244#       发表于 2022-3-16 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55070245&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-16 20:31</a>
+
+你要村正干什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说能打斯巴达高难么
+
+*****
+
+####  qixinno2  
+##### 87245#       发表于 2022-3-16 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没倍卡竟然过了
+
+<img src="https://img.saraba1st.com/forum/202203/16/205845yiin9m3877www37w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (212.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-16 20:58 上传
+

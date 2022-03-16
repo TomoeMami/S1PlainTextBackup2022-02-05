@@ -11387,3 +11387,17 @@ pt姐现在看起来不错是因为已经走出来了也确立自己的路线风
 
 他那句“难道nijisanji是偶像事务所”我真品出了点阴阳味儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 11521#       发表于 2022-3-16 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55070208&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-16 20:29</a>
+
+黑客说过他这样的人估计vta是不招的，现在看来他这种完全回避偶像类活动的可能真的不会再出现了（虽说本来 ...</blockquote>
+黛灰总是在troll<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
+省一楼，看了走姐的sky扫除守望直播，感觉收了两小时也没特别的进展惹
+
