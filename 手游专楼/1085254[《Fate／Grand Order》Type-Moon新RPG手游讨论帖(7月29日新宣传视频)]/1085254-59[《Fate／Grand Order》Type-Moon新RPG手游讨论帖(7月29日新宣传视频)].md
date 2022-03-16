@@ -2663,3 +2663,25 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过去，再打一次是没有精力了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 87239#       发表于 2022-3-16 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55068902&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-16 18:58</a>
+
+米弓斯巴达有什么新式打法么</blockquote>
+梅林、杀狐、奥宝、大魔王拐西嫂，陈宫送拐，米弓被西嫂特攻两枪直接戳死，红卡现在的输出真是上天了，400w不到的血量完全不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87240#       发表于 2022-3-16 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55069884&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-3-16 20:08</a>
+
+梅林、杀狐、奥宝、大魔王拐西嫂，陈宫送拐，米弓被西嫂特攻两枪直接戳死，红卡现在的输出真是上天了，40 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下没有挂西嫂和村正的好友 难受
+
