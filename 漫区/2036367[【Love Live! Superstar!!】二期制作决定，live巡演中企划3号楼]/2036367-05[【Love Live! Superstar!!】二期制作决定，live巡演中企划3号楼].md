@@ -6137,3 +6137,15 @@ C1D8CB3A-3AA6-4BA2-B6A9-5DABD80D58D1.jpeg
 
 拉板有个新串竟然在讨论为啥企划有俩中国人角色却没有一个韩国人角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 6481#       发表于 2022-3-16 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55061101&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-03-16 09:25:12</a>
+拉板有个新串竟然在讨论为啥企划有俩中国人角色却没有一个韩国人角色</blockquote>说不定V团会给他们安排一个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
