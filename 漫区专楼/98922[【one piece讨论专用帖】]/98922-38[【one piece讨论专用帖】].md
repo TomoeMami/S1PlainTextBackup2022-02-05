@@ -15105,3 +15105,32 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 你说的这个问题，确实很奇怪，比如下图，装了蝾螈果实的袋子就没有变成能力者。</blockquote>
 说了啊，物品吃果实要用贝加庞克的技术，没有干涉大抵就是用真果实回收。
 
+
+
+*****
+
+####  斯塔久  
+##### 56753#       发表于 2022-3-16 08:25
+
+ 本帖最后由 斯塔久 于 2022-3-16 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55056854&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-15 20:58</a>
+
+说了啊，物品吃果实要用贝加庞克的技术，没有干涉大抵就是用真果实回收。
+
+当然这个袋子本身的材质十有八九也是很特殊的 ...</blockquote>
+你们讨论滥了的结论就是 “这个袋子的材质很特殊”？  我是真没想到还能有这么幼稚的解读方式哇。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  菠萝渣32000  
+##### 56754#       发表于 2022-3-16 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55060439&amp;ptid=98922" target="_blank">斯塔久 发表于 2022-3-16 08:25</a>
+
+你们讨论滥了的结论就是 “这个袋子的材质很特殊”？  我是真没想到还能有这么幼稚的解读方式哇。
+
+ ...</blockquote>
+说袋子材料特殊，也就类似于  我认为路飞出身不平凡/我觉得赤犬是最强大将/我估计革命军打不过政府
+
+虽然看上去很幼稚，但说的多了经常能猜中。
+
