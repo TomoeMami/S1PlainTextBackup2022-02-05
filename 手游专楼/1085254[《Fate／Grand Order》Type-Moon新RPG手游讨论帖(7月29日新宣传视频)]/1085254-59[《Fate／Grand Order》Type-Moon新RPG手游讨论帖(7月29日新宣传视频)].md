@@ -2779,3 +2779,14 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新高难完全不想碰啊
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87251#       发表于 2022-3-16 22:38
+
+终于可以用巴太太烤螃蟹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
