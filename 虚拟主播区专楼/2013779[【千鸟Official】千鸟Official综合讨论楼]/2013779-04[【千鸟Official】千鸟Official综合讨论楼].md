@@ -11739,3 +11739,15 @@ co子活啦！co子活啦！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有点乐
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5748#       发表于 2022-3-16 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55065487&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2022-3-16 14:21</a></blockquote>
+这个发歌那天就看到了
+
+可以说大型打脸现场<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

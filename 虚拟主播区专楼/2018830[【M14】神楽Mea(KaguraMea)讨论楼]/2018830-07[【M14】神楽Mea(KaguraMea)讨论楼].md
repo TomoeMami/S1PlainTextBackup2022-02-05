@@ -7080,3 +7080,16 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 这企划能撑过一年吗……
 
+
+
+*****
+
+####  往世雷书  
+##### 9751#       发表于 2022-3-16 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55061174&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-3-16 09:30</a>
+看看虹，和索尼合作的下场，就懂叔叔这个了</blockquote>
+别叔叔了，那vr算什么，四禧丸子算什么，b站给vcp的资源有这两个的百分之一吗，要是挂名就算，那nga还挂名了呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
