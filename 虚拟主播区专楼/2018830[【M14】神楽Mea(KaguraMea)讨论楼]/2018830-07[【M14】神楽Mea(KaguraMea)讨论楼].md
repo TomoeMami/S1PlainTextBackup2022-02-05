@@ -7305,3 +7305,64 @@ y1s1，20年歌回主要是删档，忘了啥事把她整怕了搞的之后聊�
 
 你咩姐：应该还能再播一会。刚刚一瞬间都开始考虑要死了怎么办了，而且就算现在关了直播也会开始忧郁的，好歹开播了也就让我死之前做些我想做的事吧，至少到我满足为止<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 9778#       发表于 2022-3-16 23:03
+
+https://twitter.com/Q0S_Rimu/status/1504107833507282947?t=3tc02Gv3fYI71li6Tm_N6A&amp;s=19
+有点哈人
+
+*****
+
+####  rosevalley46  
+##### 9779#       发表于 2022-3-16 23:04
+
+灰青
+
+*****
+
+####  aliade  
+##### 9780#       发表于 2022-3-16 23:06
+
+地震后唱灰青，是糖(
+
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9781#       发表于 2022-3-16 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TomDu  
+##### 9782#       发表于 2022-3-16 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 9783#       发表于 2022-3-16 23:16
+
+ 本帖最后由 路人庚 于 2022-3-16 23:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202203/16/231627cuiudu9wf9pzf6xx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FA0B7322-7D2F-4F5D-9BC3-96986457DF7B.jpeg</strong> (196.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-16 23:16 上传
+
+答案似乎是震了2次，一次6.0，一次7.7（已更正为7.4）
+
+哈人
+

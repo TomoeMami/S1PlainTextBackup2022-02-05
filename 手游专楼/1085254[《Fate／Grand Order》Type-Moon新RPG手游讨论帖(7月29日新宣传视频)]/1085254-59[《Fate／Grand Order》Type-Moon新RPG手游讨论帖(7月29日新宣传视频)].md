@@ -2790,3 +2790,13 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  cckuku  
+##### 87252#       发表于 2022-3-16 23:15
+
+感觉换了新公司之后确实是有在做事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然可能过多一年又开始能躺何站了。
+
