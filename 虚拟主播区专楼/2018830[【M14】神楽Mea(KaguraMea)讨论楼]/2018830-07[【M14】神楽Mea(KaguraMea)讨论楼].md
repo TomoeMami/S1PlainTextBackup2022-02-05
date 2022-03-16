@@ -7452,3 +7452,18 @@ i want be with you
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  往世雷书  
+##### 9794#       发表于 2022-3-17 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55072175&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-3-16 22:56</a>
+显示器差点报废
+
+你咩姐：应该还能再播一会。刚刚一瞬间都开始考虑要死了怎么办了，而且就算现在关了直播也 ...</blockquote>
+应该算是本能反应了吧，18年被死亡威胁疯狂连播，这次感觉是不是要死了也要播着死
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
