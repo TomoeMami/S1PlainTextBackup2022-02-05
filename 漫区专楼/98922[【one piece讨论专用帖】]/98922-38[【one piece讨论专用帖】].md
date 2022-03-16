@@ -15134,3 +15134,19 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 虽然看上去很幼稚，但说的多了经常能猜中。
 
+
+
+*****
+
+####  仟音一心  
+##### 56755#       发表于 2022-3-16 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55060439&amp;ptid=98922" target="_blank">斯塔久 发表于 2022-3-16 08:25</a>
+你们讨论滥了的结论就是 “这个袋子的材质很特殊”？  我是真没想到还能有这么幼稚的解读方式哇。
+
+ ...</blockquote>
+那你给个更高明的来，这种特殊材质的织物也不是第一次出现了，黑胡子抢震震果实用的黑布，巴杰斯试图抢烧烧和橡皮果实时用的包巾。
+当然织物材质这方面也确实只是猜测了，也可能是在水果本身上做文章，比如毒Q的那来历不明的一篮子苹果，
+讨论滥了又不是说得出了啥一定正确不会被尾田打脸的结论，只是就目前的剧情而言还暂时算得上逻辑自洽。做OP分析的，哪个不是脸被扇肿到习惯了的。<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+狩猎能力者并回收果实之谜也确实还没揭晓，但在之后打黑胡子团时必然是要解释的。
+
