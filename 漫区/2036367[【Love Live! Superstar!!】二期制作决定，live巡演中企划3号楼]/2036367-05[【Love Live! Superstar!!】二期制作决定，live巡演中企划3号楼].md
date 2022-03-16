@@ -6240,3 +6240,16 @@ Sunday里的中文是鲤鱼要求的啊<img src="https://static.saraba1st.com/im
 日韩混血还有个pile，按日本这在日比例我觉 ...</blockquote>
 岚珠设定是香港出身的中日混血，母亲是虹咲学园理事长，父亲没提过。这么看似乎父亲中国人，父母国籍与可可相反。
 
+
+
+*****
+
+####  iuhehc  
+##### 6491#       发表于 2022-3-16 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55064839&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-16 13:36</a>
+岚珠设定是香港出身的中日混血，母亲是虹咲学园理事长，父亲没提过。这么看似乎父亲中国人，父母国籍与可 ...</blockquote>
+可可岚珠没反，是和菜宝反了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

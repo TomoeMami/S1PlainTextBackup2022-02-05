@@ -15150,3 +15150,19 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 讨论滥了又不是说得出了啥一定正确不会被尾田打脸的结论，只是就目前的剧情而言还暂时算得上逻辑自洽。做OP分析的，哪个不是脸被扇肿到习惯了的。<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 狩猎能力者并回收果实之谜也确实还没揭晓，但在之后打黑胡子团时必然是要解释的。
 
+
+
+*****
+
+####  斯塔久  
+##### 56756#       发表于 2022-3-16 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55060515&amp;ptid=98922" target="_blank">菠萝渣32000 发表于 2022-3-16 08:33</a>
+
+说袋子材料特殊，也就类似于  我认为路飞出身不平凡/我觉得赤犬是最强大将/我估计革命军打不过政府
+
+虽然 ...</blockquote>
+这些分析虽然看上去主观肤浅，但除了“最强大将是赤犬” 以外都稳了。 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 
+
+至于“袋子材料特殊”，那只能说是小学生解读。
+
