@@ -2648,3 +2648,18 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 87238#       发表于 2022-3-16 19:41
+
+ 本帖最后由 保罗赫伯特 于 2022-3-16 19:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55067901&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-3-16 17:24</a>
+
+高难锁nmsl，以及国服可以开始考虑徐福落地改啥名了23333</blockquote>
+叫帝释天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过去，再打一次是没有精力了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
