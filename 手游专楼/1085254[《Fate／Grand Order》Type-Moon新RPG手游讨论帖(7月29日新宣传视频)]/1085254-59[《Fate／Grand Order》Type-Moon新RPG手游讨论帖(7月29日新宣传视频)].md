@@ -2506,3 +2506,71 @@ FC821325-E463-4E61-B9DC-804C9FF8CEC2.jpeg
 
 艾尔登法环马丁做的奇幻剧情还真不是盖的，蘑菇你好好学学人家，薅了这么奇幻小说人物，但是观感和人家一个天一个地
 
+
+
+*****
+
+####  白金口袋  
+##### 87221#       发表于 2022-3-16 17:12
+
+商店突然出现的徐福上了推特趋势第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87222#       发表于 2022-3-16 17:14
+
+用过的从者不能再用。。这。。是新版爬塔吗
+
+*****
+
+####  alucardcz  
+##### 87223#       发表于 2022-3-16 17:15
+
+这泥马一口气开了这么多东西？ 合理吗
+
+*****
+
+####  qixinno2  
+##### 87224#       发表于 2022-3-16 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">出啥了 咋回事 
+
+*****
+
+####  alucardcz  
+##### 87225#       发表于 2022-3-16 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">特总黄金率又强化了。。。居然还带了智障拐 从次以后也不会miss了
+
+*****
+
+####  仰望神的括约肌  
+##### 87226#       发表于 2022-3-16 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55067802&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-16 17:14</a>
+
+用过的从者不能再用。。这。。是新版爬塔吗</blockquote>
+比爬塔恶心多了 是高难锁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87227#       发表于 2022-3-16 17:19
+
+老祖改模+强化，假面骑士简易灵衣
+
+*****
+
+####  angelooo  
+##### 87228#       发表于 2022-3-16 17:24
+
+高难锁nmsl，以及国服可以开始考虑徐福落地改啥名了23333
+
+*****
+
+####  阿提拉  
+##### 87229#       发表于 2022-3-16 17:26
+
+高难本锁船，yls有大病
+
