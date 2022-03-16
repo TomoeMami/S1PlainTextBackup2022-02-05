@@ -11344,3 +11344,24 @@ pt姐现在看起来不错是因为已经走出来了也确立自己的路线风
 
 而且pt姐上来就跟枪男称兄道弟的真有杏独角兽去看吗
 
+
+
+*****
+
+####  qwera3469  
+##### 11517#       发表于 2022-3-16 15:33
+
+走星川路线能不能🔥
+
+*****
+
+####  rzrbtk  
+##### 11518#       发表于 2022-3-16 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55065869&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-3-16 14:47</a>
+
+只能说现在虹的这种女性主导市场利好了小红吧，她这种线充式风格很能吸引女粉的，现在都在抖音上开始推荐 ...</blockquote>
+那个人特性也是多播才能展示出来，素人容易失去热情不直播惹...
+
+像琥珀宝去旅游去打球去happy打工都懒得播，除非被ngo呼唤，感觉进来虹就是纯乐<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
