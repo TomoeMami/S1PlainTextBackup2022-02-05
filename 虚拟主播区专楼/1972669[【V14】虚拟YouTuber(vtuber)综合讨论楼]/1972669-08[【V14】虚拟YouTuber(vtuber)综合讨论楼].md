@@ -11170,3 +11170,48 @@ vta就看了两眼男人初配信，有人还记得出道几位什么情况吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">觉得还行。
 
+
+
+*****
+
+####  fastary  
+##### 11500#       发表于 2022-3-16 12:06
+
+话说en吃到甜头之后现在本社出道也是原创曲周边音声一条龙了，以后更不可能再下饺子了吧……估计就固定每年一组了
+
+*****
+
+####  Suzutsuki  
+##### 11501#       发表于 2022-3-16 12:11
+
+ 本帖最后由 Suzutsuki 于 2022-3-16 12:12 编辑 
+
+终于有纯女人的新人组合了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">喜欢红毛和最右边的黑毛
+
+*****
+
+####  qwera3469  
+##### 11502#       发表于 2022-3-16 12:11
+
+<blockquote>毛头小希 发表于 2022-3-16 11:56
+几个男的一个女的
+
+是让那个女生像pt姐yugo一样担任拉仇恨的角色是吧
+
+大人，时代变啦 ...</blockquote>
+yugo特殊情况吧，帕特好歹有箱推热度，总比世怜女强吧
+
+*****
+
+####  oceanneo  
+##### 11503#       发表于 2022-3-16 12:22
+
+世怜女观感还不错，但也仅仅是还不错
+
+*****
+
+####  空集  
+##### 11504#       发表于 2022-3-16 12:24
+
+这VTA的女的我出道好奇还真去看过 还在本楼repo了 别的不说声线就素人的不行 如同路边随便拉的，这也能正式出道我是真的没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
