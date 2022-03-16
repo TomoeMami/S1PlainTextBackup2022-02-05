@@ -10951,3 +10951,43 @@ ok，懂了
 
 就差一个自由1600，只能留给二周目了。
 
+
+
+*****
+
+####  yan38324  
+##### 986#       发表于 2022-3-16 10:51
+
+药师练出回复tp技能后游戏就没什么难度了
+
+*****
+
+####  zzzeven  
+##### 987#       发表于 2022-3-16 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55061976&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-16 10:25</a>
+在酒馆刷刷刷总算把枪圣收进队了，就感觉这游戏的小剧场互动还是有些少。
+
+师傅回来居然只跟徒弟的亲卫队聊 ...</blockquote>
+十七章了，还能有地方去刷吗
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yangchunsiyue  
+##### 988#       发表于 2022-3-16 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55062484&amp;ptid=2051152" target="_blank">zzzeven 发表于 2022-3-16 10:54</a>
+
+十七章了，还能有地方去刷吗
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+驻扎所随时可以刷啊，我是隐藏结局在19章刷。
+
+17章整个在投票吧？
+
+隐藏结局18章分了三队，不太好刷。
+
+所以我是19章汇合以后才刷的。
+
