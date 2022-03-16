@@ -11374,3 +11374,16 @@ pt姐现在看起来不错是因为已经走出来了也确立自己的路线风
 
 星川的形象虽然很直观，但也是长时间塑造下来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11520#       发表于 2022-3-16 20:29
+
+黑客说过他这样的人估计vta是不招的，现在看来他这种完全回避偶像类活动的可能真的不会再出现了（虽说本来能算的也就黑客、abo和ib吧）<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+不知道该庆幸他是19下虹男风光前出道的不挑这个，还是该感慨他再晚一两年接触V怕不是嫌弃2434大搞偶像根本就不会来当v了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+他那句“难道nijisanji是偶像事务所”我真品出了点阴阳味儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
