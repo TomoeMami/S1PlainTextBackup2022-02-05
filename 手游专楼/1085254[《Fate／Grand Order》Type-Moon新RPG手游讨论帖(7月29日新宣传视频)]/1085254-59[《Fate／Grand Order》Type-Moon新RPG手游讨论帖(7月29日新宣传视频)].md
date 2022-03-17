@@ -2849,3 +2849,12 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 姑姑这张四星礼装有点好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87258#       发表于 2022-3-17 10:22
+
+除了螃蟹都很简单、不过是调整难度罢了
+
