@@ -6830,3 +6830,43 @@ BEA3232E-A1EF-4EA4-B7F9-BED0A56A6AC4.jpeg
 
 表情藏不住果然不适合玩这种游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6525#       发表于 2022-3-17 20:14
+
+Liyuu对Sayu：我相信你，第一次相信你。
+
+Sayu：复杂……
+
+抽完，没有成对的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+4B2DF028-BA79-469D-9982-4C047C56EAA2.jpeg
+(1.39 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/201346kbsrbbpbrrzp7b21.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3796ED5E-E793-4B9C-8AE2-92B5C4882C54.jpeg
+(281.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 20:14 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/201407d0pl0msrrp0s4mhv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+16ACFEE8-1F0F-4AC2-8187-D3B0360103A1.jpeg
+(225.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 20:14 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/201407tllz784p7wzbbcik.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
