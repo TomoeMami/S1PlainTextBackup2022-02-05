@@ -3154,3 +3154,12 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  Yugao  
+##### 280#       发表于 2022-3-17 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">提示设备不兼容怎么破，这游戏难道还挑平台吗
+

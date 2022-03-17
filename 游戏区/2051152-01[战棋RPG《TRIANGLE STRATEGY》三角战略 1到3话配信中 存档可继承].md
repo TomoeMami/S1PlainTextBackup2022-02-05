@@ -11141,3 +11141,20 @@ nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
 —— 来自 S1Fun</blockquote>
 说明你的心在管家或者王子那里<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  罐子  
+##### 1001#       发表于 2022-3-17 08:26
+
+到了选王子，管家还是老婆的大分歧了
+女主为了自己族人不顾老公家子民死活怎么也算不上圣母吧，本来也不喜欢这个方案
+但把盐矿这个烫手山芋放弃，让两家自己打个稀巴烂自己苟一边猥琐发育的思路很合我意，另外两个不管跟谁混都是被利用的下场
+
+最后选了粉毛线
+
+二周目再打出第四条路线看看
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
