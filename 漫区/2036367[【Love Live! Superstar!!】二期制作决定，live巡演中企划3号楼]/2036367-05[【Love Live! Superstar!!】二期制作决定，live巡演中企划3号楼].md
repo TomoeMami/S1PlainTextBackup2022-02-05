@@ -6870,3 +6870,12 @@ Sayu：复杂……
 
 <img src="https://img.saraba1st.com/forum/202203/17/201407tllz784p7wzbbcik.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6526#       发表于 2022-3-17 20:42
+
+没关系，最后还是打铁给了鲤鱼土豆，成就了鲤鱼的另一种胜利，这也是一种合鲤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
