@@ -11240,3 +11240,40 @@ nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
 
 没有听我一句话，我就把安娜给你的分支
 
+
+
+*****
+
+####  henryqxg  
+##### 1009#       发表于 2022-3-17 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55076132&amp;ptid=2051152" target="_blank">Niyah 发表于 2022-3-17 10:51</a>
+
+不打模拟战等级一直比推荐低，感觉迟早要重打某一关攒经验，不知道为什么要这样设计 ...</blockquote>
+为啥不打啊，至少打1次啊
+
+不过不打模拟战刷级也是有办法的，比如第七章卡完房子无限加buff就能升级的
+
+感觉纯粹浪费时间宁愿刷模拟战，模拟战多打几次还有素材拿，不是处女座没必要故意不打吧
+
+*****
+
+####  听风不是雨  
+##### 1010#       发表于 2022-3-17 15:10
+
+我是觉得模拟战真没什么可打的，除了给9000块钱那关，想刷经验直接去主线关（主线关往往比当前能打的模拟战高一级，经验补正更高），想刷素材直接刷钱去商人那买，而且主线关和捡垃圾给的素材点出关键武器技能完全是够用的，剩下那些1点属性5点威力都是纯纯的蚊子腿
+
+*****
+
+####  Niyah  
+##### 1011#       发表于 2022-3-17 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080168&amp;ptid=2051152" target="_blank">henryqxg 发表于 2022-3-17 15:05</a>
+
+为啥不打啊，至少打1次啊
+
+不过不打模拟战刷级也是有办法的，比如第七章卡完房子无限加buff就能升级的
+
+感觉 ...</blockquote>
+个人游戏习惯问题，机战我也不打纯刷资源的关卡，除非难到玩不下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

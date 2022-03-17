@@ -698,3 +698,230 @@ mhy这个便宜不好捡
 atlus和ca，但是我现在只想看他们吃屎</blockquote>
 我对CA的展望是，战锤系列红利吃完之后必定血崩一波，死不死不清楚。锤三部曲把ca13、15年的巨大危机给暂时掩盖住了，但ca这几年依旧没解决未来全战的出路问题，内部管理混乱加人员流动性大，技术积累毫无疑问受到了影响，再加上20年的屎山，总有一天要炸的。
 
+
+
+*****
+
+####  狸狸狐  
+##### 76#       发表于 2022-3-17 14:59
+
+MONOLITH的小红帽如果能卖相做好点，跟上ARPG和中世纪风潮，做自己特色，然后老任配合来一波营销，配合NS新版机器，有一点可能吧。虽然还是八字没一撇的事情。
+
+*****
+
+####  faust123  
+##### 77#       发表于 2022-3-17 15:05
+
+阿特拉斯没戏，太老了所以太油了，没有当初fs不顾一切做游戏那个劲头
+
+—— 来自 OnePlus ONEPLUS A6010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  龙之峰  
+##### 78#       发表于 2022-3-17 15:16
+
+我还挺喜欢法老控的，不过法老控想出头障碍重重。
+
+规模难以扩大导致人才流失、制作能力不足，进一步导致产品少，过于保守。
+
+而且自闪3开始审美有下降的趋势，这可能也是人才流失导致的。
+
+*****
+
+####  hansel  
+##### 79#       发表于 2022-3-17 15:22
+
+就是做有一定特色的第三人称 3D ARPG/AVG，感觉做这个赛道的独立游戏厂商挺多的，但是要么就是一点点内容一直测试 bug 多到玩不下去，要么产量太低
+
+*****
+
+####  jojoyuri  
+##### 80#       发表于 2022-3-17 15:24
+
+几部作品积累核心粉丝，然后最新一作开放大世界，达到引爆点出圈
+
+*****
+
+####  1678334706  
+##### 81#       发表于 2022-3-17 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080359&amp;ptid=2058135" target="_blank">hansel 发表于 2022-3-17 15:22</a>
+
+就是做有一定特色的第三人称 3D ARPG/AVG，感觉做这个赛道的独立游戏厂商挺多的，但是要么就是一点点内容一 ...</blockquote>
+光荣不就做的挺好的 还做出自己特色了 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑暗剑  
+##### 82#       发表于 2022-3-17 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080378&amp;ptid=2058135" target="_blank">jojoyuri 发表于 2022-3-17 15:24</a>
+几部作品积累核心粉丝，然后最新一作开放大世界，达到引爆点出圈</blockquote>
+🤣那不就是米忽悠吗，反转了，FS人称小MHY
+
+*****
+
+####  ネコカイザー  
+##### 83#       发表于 2022-3-17 15:26
+
+香草社？但是香草社体量还是太小了
+
+*****
+
+####  翻滚吧熊犊子  
+##### 84#       发表于 2022-3-17 15:30
+
+米哈游吧
+
+*****
+
+####  jojoyuri  
+##### 85#       发表于 2022-3-17 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080413&amp;ptid=2058135" target="_blank">黑暗剑 发表于 2022-3-17 15:26</a>
+
+🤣那不就是米忽悠吗，反转了，FS人称小MHY</blockquote>
+荒野之息，2077，原神，老头环都符合
+
+*****
+
+####  whzfjk  
+##### 86#       发表于 2022-3-17 15:37
+
+为什么会有mhy，那不已经是完成时了？而且更新型有其固有弊病，极限口碑目前就是ff14这样子
+
+*****
+
+####  小泉花陽  
+##### 87#       发表于 2022-3-17 15:59
+
+atlus是有可能，但是被世嘉收了，母公司都这屌样了能给多大的支持，世嘉的发行能力还没有BNEI强。
+
+法老控专注的rpg和arpg赛道其实是有那么一点点点的可能性的，特别是伊苏，只要能被哪家大厂收了给够资金和技术支持，内核不变画面变好+开放世界，发行不拉胯的话完成蜕变的可能性真的很高，然而人家就是想独立自主小富为安。
+
+*****
+
+####  同学  
+##### 88#       发表于 2022-3-17 16:03
+
+楼里提mhy的我觉得啥时候玩mhy游戏能体会不到别的游戏的想法才算吧
+
+*****
+
+####  TTAA  
+##### 89#       发表于 2022-3-17 16:10
+
+TEAM ninja
+
+不是因为喜欢忍龙，而是以目前仁王引擎的完成度，大概可以像FS一样修修改改，做点提升的流水线工程。
+
+前提是要做好剧情和美术<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 90#       发表于 2022-3-17 16:18
+
+白金，把那些上层换了找个好监督让他们好好开发游戏去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  BallanceHZ  
+##### 91#       发表于 2022-3-17 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080798&amp;ptid=2058135" target="_blank">小泉花陽 发表于 2022-3-17 15:59</a>
+atlus是有可能，但是被世嘉收了，母公司都这屌样了能给多大的支持，世嘉的发行能力还没有BNEI强。
+
+法老控专 ...</blockquote>
+我确实觉得ys潜力极高，要不ms去收购吧，ms看不上那mhy也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我觉得近藤手下一共几十人，上司还天天砍预算，这样都能稳定一年一部良作出品真的挺nb的
+
+*****
+
+####  umbasa  
+##### 92#       发表于 2022-3-17 16:29
+
+<blockquote>TTAA 发表于 2022-3-17 16:10
+TEAM ninja
+
+不是因为喜欢忍龙，而是以目前仁王引擎的完成度，大概可以像FS一样修修改改，做点提升的流水线 ...</blockquote>
+先把引擎整好点吧，场景要么黑漆马虎，要么亮瞎眼，感觉都是为了遮盖拉胯的材质。另外土味审美也是个问题，特效能不能别搞那么土了。
+
+*****
+
+####  诚司  
+##### 93#       发表于 2022-3-17 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55081171&amp;ptid=2058135" target="_blank">umbasa 发表于 2022-3-17 16:29</a>
+
+先把引擎整好点吧，场景要么黑漆马虎，要么亮瞎眼，感觉都是为了遮盖拉胯的材质。另外土味审美也是个问题 ...</blockquote>
+不是感觉，就是
+
+仁王把亮度一调高，那场景直接变ps3<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+因为和pc版357和z54一个样，是真的牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ChingHsien  
+##### 94#       发表于 2022-3-17 16:34
+
+成为下一个cdpr到底是好事还是坏事呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddr  
+##### 95#       发表于 2022-3-17 16:42
+
+有可能奈须蘑菇梦里这么想过
+
+*****
+
+####  汪达  
+##### 96#       发表于 2022-3-17 16:43
+
+首先技术力得达到这个门槛，所以先排除四天王，好像也就如龙组、忍者组、佩鲁唢呐组、坛游组机会大点，虽然大家销量差不多，相对来说佩鲁唢呐组机会更大一点，因为后面两个都是平**占，前面两个已经算了PC版销量了，而坛游组肯定任系独占，但阿特拉稀还是有可能突然有一天想开了不跟钱过不去了搞全平台的
+
+*****
+
+####  杉田悠一  
+##### 97#       发表于 2022-3-17 16:59
+
+暴雪
+
+*****
+
+####  武机霸拳流代师范  
+##### 98#       发表于 2022-3-17 17:07
+
+我希望是香草社，但是基本不可能。
+
+*****
+
+####  lemore  
+##### 99#       发表于 2022-3-17 17:20
+
+那当然是我sandlot
+
+EDF6, 敬请见证
+
+*****
+
+####  fallanger  
+##### 100#       发表于 2022-3-17 17:25
+
+当然是mono社
+
+*****
+
+####  barry.allen  
+##### 101#       发表于 2022-3-17 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55081342&amp;ptid=2058135" target="_blank">ddr 发表于 2022-3-17 16:42</a>
+
+有可能奈须蘑菇梦里这么想过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别逗了，他要真有心当企业家也不会让索尼全权经营菲特狗
+

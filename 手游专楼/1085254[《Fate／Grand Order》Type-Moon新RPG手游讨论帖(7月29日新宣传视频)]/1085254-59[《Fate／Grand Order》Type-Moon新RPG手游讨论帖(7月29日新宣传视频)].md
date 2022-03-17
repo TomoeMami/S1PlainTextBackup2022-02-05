@@ -2868,3 +2868,53 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 [url=[https://imgtu.com/i/q9b0SA](https://imgtu.com/i/q9b0SA)]<img src="https://s1.ax1x.com/2022/03/17/q9b0SA.jpg" referrerpolicy="no-referrer">[/url]
 打完了，还挺简单的
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87260#       发表于 2022-3-17 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">螃蟹用暗狐简直就是单方面虐待……
+
+*****
+
+####  黑上シグマ  
+##### 87261#       发表于 2022-3-17 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55078636&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-17 13:20</a>
+
+https://imgtu.com/i/q9b0SA][/url]
+
+打完了，还挺简单的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你这带的人也忒多了……
+
+*****
+
+####  千叶铁矢  
+##### 87262#       发表于 2022-3-17 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080083&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-17 14:59</a>
+你这带的人也忒多了……</blockquote>
+挺多都是后备的，最后没上，北斋，奥博龙，杰克，r金，戈尔贡，梅林
+
+*****
+
+####  不垃圾屌丝  
+##### 87263#       发表于 2022-3-17 17:21
+
+豹之国原来这么简单的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/c4dab6ef4ed6a39ce2ec5fcf62780b98/IMG_CMP_30060957.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  黑上シグマ  
+##### 87264#       发表于 2022-3-17 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55081788&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-3-17 17:21</a>
+
+豹之国原来这么简单的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">自打有了banana和陈宫起就是2回合的事啊
+

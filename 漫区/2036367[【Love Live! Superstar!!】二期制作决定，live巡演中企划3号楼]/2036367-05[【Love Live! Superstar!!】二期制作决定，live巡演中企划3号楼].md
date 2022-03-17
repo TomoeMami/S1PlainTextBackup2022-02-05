@@ -6659,3 +6659,129 @@ CD288676-61CC-465B-BCEE-83CDAFB9D067.jpeg
 
 连报平安的推都要经纪人确认过才能发
 
+
+
+*****
+
+####  优妮可  
+##### 6511#       发表于 2022-3-17 15:01
+
+发文的格式和内容问题吧，这个问清楚怎么说再发比较好的。但跨年小视频和拔牙就直接发了又删的，说明有时候还是自己发的
+
+*****
+
+####  cat1230  
+##### 6512#       发表于 2022-3-17 15:33
+
+<blockquote>引用第6508楼saya1892于2022-03-17 12:38发表的  :
+
+有个回帖说，韩国偶像水平比日本高，怎么可能会憧憬日本的学园偶像</blockquote>
+@saya1892
+
+韩国女团是比日本女团强吧，虽然我不追那个。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 6513#       发表于 2022-3-17 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下个团还不如加个美国妞，全企划就隔壁秀英语无压力
+
+*****
+
+####  甘蓝巧克力  
+##### 6514#       发表于 2022-3-17 16:05
+
+不如凑个奥运五环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 6515#       发表于 2022-3-17 16:11
+
+凑个联合国五常吧，还缺2个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6516#       发表于 2022-3-17 16:17
+
+草，微博那回复删了，这是自搜看到了啥，还是又被经纪人说了
+
+*****
+
+####  Enakina  
+##### 6517#       发表于 2022-3-17 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55081019&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-03-17 16:17:50</a>
+草，微博那回复删了，这是自搜看到了啥，还是又被经纪人说了</blockquote>可能又被经纪人说了？
+经纪人:你以后发微博也和我报备吧（x）
+不过不要紧，她想说的也都说了，删就删了吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 6518#       发表于 2022-3-17 17:01
+
+ 本帖最后由 starring 于 2022-3-17 17:08 编辑 
+
+小百合身体不适，但没有出现发热症状
+
+FF82A782-0567-48EA-A45B-5A0596F9E70F.jpeg
+(144.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/170749cbun8v8sd57smmbj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D7CC8AD7-445D-4E39-B5E3-1F1A35B6D7F5.jpeg
+(54.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/170749z5l7q4qlwtlu7l88.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 6519#       发表于 2022-3-17 17:08
+
+<blockquote>saya1892 发表于 2022-3-17 12:38
+有个回帖说，韩国偶像水平比日本高，怎么可能会憧憬日本的学园偶像</blockquote>
+论卷肯定是南朝鲜卷
+
+*****
+
+####  Enakina  
+##### 6520#       发表于 2022-3-17 17:21
+
+ 本帖最后由 Enakina 于 2022-3-17 17:25 编辑 
+
+昨天不是去仙台了吗，估计没休息好，问题应该不大，我咋感觉比起生病，更多是被吓的呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 6521#       发表于 2022-3-17 17:47
+
+菜鱼
+
+BC125848-3176-414D-B398-C19C4A26D983.jpeg
+(421.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/174702d66cc41np782i16c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

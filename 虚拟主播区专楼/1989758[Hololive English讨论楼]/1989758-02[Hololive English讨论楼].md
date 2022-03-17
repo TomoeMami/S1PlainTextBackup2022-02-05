@@ -1886,3 +1886,22 @@ Kiwawa 独家爆料<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 马尾ina 太可爱了
 
+
+
+*****
+
+####  M1NG  
+##### 1666#       发表于 2022-3-17 15:19
+
+话说这个VRC版本的模型是不是就是到时候用在演唱会里的？
+
+*****
+
+####  wuzhengkai  
+##### 1667#       发表于 2022-3-17 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080317&amp;ptid=1989758" target="_blank">M1NG 发表于 2022-3-17 15:19</a>
+
+话说这个VRC版本的模型是不是就是到时候用在演唱会里的？</blockquote>
+九成九不是
+
