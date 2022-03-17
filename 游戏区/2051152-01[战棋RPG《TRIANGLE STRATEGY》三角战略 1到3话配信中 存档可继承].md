@@ -11190,3 +11190,15 @@ nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
 女主为了自己族人不顾老公家子民死活怎么也算不上圣母吧，本来也不喜 ...</blockquote>
 老婆线看到结局走向千万别骂娘<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niyah  
+##### 1005#       发表于 2022-3-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55075821&amp;ptid=2051152" target="_blank">henryqxg 发表于 2022-3-17 10:26</a>
+
+奥罗拉速度35，基本上你动一次她动2次，本身还肉的一逼，还有茫茫多的小兵，不卡房子我真不知道怎么打。 ...</blockquote>
+不打模拟战等级一直比推荐低，感觉迟早要重打某一关攒经验，不知道为什么要这样设计
+
