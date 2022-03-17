@@ -6879,3 +6879,32 @@ Sayu：复杂……
 
 没关系，最后还是打铁给了鲤鱼土豆，成就了鲤鱼的另一种胜利，这也是一种合鲤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6527#       发表于 2022-3-17 20:57
+
+另外四人都是在鲤鱼手里抽到最后一张的，真·游戏黑洞了。
+
+ニードロ老师又印刷机了
+
+DC6041D1-0C4D-48E6-8081-2D305FCE82B8.jpeg
+(222.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/205702tm9ra9vheu7p9dm5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+25550203-32FE-48D7-B5BA-9786241491F9.jpeg
+(1.1 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-17 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202203/17/205703zwkq9kb9q9dijqwq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
