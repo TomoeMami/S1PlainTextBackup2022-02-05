@@ -11481,3 +11481,14 @@ Syl，黑客总是在troll，过去一年都冲锋在第一线，真的很不日
 
 昨天葛king开的台太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论区也搞，这是准备魂皮双开了在打预防针吗
 
+
+
+*****
+
+####  NBXX  
+##### 11530#       发表于 2022-3-17 11:19
+
+[https://prtimes.jp/main/html/rd/p/000000015.000070242.html](https://prtimes.jp/main/html/rd/p/000000015.000070242.html)
+
+米VTuber事務所「VShojo」シードラウンドにて約13億円の資金調達を実施
+
