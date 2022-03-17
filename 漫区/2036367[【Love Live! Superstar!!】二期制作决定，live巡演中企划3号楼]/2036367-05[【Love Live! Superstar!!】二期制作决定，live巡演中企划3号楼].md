@@ -6629,3 +6629,15 @@ CD288676-61CC-465B-BCEE-83CDAFB9D067.jpeg
 
 都没事了，总算可以安心睡觉
 
+
+
+*****
+
+####  adw667  
+##### 6508#       发表于 2022-3-17 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55061101&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-3-16 09:25</a>
+
+拉板有个新串竟然在讨论为啥企划有俩中国人角色却没有一个韩国人角色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这就和小男孩进女浴场一样，当你想进的时候就不能进了
+
