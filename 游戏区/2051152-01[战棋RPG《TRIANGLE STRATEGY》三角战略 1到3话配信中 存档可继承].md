@@ -11167,3 +11167,26 @@ nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
 
 用龟缩打法普通难度九级不放火就过了奥罗拉好爽。鹰弓卡高地形有点变态，敌方只会原地待机挨射。
 
+
+
+*****
+
+####  henryqxg  
+##### 1003#       发表于 2022-3-17 10:26
+
+<blockquote>Niyah 发表于 2022-3-17 09:16
+用龟缩打法普通难度九级不放火就过了奥罗拉好爽。鹰弓卡高地形有点变态，敌方只会原地待机挨射。 ...</blockquote>
+奥罗拉速度35，基本上你动一次她动2次，本身还肉的一逼，还有茫茫多的小兵，不卡房子我真不知道怎么打。。。
+
+*****
+
+####  minysun  
+##### 1004#       发表于 2022-3-17 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55074557&amp;ptid=2051152" target="_blank">罐子 发表于 2022-3-17 08:26</a>
+
+到了选王子，管家还是老婆的大分歧了
+
+女主为了自己族人不顾老公家子民死活怎么也算不上圣母吧，本来也不喜 ...</blockquote>
+老婆线看到结局走向千万别骂娘<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
