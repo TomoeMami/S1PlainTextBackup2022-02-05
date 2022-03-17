@@ -11277,3 +11277,64 @@ nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
 感觉 ...</blockquote>
 个人游戏习惯问题，机战我也不打纯刷资源的关卡，除非难到玩不下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 1012#       发表于 2022-3-17 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">npc算不算在死亡里的，这游戏想不死还真挺讲究，一露个空档就集火死人
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  henryqxg  
+##### 1013#       发表于 2022-3-17 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55084454&amp;ptid=2051152" target="_blank">mqnwbeebwnqm 发表于 2022-3-17 21:10</a>
+
+npc算不算在死亡里的，这游戏想不死还真挺讲究，一露个空档就集火死人
+
+—— 来自 realme RMX3366,  ...</blockquote>
+据说算的，不敢试。。。
+
+即使普通难度不死人也挺讲究，脆皮动不动就死了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dren_zheng  
+##### 1014#       发表于 2022-3-17 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55076132&amp;ptid=2051152" target="_blank">Niyah 发表于 2022-3-17 10:51</a>
+
+不打模拟战等级一直比推荐低，感觉迟早要重打某一关攒经验，不知道为什么要这样设计 ...</blockquote>
+模拟战主要是为了刷钱和武器素材
+
+单纯经验的话，这游戏的经验修正非常变态，低四五级的话动作一下（攻击、加减BUFF、吃药等等）就是100经验升一级
+
+*****
+
+####  sysop  
+##### 1015#       发表于 2022-3-17 22:10
+
+这游戏打的太累了，就是伪装成游戏的有声小说
+
+*****
+
+####  索田八公  
+##### 1016#       发表于 2022-3-17 23:34
+
+一周目真结局管家线也太难了，本来以为能烧老家会简单点，结果体感敌人数量能有第一章快两倍了，一共三波援军，我就7个老弱病残，什么梯子哥法师都没带，困难打了一晚上都看不到过的希望，只能降下难度了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aresu  
+##### 1017#       发表于 2022-3-17 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55085831&amp;ptid=2051152" target="_blank">索田八公 发表于 2022-3-17 23:34</a>
+
+一周目真结局管家线也太难了，本来以为能烧老家会简单点，结果体感敌人数量能有第一章快两倍了，一共三波援 ...</blockquote>
+读档换分队嘛
+

@@ -2927,3 +2927,12 @@ https://imgtu.com/i/q9b0SA][/url]
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">芭娜娜复刻没抽到 难受
 
+
+
+*****
+
+####  khxooo  
+##### 87266#       发表于 2022-3-17 23:45
+
+以藏打的很烦，梅林不断的被暴击，总是在无敌转CD的最后一回合扛不住。
+

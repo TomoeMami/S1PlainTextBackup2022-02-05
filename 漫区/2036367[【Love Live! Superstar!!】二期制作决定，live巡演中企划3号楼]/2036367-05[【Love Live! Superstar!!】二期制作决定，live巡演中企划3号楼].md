@@ -6908,3 +6908,96 @@ DC6041D1-0C4D-48E6-8081-2D305FCE82B8.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/17/205703zwkq9kb9q9dijqwq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6528#       发表于 2022-3-17 21:37
+
+说起来横滨DAY2有网盘吗？B站的貌似都被BANG了？求个分享。谢谢
+
+*****
+
+####  名津流  
+##### 6529#       发表于 2022-3-17 21:53
+
+pay酱今早又发了一条说 昨日のツイートは目に入ると思い出してしまうため、消去いたしました。
+
+一看到昨晚那条推就会想起来，所以删掉了
+
+昨晚那条推会让人回想起什么不好的事吗？还是也是因为没找经纪人确认所以删了？
+
+反正看不太懂pay酱的意思，难道是那边在这方面有什么奇怪的礼仪吗？
+
+像后面她还说 わがままですみません… 难道是指她发了报平安的消息等于抢了别人亲自发报平安消息的机会，所以觉得有点自私？
+
+*****
+
+####  alexwu  
+##### 6530#       发表于 2022-3-17 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55084857&amp;ptid=2036367" target="_blank">名津流 发表于 2022-3-17 21:53</a>
+
+pay酱今早又发了一条说 昨日のツイートは目に入ると思い出してしまうため、消去いたしました。
+
+一看到昨晚 ...</blockquote>
+粉丝们本来高高兴兴来刷偶像的推的，结果每次都要看到这个说地震的事的推，碍眼不说，如果真有人在地震时遭重了而引发ptsd那就更麻烦。往好了说算敬业吧，专号专用确实没毛病，わがまま也是这个意思，指自己公号私用了。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6531#       发表于 2022-3-17 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">属实游戏黑洞了，感觉鲤鱼下个游戏也要寄了
+
+*****
+
+####  cybernetics31  
+##### 6532#       发表于 2022-3-17 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她太好懂了
+
+*****
+
+####  lj205  
+##### 6533#       发表于 2022-3-17 23:08
+
+鲤鱼白天那个流汗黄豆的解释好像是某几个KY跑去教她所谓正确用法，那他妈简直傻逼吗？管真宽
+
+昨天她报平安后几条回复看的真是血压拉升，什么看睡衣的抄打铁推文报平安的，都什么莫名其妙的玩意
+
+*****
+
+####  名津流  
+##### 6534#       发表于 2022-3-17 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55085081&amp;ptid=2036367" target="_blank">alexwu 发表于 2022-3-17 22:18</a>
+
+粉丝们本来高高兴兴来刷偶像的推的，结果每次都要看到这个说地震的事的推，碍眼不说，如果真有人在地震时 ...</blockquote>
+啊这...看来还真是那边特有的氛围了
+
+*****
+
+####  仟音一心  
+##### 6535#       发表于 2022-3-18 00:06
+
+最搞的是最后Nako抽鱼，其余人一起唱：“崩してみせるポーカーフェイス”(让我来打破你的扑克脸《nonfiction》Nako歌词)
+
+Liyuu：压哒呦～（束手无策）
+
+然后宫城就被抽走了，游戏结束。
+
+Nako：liella!里就数鲤酱最老实了。
+
+Pay子：搜哒呦。
+
+2D2345CD-F1F8-4EDF-B688-06C036A52958.jpeg
+(1.17 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 00:05 上传
+
+<img src="https://img.saraba1st.com/forum/202203/18/000530p8ebr8k7db89k83a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
