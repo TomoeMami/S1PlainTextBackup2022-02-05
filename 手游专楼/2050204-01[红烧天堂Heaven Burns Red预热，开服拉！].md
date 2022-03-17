@@ -3163,3 +3163,12 @@ ios登顶了，但是还是要说一句飞机社飞马
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">提示设备不兼容怎么破，这游戏难道还挑平台吗
 
+
+
+*****
+
+####  キラ様  
+##### 281#       发表于 2022-3-17 11:31
+
+又要出タマ的换装卡，这速度太快了
+
