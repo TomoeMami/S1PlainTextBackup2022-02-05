@@ -2818,3 +2818,12 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 5池掉礼装了，这个活动结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87255#       发表于 2022-3-17 08:17
+
+去把摩根100级，喂卡大成功，跑去扔了张呼符，特总二宝了
+

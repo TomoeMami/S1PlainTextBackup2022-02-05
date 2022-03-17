@@ -11472,3 +11472,12 @@ Syl，黑客总是在troll，过去一年都冲锋在第一线，真的很不日
 
 （没见过这么软的葵）
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 11529#       发表于 2022-3-17 08:16
+
+昨天葛king开的台太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论区也搞，这是准备魂皮双开了在打预防针吗
+
