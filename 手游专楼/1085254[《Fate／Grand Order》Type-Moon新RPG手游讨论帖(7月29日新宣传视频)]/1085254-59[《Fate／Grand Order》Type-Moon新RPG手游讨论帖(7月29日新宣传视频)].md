@@ -2858,3 +2858,13 @@ syl 看到旧闪闪祭的高难就头疼，以前用始皇帝+一堆拐才磨过
 
 除了螃蟹都很简单、不过是调整难度罢了
 
+
+
+*****
+
+####  千叶铁矢  
+##### 87259#       发表于 2022-3-17 13:20
+
+[url=[https://imgtu.com/i/q9b0SA](https://imgtu.com/i/q9b0SA)]<img src="https://s1.ax1x.com/2022/03/17/q9b0SA.jpg" referrerpolicy="no-referrer">[/url]
+打完了，还挺简单的
+

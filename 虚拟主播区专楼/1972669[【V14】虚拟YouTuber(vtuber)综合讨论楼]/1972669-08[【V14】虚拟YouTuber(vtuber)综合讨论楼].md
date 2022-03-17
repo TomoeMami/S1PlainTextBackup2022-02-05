@@ -11510,3 +11510,22 @@ Syl，黑客总是在troll，过去一年都冲锋在第一线，真的很不日
 
 推上刷到过一次，有个一万多订阅的月樱推切片man被人在推上挂剪不破?会限的切片发，可能是这个吧。然后国内也顺便发一份。(感觉国内有会去看会限条件的人也不会搞这种事，文字repo除外
 
+
+
+*****
+
+####  pansherry  
+##### 11533#       发表于 2022-3-17 13:06
+
+这事也分人，柴卡就说过自己会限下捏他之外可以剪
+当然本身冷门没人剪就是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  撕叁  
+##### 11534#       发表于 2022-3-17 13:08
+
+是有anti传了luca的音声
+
