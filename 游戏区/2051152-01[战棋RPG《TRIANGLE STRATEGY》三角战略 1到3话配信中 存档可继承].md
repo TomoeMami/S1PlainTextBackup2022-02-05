@@ -11202,3 +11202,41 @@ nmd，粉毛和我还没领证吧，怎么处处跟我抬杠
 奥罗拉速度35，基本上你动一次她动2次，本身还肉的一逼，还有茫茫多的小兵，不卡房子我真不知道怎么打。 ...</blockquote>
 不打模拟战等级一直比推荐低，感觉迟早要重打某一关攒经验，不知道为什么要这样设计
 
+
+
+*****
+
+####  Magnesium  
+##### 1006#       发表于 2022-3-17 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55074557&amp;ptid=2051152" target="_blank">罐子 发表于 2022-3-17 08:26</a>
+到了选王子，管家还是老婆的大分歧了
+女主为了自己族人不顾老公家子民死活怎么也算不上圣母吧，本来也不喜 ...</blockquote>
+一周目不能进真结局的都老婆 / 军师线了
+基友线太脑残了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  满月诗篇  
+##### 1007#       发表于 2022-3-17 14:07
+
+刚开始打，泥潭网友选选项应该不会纠结啊，我就是全程巨魔选项<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+巨魔选项很久没这么开心了
+
+*****
+
+####  Onelooker  
+##### 1008#       发表于 2022-3-17 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55079367&amp;ptid=2051152" target="_blank">满月诗篇 发表于 2022-3-17 14:07</a>
+
+刚开始打，泥潭网友选选项应该不会纠结啊，我就是全程巨魔选项
+
+巨魔选项很久没这么开心了 ...</blockquote>
+巨魔选项好像没什么屌用，隐藏信念值上不去，都油盐不进的
+
+而且选项也不够巨魔
+
+没有听我一句话，我就把安娜给你的分支
+

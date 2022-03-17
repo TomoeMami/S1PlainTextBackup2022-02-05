@@ -643,3 +643,58 @@ atlas有可能，法老控不可能，审美才是必要条件
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  mimighost  
+##### 71#       发表于 2022-3-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55060093&amp;ptid=2058135" target="_blank">陛下欲反邪 发表于 2022-3-16 07:04</a>
+
+说起来我真的好奇，FS社起家靠的是天降猛男，技术画质啥的真的是对付下就行，素材复用起来都不带脸红的
+
+米 ...</blockquote>
+from现在的特效和画质，在日厂也能够跻身一线了
+
+素材复用谁都在做，但是动作库比from丰富的有几个
+
+*****
+
+####  Sutrid  
+##### 72#       发表于 2022-3-17 14:01
+
+arkane
+
+*****
+
+####  mimighost  
+##### 73#       发表于 2022-3-17 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55065147&amp;ptid=2058135" target="_blank">福尔摩狮 发表于 2022-3-16 13:56</a>
+
+mhy能成还是乘了这几年日本ac文化在欧美强势扩张的风，但是和有强劲势头的动漫相比，日本游戏方面，这种 ...</blockquote>
+mhy这个便宜不好捡
+
+技术门槛极高，现在就放出来那几个韩国厂商的原like卫星，画面表现力和原比也没啥优势，到时候原都运营了2-3年了
+
+*****
+
+####  舌怪  
+##### 74#       发表于 2022-3-17 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55068216&amp;ptid=2058135" target="_blank">stary 发表于 2022-3-16 17:55</a>
+
+谈论这个有啥用，又不能提前买股入资</blockquote>
+如果对自己的婆罗门眼光有自信那可不得投资入股吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梦回星海  
+##### 75#       发表于 2022-3-17 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55068250&amp;ptid=2058135" target="_blank">Nemo艇长 发表于 2022-3-16 17:59</a>
+
+atlus和ca，但是我现在只想看他们吃屎</blockquote>
+我对CA的展望是，战锤系列红利吃完之后必定血崩一波，死不死不清楚。锤三部曲把ca13、15年的巨大危机给暂时掩盖住了，但ca这几年依旧没解决未来全战的出路问题，内部管理混乱加人员流动性大，技术积累毫无疑问受到了影响，再加上20年的屎山，总有一天要炸的。
+
