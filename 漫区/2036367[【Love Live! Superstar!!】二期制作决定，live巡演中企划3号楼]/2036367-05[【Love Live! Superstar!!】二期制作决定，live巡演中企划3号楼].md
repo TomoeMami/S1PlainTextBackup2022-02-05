@@ -6641,3 +6641,12 @@ CD288676-61CC-465B-BCEE-83CDAFB9D067.jpeg
 拉板有个新串竟然在讨论为啥企划有俩中国人角色却没有一个韩国人角色 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这就和小男孩进女浴场一样，当你想进的时候就不能进了
 
+
+
+*****
+
+####  saya1892  
+##### 6509#       发表于 2022-3-17 12:38
+
+有个回帖说，韩国偶像水平比日本高，怎么可能会憧憬日本的学园偶像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
