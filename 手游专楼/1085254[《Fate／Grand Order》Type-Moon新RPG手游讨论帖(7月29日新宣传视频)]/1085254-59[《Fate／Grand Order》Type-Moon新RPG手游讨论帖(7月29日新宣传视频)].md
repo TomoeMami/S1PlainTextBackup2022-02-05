@@ -2918,3 +2918,12 @@ https://imgtu.com/i/q9b0SA][/url]
 豹之国原来这么简单的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">自打有了banana和陈宫起就是2回合的事啊
 
+
+
+*****
+
+####  qixinno2  
+##### 87265#       发表于 2022-3-17 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">芭娜娜复刻没抽到 难受
+
