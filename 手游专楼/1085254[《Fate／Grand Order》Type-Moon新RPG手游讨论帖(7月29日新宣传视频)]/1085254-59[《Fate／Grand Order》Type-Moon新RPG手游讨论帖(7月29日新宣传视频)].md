@@ -2936,3 +2936,28 @@ https://imgtu.com/i/q9b0SA][/url]
 
 以藏打的很烦，梅林不断的被暴击，总是在无敌转CD的最后一回合扛不住。
 
+
+
+*****
+
+####  J-002  
+##### 87267#       发表于 2022-3-18 11:16
+
+<img src="https://img.saraba1st.com/forum/202203/18/111521thazih0ldti5ljht.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220318-050003_FateGO.jpg</strong> (504.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202203/18/111521vbf355t76749ggb5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220318-045447_FateGO.jpg</strong> (490.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 11:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">恐怕没人比我打的更糟糕了
+
