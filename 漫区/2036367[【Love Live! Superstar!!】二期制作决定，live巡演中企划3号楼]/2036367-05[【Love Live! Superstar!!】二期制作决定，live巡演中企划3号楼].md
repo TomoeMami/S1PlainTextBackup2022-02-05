@@ -7242,3 +7242,14 @@ FC GOODS也搞定了，但是那个钱包实在想不出有啥用
 
 再说句更不切实际的话，如果鲤鱼那本穗乃果cos写真集（好像是鲤鱼的第一本写真集）能再版，我肯定会想办法买<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6557#       发表于 2022-3-18 19:21
+
+能有2000就很不错了，不过说的还是有点早，5.26才发售呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
