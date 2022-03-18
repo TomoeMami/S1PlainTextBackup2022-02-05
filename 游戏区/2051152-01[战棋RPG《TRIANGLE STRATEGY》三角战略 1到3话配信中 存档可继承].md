@@ -11338,3 +11338,15 @@ npc算不算在死亡里的，这游戏想不死还真挺讲究，一露个空�
 一周目真结局管家线也太难了，本来以为能烧老家会简单点，结果体感敌人数量能有第一章快两倍了，一共三波援 ...</blockquote>
 读档换分队嘛
 
+
+
+*****
+
+####  艾特娜  
+##### 1018#       发表于 2022-3-18 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55085831&amp;ptid=2051152" target="_blank">索田八公 发表于 2022-3-17 23:34</a>
+
+一周目真结局管家线也太难了，本来以为能烧老家会简单点，结果体感敌人数量能有第七章快两倍了，一共三波援 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">冰法、梯子哥、弓手，三种都没带的话想不死人过关简直地狱难度啊
+

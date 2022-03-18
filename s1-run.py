@@ -2,7 +2,7 @@ import os,signal
 
 out = os.popen("ps aux | grep s1.py").read()
 
-ef pidkill(pid):
+def pidkill(pid):
    try:
        a = os.kill(pid,signal.SIGKILL)
    except OSError:
