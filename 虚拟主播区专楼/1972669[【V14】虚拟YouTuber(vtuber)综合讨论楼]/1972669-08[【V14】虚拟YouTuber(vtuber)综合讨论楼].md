@@ -11719,3 +11719,34 @@ yugo自肃好像就因为这个
 
 hnn从昨晚开始大师猎杀带，不敢相信居然愿意打了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 11549#       发表于 2022-3-18 19:28
+
+yugo那个我随便听了一下，好像就是he了一下吧（虽然对地震0不太谨慎吧，不过也有点强求外国人照顾日本人情绪了）
+
+syl，星川这队，“三大箱”
+
+*****
+
+####  Suzutsuki  
+##### 11550#       发表于 2022-3-18 19:30
+
+卧槽，reimu要参加最协啊，还是跟胡桃一个队
+
+
+
+*****
+
+####  alcoholic1000  
+##### 11551#       发表于 2022-3-18 19:32
+
+ 本帖最后由 alcoholic1000 于 2022-3-18 19:39 编辑 
+
+reimu在美洲打最协，这延迟没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了一眼我这得300ping
+
+葵社莉，KING的家属团？
+
