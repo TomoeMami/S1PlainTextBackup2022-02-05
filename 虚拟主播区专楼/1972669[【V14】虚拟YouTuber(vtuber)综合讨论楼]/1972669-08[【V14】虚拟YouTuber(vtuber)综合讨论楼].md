@@ -11987,3 +11987,25 @@ king也敢跟圣皇比，别了吧我怕
 
 新曲好听，预感即将循环一个月
 
+
+
+*****
+
+####  fastary  
+##### 11581#       发表于 2022-3-18 21:27
+
+akn真的是为了挑染参赛努力上钻的，他怎么这么好，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+虽然这次5+5+4明显要寄但能够再打一场我已经无悔了……<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+就说对fps兴致一般又讨厌努力和练习的黛灰怎么一反常态开始高强度打派了，果然还是之前虹瓦的刺激让他不想对不起难得再齐聚的机会吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+（话说早上还说可能有直播结果睡了一天，果然还是抑郁没有好全的症状吧……
+
+*****
+
+####  qwera3469  
+##### 11582#       发表于 2022-3-18 21:30
+
+gaku 3d同接9万 sc2千三百万
+
