@@ -3174,3 +3174,25 @@ https://imgtu.com/i/q9b0SA][/url]
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的士巴和BX怎么打
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87287#       发表于 2022-3-18 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55096168&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-18 19:58</a>
+
+今天的士巴和BX怎么打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">BX我用的金钻头刚正面，黑皮不是拉二带俩拐随便打打吗
+
+*****
+
+####  qixinno2  
+##### 87288#       发表于 2022-3-18 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55096504&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-18 20:16</a>
+
+BX我用的金钻头刚正面，黑皮不是拉二带俩拐随便打打吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没有拉二
+

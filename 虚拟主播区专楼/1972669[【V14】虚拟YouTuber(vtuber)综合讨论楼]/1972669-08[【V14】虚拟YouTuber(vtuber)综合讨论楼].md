@@ -11766,3 +11766,99 @@ reimu在美洲打最协，这延迟没问题吗<img src="https://static.saraba1s
 
 hnn终于有性价比极高的稳定直布了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 11554#       发表于 2022-3-18 20:05
+
+最协名单发表马上要结束了，是不是没有新的紫发小女孩了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 11555#       发表于 2022-3-18 20:07
+
+圣皇降临了她忠实的最协，还给了最高分10分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11556#       发表于 2022-3-18 20:07
+
+来了，爆杀彩虹
+
+*****
+
+####  Kokichi  
+##### 11557#       发表于 2022-3-18 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比猩猩还高
+
+*****
+
+####  Kokichi  
+##### 11558#       发表于 2022-3-18 20:10
+
+哈弟箱
+
+*****
+
+####  FCCHua  
+##### 11559#       发表于 2022-3-18 20:11
+
+引流的神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 11560#       发表于 2022-3-18 20:11
+
+没紫色小女孩。哈弟这新人有3个女人，猜一猜有没有辣个人？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 11561#       发表于 2022-3-18 20:11
+
+Bsyl，恭喜ゆがみん和ガク四年后3D化
+
+<img src="https://img.saraba1st.com/forum/202203/18/201027ghizooz9v9o9lddh.png" referrerpolicy="no-referrer">
+
+<strong>【#伏見ガク3D】3Dお披露目！踏み出すぜ、最高のピース【にじさんじ : 伏見.png</strong> (55.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 20:10 上传
+
+学君这和油男差不多啊，打小钢珠会蒸发歌力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  越动天下  
+##### 11562#       发表于 2022-3-18 20:11
+
+怎么一看发现虹EN同接😱😱😱
+
+*****
+
+####  qwera3469  
+##### 11563#       发表于 2022-3-18 20:16
+
+圣皇是不是最高分的
+
+*****
+
+####  布莱士·西伯利  
+##### 11564#       发表于 2022-3-18 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能给麦麦换个新衣服吗...？这睡衣真的太土了。
+
+*****
+
+####  _Ra1nMaker  
+##### 11565#       发表于 2022-3-18 20:22
+
+话说这几个新人PT都不高啊，应该不会有bora吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
