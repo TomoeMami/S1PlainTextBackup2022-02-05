@@ -2961,3 +2961,15 @@ https://imgtu.com/i/q9b0SA][/url]
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">恐怕没人比我打的更糟糕了
 
+
+
+*****
+
+####  qixinno2  
+##### 87268#       发表于 2022-3-18 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55089522&amp;ptid=1085254" target="_blank">J-002 发表于 2022-3-18 11:16</a>
+
+恐怕没人比我打的更糟糕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比我强
+
