@@ -11396,3 +11396,16 @@ n选一那几个同伴是不是多周目也没法同时收的<img src="https://s
 
 ----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  DARK_HGCG  
+##### 1023#       发表于 2022-3-18 13:04
+
+<blockquote>牧月萌 发表于 2022-3-18 12:29
+n选一那几个同伴是不是多周目也没法同时收的
+
+----发送自 OnePlus HD1900,Android 11 ...</blockquote>
+多周目继承收过的队友
+
