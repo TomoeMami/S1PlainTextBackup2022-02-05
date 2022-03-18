@@ -7519,3 +7519,14 @@ i want be with you
 
 都是好事，蒸蒸日上
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9801#       发表于 2022-3-18 12:06
+
+[https://b23.tv/FSLh61j](https://b23.tv/FSLh61j)
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -2973,3 +2973,47 @@ https://imgtu.com/i/q9b0SA][/url]
 恐怕没人比我打的更糟糕了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比我强
 
+
+
+*****
+
+####  alucardcz  
+##### 87269#       发表于 2022-3-18 12:10
+
+你们不等倍卡吗..还是已经刷完了..
+
+*****
+
+####  khxooo  
+##### 87270#       发表于 2022-3-18 12:21
+
+草，今天看了摩根2T以藏，我自己完全可以复现，感觉自己还是用梅林单挑就是个傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  khxooo  
+##### 87271#       发表于 2022-3-18 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55090369&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-18 12:10</a>
+你们不等倍卡吗..还是已经刷完了..</blockquote>
+我打到剩下CEO那个才发现可以用倍卡<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87272#       发表于 2022-3-18 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55090369&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-18 12:10</a>
+
+你们不等倍卡吗..还是已经刷完了..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看红点难受
+
+*****
+
+####  alucardcz  
+##### 87273#       发表于 2022-3-18 12:23
+
+翻页
+
