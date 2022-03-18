@@ -3135,3 +3135,42 @@ https://imgtu.com/i/q9b0SA][/url]
 
 亲爹该强化了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87284#       发表于 2022-3-18 19:48
+
+ 本帖最后由 gpx234mqx 于 2022-3-18 19:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55095088&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-18 18:19</a>
+
+来个链接</blockquote>
+[https://www.youtube.com/watch?v=e3XsJJOR_rA](https://www.youtube.com/watch?v=e3XsJJOR_rA)
+
+暗兔2T
+
+[https://www.youtube.com/watch?v=JlAx4ZAL_vM](https://www.youtube.com/watch?v=JlAx4ZAL_vM)
+
+巴娜娜2T
+
+[https://www.youtube.com/watch?v=k-xJ-UqWauU](https://www.youtube.com/watch?v=k-xJ-UqWauU)
+
+阿国2T
+
+是个人都能2T<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87285#       发表于 2022-3-18 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">礼装，完全不掉啊……
+
+*****
+
+####  qixinno2  
+##### 87286#       发表于 2022-3-18 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的士巴和BX怎么打
+
