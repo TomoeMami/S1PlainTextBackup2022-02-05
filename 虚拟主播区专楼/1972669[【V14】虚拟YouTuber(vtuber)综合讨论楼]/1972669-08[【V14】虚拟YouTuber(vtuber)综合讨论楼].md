@@ -11656,3 +11656,40 @@ syl
 
 话说彩虹本社在文化放送还有电台吗？
 
+
+
+*****
+
+####  winda  
+##### 11545#       发表于 2022-3-18 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55080744&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-3-17 15:55</a>
+
+你虹新卖的那个包好像和日本某个牌子的设计一模一样</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/18/134811lnwqrytaraz8ran5.png" referrerpolicy="no-referrer">
+
+<strong>unnamed (2).png</strong> (71.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 13:48 上传
+
+<img src="https://img.saraba1st.com/forum/202203/18/134803hcudrhjcsdrgxosz.jpg" referrerpolicy="no-referrer">
+
+<strong>unnamed (3).jpg</strong> (49.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 13:48 上传
+
+<img src="https://img.saraba1st.com/forum/202203/18/134756u1uyf3fwoquxuyn7.png" referrerpolicy="no-referrer">
+
+<strong>unnamed (1).png</strong> (78.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 13:47 上传
+
+抄メゾンドフルール这家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
