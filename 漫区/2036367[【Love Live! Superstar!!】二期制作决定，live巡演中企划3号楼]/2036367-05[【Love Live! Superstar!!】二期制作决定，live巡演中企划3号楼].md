@@ -7084,3 +7084,21 @@ lof:错君
 
 <img src="https://img.saraba1st.com/forum/202203/18/122039zy6q66nqbd6ksdcy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 6542#       发表于 2022-3-18 12:26
+
+鱼写真，fc有直签，虽然鱼的直签现在到处都有……………………最近企划出写真的也太多了，钱包持续空空
+
+*****
+
+####  lj205  
+##### 6543#       发表于 2022-3-18 12:39
+
+包代购贡献了差不多30本
+
+FC GOODS也搞定了，但是那个钱包实在想不出有啥用
+

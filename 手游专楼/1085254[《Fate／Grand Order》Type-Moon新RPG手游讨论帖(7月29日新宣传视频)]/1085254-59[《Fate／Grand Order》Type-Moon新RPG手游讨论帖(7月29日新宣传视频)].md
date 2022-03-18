@@ -3017,3 +3017,32 @@ https://imgtu.com/i/q9b0SA][/url]
 
 翻页
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87274#       发表于 2022-3-18 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55090369&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-18 12:10</a>
+
+你们不等倍卡吗..还是已经刷完了..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么你竟然还没拿完倍卡？
+
+*****
+
+####  alucardcz  
+##### 87275#       发表于 2022-3-18 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55090577&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-18 12:26</a>
+
+什么你竟然还没拿完倍卡？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">我自然回啊  早着 这几天忙啊
+
+*****
+
+####  qixinno2  
+##### 87276#       发表于 2022-3-18 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没拿完倍卡啊 两张100%强杀过去的
+
