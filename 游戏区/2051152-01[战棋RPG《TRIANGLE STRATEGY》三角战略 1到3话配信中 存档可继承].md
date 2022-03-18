@@ -11409,3 +11409,12 @@ n选一那几个同伴是不是多周目也没法同时收的
 ----发送自 OnePlus HD1900,Android 11 ...</blockquote>
 多周目继承收过的队友
 
+
+
+*****
+
+####  henryqxg  
+##### 1024#       发表于 2022-3-18 14:53
+
+一周目正常情况那3个1600收不了，鹰盾和拳师至少可以收一个，第三章2选1，15章4选1，那也就是一周目最多就21个人了，直接打真结局开3队是有点刺激<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
