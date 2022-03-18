@@ -993,3 +993,19 @@ EDF6, 敬请见证
 
 怎么没人提游戏科学？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一黑神话真成了呢？反正标题说预测有可能嘛。
 
+
+
+*****
+
+####  lunaticfool  
+##### 110#       发表于 2022-3-19 02:28
+
+当然是迷你fs社樱桃社啦
+
+*****
+
+####  v13  
+##### 111#       发表于 2022-3-19 03:14
+
+我投alicesoft<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

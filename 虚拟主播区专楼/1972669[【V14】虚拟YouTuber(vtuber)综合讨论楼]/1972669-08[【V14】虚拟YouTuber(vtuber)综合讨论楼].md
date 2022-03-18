@@ -12041,3 +12041,15 @@ gaku 3d同接9万 sc2千三百万
 
 啊原来是因为低气压……确实黑客很久以前低气压的时候就会睡一天，不是精神状态的问题就好
 
+
+
+*****
+
+####  free  
+##### 11587#       发表于 2022-3-19 03:58
+
+[https://www.bilibili.com/video/BV1kL411P7dU](https://www.bilibili.com/video/BV1kL411P7dU)
+[https://himehina.jp/pages/special?t=live2022_aitaibokura](https://himehina.jp/pages/special?t=live2022_aitaibokura)
+
+【有观众演唱会】HIMEHINA Live 2Days 2022『想要相见的我们』开催决定！【in丰洲PIT】
+
