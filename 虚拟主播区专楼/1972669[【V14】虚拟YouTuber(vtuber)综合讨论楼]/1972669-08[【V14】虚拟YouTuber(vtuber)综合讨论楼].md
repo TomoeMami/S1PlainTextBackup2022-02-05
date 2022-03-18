@@ -11643,3 +11643,16 @@ syl
 <img src="https://p.sda1.dev/5/2fb162fa028183db321ca905b24beb38/A18_AEO_LG54HC50R9`IJBM.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/5/890b5609458c9a85c1a9e8210feba357/T2T_4YS4PFE__EXCCYWF2NC.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 11544#       发表于 2022-3-18 10:34
+
+原来连太郎也有阿，
+
+文化放送真的是不放过任何机会阿。
+
+话说彩虹本社在文化放送还有电台吗？
+

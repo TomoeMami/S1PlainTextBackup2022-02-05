@@ -1916,3 +1916,12 @@ Kiwawa 独家爆料<img src="https://static.saraba1st.com/image/smiley/face2017/
 话说这个VRC版本的模型是不是就是到时候用在演唱会里的？</blockquote>
 应该不是，官方3d模型去年就准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">fes大概率会直接上偶像服模型
 
+
+
+*****
+
+####  M1NG  
+##### 1669#       发表于 2022-3-18 10:30
+
+那还好，我还在想官方模型应该不至于这么粗糙吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 那明天拭目以待
+
