@@ -8825,3 +8825,14 @@ twttier官方：鉴定为假
 
 圣皇自己邀的呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 好呀 圣皇 诡计多端😤😤
 
+
+
+*****
+
+####  面具13  
+##### 8505#       发表于 2022-3-18 22:59
+
+忙到神智不清，甚至没发现直播了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">。有得看了，挺好。不垫底就算成功。
+
+10pt比想象中高，我估计的是9pt，这是来自shibuyahal的肯定
+
