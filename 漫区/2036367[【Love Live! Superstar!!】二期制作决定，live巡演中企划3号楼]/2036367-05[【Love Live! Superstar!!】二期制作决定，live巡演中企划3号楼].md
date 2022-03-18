@@ -7224,3 +7224,21 @@ FC GOODS也搞定了，但是那个钱包实在想不出有啥用
 
 2000保本，3000胜利。
 
+
+
+*****
+
+####  lj205  
+##### 6555#       发表于 2022-3-18 18:53
+
+鲤鱼质疑那些投稿问中文怎么说的人是不是都记着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是真实系
+
+*****
+
+####  aoaoaodedede  
+##### 6556#       发表于 2022-3-18 19:00
+
+说句不切实际的话，这写真集还不如让鲤鱼自己主导，哪怕鲤鱼不是专业摄影师，对写真这东西懂的也应该不少。
+
+再说句更不切实际的话，如果鲤鱼那本穗乃果cos写真集（好像是鲤鱼的第一本写真集）能再版，我肯定会想办法买<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

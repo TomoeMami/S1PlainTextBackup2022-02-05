@@ -3093,3 +3093,36 @@ https://imgtu.com/i/q9b0SA][/url]
  ...</blockquote>
 最生草的是，贴吧那吹金皮卡的朋友是国服计算机玩家..指点江山激扬文字我还以为回到lga专区了
 
+
+
+*****
+
+####  exiaexa  
+##### 87281#       发表于 2022-3-18 18:52
+
+，
+
+ 本帖最后由 exiaexa 于 2022-3-18 18:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55095323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-18 18:42</a>
+
+现在的祖师爷能不能吊打金皮卡</blockquote>
+特总这不把阿闪按在地上摩擦
+
+组队适应完爆，伤害差不多，50充暴打30充，甚至值得进五星自选推荐
+
+阿闪现在能稳定碾压的弓光炮怕是只有阿囧了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 87282#       发表于 2022-3-18 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55095352&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-3-18 18:45</a>
+
+最生草的是，贴吧那吹金皮卡的朋友是国服计算机玩家..指点江山激扬文字我还以为回到lga专区了 ...</blockquote>
+我觉得最草的是举例用狩猎本，先不说闪闪狩猎本基本算是有个卵用
+
+如果不是仓库告罄被逼急了，狩猎狗都不刷好吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

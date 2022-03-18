@@ -11702,3 +11702,20 @@ syl
 
 虹en自肃了一个啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 11547#       发表于 2022-3-18 19:03
+
+yugo自肃好像就因为这个
+[https://twitter.com/mmn10_2/status/1504124207507992581](https://twitter.com/mmn10_2/status/1504124207507992581)
+
+*****
+
+####  FCCHua  
+##### 11548#       发表于 2022-3-18 19:04
+
+hnn从昨晚开始大师猎杀带，不敢相信居然愿意打了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
