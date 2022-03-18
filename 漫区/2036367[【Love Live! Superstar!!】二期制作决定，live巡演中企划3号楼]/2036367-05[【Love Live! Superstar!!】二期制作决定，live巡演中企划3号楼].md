@@ -7111,3 +7111,12 @@ FC GOODS也搞定了，但是那个钱包实在想不出有啥用
 
 能不能也给星安排联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6545#       发表于 2022-3-18 13:43
+
+鲤鱼直签爆杀倒爷，实在是太温柔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
