@@ -3196,3 +3196,46 @@ https://imgtu.com/i/q9b0SA][/url]
 BX我用的金钻头刚正面，黑皮不是拉二带俩拐随便打打吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没有拉二
 
+
+
+*****
+
+####  exiaexa  
+##### 87289#       发表于 2022-3-18 21:15
+
+ 本帖最后由 exiaexa 于 2022-3-18 21:17 编辑 
+
+示巴就是单纯的恶心人，以前打难受，现在打还是难受
+
+没有暴力输出的话，跟她慢慢磨就是了，盾全部磨掉怎么都打过了
+
+就是后排留个输出，第三条血要打快一点
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 87290#       发表于 2022-3-18 21:15
+
+ 本帖最后由 gpx234mqx 于 2022-3-18 21:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55096168&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-18 19:58</a>
+
+今天的士巴和BX怎么打</blockquote>
+梅林摩根术呆奥伯龙
+
+不列颠组可以完封BX
+
+示巴上志度内倍卡宝具连发
+
+*****
+
+####  gpx234mqx  
+##### 87291#       发表于 2022-3-18 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55097482&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-3-18 21:15</a>
+
+示巴就是单纯的恶心人，以前打难受，现在打还是难受
+
+没有暴力输出的话，跟她慢慢磨就是了，盾全部磨掉怎么 ...</blockquote>
+志度内暴力破解，不用管特防
+
