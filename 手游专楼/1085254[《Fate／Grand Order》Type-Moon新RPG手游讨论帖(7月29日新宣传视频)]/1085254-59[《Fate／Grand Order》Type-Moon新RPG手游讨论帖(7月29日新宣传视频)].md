@@ -3046,3 +3046,14 @@ https://imgtu.com/i/q9b0SA][/url]
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没拿完倍卡啊 两张100%强杀过去的
 
+
+
+*****
+
+####  千叶铁矢  
+##### 87277#       发表于 2022-3-18 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55090508&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-18 12:21</a>
+草，今天看了摩根2T以藏，我自己完全可以复现，感觉自己还是用梅林单挑就是个傻逼 ...</blockquote>
+来个链接
+
