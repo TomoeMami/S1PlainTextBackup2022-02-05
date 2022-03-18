@@ -3239,3 +3239,109 @@ BX我用的金钻头刚正面，黑皮不是拉二带俩拐随便打打吗</bloc
 没有暴力输出的话，跟她慢慢磨就是了，盾全部磨掉怎么 ...</blockquote>
 志度内暴力破解，不用管特防
 
+
+
+*****
+
+####  qixinno2  
+##### 87292#       发表于 2022-3-18 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55097483&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-18 21:15</a>
+
+梅林摩根术呆奥伯龙
+
+不列颠组可以完封BX</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩都是一宝 一会试试
+
+*****
+
+####  exiaexa  
+##### 87293#       发表于 2022-3-18 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55097548&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-18 21:20</a>
+
+志度内暴力破解，不用管特防</blockquote>
+？？？你是不看别人说话的吗
+
+打不过的又不是我
+
+而且我说的很清楚了，“没有暴力输出的话”
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87294#       发表于 2022-3-18 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55095088&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-18 18:19</a>
+
+来个链接</blockquote>
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1z34y187Yw?spm_id_from=333.337.search-card.all.click)
+
+用狂那其实也可以复现
+
+*****
+
+####  khxooo  
+##### 87295#       发表于 2022-3-18 22:05
+
+BX用的是卑弥呼、C呆和梅林铁桶队，管她吃哪个，一直苟就是了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 87296#       发表于 2022-3-18 22:09
+
+<img src="https://img.saraba1st.com/forum/202203/18/220717br4eqfwhbkeqk5wn.jpg" referrerpolicy="no-referrer">
+
+<strong>0Y8`3N7%{264CSPS9E@U.jpg</strong> (545.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 22:07 上传
+
+<img src="https://img.saraba1st.com/forum/202203/18/220717xpmsdcns9mk9nvps.jpg" referrerpolicy="no-referrer">
+
+<strong>6A`49UW4(WVTYTIIUYQ7.jpg</strong> (475.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-18 22:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">没有能秒的阵容就苟到底
+
+BX只要把守护者炸掉，避免她吃到后平a带强化解除就行
+
+示巴保鲜了个灰姑娘，三管血换上来直接伤害溢出
+
+*****
+
+####  黑上シグマ  
+##### 87297#       发表于 2022-3-18 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55098183&amp;ptid=1085254" target="_blank">J-002 发表于 2022-3-18 22:09</a>
+
+没有能秒的阵容就苟到底
+
+BX只要把守护者炸掉，避免她吃到后平a带强化解除就行
+
+示巴保鲜了个灰姑娘 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BX那个强化解除我让她吃了都照样打
+
+*****
+
+####  J-002  
+##### 87298#       发表于 2022-3-18 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55098213&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-18 22:12</a>
+
+BX那个强化解除我让她吃了都照样打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">打一次太费时间避免一切重开的风险
+
+*****
+
+####  khxooo  
+##### 87299#       发表于 2022-3-18 22:16
+
+21池掉了3张。BX那个强解让他吃，反正这么多层阿瓦隆，随便解除一个没什么大碍，就算被她解了对肃正防御，还有眩晕和无敌等保命，容错率很高。
+

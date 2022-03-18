@@ -15166,3 +15166,17 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 至于“袋子材料特殊”，那只能说是小学生解读。
 
+
+
+*****
+
+####  阿基德  
+##### 56757#       发表于 2022-3-18 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55065060&amp;ptid=98922" target="_blank">斯塔久 发表于 2022-3-16 13:51</a>
+
+你提到的这些分析，虽然看上去主观肤浅，但除了“最强大将是赤犬” 以外都稳了。  
+
+至于“袋子材料 ...</blockquote>
+“赤犬最强” 也算是稳了吧？ 他都单挑打残青鸡了，大将实力排名没啥争议了吧。
+

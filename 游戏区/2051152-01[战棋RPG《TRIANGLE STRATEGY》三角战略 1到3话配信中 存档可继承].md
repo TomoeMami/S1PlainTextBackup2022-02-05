@@ -11534,3 +11534,19 @@ n选一那几个同伴是不是多周目也没法同时收的
 
 2022-3-18 20:53 上传
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 1034#       发表于 2022-3-18 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55096841&amp;ptid=2051152" target="_blank">Onelooker 发表于 2022-3-18 20:33</a>
+
+转职徽章是不是不够用啊，我都20了奶妈还卡在基础职业
+
+—— 来自 S1Fun</blockquote>
+一周目基础转高级的是够的，后面老头弓那里会刷几个二等徽章出来。
+
+高级转顶级的肯定不够，我二周目刚开老头那有几个也不够，不过我点数也不够换，慢慢来吧。
+
