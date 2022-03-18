@@ -8836,3 +8836,12 @@ twttier官方：鉴定为假
 
 10pt比想象中高，我估计的是9pt，这是来自shibuyahal的肯定
 
+
+
+*****
+
+####  面具13  
+##### 8506#       发表于 2022-3-18 23:18
+
+卧槽，小千8pt，近战之鬼sumire 9pt，astel 9pt（加了限制），猎杀猩猩9pt（其实是写错了，10pt），夸宝的10pt在pt紧缩的环境里显得有点高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
