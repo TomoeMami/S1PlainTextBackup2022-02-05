@@ -3057,3 +3057,39 @@ https://imgtu.com/i/q9b0SA][/url]
 草，今天看了摩根2T以藏，我自己完全可以复现，感觉自己还是用梅林单挑就是个傻逼 ...</blockquote>
 来个链接
 
+
+
+*****
+
+####  exiaexa  
+##### 87278#       发表于 2022-3-18 18:28
+
+ 本帖最后由 exiaexa 于 2022-3-18 18:29 编辑 
+
+好久没逛各交流区，今天有空一看怎么还有人吹金皮卡的，承包了我一周的笑点
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87279#       发表于 2022-3-18 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55095193&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-3-18 18:28</a>
+
+好久没逛各交流区，今天有空一看怎么还有人吹金皮卡的，承包了我一周的笑点
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在的祖师爷能不能吊打金皮卡
+
+*****
+
+####  sosgame67  
+##### 87280#       发表于 2022-3-18 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55095193&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-3-18 18:28</a>
+
+好久没逛各交流区，今天有空一看怎么还有人吹金皮卡的，承包了我一周的笑点
+
+ ...</blockquote>
+最生草的是，贴吧那吹金皮卡的朋友是国服计算机玩家..指点江山激扬文字我还以为回到lga专区了
+

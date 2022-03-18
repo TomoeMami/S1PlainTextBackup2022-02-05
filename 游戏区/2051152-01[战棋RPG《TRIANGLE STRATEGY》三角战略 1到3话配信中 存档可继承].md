@@ -11452,3 +11452,21 @@ n选一那几个同伴是不是多周目也没法同时收的
 
 80W
 
+
+
+*****
+
+####  ff2077  
+##### 1027#       发表于 2022-3-18 18:28
+
+浅野组赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  henryqxg  
+##### 1028#       发表于 2022-3-18 18:28
+
+行文风格和八方旅人手游版特别的像，虽然这次没公布剧本作者，不过应该还是那个漫画家吧。。。
+
