@@ -3381,3 +3381,25 @@ bx高难国服和这边复刻加起来已经打了3次吧..除了磨时间之外
 
 有没有倍卡卑弥呼，我要放弃思考了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87304#       发表于 2022-3-19 20:16
+
+摩根是OC+1
+这次摩根周回高难都在高强度加班
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  wolegequaaa  
+##### 87305#       发表于 2022-3-19 20:22
+
+[https://www.bilibili.com/video/BV1tL411P7Ff](https://www.bilibili.com/video/BV1tL411P7Ff)
+
+金钻头无倍卡2t bx
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">食大便了，大人
+

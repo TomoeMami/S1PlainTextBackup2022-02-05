@@ -8937,3 +8937,24 @@ astel9分的条件是玛吉缚
 
 想看夸夸首轮出局抱憾终生
 
+
+
+*****
+
+####  Map-2  
+##### 8516#       发表于 2022-3-19 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55101517&amp;ptid=1947500" target="_blank">TiHaru 发表于 2022-3-19 09:38</a>
+
+astel9分的条件是玛吉缚</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/19/200246j0za20d0rwr2r97s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (224.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 20:02 上传
+
+这就是9pt的玛吉
+
