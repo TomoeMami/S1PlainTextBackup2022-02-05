@@ -7773,3 +7773,12 @@ i want be with you
 
 君の帧数not good，听了自己的配音要死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就知道
 
+
+
+*****
+
+####  病態極端  
+##### 9821#       发表于 2022-3-19 22:31
+
+字幕組有翻譯戀愛測試的結果嗎？
+

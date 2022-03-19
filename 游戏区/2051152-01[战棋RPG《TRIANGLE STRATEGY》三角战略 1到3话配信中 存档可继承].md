@@ -11801,3 +11801,14 @@ image.png
 
 原来你俩还有这技艺呢<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Petilil  
+##### 1053#       发表于 2022-3-19 22:28
+
+走真结局路线第十五章回家找爹，结果爹没说天平的事
+
+这是啥情况
+
