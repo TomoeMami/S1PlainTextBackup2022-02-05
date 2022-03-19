@@ -1992,3 +1992,20 @@ gura动起来也很棒
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  shimmy1996  
+##### 1675#       发表于 2022-3-19 21:38
+
+<img src="https://img.saraba1st.com/forum/202203/19/213603drjd0hkrshizs1a8.jpg" referrerpolicy="no-referrer">
+
+<strong>1647685525036.jpg</strong> (232.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 21:36 上传
+
+小册子里的ame模型有斗篷部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">live去掉估计是因为会穿模
+
