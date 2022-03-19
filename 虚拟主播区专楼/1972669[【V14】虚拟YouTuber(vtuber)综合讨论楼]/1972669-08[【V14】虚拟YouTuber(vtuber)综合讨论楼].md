@@ -12317,3 +12317,12 @@ yuya都开始和千联动上了，my bora人呢……<img src="https://static.sa
 
 我倒是觉得holo有staff是虹铁粉不是什么奇怪的事情……
 
+
+
+*****
+
+####  心垂万刃  
+##### 11613#       发表于 2022-3-20 00:53
+
+都有liver是虹粉了，staff里有虹粉有什么奇怪的，你说是吧，马自立<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
