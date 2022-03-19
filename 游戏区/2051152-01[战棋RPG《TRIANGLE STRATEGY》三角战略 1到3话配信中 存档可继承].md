@@ -11689,3 +11689,17 @@ n选一那几个同伴是不是多周目也没法同时收的
 
 要是走的是交出王子、交出红毛族、水淹王都等等比较苦难的剧情线，倒是能理解王子最终为啥心灰意冷直接卖了算了
 
+
+
+*****
+
+####  minysun  
+##### 1045#       发表于 2022-3-19 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55102050&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-3-19 10:33</a>
+
+我开始也是缺一个，但是后面老头弓忽然开兑换，我算下来一周目还多两个二级徽章。
+
+我一周目走的是保红毛 ...</blockquote>
+好像三选一道路后老头又会加兑换来着，这里有点记不清了
+
