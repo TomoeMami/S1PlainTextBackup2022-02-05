@@ -1981,3 +1981,14 @@ I want episode 2 right now
 
 gura动起来也很棒
 
+
+
+*****
+
+####  M1NG  
+##### 1674#       发表于 2022-3-19 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉都挺不错的，就是ina的手臂比例有点失调，还是标准皮；希望偶像服搞快点，二期也搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

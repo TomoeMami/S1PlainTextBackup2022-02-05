@@ -5352,3 +5352,21 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天也不发推，我怀疑绫总真的不想干了
 
+
+
+*****
+
+####  stmule  
+##### 14036#       发表于 2022-3-19 18:05
+
+大概绫总真的是大小姐，cover就是她家财团控制着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nian1538  
+##### 14037#       发表于 2022-3-19 18:07
+
+兔皇也没发，就剩这两个人还在憋了
+
