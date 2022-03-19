@@ -7782,3 +7782,29 @@ i want be with you
 
 字幕組有翻譯戀愛測試的結果嗎？
 
+
+
+*****
+
+####  路人庚  
+##### 9822#       发表于 2022-3-19 22:46
+
+两边都是50连出了
+
+<img src="https://img.saraba1st.com/forum/202203/19/224621mya22s6suxy9q6uu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1A57B5A3-A7EA-40E8-A151-1E47D1C128AD.jpeg</strong> (245.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 22:46 上传
+
+*****
+
+####  T_Hb  
+##### 9823#       发表于 2022-3-19 22:51
+
+ 本帖最后由 T_Hb 于 2022-3-19 22:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打工大队长，什么穿越到异世界也要打工赚钱
+
