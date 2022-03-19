@@ -11742,3 +11742,17 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202203/19/173533xqzfb8n5lzv30u01.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Petilil  
+##### 1048#       发表于 2022-3-19 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55103758&amp;ptid=2051152" target="_blank">妄想中毒 发表于 2022-3-19 13:08</a>
+
+第八话选和海德桑合作的那一关好难，队伍12级女将军比我方高了整整3级，海德桑那边除了当肉盾抗几回合外没 ...</blockquote>
+不考虑npc死活的话，这关的打法是把人都放到下面平推过去，上面就留安娜+鹰弓，靠高台地形风筝女将军不让她提前下来
+
+考虑npc死活的话...我觉得至少一周目是不可能救下来那三个npc的
+

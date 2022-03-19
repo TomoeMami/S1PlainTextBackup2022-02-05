@@ -3354,3 +3354,30 @@ BX那个强化解除我让她吃了都照样打</blockquote>
 
 bx高难国服和这边复刻加起来已经打了3次吧..除了磨时间之外爆破也行，不过我记得过去一直要求高宝配置，现在有杀狐和奥博隆理论上要求应该低了不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87301#       发表于 2022-3-18 22:48
+
+ 本帖最后由 khxooo 于 2022-3-18 22:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55098478&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-3-18 22:35</a>
+
+bx高难国服和这边复刻加起来已经打了3次吧..除了磨时间之外爆破也行，不过我记得过去一直要求高宝配置，现 ...</blockquote>
+这次有了奥伯龙和杀狐，再加上被动技能+120级，西哥2TBX太简单了。不过我暂时也只找到西哥能成功2T，不知道有没有其他人做到了。或者巴泽特这次有机会？
+
+*****
+
+####  qixinno2  
+##### 87302#       发表于 2022-3-18 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卑呆梅打BX真无脑 随便让她吃BUFF 士巴没想到一宝熊伊也能打过去
+
+*****
+
+####  千叶铁矢  
+##### 87303#       发表于 2022-3-19 19:31
+
+有没有倍卡卑弥呼，我要放弃思考了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
