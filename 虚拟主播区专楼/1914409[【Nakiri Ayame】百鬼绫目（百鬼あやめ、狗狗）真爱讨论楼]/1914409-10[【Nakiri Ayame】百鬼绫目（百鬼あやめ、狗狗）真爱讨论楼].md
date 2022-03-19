@@ -5307,3 +5307,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是录好的 只要发条推就行
 
+
+
+*****
+
+####  nian1538  
+##### 14031#       发表于 2022-3-19 09:09
+
+推特还是没发，争当最后一个发推的是吧
+

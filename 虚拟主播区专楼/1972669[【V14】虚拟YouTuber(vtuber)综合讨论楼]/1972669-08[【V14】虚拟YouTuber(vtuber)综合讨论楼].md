@@ -12053,3 +12053,12 @@ gaku 3d同接9万 sc2千三百万
 
 【有观众演唱会】HIMEHINA Live 2Days 2022『想要相见的我们』开催决定！【in丰洲PIT】
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 11588#       发表于 2022-3-19 09:08
+
+贴吧最近老是给我推送骂apex这季苟大师坑队友、这季大师排名分太高没含金量的贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
