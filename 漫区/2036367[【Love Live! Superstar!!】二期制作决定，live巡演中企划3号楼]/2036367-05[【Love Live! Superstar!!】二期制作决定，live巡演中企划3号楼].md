@@ -7369,3 +7369,16 @@ A6041020-8DB7-4FA2-B15A-B6547F2B96F1.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/19/210737z36ttll1pzwin988.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6565#       发表于 2022-3-19 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55107692&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-19 19:51</a>
+我看寒总堆了100张只中了5张，这次很难抽啊
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+我真是把运气都堆在这次了，G店2中1，虽然A店砸了14个码0中
+
