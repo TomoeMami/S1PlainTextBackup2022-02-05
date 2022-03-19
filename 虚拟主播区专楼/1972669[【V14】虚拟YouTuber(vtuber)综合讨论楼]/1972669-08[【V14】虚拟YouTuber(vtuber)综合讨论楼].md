@@ -12147,3 +12147,41 @@ EN5期第一个银盾的不是那个小眼镜怪盗么
 
 我怎么觉得杏星这批皮都好难看，反正论男人皮是哈弟箱赢了惹
 
+
+
+*****
+
+####  fastary  
+##### 11598#       发表于 2022-3-19 14:11
+
+ 本帖最后由 fastary 于 2022-3-19 14:16 编辑 
+
+反正以我的审美是虹en4≈哈弟箱≥杏星＞伊甸≥en5<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+虹虽然也僵硬但是一直觉得脸动起来(尤其是上下动头的时候)没有杏的纸片感重，可惜论男人皮是杏星赢太多……
+
+而且ankr的男人谷图也经常丑得一比，我气死
+
+*****
+
+####  alcoholic1000  
+##### 11599#       发表于 2022-3-19 14:25
+
+ 本帖最后由 alcoholic1000 于 2022-3-19 14:28 编辑 
+
+补个图
+
+<img src="https://img.saraba1st.com/forum/202203/19/142439mqcnqyuq1nsc5ygo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>「UPROAR!!」.jpeg</strong> (828.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 14:24 上传
+
+我觉得所有在你楼有点讨论度的皮无论辨识度还是完成度都算说得过去，翻一下wiki一般小箱（尤其是enV）都是什么胡逼皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过论皮还是Vshojo第一
+
+Syl，看了哈弟箱（应该叫新门了）里水無瀬的皮这不是挺好的吗，U助也不是不能画啊
+
