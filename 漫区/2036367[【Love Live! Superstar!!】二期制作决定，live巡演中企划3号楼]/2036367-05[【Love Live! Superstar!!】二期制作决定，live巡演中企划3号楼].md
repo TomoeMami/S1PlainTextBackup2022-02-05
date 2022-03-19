@@ -7288,3 +7288,14 @@ FC GOODS也搞定了，但是那个钱包实在想不出有啥用
 
 不知道回东京没，好好休息几天调整一下心态吧，还好名古屋场安排在下个月
 
+
+
+*****
+
+####  player3960  
+##### 6561#       发表于 2022-3-19 10:20
+
+已经三天了，身体出啥情况了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
