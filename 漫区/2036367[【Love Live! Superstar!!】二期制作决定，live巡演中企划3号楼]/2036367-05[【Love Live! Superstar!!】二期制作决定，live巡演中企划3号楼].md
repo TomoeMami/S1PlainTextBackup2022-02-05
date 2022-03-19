@@ -7382,3 +7382,14 @@ A6041020-8DB7-4FA2-B15A-B6547F2B96F1.jpeg
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 我真是把运气都堆在这次了，G店2中1，虽然A店砸了14个码0中
 
+
+
+*****
+
+####  cat1230  
+##### 6566#       发表于 2022-3-20 04:00
+
+【官方日字译中】LoveLive! 岚珠和可可的特别节目
+
+这是B站又一个汉化UP主的烤肉，看到标题我楞好9。真的，生肉太少急需新料，可以说很有当年的盛况<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

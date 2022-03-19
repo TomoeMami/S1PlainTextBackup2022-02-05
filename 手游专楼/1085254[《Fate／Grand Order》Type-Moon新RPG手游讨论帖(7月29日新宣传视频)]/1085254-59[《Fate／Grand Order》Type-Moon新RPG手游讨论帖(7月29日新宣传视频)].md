@@ -3414,3 +3414,12 @@ EX难度 闪闪Return 3T<img src="https://static.saraba1st.com/image/smiley/face
 
 [https://www.youtube.com/watch?v=OQ9YAc0V938](https://www.youtube.com/watch?v=OQ9YAc0V938)
 
+
+
+*****
+
+####  khxooo  
+##### 87307#       发表于 2022-3-20 02:19
+
+嗯，看了看街机终章的剧情，根据梅莉的话，尼禄会头疼是因为在不断抗衡兽的诱惑。所以这次的兽尼禄就是来自没有成功抵御兽的诱惑的世界线吗？
+
