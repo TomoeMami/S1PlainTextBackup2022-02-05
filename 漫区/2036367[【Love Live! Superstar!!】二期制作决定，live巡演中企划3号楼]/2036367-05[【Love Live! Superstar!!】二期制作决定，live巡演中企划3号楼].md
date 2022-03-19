@@ -7308,3 +7308,15 @@ FC GOODS也搞定了，但是那个钱包实在想不出有啥用
 
 Talk结束，40秒真是太短了
 
+
+
+*****
+
+####  Enakina  
+##### 6563#       发表于 2022-3-19 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55106220&amp;ptid=2036367" target="_blank">lj205 发表于 2022-03-19 17:37:23</a>
+Talk结束，40秒真是太短了</blockquote>我看寒总堆了100张只中了5张，这次很难抽啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
