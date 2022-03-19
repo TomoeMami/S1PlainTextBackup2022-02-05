@@ -12122,3 +12122,19 @@ EN5期第一个银盾的不是那个小眼镜怪盗么
 
 别说en五期了，伊甸组男人axia以外的皮也挺一般的，本社三个新女人也有点普通没记忆点，唯一就记住了个头顶百度云的
 
+
+
+*****
+
+####  winda  
+##### 11595#       发表于 2022-3-19 13:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">seeds这批仗着练习生体制低成本试错，搞猎奇皮填海的玩法还是别吹了，当初柴卡也没少喷运营给他自己的劣质皮
+
+*****
+
+####  布莱士·西伯利  
+##### 11596#       发表于 2022-3-19 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但即想不到有啥人适合那皮，也想不到leader能套啥其他皮就是了。
+
