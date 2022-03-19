@@ -12215,3 +12215,13 @@ Syl，看了哈弟箱（应该叫新门了）里水無瀬的皮这不是挺好�
 
 丑皮但有妈爱也不错，做不到每个人都是相羽待遇<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 11604#       发表于 2022-3-19 15:34
+
+醒来就看见のあkamito两个阴角在无vc玩valheim。
+什么上古版本。
+

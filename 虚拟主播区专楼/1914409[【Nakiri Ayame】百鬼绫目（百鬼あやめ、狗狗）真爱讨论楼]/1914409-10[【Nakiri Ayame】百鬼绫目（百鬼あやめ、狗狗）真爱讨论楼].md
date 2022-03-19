@@ -5334,3 +5334,12 @@ Towa那边说是绫总花了一个月时间才鼓起勇气邀请的，很高兴�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">挺离谱的，天天打lol就是不想动
 
+
+
+*****
+
+####  因为你不会  
+##### 14034#       发表于 2022-3-19 15:22
+
+绫总打游戏是生活，V是什么东西？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
