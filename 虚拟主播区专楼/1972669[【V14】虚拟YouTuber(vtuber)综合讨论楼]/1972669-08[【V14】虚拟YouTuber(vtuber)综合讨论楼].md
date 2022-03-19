@@ -12185,3 +12185,33 @@ EN5期第一个银盾的不是那个小眼镜怪盗么
 
 Syl，看了哈弟箱（应该叫新门了）里水無瀬的皮这不是挺好的吗，U助也不是不能画啊
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11600#       发表于 2022-3-19 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">光之前的谷图很不错。顺便虹的脸部捕捉应该是业内最好之一吧？
+
+*****
+
+####  fastary  
+##### 11601#       发表于 2022-3-19 14:35
+
+这不是废话吗，大箱还要去跟小箱皮比那才叫掉价。明明都知道不靠人海战术扩张了却对皮不上心，什么懒狗
+
+*****
+
+####  ヒトニナル  
+##### 11602#       发表于 2022-3-19 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为水无濑的皮，管厕这两天把u助和2434都车爆了
+
+*****
+
+####  rzrbtk  
+##### 11603#       发表于 2022-3-19 14:54
+
+丑皮但有妈爱也不错，做不到每个人都是相羽待遇<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
