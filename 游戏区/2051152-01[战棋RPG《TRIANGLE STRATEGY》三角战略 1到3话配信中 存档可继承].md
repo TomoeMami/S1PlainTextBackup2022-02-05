@@ -11615,3 +11615,18 @@ n选一那几个同伴是不是多周目也没法同时收的
 —— 来自 S1Fun</blockquote>
 一周目二级徽章应该正好缺一个，或者大概11话卖红毛人路线可以再多拿一个(不卖的话路线只有be或者和教国和解没有战斗，但我没走过出卖这条路不太清楚具体细节)
 
+
+
+*****
+
+####  minysun  
+##### 1039#       发表于 2022-3-19 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55100872&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-19 08:13</a>
+真结局路线的队伍分配求推荐
+
+我一周目收了女儿弓和捕兽夹弓
+
+现在二周目，收了冰法和所有+号键支线队友，现 ...</blockquote>
+女超人给罗兰队似乎和大舅子有特殊对话
+
