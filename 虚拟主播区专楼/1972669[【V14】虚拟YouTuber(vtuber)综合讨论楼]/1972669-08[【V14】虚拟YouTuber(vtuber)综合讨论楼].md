@@ -12078,3 +12078,21 @@ gaku 3d同接9万 sc2千三百万
 
 是个男V都基本比虹EN5的男人好看，杏星的新男人我觉得挺可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 11591#       发表于 2022-3-19 11:51
+
+望月的视觉图真好看，皮只能说还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11592#       发表于 2022-3-19 11:54
+
+体感这赛季奥利匹斯确实含金量下降了
+
+所以上赛季的solomaster爆杀这赛季的solomaster没问题
+
