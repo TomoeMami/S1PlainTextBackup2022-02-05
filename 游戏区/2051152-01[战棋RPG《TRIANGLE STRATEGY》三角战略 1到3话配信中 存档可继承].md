@@ -11712,3 +11712,33 @@ n选一那几个同伴是不是多周目也没法同时收的
 
 第八话选和海德桑合作的那一关好难，队伍12级女将军比我方高了整整3级，海德桑那边除了当肉盾抗几回合外没任何用处，普通难度都重试了好几次死了好几个人才勉强打过去
 
+
+
+*****
+
+####  henryqxg  
+##### 1047#       发表于 2022-3-19 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55102110&amp;ptid=2051152" target="_blank">前田利家 发表于 2022-3-19 10:39</a>
+
+第十章坦白身份到底要刷多久自由啊，快刷吐了。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/19/173550bvh9ihgh9vw10k1y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 17:35 上传
+
+其实没多少啊，数值要求很低的，选项要选对
+
+image.png
+(41.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202203/19/173533xqzfb8n5lzv30u01.png" referrerpolicy="no-referrer">
+
