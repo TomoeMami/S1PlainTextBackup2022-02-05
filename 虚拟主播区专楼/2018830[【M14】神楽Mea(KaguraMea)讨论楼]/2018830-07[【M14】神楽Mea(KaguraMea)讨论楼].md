@@ -7878,3 +7878,12 @@ i want be with you
 
 舞元虽迟但到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就知道这么多天的苔苔联动肯定会至少安排一次舞元的
 
+
+
+*****
+
+####  路人庚  
+##### 9830#       发表于 2022-3-20 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大致看了下游戏内的卡面个人剧情，虽然刚才直播里提到了是喜欢犬羊组合的运营促成的联动，不过这剧情内容比起方舟指令还是差了点意思（看后续还有没有了
+

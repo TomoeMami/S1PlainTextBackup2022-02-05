@@ -11812,3 +11812,26 @@ image.png
 
 这是啥情况
 
+
+
+*****
+
+####  Ne0  
+##### 1054#       发表于 2022-3-20 00:02
+
+现在有无剧透的收集品攻略了吗，rpg环节只自己玩总怕漏东西
+
+*****
+
+####  leachiman  
+##### 1055#         楼主| 发表于 2022-3-20 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55110871&amp;ptid=2051152" target="_blank">Ne0 发表于 2022-3-20 00:02</a>
+
+现在有无剧透的收集品攻略了吗，rpg环节只自己玩总怕漏东西</blockquote>
+[https://jp.samurai-gamers.com/triangle-strategy/](https://jp.samurai-gamers.com/triangle-strategy/)
+
+选关卡然后看RPGパートで入手できるアイテム
+
+看不懂可以机翻
+

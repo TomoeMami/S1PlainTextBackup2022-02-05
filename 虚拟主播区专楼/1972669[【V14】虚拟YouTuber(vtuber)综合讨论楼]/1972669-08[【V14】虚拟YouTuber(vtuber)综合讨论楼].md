@@ -12308,3 +12308,12 @@ yuya都开始和千联动上了，my bora人呢……<img src="https://static.sa
 
 月之是真的觉得厉害还是在阴阳<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 11612#       发表于 2022-3-20 00:43
+
+我倒是觉得holo有staff是虹铁粉不是什么奇怪的事情……
+

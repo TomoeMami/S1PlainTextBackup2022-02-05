@@ -3403,3 +3403,14 @@ bx高难国服和这边复刻加起来已经打了3次吧..除了磨时间之外
 金钻头无倍卡2t bx
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">食大便了，大人
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87306#       发表于 2022-3-19 23:55
+
+EX难度 闪闪Return 3T<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=OQ9YAc0V938](https://www.youtube.com/watch?v=OQ9YAc0V938)
+
