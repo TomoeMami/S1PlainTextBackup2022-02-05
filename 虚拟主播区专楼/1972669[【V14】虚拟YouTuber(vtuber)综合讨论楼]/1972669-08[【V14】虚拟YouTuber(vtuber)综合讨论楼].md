@@ -12062,3 +12062,19 @@ gaku 3d同接9万 sc2千三百万
 
 贴吧最近老是给我推送骂apex这季苟大师坑队友、这季大师排名分太高没含金量的贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 11589#       发表于 2022-3-19 11:42
+
+是个男V都基本比虹EN5的男人好看，杏星的新男人我觉得挺可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  purdre  
+##### 11590#       发表于 2022-3-19 11:42
+
+是个男V都基本比虹EN5的男人好看，杏星的新男人我觉得挺可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
