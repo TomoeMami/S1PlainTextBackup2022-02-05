@@ -7808,3 +7808,73 @@ i want be with you
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打工大队长，什么穿越到异世界也要打工赚钱
 
+
+
+*****
+
+####  路人庚  
+##### 9824#       发表于 2022-3-19 23:04
+
+我超，还能金蛋变虹蛋的
+
+<img src="https://img.saraba1st.com/forum/202203/19/230427bggm1gpj64j1c0gx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B8C6AD88-E5ED-4067-8D51-F85159B7C13A.jpeg</strong> (238.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 23:04 上传
+
+*****
+
+####  十九号大侠  
+##### 9825#       发表于 2022-3-19 23:04
+
+正常操作吧
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 9826#       发表于 2022-3-19 23:05
+
+ 本帖最后由 T_Hb 于 2022-3-19 23:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是转彩了，角色还是4星，这游戏的彩到底是什么设定，难道是pick up就是彩么，我抽到的时候也不是彩阿
+
+*****
+
+####  十九号大侠  
+##### 9827#       发表于 2022-3-19 23:07
+
+这游戏是不是要关服了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  往世雷书  
+##### 9828#       发表于 2022-3-19 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55109795&amp;ptid=2018830" target="_blank">病態極端 发表于 2022-3-19 22:31</a>
+字幕組有翻譯戀愛測試的結果嗎？</blockquote>
+这个？直播切片熟肉好像没有
+
+<img src="https://img.saraba1st.com/forum/202203/19/230803wvz32mxatklftz38.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220319_084828_tv.danmaku.bili_edit_263951008159722.jpg</strong> (364.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 23:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  路人庚  
+##### 9829#       发表于 2022-3-19 23:10
+
+舞元虽迟但到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就知道这么多天的苔苔联动肯定会至少安排一次舞元的
+
