@@ -8919,3 +8919,12 @@ astel虽然能连续上几个赛季的大师， 但他和哈弟说自愧不如�
 
 偶像包袱太重是这样的，可以摸鱼不播但是偶像的样子必须要有<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 8514#       发表于 2022-3-19 09:38
+
+astel9分的条件是玛吉缚
+
