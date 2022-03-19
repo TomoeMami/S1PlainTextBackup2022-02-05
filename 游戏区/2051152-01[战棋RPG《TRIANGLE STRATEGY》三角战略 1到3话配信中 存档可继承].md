@@ -11765,3 +11765,39 @@ image.png
 
 信念选择是平均好还是集中好
 
+
+
+*****
+
+####  Aresu  
+##### 1050#       发表于 2022-3-19 21:53
+
+平均选收的同伴多一点 但是走天秤的时候最好朝一种方向走 这样剧情体验好一些
+
+
+
+*****
+
+####  Onelooker  
+##### 1051#       发表于 2022-3-19 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55103758&amp;ptid=2051152" target="_blank">妄想中毒 发表于 2022-3-19 13:08</a>
+
+第八话选和海德桑合作的那一关好难，队伍12级女将军比我方高了整整3级，海德桑那边除了当肉盾抗几回合外没 ...</blockquote>
+太坑了，上面的人纯白给，要把默认上面的全挪下面去
+
+*****
+
+####  听风不是雨  
+##### 1052#       发表于 2022-3-19 22:14
+
+<img src="https://img.saraba1st.com/forum/202203/19/221346lp8tou6enostkaki.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-03-19_22-12-33.png</strong> (229.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-19 22:13 上传
+
+原来你俩还有这技艺呢<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+

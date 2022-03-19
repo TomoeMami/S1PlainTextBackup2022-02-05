@@ -7762,3 +7762,14 @@ i want be with you
 
 下了，等一个抽卡狗托
 
+
+
+*****
+
+####  T_Hb  
+##### 9820#       发表于 2022-3-19 22:03
+
+ 本帖最后由 T_Hb 于 2022-3-19 22:14 编辑 
+
+君の帧数not good，听了自己的配音要死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就知道
+
