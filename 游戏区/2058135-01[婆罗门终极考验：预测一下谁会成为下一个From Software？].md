@@ -1009,3 +1009,24 @@ EDF6, 敬请见证
 
 我投alicesoft<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ppa11  
+##### 112#       发表于 2022-3-19 10:52
+
+<blockquote>v13 发表于 2022-3-19 03:14
+我投alicesoft</blockquote>
+a社已经老了，老人都不在了
+
+*****
+
+####  噗呸破屁诚  
+##### 113#       发表于 2022-3-19 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55059949&amp;ptid=2058135" target="_blank">Flechette 发表于 2022-03-16 04:17:06</a>
+别说，光从市场地位看米哈游没准还真行</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能，只看市场的话米糊油已经在fs之上了？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
