@@ -3523,3 +3523,18 @@ SL得脑壳痛，给有条件的兄弟个参考把
 根本问题是如果你摩根90的话，我不知道少了18级的atk到底能不能完成输出
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87314#       发表于 2022-3-20 19:36
+
+ 本帖最后由 qixinno2 于 2022-3-20 19:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55118808&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-3-20 19:05</a>
+
+其实跟上面那个阿囧的问题是一样的，宝具输出1宝就够，完全溢出
+
+根本问题是如果你摩根90的话，我不知道少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借了个百级4宝换了个阵容过了 不过用了两发令咒 为了一个呼符真难 梵高的宝具恐惧是真的强啊 几乎放出来对面就是晕眩状态
+

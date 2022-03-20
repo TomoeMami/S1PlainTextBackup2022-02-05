@@ -11998,3 +11998,17 @@ image.png
 
 不用机关正面硬刚的确难打，用铁匠造梯子逃课吧
 
+
+
+*****
+
+####  HGCG3  
+##### 1071#       发表于 2022-3-20 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55118799&amp;ptid=2051152" target="_blank">中泽君 发表于 2022-3-20 19:05</a>
+
+第七关不用机关像不死人打得有点绝望，撑到第三波增援要被打回去了
+
+不能存档不能悔棋真的很不适应</blockquote>
+站房顶
+
