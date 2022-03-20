@@ -12366,3 +12366,19 @@ en男都爆款隐隐有en逆袭之势了，怎么还虹运势差的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那个包果然不卖了
 
+
+
+*****
+
+####  空集  
+##### 11618#       发表于 2022-3-20 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 居然真就不卖了啊 看来马上要上市了么
+
+*****
+
+####  fastary  
+##### 11619#       发表于 2022-3-20 11:49
+
+真卖了难道等着传到偶像粉哪里被炎上然后吃官司吗…
+
