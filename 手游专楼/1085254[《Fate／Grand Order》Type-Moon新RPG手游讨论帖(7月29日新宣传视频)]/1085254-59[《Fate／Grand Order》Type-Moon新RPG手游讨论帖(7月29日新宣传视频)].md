@@ -3437,3 +3437,16 @@ EX难度 闪闪Return 3T
 https://www.youtube.com/watch?v=OQ9YAc0V938</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">114级和118级，倍卡没合，5宝，毫无参考性
 
+
+
+*****
+
+####  eyeego  
+##### 87309#       发表于 2022-3-20 11:08
+
+ 本帖最后由 eyeego 于 2022-3-20 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55113112&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-20 10:28</a>
+114级和118级，倍卡没合，5宝，毫无参考性</blockquote>
+宝具只打一发而且溢出很多其实不重要
+关键还是白值 1w8应该是把礼装都给喂到100了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
