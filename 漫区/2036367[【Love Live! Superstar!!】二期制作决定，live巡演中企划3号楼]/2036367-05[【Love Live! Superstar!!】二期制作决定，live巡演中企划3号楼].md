@@ -7551,3 +7551,30 @@ D247122F-2BCB-45FA-8931-4F3C1774FF76.jpeg
 
 我猜是他们中的某个人是星团粉然后那个人现在怎么怎么样了
 
+
+
+*****
+
+####  Enakina  
+##### 6581#       发表于 2022-3-21 00:50
+
+ 本帖最后由 Enakina 于 2022-3-21 00:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55122683&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-03-20 23:59:45</a>
+谁来解释一下，星动画怎么跟中推圈扯上关系的</blockquote>又惹了一堆贵物，吐了，无视吧，也起不来什么浪，无非是找到新玩具的小鬼罢了，都是上不了台面的东西。二期想来搞在另想办法吧，不过这种东西挺好送走的，一举报一个准，一期就算了吧，也没啥人回去看了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 6582#       发表于 2022-3-21 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 6583#       发表于 2022-3-21 00:59
+
+书的话我没记错10本以内免税吧，真拼团也还凑合
+

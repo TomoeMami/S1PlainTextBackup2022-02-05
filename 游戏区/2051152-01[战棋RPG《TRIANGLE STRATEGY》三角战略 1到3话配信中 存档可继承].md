@@ -12095,3 +12095,12 @@ image.png
 
 其实完美通关CG里提示得非常明显
 
+
+
+*****
+
+####  听风不是雨  
+##### 1078#       发表于 2022-3-21 01:08
+
+二周目困难真结局罗兰战，先让坦克硬吃总帅一发大招，罗兰冲上去背击大招-400，琥珀全体时停后回溯罗兰，开绝技+3TP再轰一发大招-400，琥珀挂定时炸弹，看BOSS自爆-200送走自己<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

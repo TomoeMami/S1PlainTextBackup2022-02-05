@@ -12696,3 +12696,16 @@ nrk的朋友学日语？
 
 现在上大师都没感觉了，含金量！
 
+
+
+*****
+
+####  winda  
+##### 11650#       发表于 2022-3-21 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55122752&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-3-21 00:07</a>
+nrk的朋友学日语？
+
+现在上大师都没感觉了，含金量！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">英语，打错了
+
