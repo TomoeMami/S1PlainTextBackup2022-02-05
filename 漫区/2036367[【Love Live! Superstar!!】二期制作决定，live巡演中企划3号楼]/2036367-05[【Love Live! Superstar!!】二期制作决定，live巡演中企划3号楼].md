@@ -7520,3 +7520,18 @@ D247122F-2BCB-45FA-8931-4F3C1774FF76.jpeg
 
 而且我觉得有点吃亏，代购下单码全在他们手上，我们这些自己买的体量根本干不过他们
 
+
+
+*****
+
+####  ayangsu  
+##### 6578#       发表于 2022-3-20 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121661&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-20 22:30</a>
+我就是说他啊
+
+而且我觉得有点吃亏，代购下单码全在他们手上，我们这些自己买的体量根本干不过他们 ...</blockquote>
+其实煤炉啥的也有出码的，不过代购确实拿码容易
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
