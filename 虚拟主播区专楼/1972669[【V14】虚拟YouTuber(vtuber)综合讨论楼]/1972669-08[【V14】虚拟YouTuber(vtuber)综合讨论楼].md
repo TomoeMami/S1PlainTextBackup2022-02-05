@@ -12416,3 +12416,35 @@ en男都爆款隐隐有en逆袭之势了，怎么还虹运势差的。
 
 わぁ普通の女の子だ
 
+
+
+*****
+
+####  rzrbtk  
+##### 11624#       发表于 2022-3-20 16:15
+
+ 本帖最后由 rzrbtk 于 2022-3-20 16:29 编辑 
+
+新人初次直播那种，紧张得不自觉音调上升、语速提高、稍微有点气短的地方，我觉得很可爱，太素了
+
+铲妹来了了了了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 11625#       发表于 2022-3-20 16:18
+
+没救了
+培训半年意味在哪里
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 11626#       发表于 2022-3-20 16:27
+
+ 本帖最后由 Suzutsuki 于 2022-3-20 16:29 编辑 
+
+太素了，好久没见到这种了，有点新鲜
+
