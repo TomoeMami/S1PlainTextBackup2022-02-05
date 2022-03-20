@@ -12052,3 +12052,19 @@ image.png
 
 老婆队，剩下的就行，地图是开阔场地个人感觉很好打
 
+
+
+*****
+
+####  Petilil  
+##### 1075#       发表于 2022-3-20 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55119701&amp;ptid=2051152" target="_blank">HGCG3 发表于 2022-3-20 20:14</a>
+
+个人感觉
+
+管家队，带铁匠，两把弓两个法，上屋顶居高临下，打得慢但是稳
+
+王子队，带主力，总帅很强，最好 ...</blockquote>
+懂了，非常感谢
+

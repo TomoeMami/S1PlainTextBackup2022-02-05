@@ -5581,3 +5581,27 @@ syl 作业还是没交
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">这下要停多久
 
+
+
+*****
+
+####  nian1538  
+##### 14061#       发表于 2022-3-20 20:23
+
+百鬼あやめ😈ホロライブ2期生
+
+@nakiriayame
+
+意気込みツイートも皆に胸張って言えなくて結局悩んで消して下書きに残してた🥲
+
+皆励ましてくれてありがとう！！🥰🥰笑顔でいてって言ってくれるから笑顔でいる！☺️☺️☺️🌸🌸🌸
+
+不玉玉了
+
+*****
+
+####  一仙  
+##### 14062#       发表于 2022-3-20 20:24
+
+那么可以直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
