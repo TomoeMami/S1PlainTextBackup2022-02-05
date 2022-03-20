@@ -12660,3 +12660,18 @@ SSK你毕业吧
 
 凪白还给送行了
 
+
+
+*****
+
+####  Diabolosis  
+##### 11647#       发表于 2022-3-20 22:53
+
+ 本帖最后由 Diabolosis 于 2022-3-20 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55120240&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-3-20 20:49</a>
+
+话说嗯男粉现在是被引来本社了？怎么现在连新人出道曲的评论都全都是那种土味定型文了，然后又是各种妹妹妹 ...</blockquote>
+女粉浓度高的地方都差不多；据观察应该挺多人是从en男主播开始看管人的，切片评论区经常能看到有人问一些很简单的管人讨论用语。新出道的引起注意也不奇怪
+
+让我印象深刻的是无聊刷en切片的时候看到形容en某男主播表面清纯（？）的腹黑是“黑芝麻馅汤圆”的，从此决定远离b站en管人痴<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
