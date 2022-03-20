@@ -3595,3 +3595,39 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 90+不打了，缺指环，刷纯票本了。
 
+
+
+*****
+
+####  sin.yugi  
+##### 87318#       发表于 2022-3-21 01:31
+
+周末有空把这些高难请了，余量还挺多的这套队伍。超高难最爽的还是bx以前要苟现在直接3t收走
+
+20220320132648.jpg
+(553.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 01:27 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/122749lixb5f6bj6gffxnu.jpg" referrerpolicy="no-referrer">
+
+20220320132707.jpg
+(547.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 01:27 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/122756py1gaumzwadghyb6.jpg" referrerpolicy="no-referrer">
+
+20220320132853.jpg
+(296.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 01:29 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/122959d35vwsrlzslzfi8l.jpg" referrerpolicy="no-referrer">
+
