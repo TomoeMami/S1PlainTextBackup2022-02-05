@@ -7469,3 +7469,54 @@ D247122F-2BCB-45FA-8931-4F3C1774FF76.jpeg
   -- 来 ...</blockquote>
 好<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6573#       发表于 2022-3-20 22:09
+
+不想走代购要么就积累一段时间等东西多了一次性发货，这样相当于自己给自己摊运费
+
+要么就是自己开团，然后一起分摊运费
+
+*****
+
+####  lj205  
+##### 6574#       发表于 2022-3-20 22:18
+
+话说一般一次性大量购买不是不算销量吗？那鲤鱼刚4000的销量，这一家代购就是100张的，国内好几家做大的，那实际不是要上到4200、4300？
+
+*****
+
+####  csolfans  
+##### 6575#       发表于 2022-3-20 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121551&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-20 22:18</a>
+
+话说一般一次性大量购买不是不算销量吗？那鲤鱼刚4000的销量，这一家代购就是100张的，国内好几家做大的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看到有位兄弟一买就买了109张
+
+*****
+
+####  ayangsu  
+##### 6576#       发表于 2022-3-20 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121551&amp;ptid=2036367" target="_blank">lj205 发表于 2022-3-20 22:18</a>
+话说一般一次性大量购买不是不算销量吗？那鲤鱼刚4000的销量，这一家代购就是100张的，国内好几家做大的， ...</blockquote>
+据说一次买大量是会砍的，实际销量肯定比榜里统计的高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 6577#       发表于 2022-3-20 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121574&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-3-20 22:20</a>
+
+我看到有位兄弟一买就买了109张</blockquote>
+我就是说他啊
+
+而且我觉得有点吃亏，代购下单码全在他们手上，我们这些自己买的体量根本干不过他们
+

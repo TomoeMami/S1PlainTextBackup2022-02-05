@@ -12625,3 +12625,21 @@ SSK你毕业吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11644#       发表于 2022-3-20 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11645#       发表于 2022-3-20 22:18
+
+ 本帖最后由 winda 于 2022-3-20 22:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NRK今早tc还说她朋友被虹en男带进坑后开始学日语了，另外因为花粉左眼肿起来只能带眼罩，就顺便聊了下她之前左眼因为会突然失焦，有视网膜剥离的症状，就去医院做手术的事
+
