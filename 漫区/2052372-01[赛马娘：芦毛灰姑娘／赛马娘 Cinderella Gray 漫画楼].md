@@ -864,3 +864,12 @@ image.png
 
 粗略看了下，是容易受伤的体质，后面还差点死了，感觉会是类似于目白阿尔丹的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  isummon  
+##### 73#         楼主| 发表于 2022-3-20 22:39
+
+两人领域展开后交流那段要是能模仿高达搞个裸体聊天室就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

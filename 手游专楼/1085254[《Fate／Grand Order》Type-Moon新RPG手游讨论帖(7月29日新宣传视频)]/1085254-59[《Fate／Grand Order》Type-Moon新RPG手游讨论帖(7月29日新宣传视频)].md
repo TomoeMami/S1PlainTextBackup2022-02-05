@@ -3571,3 +3571,16 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://img.saraba1st.com/forum/202203/20/195702cc9lyooj1ayfslsa.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千叶铁矢  
+##### 87316#       发表于 2022-3-20 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55119444&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-20 19:57</a>
+今天的血斧
+
+龙娘3T强杀</blockquote>
+血斧跟bx差不多是个靶子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
