@@ -8985,3 +8985,21 @@ astel9分的条件是玛吉缚</blockquote>
 
 最协不是淘汰制，最后一名也能打完所有正赛，要看吃瘪，就看夸宝作为1号位对枪疯狂被击倒。平时排位喜欢去乱骚，被两三人集火的话应该会秒躺，然后被对面冲进来灭队，就可以当ob了
 
+
+
+*****
+
+####  zpy393  
+##### 8520#       发表于 2022-3-20 18:26
+
+忍着把live看完了，那么夸夸的玉玉有好点可以播了吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kesoi  
+##### 8521#       发表于 2022-3-20 18:35
+
+按一般定律不应该是live完继续玉玉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

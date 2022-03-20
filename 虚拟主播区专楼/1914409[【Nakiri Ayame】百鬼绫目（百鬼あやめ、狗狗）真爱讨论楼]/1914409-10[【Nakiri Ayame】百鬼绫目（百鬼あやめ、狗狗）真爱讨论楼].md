@@ -5495,3 +5495,43 @@ syl 作业还是没交
 
 有没有可能，都是盾呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一仙  
+##### 14052#       发表于 2022-3-20 18:17
+
+看节目表大概悲伤的事情就是和rushia的合唱被删掉了 确实还蛮悲伤的
+[https://youtu.be/Wdc0FwgTcs4](https://youtu.be/Wdc0FwgTcs4)　这个当代餐吧
+
+不过绫总这次和整个大家庭都不一致了，既没换头像也没发那个个人live预告，应该说绫太自由任性了还是该骂杏staff屁用没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cctvyt1  
+##### 14053#       发表于 2022-3-20 18:19
+
+看来没有重录 只唱了一首
+
+*****
+
+####  stedckk  
+##### 14054#       发表于 2022-3-20 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">哎，果然是没了合唱曲
+
+*****
+
+####  nian1538  
+##### 14055#       发表于 2022-3-20 18:39
+
+原来不发推是对cover无言抗议吗
+
+*****
+
+####  夏小筱ss  
+##### 14056#       发表于 2022-3-20 18:39
+
+原来是自己曲目被删了，绫总开播安慰一下live受伤的百鬼众吧
+
