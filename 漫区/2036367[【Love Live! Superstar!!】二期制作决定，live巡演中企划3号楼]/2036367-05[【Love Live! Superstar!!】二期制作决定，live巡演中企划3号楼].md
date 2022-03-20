@@ -7420,3 +7420,26 @@ D247122F-2BCB-45FA-8931-4F3C1774FF76.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/20/193931rm4f49p3bbknp39o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 6569#       发表于 2022-3-20 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55091568&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-3-18 13:43</a>
+
+鲤鱼直签爆杀倒爷，实在是太温柔了</blockquote>
+有个问题，是这样的：我没有加入fc，想入手写真直签，我看tb都是200，在fc购买邮寄回国内一般花费多少？还是在tb买毕竟合适？
+
+*****
+
+####  ayangsu  
+##### 6570#       发表于 2022-3-20 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55120500&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-3-20 21:06</a>
+有个问题，是这样的：我没有加入fc，想入手写真直签，我看tb都是200，在fc购买邮寄回国内一般花费多少？ ...</blockquote>
+便宜肯定淘宝便宜，自己买写真2750，日本国内运费880，再加国际运费，买一本挺不划算的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
