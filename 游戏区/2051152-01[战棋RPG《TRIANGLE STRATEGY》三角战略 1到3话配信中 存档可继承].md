@@ -11892,3 +11892,17 @@ image.png
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  henryqxg  
+##### 1062#       发表于 2022-3-20 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55115067&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-3-20 13:16</a>
+
+一周目普通难度到第十章了，感觉主线角色除了罗兰都各有各的好用之处所以罗兰咋用比较好
+
+—— 来自 ...</blockquote>
+罗兰仇恨非常大老是挨揍，管家套个防御buff去钓鱼吸伤害还行<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
