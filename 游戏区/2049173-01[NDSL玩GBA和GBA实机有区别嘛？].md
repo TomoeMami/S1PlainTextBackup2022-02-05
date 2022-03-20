@@ -3047,3 +3047,17 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 224#         楼主| 发表于 2022-3-21 04:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55119650&amp;ptid=2049173" target="_blank">arbilest 发表于 2022-3-20 20:10</a>
+今天我遇到了楼上说的问题，恒压确实是没电就突然死亡，甚至不会红灯。
+最大循环几次以后自己估摸着差不 ...</blockquote>
+那不是即时存档都来不及<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

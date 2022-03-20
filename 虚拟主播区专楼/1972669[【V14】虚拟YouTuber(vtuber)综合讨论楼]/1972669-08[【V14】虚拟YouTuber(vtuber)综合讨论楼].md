@@ -12709,3 +12709,14 @@ nrk的朋友学日语？
 现在上大师都没感觉了，含金量！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">英语，打错了
 
+
+
+*****
+
+####  free  
+##### 11651#       发表于 2022-3-21 03:28
+
+[https://www.youtube.com/watch?v=0HPknVBlZQc](https://www.youtube.com/watch?v=0HPknVBlZQc)
+
+双子居然开歌回了，原来这么能唱的吗，今后多唱唱
+

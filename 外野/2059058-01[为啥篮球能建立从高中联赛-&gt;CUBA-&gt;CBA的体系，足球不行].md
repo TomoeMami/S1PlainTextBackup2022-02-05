@@ -1,0 +1,652 @@
+
+
+*****
+
+####  omnitoken  
+##### 1#       楼主       发表于 2022-3-20 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 选秀从2015年算起，到现在打篮球可以上985，毕业还能打职业
+
+为啥足球不能模仿这一整套体系呢？
+
+*****
+
+####  Gal3ahad  
+##### 2#       发表于 2022-3-20 21:52
+
+足球没有嘛？我不看球记得有U16？
+
+*****
+
+####  风起云吟  
+##### 3#       发表于 2022-3-20 21:55
+
+最直接 最简单的一个道理
+
+国内你打篮球 你打不上CBA一样能赚钱  打野球的顶尖甚至不比职业差
+
+国内顶尖野球一年上百万年薪不成问题的  普通帮企业老板打野球 一个月一万多很容易
+
+所以愿意打篮球的很多
+
+足球你踢不上中超 中甲就完蛋
+
+*****
+
+####  我智力很低  
+##### 4#       发表于 2022-3-20 21:57
+
+为什么日本能建设出
+
+素人-企划**-专属**的体系，我国不行
+
+*****
+
+####  致远星总书记  
+##### 5#       发表于 2022-3-20 21:58
+
+我从小对学校的足球场改造成几个篮球场郁闷不已，想来想去就是东莞这傻逼篮球之乡建设搞的鬼吧
+
+*****
+
+####  samta  
+##### 6#       发表于 2022-3-20 21:59
+
+因为篮球最屌的是美帝，所以篮球抄的美帝的那一套学校路线。
+
+足球最屌的是欧洲，那自然就要抄欧洲的作业了。
+
+*****
+
+####  uxon  
+##### 7#       发表于 2022-3-20 22:01
+
+为什么不能承认现在的年轻人根本就没多喜欢足球呢
+
+*****
+
+####  烟火FY烟火  
+##### 8#       发表于 2022-3-20 22:02
+
+篮球天赋挑个子高的就行了 大学校队基本上就是学校身高天花板 CUBA又把这批人集中起来
+
+足球怎么挑？球王是最高的还是最快的还是耐力最好的？足球只有通过各级比赛 一层一层的踢上来
+
+*****
+
+####  野上由加奈  
+##### 9#       发表于 2022-3-20 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你问下现在小孩愿意踢球还是愿意打篮球还是更愿意练滑板
+
+*****
+
+####  ARCtrooper  
+##### 10#       发表于 2022-3-20 22:04
+
+ 本帖最后由 ARCtrooper 于 2022-3-20 22:10 编辑 
+
+美式职业体育选秀收割模式优劣其实还值得商榷，而且中国校园篮球远谈不上接替体育局梯队。足球青训职业化后一地鸡毛，1999国奥就是量产人才最后的波纹了。
+
+*****
+
+####  JustW  
+##### 11#       发表于 2022-3-20 22:05
+
+高中没有场，课间休息班里十几个男生就在楼道里拿饮料瓶儿踢着玩，我觉得要说群众基础还是有的，和篮球没有那么大差距
+
+*****
+
+####  lost-star  
+##### 12#       发表于 2022-3-20 22:19
+
+足球场地维护费很高，而且也危险，砸坏外面居民楼玻璃啥的，女生也怕被踢到，基本躲着，泡不了妞的运动是真难火的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萌臀  
+##### 13#       发表于 2022-3-20 22:20
+
+足球差一个姚明
+
+之前最接近的应该就是李铁杨晨这个档次了了，但是离姚明还差一截
+
+如果孙哥是中国人那应该中国校园足球真能起来了，哪怕只是起来一阵子
+
+*****
+
+####  世事同观  
+##### 14#       发表于 2022-3-20 22:24
+
+选秀这一套并没有出几个好球员
+
+*****
+
+####  cay999  
+##### 15#       发表于 2022-3-20 22:32
+
+CUBA也就这几年开始选秀热起来的，以前CUBA能有几个进CBA的？
+
+足球说到底踢球的人少呗，现在国足还能进12强，往后的几届只会更菜.
+
+*****
+
+####  泰非力的答复  
+##### 16#       发表于 2022-3-20 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121569&amp;ptid=2059058" target="_blank">lost-star 发表于 2022-3-20 22:19</a>
+
+足球场地维护费很高，而且也危险，砸坏外面居民楼玻璃啥的，女生也怕被踢到，基本躲着，泡不了妞的运动是真 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本高中：你说啥？
+
+*****
+
+####  lijing8204  
+##### 17#       发表于 2022-3-20 22:41
+
+2000年之前足球是比篮球火的，我觉得足球职业化的第一步是成功的，甲A从94年开始关注度非常高球市很火爆，我记得北京国安还上过春晚，唱了真心英雄.那时候大街上还能看到把各个足球队服当T恤穿的年轻人.
+
+*****
+
+####  oT3To  
+##### 18#       发表于 2022-3-20 22:42
+
+面对现实，根本没几个喜欢足球
+
+*****
+
+####  风起云吟  
+##### 19#       发表于 2022-3-20 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121782&amp;ptid=2059058" target="_blank">lijing8204 发表于 2022-3-20 22:41</a>
+
+2000年之前足球是比篮球火的，我觉得足球职业化的第一步是成功的，甲A从94年开始关注度非常高球市很火爆， ...</blockquote>
+很简单 足球在互联网起步阶段是假赌黑 篮球有姚明加持
+
+瞬间逆转
+
+*****
+
+####  nxmonitor  
+##### 20#       发表于 2022-3-20 22:44
+
+哪里踢的人少了，学校球场养草养一年还怎么踢球？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未定名  
+##### 21#       发表于 2022-3-20 22:45
+
+足球需要的资源比篮球多多了，这有啥可说的，资源需求多所以参与人数少
+
+*****
+
+####  anubis_s08  
+##### 22#       发表于 2022-3-20 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121319&amp;ptid=2059058" target="_blank">致远星总书记 发表于 2022-3-20 21:58</a>
+我从小对学校的足球场改造成几个篮球场郁闷不已，想来想去就是东莞这傻逼篮球之乡建设搞的鬼吧 ...</blockquote>
+应该是全国性的，我中学时候学校禁止在校内踢足球，抓到要处分
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+*****
+
+####  我被骗了五块钱  
+##### 23#       发表于 2022-3-20 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121277&amp;ptid=2059058" target="_blank">风起云吟 发表于 2022-3-20 21:55</a>
+
+最直接 最简单的一个道理
+
+国内你打篮球 你打不上CBA一样能赚钱  打野球的顶尖甚至不比职业差</blockquote>
+打野球赚钱是个什么说法，能展开说说不
+
+*****
+
+####  百合豚  
+##### 24#       发表于 2022-3-20 22:53
+
+篮球不只是校园篮球啊，是青训，校园篮球，留美三条线并行啊
+
+*****
+
+####  roger_goodell  
+##### 25#       发表于 2022-3-20 22:58
+
+cba以及国篮现在的水平也不行啊，体系搭起来，实际到了国际赛场还是被暴打
+
+*****
+
+####  gajangmudohe  
+##### 26#       发表于 2022-3-20 23:03
+
+ 本帖最后由 gajangmudohe 于 2022-3-20 23:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121893&amp;ptid=2059058" target="_blank">我被骗了五块钱 发表于 2022-3-20 22:53</a>
+
+打野球赚钱是个什么说法，能展开说说不</blockquote>
+福建广东一带的村镇会举办野球邀请赛或野球联赛，经常请CBA板凳甚至老黑助阵，一场5000左右差不多。CBA福建队之前派过二队参加泉州的野球赛，而且还被打花了
+
+有意思的是这两年CBA的一些外援之前也是混迹于国内野球圈的
+
+a650719d0f004917a903382fec16733d.jpeg
+(62.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 23:06 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/230621lwvkh066hphw7vh0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  风起云吟  
+##### 27#       发表于 2022-3-20 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121893&amp;ptid=2059058" target="_blank">我被骗了五块钱 发表于 2022-3-20 22:53</a>
+
+打野球赚钱是个什么说法，能展开说说不</blockquote>
+各种民间比赛 企业比赛
+
+很多老板会专门养只球队请他们打比赛
+
+*****
+
+####  风起云吟  
+##### 28#       发表于 2022-3-20 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121569&amp;ptid=2059058" target="_blank">lost-star 发表于 2022-3-20 22:19</a>
+
+足球场地维护费很高，而且也危险，砸坏外面居民楼玻璃啥的，女生也怕被踢到，基本躲着，泡不了妞的运动是真 ...</blockquote>
+那只是中国足球整体衰了而已
+
+和足球性质可没关系
+
+90年代 甲A火的那个时候 高峰泡那英呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Joshua64  
+##### 29#       发表于 2022-3-20 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121375&amp;ptid=2059058" target="_blank">野上由加奈 发表于 2022-3-20 22:04</a>
+你问下现在小孩愿意踢球还是愿意打篮球还是更愿意练滑板</blockquote>
+答案是
+电竞
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lost-star  
+##### 30#       发表于 2022-3-20 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121687&amp;ptid=2059058" target="_blank">泰非力的答复 发表于 2022-3-20 22:32</a>
+日本高中：你说啥？</blockquote>
+日本高中足球当然最拉风之一，泡妞无数<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  霸道总裁  
+##### 31#       发表于 2022-3-20 23:35
+
+Y1S1足球是真的不行了，现在的青少年不喜欢了，我儿子他们学校，两千来号人，足球群一共就一两百人。
+
+*****
+
+####  ttgg777  
+##### 32#       发表于 2022-3-20 23:53
+
+篮球比足球好上手啊，场地要求也更小一些。
+
+*****
+
+####  CALPISSODA  
+##### 33#       发表于 2022-3-20 23:53
+
+ 本帖最后由 CALPISSODA 于 2022-3-20 23:56 编辑 
+
+年轻人本身也不喜欢踢球了，特别中学青春期，篮球比踢球更能吸引女孩子，对青春期男生来说能聚集更多女孩子的运动就是绝对的王道。篮球节奏快比足球直观一点，女孩子容易看懂更愿意旁观。
+
+还有个就是打篮球身高很多有优势，我记得高中那阵子女同学们都极端追捧高个子男生，喜欢牵个比自己高特别多的男朋友出去表演最萌身高差啥的。
+
+*****
+
+####  天下有狗狗  
+##### 34#       发表于 2022-3-21 01:07
+
+我们以前高中踢球没啥女同学看
+打篮球的一堆女的围着看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  火箭布雷器  
+##### 35#       发表于 2022-3-21 01:10
+
+怎么还有人沉浸在多两千万踢球的孩子，国足成绩就能变好的幻觉里。
+
+决定成绩的是专业训练水平，而不是参与人数。
+
+要说姚明这些人去nba最大的功劳，不是什么推广篮球，而是切实告诉国内的篮球界，去nba当替补都比国内打主力进步快几倍
+
+*****
+
+####  battleship64  
+##### 36#       发表于 2022-3-21 01:19
+
+篮球能有高中长到2.1几从头学起来的，足球哪个不是4-5岁童子功练起来的
+人越多竞争越大，人越多变数也大，木桶效应11人比赛一个短板就是最差的一个环节
+
+*****
+
+####  الطائر  
+##### 37#       发表于 2022-3-21 01:20
+
+真要推广也是七人制足球啊。
+
+*****
+
+####  爱尔米娜  
+##### 38#       发表于 2022-3-21 01:29
+
+应该推广5人足球，寸土寸金，场地制约太严重
+
+*****
+
+####  anlace  
+##### 39#       发表于 2022-3-21 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123376&amp;ptid=2059058" target="_blank">火箭布雷器 发表于 2022-3-21 01:10</a>
+怎么还有人沉浸在多两千万踢球的孩子，国足成绩就能变好的幻觉里。
+
+决定成绩的是专业训练水平，而不是参与 ...</blockquote>
+没有参与人数就没有市场，没有市场就是纯赔钱，纯赔钱的活国家不想干了，这么多钱换不来一块金牌。搞个联赛发展到交付给房地产商然后也萎了，于是就完蛋了。
+
+*****
+
+####  perfect_duck  
+##### 40#       发表于 2022-3-21 01:30
+
+ 本帖最后由 perfect_duck 于 2022-3-21 02:19 编辑 
+
+因为中国的很多足球迷是假足球迷，他们是狂欢迷，足球只是一个狂欢的理由，他们并不热爱足球这项运动本身。
+
+我把这个观点跟足球迷说过，他们不同意，我就说，我列出几点要求，做的到才算真足球迷：
+
+1、自己踢球
+
+2、看足球比赛直播
+
+3、小比赛赢了，没人陪你上街狂欢，周边无人在意，你是否依然开心
+
+4、关注足球网红
+
+以上重要性分先后，不要求都做到，但如果一点都做不到绝对不是球迷，只是狂欢迷。每个足球迷都不情愿地表达同意，因为他们也很烦那些只喜欢狂欢的伪球迷。
+
+相反篮球养了特别多的网红，以野球帝为首，这些网红经常拍篮球段子，拍视频教各种篮球技术动作，拍他们单挑/整活的视频，参加各种业余篮球赛事，开自己的球馆与粉丝打球互动，举办训练营，这样的大网红，所谓的有庞大基数的足球迷养不活一个。
+
+*****
+
+####  perfect_duck  
+##### 41#       发表于 2022-3-21 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123450&amp;ptid=2059058" target="_blank">battleship64 发表于 2022-3-21 01:19</a>
+
+篮球能有高中长到2.1几从头学起来的，足球哪个不是4-5岁童子功练起来的
+
+人越多竞争越大，人越多变数也大， ...</blockquote>
+这其实也是一个误区，篮球也都是从小练的，小球员基数大了相当于土豪反复抽卡，小球员基数少了相当于纯白嫖抽卡。
+
+姚明：运动员不是培养出来的，是被发现的。
+
+多抽卡是唯一的办法。
+
+*****
+
+####  battleship64  
+##### 42#       发表于 2022-3-21 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123558&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 01:32</a>
+这其实也是一个误区，篮球也都是从小练的，小球员基数大了相当于土豪反复抽卡，小球员基数少了相当于纯白 ...</blockquote>
+篮球从小练一个，转职练也有，什么突然长高被抓过来的，明显球感差一点
+足球没见过转职的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以后经济好了，能养闲人加不进厂打工，这东西应该会好点。促进消费体育运动挺好的
+
+*****
+
+####  perfect_duck  
+##### 43#       发表于 2022-3-21 01:36
+
+ 本帖最后由 perfect_duck 于 2022-3-21 02:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55122636&amp;ptid=2059058" target="_blank">ttgg777 发表于 2022-3-20 23:53</a>
+
+篮球比足球好上手啊，场地要求也更小一些。</blockquote>
+这也是一个误区，体育论坛讨论过很多了，我们小时候踢足球的，3、5个人就能踢，随便一个瓶子塞满纸就能当足球，南美用胶布和报纸糊一个球也能踢，两个书包放地上就是球门，土地上也能踢，雪地上也能踢，而且有优势，摔在地上不疼了。我们小时候都是这么踢过来的。
+
+另外还有一个共识就是，初高中许多人从足球转变到了篮球，原因包括但不限于灌篮高手，nba转播，姚明，青春期耍帅但在国内女同学不喜欢足球。
+
+而篮球必须要硬地面和篮筐，否则弹不起来。
+
+没有什么能阻止业余爱好者踢足球，能阻碍他们的，只是热情。
+
+*****
+
+####  边缘中心  
+##### 44#       发表于 2022-3-21 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123534&amp;ptid=2059058" target="_blank">anlace 发表于 2022-3-21 01:30</a>
+没有参与人数就没有市场，没有市场就是纯赔钱，纯赔钱的活国家不想干了，这么多钱换不来一块金牌。搞个联 ...</blockquote>
+中超联赛真的一言难尽，一边以职业联赛自居，一边是靠政商利益交换去运营，从没想过如何自负盈亏，现在萎了不是要多正常有多正常<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海鸟封  
+##### 45#       发表于 2022-3-21 01:49
+
+梅西五岁开始足球训练，内马尔六岁，C罗七岁，篮球大把十几岁才开始玩的，一个是广撒网等隐性天赋觉醒，另一个明面上的身体天赋够了就能打甚至不需要青训体系，中超金元足球名声是臭不过隔壁CBA直到现在还被人调侃半职业联赛呢，在中国有几个家长肯拿孩子的未来去赌，又不是发达国家哪怕不读书也不愁吃喝，也不是南美非洲的没有读书环境想出头只能踢球，这种条件下国足烂既可以看成球员烂没拼搏精神，但大环境也没好到哪里去
+
+*****
+
+####  jctc  
+##### 46#       发表于 2022-3-21 01:49
+
+就说足球吧
+
+几个男人用纸搓个球都能在办公室踢起来
+
+*****
+
+####  路西恩  
+##### 47#       发表于 2022-3-21 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121375&amp;ptid=2059058" target="_blank">野上由加奈 发表于 2022-3-20 22:04</a>
+你问下现在小孩愿意踢球还是愿意打篮球还是更愿意练滑板</blockquote>
+更愿意打游戏
+更愿意刷视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  风起云吟  
+##### 48#       发表于 2022-3-21 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123558&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 01:32</a>
+
+这其实也是一个误区，篮球也都是从小练的，小球员基数大了相当于土豪反复抽卡，小球员基数少了相当于纯白 ...</blockquote>
+有区别的 篮球可以独享1米9以上的人才基数
+
+这个是篮球的优势
+
+*****
+
+####  风起云吟  
+##### 49#       发表于 2022-3-21 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123597&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 01:36</a>
+
+这也是一个误区，体育论坛讨论过很多了，我们小时候踢足球的，3、5个人就能踢，随便一个瓶子塞满纸就能当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本质就不热爱而已
+
+足球困难在游戏上一个不少 没一个能阻止打游戏的热情
+
+*****
+
+####  风起云吟  
+##### 50#       发表于 2022-3-21 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123376&amp;ptid=2059058" target="_blank">火箭布雷器 发表于 2022-3-21 01:10</a>
+
+怎么还有人沉浸在多两千万踢球的孩子，国足成绩就能变好的幻觉里。
+
+决定成绩的是专业训练水平，而不是参与 ...</blockquote>
+问题来了 你用什么办法选出可以去NBA打替补的球员呢?
+
+这才是国内需要找到的
+
+*****
+
+####  perfect_duck  
+##### 51#       发表于 2022-3-21 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123702&amp;ptid=2059058" target="_blank">风起云吟 发表于 2022-3-21 01:52</a>
+
+有区别的 篮球可以独享1米9以上的人才基数
+
+这个是篮球的优势</blockquote>
+然而1米9适配的运动就太多了，包括但不限于游泳，足球，棒球，排球，水球，跳高，跳远，跨栏
+
+*****
+
+####  爱尔米娜  
+##### 52#       发表于 2022-3-21 01:56
+
+有个很生草的事情
+
+本地20年前有两个开放足球场，现在一个改成篮球场；一个变成学校专用场地，平常不开放。
+
+随便找个地方踢？那群爱好者试过一球踢断了散步老奶奶的腿，赔了五六万
+
+从此开车去100公里外的收费场子踢…<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风起云吟  
+##### 53#       发表于 2022-3-21 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123750&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 01:56</a>
+
+然而1米9适配的运动就太多了，包括但不限于游泳，足球，棒球，排球，水球，跳高，跳远，跨栏 ...</blockquote>
+足球1米9以上的还是少
+
+游泳这两年刚刚开始火
+
+其他项目在国内太冷了 基本无法和篮球竞争人才
+
+*****
+
+####  perfect_duck  
+##### 54#       发表于 2022-3-21 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123771&amp;ptid=2059058" target="_blank">风起云吟 发表于 2022-3-21 01:59</a>
+
+足球1米9以上的还是少
+
+游泳这两年刚刚开始火</blockquote>
+所以篮球也只是赢在了在国内相对最成熟的市场
+
+*****
+
+####  perfect_duck  
+##### 55#       发表于 2022-3-21 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121963&amp;ptid=2059058" target="_blank">roger_goodell 发表于 2022-3-20 22:58</a>
+
+cba以及国篮现在的水平也不行啊，体系搭起来，实际到了国际赛场还是被暴打 ...</blockquote>
+亚洲赛场不算国际赛场喽
+
+*****
+
+####  gajangmudohe  
+##### 56#       发表于 2022-3-21 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123376&amp;ptid=2059058" target="_blank">火箭布雷器 发表于 2022-3-21 01:10</a>
+
+怎么还有人沉浸在多两千万踢球的孩子，国足成绩就能变好的幻觉里。
+
+决定成绩的是专业训练水平，而不是参与 ...</blockquote>
+无论足球篮球，无论能上场还是不能上场，真送出去那烂俗段子编起来一个比一个起劲儿，去瑞士的李磊最近伤停的微博下面还有人拿海参白斩鸡说事儿甚至诅咒他去死的
+
+*****
+
+####  轮太  
+##### 57#       发表于 2022-3-21 02:58
+
+想起了日剧里看的企业棒球队
+
+没想到国内也发展到这种程度了啊
+
+回过头说，还是足球场太少
+
+但凡是个学校都有打篮球的，但是能踢足球的有多少呢？
+
+*****
+
+####  wpw11680  
+##### 58#       发表于 2022-3-21 03:03
+
+因为篮球本身基本功好练，大把职业选手是高中疯狂长个子然后才开始接触篮球的，足球这玩意儿是童子功啊——如果国内对足球就这个理解水平的话那国足踢不出来也确实没啥好奇怪的了。
+
+*****
+
+####  gajangmudohe  
+##### 59#       发表于 2022-3-21 03:23
+
+<blockquote>wpw11680 发表于 2022-3-21 03:03
+因为篮球本身基本功好练，大把职业选手是高中疯狂长个子然后才开始接触篮球的，足球这玩意儿是童子功啊—— ...</blockquote>
+篮球的话入门晚或者中途转行的话当个工兵是没什么问题的。国内篮球的问题主要是过早确定位置，小时候就按内线练，一旦个子没长起来就抓瞎，导致长期以来一直缺乏能够自主进攻的锋线球员。
+
+*****
+
+####  satanas  
+##### 60#       发表于 2022-3-21 03:25
+
+因为足球行业最高权力者 第一要务是国家队成绩
+
+
+
+*****
+
+####  wpw11680  
+##### 61#       发表于 2022-3-21 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55124110&amp;ptid=2059058" target="_blank">gajangmudohe 发表于 2022-3-21 03:23</a>
+
+篮球的话入门晚或者中途转行的话当个工兵是没什么问题的。国内篮球的问题主要是过早确定位置，小时候就按 ...</blockquote>
+是啊，而且篮球本身也存在说忽然猛长个子从后卫转去打C的，足球这么换的能有几个……
+
+*****
+
+####  wangchaowind  
+##### 62#       发表于 2022-3-21 04:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55122428&amp;ptid=2059058" target="_blank">霸道总裁 发表于 2022-3-20 23:35</a>
+
+Y1S1足球是真的不行了，现在的青少年不喜欢了，我儿子他们学校，两千来号人，足球群一共就一两百人。 ...</blockquote>
+虽然前半段对，但是你确定2000人的学校一两百人踢足球能用“少”形容?
+
+*****
+
+####  霸道总裁  
+##### 63#       发表于 2022-3-21 05:08
+
+<blockquote>wangchaowind 发表于 2022-3-21 04:39
+虽然前半段对，但是你确定2000人的学校一两百人踢足球能用“少”形容?</blockquote>
+这一两百是还看球，且愿意加个群讨论的。
+
+真正下场踢的一个年级有二三十个不错了。
+
