@@ -11844,3 +11844,21 @@ image.png
 
 每次战斗都忘了还有绝技这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HGCG3  
+##### 1057#       发表于 2022-3-20 12:59
+
+隐藏结局的最后一关是不是有一个利用铁匠的速通方法？
+
+*****
+
+####  hellightning  
+##### 1058#       发表于 2022-3-20 13:16
+
+一周目普通难度到第十章了，感觉主线角色除了罗兰都各有各的好用之处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以罗兰咋用比较好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
