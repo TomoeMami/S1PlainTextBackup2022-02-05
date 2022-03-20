@@ -12346,3 +12346,14 @@ yuya都开始和千联动上了，my bora人呢……<img src="https://static.sa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">虹今年运势真的差
 
+
+
+*****
+
+####  真飞鸟i  
+##### 11616#       发表于 2022-3-20 10:57
+
+en男都爆款隐隐有en逆袭之势了，怎么还虹运势差的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
