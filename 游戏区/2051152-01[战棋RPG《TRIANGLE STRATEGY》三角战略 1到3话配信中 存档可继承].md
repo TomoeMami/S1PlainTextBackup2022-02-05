@@ -11936,3 +11936,29 @@ image.png
 选说服路线的时候上面会有行字描述他对这个路线的态度，如果对应路线的信念太低就会是“似乎态度冷淡”“ ...</blockquote>
 有时第三个选项被锁住，是数值不够还是RPG阶段线索找漏了，我觉得对话应该是没漏了
 
+
+
+*****
+
+####  dren_zheng  
+##### 1066#       发表于 2022-3-20 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55115067&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-3-20 13:16</a>
+
+一周目普通难度到第十章了，感觉主线角色除了罗兰都各有各的好用之处所以罗兰咋用比较好
+
+—— 来自 ...</blockquote>
+罗兰就是个万金油，万金油当然是都能用但特点不突出
+
+当成普通队友来对待好了，再怎么说应该也比枪圣罗兰之类好用
+
+*****
+
+####  dren_zheng  
+##### 1067#       发表于 2022-3-20 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55117428&amp;ptid=2051152" target="_blank">中泽君 发表于 2022-3-20 17:17</a>
+
+有时第三个选项被锁住，是数值不够还是RPG阶段线索找漏了，我觉得对话应该是没漏了 ...</blockquote>
+锁住的也许是解锁的情报在另外路线里才能获得
+
