@@ -12675,3 +12675,24 @@ SSK你毕业吧
 
 让我印象深刻的是无聊刷en切片的时候看到形容en某男主播表面清纯（？）的腹黑是“黑芝麻馅汤圆”的，从此决定远离b站en管人痴<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 11648#       发表于 2022-3-20 23:59
+
+ 本帖最后由 FCCHua 于 2022-3-21 00:06 编辑 
+
+hnn这次上大师也太欢乐了，什么神奇的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还是难得的从钻三开始打大师猎杀带
+
+*****
+
+####  poipanchao  
+##### 11649#       发表于 2022-3-21 00:07
+
+nrk的朋友学日语？
+
+现在上大师都没感觉了，含金量！
+
