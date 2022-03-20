@@ -3450,3 +3450,43 @@ https://www.youtube.com/watch?v=OQ9YAc0V938</blockquote>
 宝具只打一发而且溢出很多其实不重要
 关键还是白值 1w8应该是把礼装都给喂到100了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 87310#       发表于 2022-3-20 15:55
+
+ 本帖最后由 exiaexa 于 2022-3-20 16:03 编辑 
+
+SL得脑壳痛，给有条件的兄弟个参考把
+
+摩根是108+30，apend技能和宝具影响应该不大，就是苟到最后干一炮
+
+注意点就是开场开1降防，然后因为自冲量大管够，可以中间扔个宝具凑首红
+
+鹤小姐和梅林的无敌交替交可以无伤过2t
+
+最后1t就无所谓了，摩根直接脸接尼禄宝具都行
+
+结论是还是脑死亡打法适合我这种弱鸡
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+01.jpg
+(627.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/155501ojyjc885lji8p8i6.jpg" referrerpolicy="no-referrer">
+
+03.jpg
+(499.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/155513x5tr202atylsppp2.jpg" referrerpolicy="no-referrer">
+
