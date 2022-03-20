@@ -12568,3 +12568,43 @@ SSK你毕业吧
 
 刚看地方台的电视新闻，我这边有个小学的网课用了一些vtuber的技术来上课，电视新闻给尬吹了一番"高科技"。
 
+
+
+*****
+
+####  Suny08  
+##### 11641#       发表于 2022-3-20 20:49
+
+话说嗯男粉现在是被引来本社了？怎么现在连新人出道曲的评论都全都是那种土味定型文了，然后又是各种妹妹妹妹，女孩子女孩子的叫。说实话已经越来越看不懂你虹的国语社区了，不安
+
+*****
+
+####  free  
+##### 11642#       发表于 2022-3-20 21:00
+
+今天顺路逛了一下北京animate，居然卖管人周边，不过只有维阿和维阿JP的
+
+<img src="https://img.saraba1st.com/forum/202203/20/210000w1mj8jkjf0kk2l1z.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (434.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 21:00 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/210001xap31v11vx8vvat1.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (365.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 21:00 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/210001nv4o3vx6bhxexvpg.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (411.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 21:00 上传
+
