@@ -3033,3 +3033,17 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 两台DSI屏幕都挂了 二手找不到品相好的 要么 ...</blockquote>
 赵阳那儿新到了一批DSI上半部分的总成
 
+
+
+*****
+
+####  arbilest  
+##### 223#       发表于 2022-3-20 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54964513&amp;ptid=2049173" target="_blank">zris 发表于 2022-3-8 15:42</a>
+那可以了，我去買了謝謝反饋</blockquote>
+今天我遇到了楼上说的问题，恒压确实是没电就突然死亡，甚至不会红灯。
+最大循环几次以后自己估摸着差不多就得更换了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

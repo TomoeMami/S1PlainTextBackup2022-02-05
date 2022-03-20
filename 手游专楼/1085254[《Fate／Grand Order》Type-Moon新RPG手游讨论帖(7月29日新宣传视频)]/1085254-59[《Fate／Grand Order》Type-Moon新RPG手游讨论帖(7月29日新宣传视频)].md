@@ -3538,3 +3538,36 @@ SL得脑壳痛，给有条件的兄弟个参考把
 根本问题是如果你摩根90的话，我不知道少 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借了个百级4宝换了个阵容过了 不过用了两发令咒 为了一个呼符真难 梵高的宝具恐惧是真的强啊 几乎放出来对面就是晕眩状态
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87315#       发表于 2022-3-20 19:57
+
+ 本帖最后由 gpx234mqx 于 2022-3-20 20:00 编辑 
+
+今天的血斧
+
+龙娘3T强杀
+
+巴姐能2T强杀，有的话
+
+A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
+(946.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/195545c9h3j41g79r83525.png" referrerpolicy="no-referrer">
+
+8E2899F1-F960-41A6-B9C8-7101EF36F4EE.png
+(985.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202203/20/195702cc9lyooj1ayfslsa.png" referrerpolicy="no-referrer">
+

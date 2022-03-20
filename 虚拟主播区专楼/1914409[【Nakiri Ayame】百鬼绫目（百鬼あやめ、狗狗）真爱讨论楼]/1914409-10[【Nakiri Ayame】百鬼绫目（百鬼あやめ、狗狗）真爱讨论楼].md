@@ -5535,3 +5535,49 @@ syl 作业还是没交
 
 原来是自己曲目被删了，绫总开播安慰一下live受伤的百鬼众吧
 
+
+
+*****
+
+####  nian1538  
+##### 14057#       发表于 2022-3-20 19:52
+
+百鬼あやめ😈ホロライブ2期生
+
+@nakiriayame
+
+余を楽しみに来てくれた人を悲しませてしまうんじゃないかって思ってずっと申し訳なくて、でもどうしようも出来なくて、何も言えなくて、ごめん
+
+百鬼あやめ😈ホロライブ2期生
+
+@nakiriayame
+
+皆ごめんなさいちょっとだけ
+
+この日まで歌や踊りを沢山練習して、ステージでは皆とこんなこと話そう〜！どんな反応してくれるかな〜って楽しみにしていたんだけどそれを皆に届けられなくてごめんなさい。
+
+それでもライブを見てくれた皆が楽しかったって言って貰えた事が唯一の救いです。
+
+玉玉了
+
+*****
+
+####  一仙  
+##### 14058#       发表于 2022-3-20 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fami水  
+##### 14059#       发表于 2022-3-20 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">绫总这下玉玉了
+
+*****
+
+####  stedckk  
+##### 14060#       发表于 2022-3-20 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">这下要停多久
+

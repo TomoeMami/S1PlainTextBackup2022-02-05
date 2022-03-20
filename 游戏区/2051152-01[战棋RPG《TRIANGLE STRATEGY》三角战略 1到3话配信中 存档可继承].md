@@ -12012,3 +12012,43 @@ image.png
 不能存档不能悔棋真的很不适应</blockquote>
 站房顶
 
+
+
+*****
+
+####  Petilil  
+##### 1072#       发表于 2022-3-20 20:07
+
+真结局路线分兵有什么说法么，比如哪条路线更适合带哪些人这种
+
+*****
+
+####  中泽君  
+##### 1073#       发表于 2022-3-20 20:08
+
+<img src="https://img.saraba1st.com/forum/202203/20/200734bi4e9d40hzfheb4h.jpg" referrerpolicy="no-referrer">
+
+<strong>FOSqT4aVkAIiW_n.jpg</strong> (252.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-20 20:07 上传
+
+打了快一个半小时，上次有这种体验的战棋还是幻少，这一个小时是盾叔帮我救回来的，一个人拖住六个单位
+
+*****
+
+####  HGCG3  
+##### 1074#       发表于 2022-3-20 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55119595&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-20 20:07</a>
+
+真结局路线分兵有什么说法么，比如哪条路线更适合带哪些人这种</blockquote>
+个人感觉
+
+管家队，带铁匠，两把弓两个法，上屋顶居高临下，打得慢但是稳
+
+王子队，带主力，总帅很强，最好有两个奶
+
+老婆队，剩下的就行，地图是开阔场地个人感觉很好打
+
