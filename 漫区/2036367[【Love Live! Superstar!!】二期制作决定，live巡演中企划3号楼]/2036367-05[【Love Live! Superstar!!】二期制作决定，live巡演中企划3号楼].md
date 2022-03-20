@@ -7455,3 +7455,17 @@ D247122F-2BCB-45FA-8931-4F3C1774FF76.jpeg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  csolfans  
+##### 6572#       发表于 2022-3-20 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121028&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-20 21:37</a>
+
+就买一本肯定淘宝合算，自己买的话，好多人拼一下估计还好，不过数量大了，没经验的话又容易被卡
+
+  -- 来 ...</blockquote>
+好<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

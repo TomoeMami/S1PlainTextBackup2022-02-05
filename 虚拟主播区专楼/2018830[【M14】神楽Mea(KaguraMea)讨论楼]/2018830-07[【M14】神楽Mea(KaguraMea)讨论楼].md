@@ -8021,3 +8021,23 @@ i want be with you
 
 不是首播，九条一年前就播过B限，这次只是B限歌回首播而已。不过mea去年和前年都和如月的直播撞车过，只能说她们组内直播时间从来不协调的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 9847#       发表于 2022-3-20 21:46
+
+ 本帖最后由 T_Hb 于 2022-3-20 21:50 编辑 
+
+ドラえもんお母さん <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+提前10分钟集合，时间刚刚好
+
+*****
+
+####  路人庚  
+##### 9848#       发表于 2022-3-20 21:49
+
+草这下播一顿亲
+
