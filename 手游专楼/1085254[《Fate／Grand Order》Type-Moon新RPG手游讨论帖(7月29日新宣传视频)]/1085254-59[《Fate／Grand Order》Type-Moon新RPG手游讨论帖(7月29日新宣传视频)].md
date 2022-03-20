@@ -3423,3 +3423,17 @@ EX难度 闪闪Return 3T<img src="https://static.saraba1st.com/image/smiley/face
 
 嗯，看了看街机终章的剧情，根据梅莉的话，尼禄会头疼是因为在不断抗衡兽的诱惑。所以这次的兽尼禄就是来自没有成功抵御兽的诱惑的世界线吗？
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87308#       发表于 2022-3-20 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55110792&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-19 23:55</a>
+
+EX难度 闪闪Return 3T
+
+https://www.youtube.com/watch?v=OQ9YAc0V938</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">114级和118级，倍卡没合，5宝，毫无参考性
+
