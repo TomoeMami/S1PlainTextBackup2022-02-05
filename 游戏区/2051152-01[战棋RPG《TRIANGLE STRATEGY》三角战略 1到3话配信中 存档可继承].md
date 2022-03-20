@@ -11862,3 +11862,33 @@ image.png
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  来看你  
+##### 1059#       发表于 2022-3-20 14:23
+
+装备少了点，就那么几种饰品，语音倒是全程的
+
+*****
+
+####  听风不是雨  
+##### 1060#       发表于 2022-3-20 14:25
+
+<blockquote>hellightning 发表于 2022-3-20 13:16
+一周目普通难度到第十章了，感觉主线角色除了罗兰都各有各的好用之处所以罗兰咋用比较好
+
+—— 来自 ...</blockquote>
+点出武器大招，带上暴击伤害首饰当一枪超人，上好buff奔袭＋大招一回合能捅400
+
+*****
+
+####  garitaay  
+##### 1061#       发表于 2022-3-20 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55115067&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-03-20 13:16:51</a>
+一周目普通难度到第十章了，感觉主线角色除了罗兰都各有各的好用之处 v2.5.2 ...</blockquote>我也，越来越不想带罗兰
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
