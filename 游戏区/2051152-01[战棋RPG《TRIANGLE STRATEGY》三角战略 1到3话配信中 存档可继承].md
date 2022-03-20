@@ -11835,3 +11835,12 @@ image.png
 
 看不懂可以机翻
 
+
+
+*****
+
+####  妄想中毒  
+##### 1056#       发表于 2022-3-20 12:21
+
+每次战斗都忘了还有绝技这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
