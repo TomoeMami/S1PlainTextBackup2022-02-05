@@ -3508,3 +3508,18 @@ SL得脑壳痛，给有条件的兄弟个参考把
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先我要有5宝摩根
 
+
+
+*****
+
+####  exiaexa  
+##### 87313#       发表于 2022-3-20 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55117327&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-20 17:08</a>
+
+首先我要有5宝摩根</blockquote>
+其实跟上面那个阿囧的问题是一样的，宝具输出1宝就够，完全溢出
+
+根本问题是如果你摩根90的话，我不知道少了18级的atk到底能不能完成输出
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
