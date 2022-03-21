@@ -9096,3 +9096,16 @@ Towa说夸夸告诉她自己网不好所以晚上不A了
 
 惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8533#       发表于 2022-3-21 22:52
+
+ 本帖最后由 面具13 于 2022-3-21 22:56 编辑 
+
+所以上次的杂谈直播说的下次再说的影响心情的笑い話就是鼻梁塌方事件啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+硬盘坏道了？
+

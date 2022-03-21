@@ -4030,3 +4030,49 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最麻烦的还是那个Returns 萌新一怒直接拉了2条令咒莽了过去
 
+
+
+*****
+
+####  qixinno2  
+##### 87355#       发表于 2022-3-21 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55134343&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 22:42</a>
+
+最麻烦的还是那个Returns 萌新一怒直接拉了2条令咒莽了过去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好强啊 我打着就贼难受
+
+*****
+
+####  alucardcz  
+##### 87356#       发表于 2022-3-21 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55134380&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-21 22:47</a>
+
+好强啊 我打着就贼难受</blockquote>
+[https://bbs.nga.cn/read.php?tid=31109901](https://bbs.nga.cn/read.php?tid=31109901)
+
+我对着这个抄的。。打着打着发现我为什么要尽高星。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87357#       发表于 2022-3-21 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55134402&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 22:50</a>
+
+https://bbs.nga.cn/read.php?tid=31109901
+
+我对着这个抄的。。打着打着发现我为什么要尽高星。。[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不知道后面没解锁的会有多喂屎
+
+*****
+
+####  alucardcz  
+##### 87358#       发表于 2022-3-21 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55134445&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-21 22:54</a>
+
+不知道后面没解锁的会有多喂屎</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我等别人打完在打 反正不急
+
