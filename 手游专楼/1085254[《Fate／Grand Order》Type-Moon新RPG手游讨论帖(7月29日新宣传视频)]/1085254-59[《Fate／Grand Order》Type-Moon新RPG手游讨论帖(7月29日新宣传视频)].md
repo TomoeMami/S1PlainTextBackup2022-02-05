@@ -3667,3 +3667,19 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 2宝110级+2000狂周鸭 2t 刚刚打了 难点有2个梅师傅miss和概率回避
 
+
+
+*****
+
+####  sin.yugi  
+##### 87322#       发表于 2022-3-21 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这本不需要梅林啊。 杀狐陈宫司马懿（宝具降防+OC）第二回合奥贝隆然后水刑部姬给全员必中或者上小水芬奇加buff顺便自己开一发宝具清掉回避给狂娜叠oc就行了
+
+*****
+
+####  DARKGRAY  
+##### 87323#       发表于 2022-3-21 13:45
+
+只想抄答案速过，但炎头好像无论如何都得要一个1级福尔摩斯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
