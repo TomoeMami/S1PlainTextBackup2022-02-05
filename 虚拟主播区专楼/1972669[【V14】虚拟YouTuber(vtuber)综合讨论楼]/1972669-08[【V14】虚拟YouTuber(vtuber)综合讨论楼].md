@@ -12889,3 +12889,13 @@ neoporte第一个新人op和la+找的一个人做的<img src="https://static.sar
 oreapoレイド深夜情绪高的可怕……
 这么一看旅团这群人明明都超现充啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 11666#       发表于 2022-3-22 07:29
+
+这回oreapo+reid真好啊，里状态的脑死聊天和各种反应都好有意思。
+kmt能对reid说不能对hnn说也不能在配信里说的的恋バナ总不会是vspo关系者的事吧（
+
