@@ -1393,3 +1393,33 @@ CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至�
 
 这两年疫情影响 钱是没得赚 但这赛季各队极其接近 前4只差3个胜场 
 
+
+
+*****
+
+####  cybernetics31  
+##### 133#       发表于 2022-3-21 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55131841&amp;ptid=2059058" target="_blank">gajangmudohe 发表于 2022-3-21 18:49</a>
+
+CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至主力。即便是二轮甚至低位秀也可能淘到宝，像万 ...</blockquote>
+同曦的选人用人着实是，，，，，，成绩连宁波都不如也是绝了
+
+*****
+
+####  lolozp  
+##### 134#       发表于 2022-3-21 19:53
+
+那怕是以前足球也是精神粮食大于运动需求，还有cctv5过于美化欧洲足坛了
+
+现在足球还真搞不过电竞，起码太多数年轻人真的玩游戏，关注足球的都成饭圈文化了
+
+*****
+
+####  95jiuwu  
+##### 135#       发表于 2022-3-21 19:58
+
+想起来我高中体育课选择踢足球的原因就是不想与“受欢迎的篮球帅哥们”为伍，想来是挺别扭的想法。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

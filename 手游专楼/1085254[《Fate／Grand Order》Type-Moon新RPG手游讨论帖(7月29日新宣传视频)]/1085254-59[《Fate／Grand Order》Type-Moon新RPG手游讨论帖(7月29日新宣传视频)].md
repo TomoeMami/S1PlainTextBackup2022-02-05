@@ -3820,3 +3820,15 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">锁船外的高难都打完了。。。锁船的明天在打了。。打不动了  
 
+
+
+*****
+
+####  khxooo  
+##### 87337#       发表于 2022-3-21 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55131971&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 19:01</a>
+
+再翻页</blockquote>
+你的2宝狂那打小丑伤害有点低，建议下次复刻抽到5宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
