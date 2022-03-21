@@ -724,3 +724,34 @@ Y1S1足球是真的不行了，现在的青少年不喜欢了，我儿子他们�
 
 刷视频倒是可以 想办法鼓捣的人还多 打球喜欢的人多但足球真没地方踢
 
+
+
+*****
+
+####  wuwo2  
+##### 71#       发表于 2022-3-21 09:25
+
+    足球对一人carry的要求更高，甚至在低端比赛不能一人carry，也是不行的原因之一吧。 我个人觉得咱中国人有种英雄情结，特别喜欢单骑救主，一人无双的剧情，篮球有时候有一个天才，垃圾队能咸鱼翻身；但足球里这种天才的门槛太高，高到有这种运动能力的天才做别的会更好。
+
+*****
+
+####  xxren  
+##### 72#       发表于 2022-3-21 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123450&amp;ptid=2059058" target="_blank">battleship64 发表于 2022-3-21 01:19</a>
+篮球能有高中长到2.1几从头学起来的，足球哪个不是4-5岁童子功练起来的
+人越多竞争越大，人越多变数也大， ...</blockquote>
+也不是，维埃里就十几岁才正经接受青训。他那个年代澳大利亚根本没正经踢球的。
+而且至少我的城市5，6岁的小男孩父母掏钱参加半职业的青少年训练班挺多的。只不过这些孩子12岁最多15岁就挂靴了。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kll85757  
+##### 73#       发表于 2022-3-21 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55122038&amp;ptid=2059058" target="_blank">gajangmudohe 发表于 2022-3-20 23:03</a>
+福建广东一带的村镇会举办野球邀请赛或野球联赛，经常请CBA板凳甚至老黑助阵，一场5000左右差不多。CBA福 ...</blockquote>
+同曦现在的外援就是个野球哥，还不如本土小孩
+

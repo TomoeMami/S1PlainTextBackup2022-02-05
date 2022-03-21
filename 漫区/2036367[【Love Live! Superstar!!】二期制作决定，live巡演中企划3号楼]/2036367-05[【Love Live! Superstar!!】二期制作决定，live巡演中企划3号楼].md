@@ -7578,3 +7578,29 @@ D247122F-2BCB-45FA-8931-4F3C1774FF76.jpeg
 
 书的话我没记错10本以内免税吧，真拼团也还凑合
 
+
+
+*****
+
+####  saya1892  
+##### 6584#       发表于 2022-3-21 09:08
+
+这个老哥做了各系列公演数的图表
+[https://fate.5ch.net/test/read.cgi/lovelive/1647781349](https://fate.5ch.net/test/read.cgi/lovelive/1647781349)
+
+<img src="https://img.saraba1st.com/forum/202203/21/090727f0dqi0wfop995sot.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (266.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 09:07 上传
+
+<img src="https://img.saraba1st.com/forum/202203/21/090809nx8hby5bhayqumc2.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (102.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 09:08 上传
+
