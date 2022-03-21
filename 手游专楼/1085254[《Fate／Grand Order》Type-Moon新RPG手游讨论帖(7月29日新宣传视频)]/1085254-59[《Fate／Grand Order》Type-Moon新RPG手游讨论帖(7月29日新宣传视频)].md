@@ -3631,3 +3631,39 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://img.saraba1st.com/forum/202203/20/122959d35vwsrlzslzfi8l.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87319#       发表于 2022-3-21 12:51
+
+ 本帖最后由 gpx234mqx 于 2022-3-21 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55122185&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-20 23:14</a>
+
+血斧就是个木桩，难得是花嫁那个高难。、</blockquote>
+本站最终试合一群五宝2T强杀的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+完全没有参考价值，就是用钱碾压
+
+*****
+
+####  sin.yugi  
+##### 87320#       发表于 2022-3-21 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55127663&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-20 23:51</a>
+
+本站最终试合一群五宝2T强杀的
+
+完全没有参考价值，就是用钱碾压</blockquote>
+3宝 / 2宝100级狂周鸭就可以2t，你拐齐全的话甚至借大佬一个5宝狂娜就可以2t，反正不可以上重复的从者
+
+*****
+
+####  alucardcz  
+##### 87321#       发表于 2022-3-21 13:17
+
+ 本帖最后由 alucardcz 于 2022-3-21 13:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 2宝110级+2000狂周鸭 2t 刚刚打了 难点有2个梅师傅miss和概率回避
+

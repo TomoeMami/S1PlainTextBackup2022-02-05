@@ -12122,3 +12122,14 @@ image.png
 
 只有罗兰没有外号，大家直接就叫罗兰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  萝卜迷  
+##### 1081#       发表于 2022-3-21 12:45
+
+<blockquote>满月诗篇 发表于 2022-3-21 12:29
+人名恐惧症表示，论坛人均外号这种非常容易看懂，一般也不容易出错，外号和玩法也绑定鹰弓，冰法，梯子哥， ...</blockquote>
+可以叫王子啊
+
