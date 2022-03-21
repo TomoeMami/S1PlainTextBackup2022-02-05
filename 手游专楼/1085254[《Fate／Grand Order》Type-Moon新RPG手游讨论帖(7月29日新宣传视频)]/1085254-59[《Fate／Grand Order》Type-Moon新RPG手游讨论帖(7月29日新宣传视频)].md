@@ -3998,3 +3998,35 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 明天那个龙娘高难我打NM，去死吧，罗马那个高难有了C呆应该难度降了很多，有解弱体就能解掉罗马直接 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">龙娘那个是真的太恶心了 各种看脸
 
+
+
+*****
+
+####  alucardcz  
+##### 87353#       发表于 2022-3-21 22:33
+
+<img src="https://img.saraba1st.com/forum/202203/21/223313ow70yjy774qj174r.jpg" referrerpolicy="no-referrer">
+
+<strong>21.jpg</strong> (480.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 22:33 上传
+
+<img src="https://img.saraba1st.com/forum/202203/21/223315dmaf5qm81ciqf14l.jpg" referrerpolicy="no-referrer">
+
+<strong>22.jpg</strong> (501.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 22:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也打完了。。。打到后面发现根本就没必要省  乱杀的。。
+
+*****
+
+####  alucardcz  
+##### 87354#       发表于 2022-3-21 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最麻烦的还是那个Returns 萌新一怒直接拉了2条令咒莽了过去
+
