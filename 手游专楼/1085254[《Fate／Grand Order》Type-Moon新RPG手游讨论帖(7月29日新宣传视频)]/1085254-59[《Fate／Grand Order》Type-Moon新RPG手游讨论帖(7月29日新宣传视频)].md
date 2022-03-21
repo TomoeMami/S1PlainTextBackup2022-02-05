@@ -3921,3 +3921,30 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 小丑不是5T就能搞掂的吗？，需要打这么久？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得有指令卡 我懒得刷 直接打过去了
 
+
+
+*****
+
+####  qixinno2  
+##### 87346#       发表于 2022-3-21 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133042&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 20:39</a>
+
+萌新自己打成了这样  令咒别在意 其他地方用掉的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我抄了个7T的作业 刷了下开场契约就过去了
+
+*****
+
+####  J-002  
+##### 87347#       发表于 2022-3-21 21:14
+
+<img src="https://img.saraba1st.com/forum/202203/21/211333miwssps5zzzdjpk9.bmp" id="aimg_981038" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>UMDO@`R023@](_ATREL9IL9.bmp</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 21:13 上传
+
+尼玛没有什么比知道一万个打法但必须自己去摸索第一万零一个更费脑了
+
