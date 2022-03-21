@@ -12783,3 +12783,58 @@ riot.png
 
 <img src="https://img.saraba1st.com/forum/202203/21/174130yuv3f1eqhayoyhfp.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 11657#       发表于 2022-3-21 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55129569&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-21 15:10</a>
+
+黑客分再报低饭屋就上不了了(指正)
+
+还以为参加最协会是黑客播爆的开始，结果连着三天打了三场派然后就直接 ...</blockquote>
+最后肯定是饭屋三家互骂啦
+
+
+
+*****
+
+####  fastary  
+##### 11658#       发表于 2022-3-21 20:49
+
+ 本帖最后由 fastary 于 2022-3-21 21:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132938&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-3-21 20:29</a>
+
+最后肯定是饭屋三家互骂啦</blockquote>
+不知道，也许吧？主要是只有黑客不是钻，所以如果最后因为他练习不够多而输得比较惨的话就我个人而言没什么立场去回骂……毕竟他自己也说这次会尽他所能<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+如果三个人都尽力了却阴差阳错没能得到好成绩的话其实应该不至于是三家粉开骂吧……大概，也可能只是我太萌萌
+
+syl
+
+BV1iF411x7pw
+
+刷到个切片，这里sonny就很像前世的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+这么一想感觉他切割前世的menhera人设努力rp个阳角锻炼交流能力，倒是件值得鼓励的好事……有点心生怜爱了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11659#       发表于 2022-3-21 20:58
+
+neoporte第一个新人op和la+找的一个人做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么介绍自己感觉很会蹭啊
+播了40多分钟才注意到自己单声道，评价社长是还说了自己和mfmf打a mknk大失败
+
+*****
+
+####  rzrbtk  
+##### 11660#       发表于 2022-3-21 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133153&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-21 20:49</a>
+
+不知道，也许吧？主要是只有黑客不是钻，所以如果最后因为他练习不够多而输得比较惨的话就我个人而言没什 ...</blockquote>
+感觉这组的“输得比较惨”不是不可能事件，如果是纯开心玩儿的话说要复仇也太沉重，沉重打枪比赛很难不粉丝互骂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，
+

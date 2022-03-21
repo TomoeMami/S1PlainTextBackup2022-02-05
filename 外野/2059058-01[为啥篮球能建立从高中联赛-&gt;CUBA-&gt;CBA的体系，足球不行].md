@@ -1443,3 +1443,86 @@ CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至�
 
 足球是童子功 篮球可以半路出家
 
+
+
+*****
+
+####  uko  
+##### 138#       发表于 2022-3-21 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55127498&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 12:37</a>
+
+小时候踢的，没有那些讲究，你觉得我在讲专业训练，实际上我说的是爱好者的热情，而会去踢着玩的爱好者越 ...</blockquote>
+你小时候遍地都是空地，当然随便踢，现在你小时候的空地都盖楼或者变成车位了，哪有空地踢球。小公园遍地是跳广场舞的，谁敢踢球，一脚过去潦倒个老太太，十万块钱没了
+
+
+
+*****
+
+####  perfect_duck  
+##### 139#       发表于 2022-3-21 20:57
+
+ 本帖最后由 perfect_duck 于 2022-3-21 20:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132991&amp;ptid=2059058" target="_blank">uko 发表于 2022-3-21 20:34</a>
+
+你小时候遍地都是空地，当然随便踢，现在你小时候的空地都盖楼或者变成车位了，哪有空地踢球。小公园遍地 ...</blockquote>
+你学校就没个操场之类的？我们小时候没人打篮球，篮球场都是空的，我们在篮球场踢足球，后来就都开始打篮球了
+
+*****
+
+####  BlueDrii  
+##### 140#       发表于 2022-3-21 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但是这一套体系真的有竞争力吗，奥运都进不去加世界杯小组出局怎么看都配不上我国的篮球人口基础
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  uko  
+##### 141#       发表于 2022-3-21 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133240&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 20:57</a>
+
+你学校就没个操场之类的？我们小时候没人打篮球，篮球场都是空的，我们在篮球场踢足球，后来就都开始打篮 ...</blockquote>
+你指的不是平时不在学校时，晚上周末之类的在家附近踢球吗？这些小学晚上六七点踢球的小区空地已经没了
+
+*****
+
+####  寺川愛美  
+##### 142#       发表于 2022-3-21 21:11
+
+講真，真要搞，人造草場也是能用的
+
+
+
+*****
+
+####  泰非力的答复  
+##### 143#       发表于 2022-3-21 21:14
+
+<blockquote>uko 发表于 2022-3-21 20:34
+你小时候遍地都是空地，当然随便踢，现在你小时候的空地都盖楼或者变成车位了，哪有空地踢球。小公园遍地 ...</blockquote>
+那隔壁日本一样没地方，怎么就有地方踢球甚至打棒球呢？
+
+*****
+
+####  风起云吟  
+##### 144#       发表于 2022-3-21 21:16
+
+就是现在年轻人不热爱啊  有什么好找理由的
+
+足球遇到的难题  打游戏不都有?
+
+*****
+
+####  gajangmudohe  
+##### 145#       发表于 2022-3-21 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133269&amp;ptid=2059058" target="_blank">BlueDrii 发表于 2022-3-21 20:59</a>
+
+但是这一套体系真的有竞争力吗，奥运都进不去加世界杯小组出局怎么看都配不上我国的篮球人口基础
+
+ ...</blockquote>
+不搞人才多点开花，只想着长期集训然后豪赌大赛最后终究是竹篮打水一场空，足球不就是反面例子
+

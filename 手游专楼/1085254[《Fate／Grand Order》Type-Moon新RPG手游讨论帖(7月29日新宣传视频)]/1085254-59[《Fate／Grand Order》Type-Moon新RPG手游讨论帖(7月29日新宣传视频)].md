@@ -3868,3 +3868,83 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 怎么感觉你们都是各种几T解决就我一个痛苦折磨啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动你拐全直接飘满宝打手就完事了啊 
 
+
+
+*****
+
+####  qixinno2  
+##### 87342#       发表于 2022-3-21 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132735&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 20:09</a>
+
+这活动你拐全直接飘满宝打手就完事了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是思路有问题 或者就是脸黑 各种刷不出卡
+
+*****
+
+####  alucardcz  
+##### 87343#       发表于 2022-3-21 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132646&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-21 20:00</a>
+
+你的2宝狂那打小丑伤害有点低，建议下次复刻抽到5宝</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/21/203834opzydyfienxokwn2.jpg" referrerpolicy="no-referrer">
+
+<strong>2345.jpg</strong> (520.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 20:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新自己打成了这样  令咒别在意 其他地方用掉的
+
+
+
+*****
+
+####  khxooo  
+##### 87344#       发表于 2022-3-21 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133042&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 20:39</a>
+
+萌新自己打成了这样  令咒别在意 其他地方用掉的</blockquote>
+小丑不是5T就能搞掂的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">，需要打这么久？
+
+*****
+
+####  alucardcz  
+##### 87345#       发表于 2022-3-21 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133092&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-21 20:44</a>
+
+小丑不是5T就能搞掂的吗？，需要打这么久？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得有指令卡 我懒得刷 直接打过去了
+
+
+
+*****
+
+####  qixinno2  
+##### 87346#       发表于 2022-3-21 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133042&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 20:39</a>
+
+萌新自己打成了这样  令咒别在意 其他地方用掉的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我抄了个7T的作业 刷了下开场契约就过去了
+
+*****
+
+####  J-002  
+##### 87347#       发表于 2022-3-21 21:14
+
+<img src="https://img.saraba1st.com/forum/202203/21/211333miwssps5zzzdjpk9.bmp" id="aimg_981038" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>UMDO@`R023@](_ATREL9IL9.bmp</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 21:13 上传
+
+尼玛没有什么比知道一万个打法但必须自己去摸索第一万零一个更费脑了
+
