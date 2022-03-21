@@ -12205,3 +12205,17 @@ image.png
 这代难度影响些什么啊</blockquote>
 伤害公式计算完了会乘一个难度系数，看贴吧有人测试困难难度我方的难度系数是0.75，敌方是1.5，也就是我方伤害-25%，敌人伤害+50%。普通难度好像双方系数都是1，低难度没见人测过
 
+
+
+*****
+
+####  艾特娜  
+##### 1089#       发表于 2022-3-21 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55115067&amp;ptid=2051152" target="_blank">hellightning 发表于 2022-3-20 13:16</a>
+
+一周目普通难度到第十章了，感觉主线角色除了罗兰都各有各的好用之处所以罗兰咋用比较好
+
+—— 来自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">看人家直播的时候，简单难度快速推进的话他腿长手长特别好用
+
