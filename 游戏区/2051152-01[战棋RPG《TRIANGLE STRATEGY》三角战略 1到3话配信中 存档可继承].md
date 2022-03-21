@@ -12219,3 +12219,15 @@ image.png
 —— 来自 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">看人家直播的时候，简单难度快速推进的话他腿长手长特别好用
 
+
+
+*****
+
+####  艾特娜  
+##### 1090#       发表于 2022-3-21 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55130955&amp;ptid=2051152" target="_blank">DARK_HGCG 发表于 2022-3-21 17:07</a>
+
+二周目打出真结局后懒得开三周目收全队友了。三周目后解封等级上限吗？不解的话真没兴致刷了。 ...</blockquote>
+没有了
+

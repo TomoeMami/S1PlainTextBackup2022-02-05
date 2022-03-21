@@ -1339,3 +1339,57 @@ CBA搞这些的同时是配套了一系列保护机制（虽然还是架不住�
 前几天看知乎上使了劲吹什么姚明推CUBA功劳很大，有人知道实际情况怎么样吗？CBA这两年有起色吗？ ...</blockquote>
 CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至主力。即便是二轮甚至低位秀也可能淘到宝，像万圣伟这种undersize之前在同曦甚至都算是除了外援和西热力江之外半个能打CBA的人。
 
+
+
+*****
+
+####  路西恩  
+##### 129#       发表于 2022-3-21 19:32
+
+以我多年踢球的经验来看
+
+对0经验小朋友来说
+足球的上手门槛远远高于篮球
+基本功训练挫败感极强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhangqq_008  
+##### 130#       发表于 2022-3-21 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55125376&amp;ptid=2059058" target="_blank">xxren 发表于 2022-3-21 09:37</a>
+奥拉朱旺就从小踢足球15岁才开始打篮球。篮球只要身体天赋够确实可以很大才开始训练。
+不过足球也还好， ...</blockquote>
+大梦以前是打手球的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  xxren  
+##### 131#       发表于 2022-3-21 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132360&amp;ptid=2059058" target="_blank">zhangqq_008 发表于 2022-3-21 19:35</a>
+大梦以前是打手球的
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+手球足球两门抱吧。他踢足球是守门员
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 132#       发表于 2022-3-21 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55131695&amp;ptid=2059058" target="_blank">魔铁潜水艇 发表于 2022-3-21 18:34</a>
+
+前几天看知乎上使了劲吹什么姚明推CUBA功劳很大，有人知道实际情况怎么样吗？CBA这两年有起色吗？ ...</blockquote>
+广州靠着选秀球员进8强了 主力球员2个是cuba出来的 姚明不光是推cuba更是推选秀 推小篮球 
+
+出不来易建联了只能扩大选材面
+
+这两年疫情影响 钱是没得赚 但这赛季各队极其接近 前4只差3个胜场 
+

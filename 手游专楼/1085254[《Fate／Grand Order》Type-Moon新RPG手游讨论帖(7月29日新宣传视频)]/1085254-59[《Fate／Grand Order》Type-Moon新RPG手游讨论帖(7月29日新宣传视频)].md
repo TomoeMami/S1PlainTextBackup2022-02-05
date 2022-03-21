@@ -3801,3 +3801,22 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">三姐妹放现在就是两回合搞定啊
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87335#       发表于 2022-3-21 19:34
+
+三姐妹以前刚出的时候就是芭娜娜两回合的事
+明天又要龙娘大冒险了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 87336#       发表于 2022-3-21 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">锁船外的高难都打完了。。。锁船的明天在打了。。打不动了  
+
