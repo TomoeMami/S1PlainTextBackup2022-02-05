@@ -8,7 +8,7 @@ import io
 import os
 import json
 
-old_number = 2056200+int((int(time.time())-1647583163)/86400)*175
+old_number = 2058000+int((int(time.time())-1647868763)/86400)*175
 
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
@@ -98,7 +98,7 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in thdata.keys():
-        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2419200) or (int(i) > old_number):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 1209600) or (int(i) > old_number):
             activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
