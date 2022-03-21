@@ -3899,3 +3899,25 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新自己打成了这样  令咒别在意 其他地方用掉的
 
+
+
+*****
+
+####  khxooo  
+##### 87344#       发表于 2022-3-21 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133042&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 20:39</a>
+
+萌新自己打成了这样  令咒别在意 其他地方用掉的</blockquote>
+小丑不是5T就能搞掂的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">，需要打这么久？
+
+*****
+
+####  alucardcz  
+##### 87345#       发表于 2022-3-21 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133092&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-21 20:44</a>
+
+小丑不是5T就能搞掂的吗？，需要打这么久？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得有指令卡 我懒得刷 直接打过去了
+
