@@ -12752,3 +12752,12 @@ nrk的朋友学日语？
 
 希望他不播的时候能多练点吧，好怕到时候水平没啥提升被不破和三枝粉骂……
 
+
+
+*****
+
+####  Suzutsuki  
+##### 11655#       发表于 2022-3-21 15:52
+
+花芽姐队伍最后一人是杏星的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
