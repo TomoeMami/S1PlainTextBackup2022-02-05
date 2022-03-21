@@ -3683,3 +3683,50 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 只想抄答案速过，但炎头好像无论如何都得要一个1级福尔摩斯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87324#       发表于 2022-3-21 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55128359&amp;ptid=1085254" target="_blank">sin.yugi 发表于 2022-3-21 13:45</a>
+这本不需要梅林啊。 杀狐陈宫司马懿（宝具降防+OC）第二回合奥贝隆然后水刑部姬给全员必中或者上小 ...</blockquote>
+水芬奇单体，怎么清掉剩下两人的闪避？
+
+*****
+
+####  eyeego  
+##### 87325#       发表于 2022-3-21 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55127998&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 13:17</a>
+2宝110级+2000狂周鸭 2t 刚刚打了 难点有2个梅师傅miss和概率回避</blockquote>
+凶星直接3技能喂上啊 管你什么回避统统冲爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 87326#       发表于 2022-3-21 14:15
+
+起手陈宫杀狐 只要凹一张红卡就行
+2T凶星蛾子梅林 充能够星也够还能冲不爆的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87327#       发表于 2022-3-21 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55128739&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-3-21 14:14</a>
+
+凶星直接3技能喂上啊 管你什么回避统统冲爆</blockquote>
+凶星是哪个
+
+*****
+
+####  eyeego  
+##### 87328#       发表于 2022-3-21 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55128805&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 14:18</a>
+凶星是哪个</blockquote>
+灾星简 手滑打错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
