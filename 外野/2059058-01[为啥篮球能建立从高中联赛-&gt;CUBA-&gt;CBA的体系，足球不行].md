@@ -1221,3 +1221,45 @@ CBA搞这些的同时是配套了一系列保护机制（虽然还是架不住�
 
 人越多技战术的要求越高，足球比篮球复杂太多了，橄榄球又比足球高了不少
 
+
+
+*****
+
+####  JustW  
+##### 118#       发表于 2022-3-21 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55125523&amp;ptid=2059058" target="_blank">gajangmudohe 发表于 2022-3-21 09:52</a>
+
+大概就是这样的流量和“影响力”吧，快进到男子足球列入非法活动</blockquote>
+黑流量也是流量啊，别的运动拉了胯你看有几个骂的
+
+*****
+
+####  Guadalcanal  
+##### 119#       发表于 2022-3-21 14:42
+
+为什么日本人能建立足球全国高中比赛 中国不行呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hunterkiller  
+##### 120#       发表于 2022-3-21 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123597&amp;ptid=2059058" target="_blank">perfect_duck 发表于 2022-3-21 01:36</a>
+
+这也是一个误区，体育论坛讨论过很多了，我们小时候踢足球的，3、5个人就能踢，随便一个瓶子塞满纸就能当 ...</blockquote>
+不是误区。
+
+80年代足篮球爱好者都找不到像样的场地。
+
+2000年后有机玻璃篮板+塑胶场地的篮球场在大城市基本普及。
+
+
+
+*****
+
+####  zerona  
+##### 121#       发表于 2022-3-21 14:50
+
+篮球是可以在一定程度上忽视身体素质的。足球则是限制在一定身体标准内了。体重太轻的不行。体重太重的也不行，然后这个标准内技术又拉不开差距，因为小犯规在中小高玩球的时候其实都会来点。
+
