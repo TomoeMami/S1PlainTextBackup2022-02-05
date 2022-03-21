@@ -12879,3 +12879,13 @@ neoporte第一个新人op和la+找的一个人做的<img src="https://static.sar
 话说嗯男粉现在是被引来本社了？怎么现在连新人出道曲的评论都全都是那种土味定型文了，然后又是各种妹妹妹 ...</blockquote>
 受抚慰都是这样的
 
+
+
+*****
+
+####  Kokichi  
+##### 11665#       发表于 2022-3-22 06:44
+
+oreapoレイド深夜情绪高的可怕……
+这么一看旅团这群人明明都超现充啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
