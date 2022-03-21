@@ -12104,3 +12104,21 @@ image.png
 
 二周目困难真结局罗兰战，先让坦克硬吃总帅一发大招，罗兰冲上去背击大招-400，琥珀全体时停后回溯罗兰，开绝技+3TP再轰一发大招-400，琥珀挂定时炸弹，看BOSS自爆-200送走自己<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARK_HGCG  
+##### 1079#       发表于 2022-3-21 12:24
+
+艹我以为隐藏路线最后一关有多难打，结果boss也就血多……
+
+*****
+
+####  满月诗篇  
+##### 1080#       发表于 2022-3-21 12:29
+
+人名恐惧症表示，论坛人均外号这种非常容易看懂，一般也不容易出错，外号和玩法也绑定鹰弓，冰法，梯子哥，TP哥
+
+只有罗兰没有外号，大家直接就叫罗兰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
