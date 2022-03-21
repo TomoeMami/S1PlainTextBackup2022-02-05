@@ -4076,3 +4076,16 @@ https://bbs.nga.cn/read.php?tid=31109901
 不知道后面没解锁的会有多喂屎</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我等别人打完在打 反正不急
 
+
+
+*****
+
+####  khxooo  
+##### 87359#       发表于 2022-3-22 00:25
+
+ 本帖最后由 khxooo 于 2022-3-22 00:28 编辑 
+
+bilibili.com/video/av637427998
+
+Return我参考的是这个打法，当然兔子王持有率不是很高就是了。
+
