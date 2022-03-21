@@ -12838,3 +12838,12 @@ neoporte第一个新人op和la+找的一个人做的<img src="https://static.sar
 不知道，也许吧？主要是只有黑客不是钻，所以如果最后因为他练习不够多而输得比较惨的话就我个人而言没什 ...</blockquote>
 感觉这组的“输得比较惨”不是不可能事件，如果是纯开心玩儿的话说要复仇也太沉重，沉重打枪比赛很难不粉丝互骂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，
 
+
+
+*****
+
+####  Suny08  
+##### 11661#       发表于 2022-3-21 23:16
+
+结果最底的是muyu ，不过今天看宁宁和四叶播还挺有意思的，可能还会再看一段时间，muyu 这么底建议直接瓦起来开摆
+
