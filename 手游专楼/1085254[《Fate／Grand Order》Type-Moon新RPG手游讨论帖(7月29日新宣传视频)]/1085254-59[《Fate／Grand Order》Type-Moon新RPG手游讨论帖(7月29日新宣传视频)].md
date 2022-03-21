@@ -3948,3 +3948,32 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 尼玛没有什么比知道一万个打法但必须自己去摸索第一万零一个更费脑了
 
+
+
+*****
+
+####  alucardcz  
+##### 87348#       发表于 2022-3-21 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133352&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-21 21:06</a>
+
+我抄了个7T的作业 刷了下开场契约就过去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的很对 剩下的该直接抄作业了
+
+*****
+
+####  qixinno2  
+##### 87349#       发表于 2022-3-21 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133546&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 21:22</a>
+
+你说的很对 剩下的该直接抄作业了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是有了新拐老想试试 结果折腾半天发现还不如抄以前的作业
+
+*****
+
+####  eyeego  
+##### 87350#       发表于 2022-3-21 21:31
+
+小丑不是凹一下开场契约3T搞定吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

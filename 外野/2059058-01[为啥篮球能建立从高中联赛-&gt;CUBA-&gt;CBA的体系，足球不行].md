@@ -1526,3 +1526,42 @@ CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至�
  ...</blockquote>
 不搞人才多点开花，只想着长期集训然后豪赌大赛最后终究是竹篮打水一场空，足球不就是反面例子
 
+
+
+*****
+
+####  perfect_duck  
+##### 146#       发表于 2022-3-21 21:30
+
+ 本帖最后由 perfect_duck 于 2022-3-21 21:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133395&amp;ptid=2059058" target="_blank">uko 发表于 2022-3-21 21:09</a>
+
+你指的不是平时不在学校时，晚上周末之类的在家附近踢球吗？这些小学时代晚上六七点踢球的小区空地已经没 ...</blockquote>
+虎扑足球话题区经典评论：爱踢球的人爱看球的人千方百计想办法，不爱踢球的人不爱看球的人千方百计找理由
+
+*****
+
+####  omnitoken  
+##### 147#         楼主| 发表于 2022-3-21 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133269&amp;ptid=2059058" target="_blank">BlueDrii 发表于 2022-3-21 20:59</a>
+但是这一套体系真的有竞争力吗，奥运都进不去加世界杯小组出局怎么看都配不上我国的篮球人口基础
+
+ ...</blockquote>
+选秀才7年过去。。。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer"> 急啥
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  cybernetics31  
+##### 148#       发表于 2022-3-21 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133269&amp;ptid=2059058" target="_blank">BlueDrii 发表于 2022-3-21 20:59</a>
+但是这一套体系真的有竞争力吗，奥运都进不去加世界杯小组出局怎么看都配不上我国的篮球人口基础
+
+ ...</blockquote>
+19年世界杯就表明青训只靠地方队一条腿走路要折啊，这玩意急不得了，等着吧03到05这批好苗子不少呢
+

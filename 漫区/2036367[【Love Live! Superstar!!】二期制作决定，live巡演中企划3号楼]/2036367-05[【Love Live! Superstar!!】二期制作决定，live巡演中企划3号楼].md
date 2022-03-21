@@ -7779,3 +7779,15 @@ F1E67768-9043-451A-9D7A-98E7616B7104.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/21/205245fyjityuutika3bbi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 6590#       发表于 2022-3-21 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133195&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-21 20:52</a>
+
+Pay子这期的create club节目效果拉满，还唱了《甩葱歌》</blockquote>
+农家的女儿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
