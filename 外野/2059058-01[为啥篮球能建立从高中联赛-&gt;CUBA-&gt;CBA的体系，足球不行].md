@@ -1423,3 +1423,23 @@ CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  冤枉呐  
+##### 136#       发表于 2022-3-21 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121228&amp;ptid=2059058" target="_blank">omnitoken 发表于 2022-3-20 21:51</a>
+选秀从2015年算起，到现在打篮球可以上985，毕业还能打职业
+
+为啥足球不能模仿这一整套体系呢？</blockquote>
+足球场大，影响盖房子
+
+*****
+
+####  camio  
+##### 137#       发表于 2022-3-21 20:10
+
+足球是童子功 篮球可以半路出家
+

@@ -3832,3 +3832,39 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 再翻页</blockquote>
 你的2宝狂那打小丑伤害有点低，建议下次复刻抽到5宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87338#       发表于 2022-3-21 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132117&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-21 19:12</a>
+
+三姐妹放现在就是两回合搞定啊</blockquote>
+就算以前三姐妹不也是2T的事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87339#       发表于 2022-3-21 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么感觉你们都是各种几T解决就我一个痛苦折磨啊
+
+*****
+
+####  alucardcz  
+##### 87340#       发表于 2022-3-21 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们骗我 3姐妹2t第2回合得有一张把那那的红卡！ 很难的！
+
+*****
+
+####  alucardcz  
+##### 87341#       发表于 2022-3-21 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132702&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-21 20:05</a>
+
+怎么感觉你们都是各种几T解决就我一个痛苦折磨啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动你拐全直接飘满宝打手就完事了啊 
+
