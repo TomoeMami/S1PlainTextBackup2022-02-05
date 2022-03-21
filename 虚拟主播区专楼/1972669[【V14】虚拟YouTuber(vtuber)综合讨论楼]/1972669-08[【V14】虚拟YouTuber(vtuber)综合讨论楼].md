@@ -12783,3 +12783,17 @@ riot.png
 
 <img src="https://img.saraba1st.com/forum/202203/21/174130yuv3f1eqhayoyhfp.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 11657#       发表于 2022-3-21 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55129569&amp;ptid=1972669" target="_blank">fastary 发表于 2022-3-21 15:10</a>
+
+黑客分再报低饭屋就上不了了(指正)
+
+还以为参加最协会是黑客播爆的开始，结果连着三天打了三场派然后就直接 ...</blockquote>
+最后肯定是饭屋三家互骂啦
+

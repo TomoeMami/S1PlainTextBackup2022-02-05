@@ -3868,3 +3868,34 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 怎么感觉你们都是各种几T解决就我一个痛苦折磨啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动你拐全直接飘满宝打手就完事了啊 
 
+
+
+*****
+
+####  qixinno2  
+##### 87342#       发表于 2022-3-21 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132735&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-21 20:09</a>
+
+这活动你拐全直接飘满宝打手就完事了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是思路有问题 或者就是脸黑 各种刷不出卡
+
+*****
+
+####  alucardcz  
+##### 87343#       发表于 2022-3-21 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55132646&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-21 20:00</a>
+
+你的2宝狂那打小丑伤害有点低，建议下次复刻抽到5宝</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/21/203834opzydyfienxokwn2.jpg" referrerpolicy="no-referrer">
+
+<strong>2345.jpg</strong> (520.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 20:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新自己打成了这样  令咒别在意 其他地方用掉的
+
