@@ -1565,3 +1565,43 @@ CUBA这两年出来的一轮秀只要球队重视基本都能进入轮换甚至�
  ...</blockquote>
 19年世界杯就表明青训只靠地方队一条腿走路要折啊，这玩意急不得了，等着吧03到05这批好苗子不少呢
 
+
+
+*****
+
+####  anlace  
+##### 149#       发表于 2022-3-21 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55123657&amp;ptid=2059058" target="_blank">边缘中心 发表于 2022-3-21 01:45</a>
+
+中超联赛真的一言难尽，一边以职业联赛自居，一边是靠政商利益交换去运营，从没想过如何自负盈亏，现在萎 ...</blockquote>
+有市场的时候不珍惜，90年代很火，被假赌黑毁了。然后就只能靠政商维持了。想想恒大投钱的时间点，呵呵
+
+*****
+
+####  xxren  
+##### 150#       发表于 2022-3-21 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133269&amp;ptid=2059058" target="_blank">BlueDrii 发表于 2022-3-21 20:59</a>
+但是这一套体系真的有竞争力吗，奥运都进不去加世界杯小组出局怎么看都配不上我国的篮球人口基础
+
+ ...</blockquote>
+啥成绩不成绩的，乐呵乐呵得了。
+按大话说就是增强人民体质，丰富文化生活，发展体育经济，都是大好事
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  wl235678  
+##### 151#       发表于 2022-3-21 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133269&amp;ptid=2059058" target="_blank">BlueDrii 发表于 2022-3-21 20:59</a>
+
+但是这一套体系真的有竞争力吗，奥运都进不去加世界杯小组出局怎么看都配不上我国的篮球人口基础
+
+ ...</blockquote>
+奥运会进不去主要是赛制变了，以前亚洲杯冠军直接获得名额。
+

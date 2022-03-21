@@ -3977,3 +3977,24 @@ A5C41EF3-BB34-478B-A635-13B5F82A9BFA.png
 
 小丑不是凹一下开场契约3T搞定吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87351#       发表于 2022-3-21 21:58
+
+ 本帖最后由 khxooo 于 2022-3-21 21:59 编辑 
+
+明天那个龙娘高难我打NM，去死吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87352#       发表于 2022-3-21 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55133893&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-21 21:58</a>
+
+明天那个龙娘高难我打NM，去死吧，罗马那个高难有了C呆应该难度降了很多，有解弱体就能解掉罗马直接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">龙娘那个是真的太恶心了 各种看脸
+
