@@ -1057,3 +1057,29 @@ cuba进cba也就这几年，cufa也有进中超的啊，不过人家本来就是
 有个疑问：
 国足青训小伙和练习生小伙哪个更刻苦更自律呢？
 
+
+
+*****
+
+####  cqduoluo  
+##### 103#       发表于 2022-3-21 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121608&amp;ptid=2059058" target="_blank">世事同观 发表于 2022-3-20 22:24</a>
+
+选秀这一套并没有出几个好球员</blockquote>
+广州靠选秀球员都八强了
+
+*****
+
+####  cqduoluo  
+##### 104#       发表于 2022-3-21 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55121679&amp;ptid=2059058" target="_blank">cay999 发表于 2022-3-20 22:32</a>
+
+CUBA也就这几年开始选秀热起来的，以前CUBA能有几个进CBA的？
+
+足球说到底踢球的人少呗，现在国足还能进12强 ...</blockquote>
+CBA选秀16年才开始，19年就大规模进入CBA了，年年选秀创新高，打上球的也越来越多了。
+
+足球其实也有CUFA，但是能打上中甲的都少更别说中超了。
+
