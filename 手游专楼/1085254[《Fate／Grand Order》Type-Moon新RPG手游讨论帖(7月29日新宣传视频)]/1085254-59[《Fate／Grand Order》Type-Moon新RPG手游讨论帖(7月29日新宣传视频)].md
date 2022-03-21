@@ -4089,3 +4089,15 @@ bilibili.com/video/av637427998
 
 Return我参考的是这个打法，当然兔子王持有率不是很高就是了。
 
+
+
+*****
+
+####  alucardcz  
+##### 87360#       发表于 2022-3-22 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55135284&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-22 00:25</a>
+
+bilibili.com/video/av637427998</blockquote>
+Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
