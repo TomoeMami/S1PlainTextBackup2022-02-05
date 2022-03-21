@@ -12867,3 +12867,15 @@ neoporte第一个新人op和la+找的一个人做的<img src="https://static.sar
 
 听说今天哈弟箱新人首播？有楼友瑞评吗(或者伸手来个链接
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 11664#       发表于 2022-3-22 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55120240&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-3-20 20:49</a>
+
+话说嗯男粉现在是被引来本社了？怎么现在连新人出道曲的评论都全都是那种土味定型文了，然后又是各种妹妹妹 ...</blockquote>
+受抚慰都是这样的
+

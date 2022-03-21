@@ -4101,3 +4101,39 @@ Return我参考的是这个打法，当然兔子王持有率不是很高就是�
 bilibili.com/video/av637427998</blockquote>
 Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87361#       发表于 2022-3-22 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55135475&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-22 00:48</a>
+
+Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗</blockquote>
+你能不能狂阶挂一下水武藏，我要试一下2宝水武藏的伤害，看看未来国服能不能用水武藏爆破。
+
+*****
+
+####  alucardcz  
+##### 87362#       发表于 2022-3-22 01:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
+
+*****
+
+####  alucardcz  
+##### 87363#       发表于 2022-3-22 01:46
+
+再翻
+
+*****
+
+####  alucardcz  
+##### 87364#       发表于 2022-3-22 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55135602&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-22 01:06</a>
+
+你能不能狂阶挂一下水武藏，我要试一下2宝水武藏的伤害，看看未来国服能不能用水武藏爆破。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒我水武藏1宝
+
