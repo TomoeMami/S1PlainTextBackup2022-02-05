@@ -755,3 +755,82 @@ Y1S1足球是真的不行了，现在的青少年不喜欢了，我儿子他们�
 福建广东一带的村镇会举办野球邀请赛或野球联赛，经常请CBA板凳甚至老黑助阵，一场5000左右差不多。CBA福 ...</blockquote>
 同曦现在的外援就是个野球哥，还不如本土小孩
 
+
+
+*****
+
+####  xxren  
+##### 74#       发表于 2022-3-21 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55124110&amp;ptid=2059058" target="_blank">gajangmudohe 发表于 2022-3-21 03:23</a>
+篮球的话入门晚或者中途转行的话当个工兵是没什么问题的。国内篮球的问题主要是过早确定位置，小时候就按 ...</blockquote>
+奥拉朱旺就从小踢足球15岁才开始打篮球。篮球只要身体天赋够确实可以很大才开始训练。
+不过足球也还好，南美从小踢野球长大才踢职业的球员也不少。比如卖西瓜的里瓦尔多13岁才开始正规训练中间还停了一段，巴卡20岁踢职业足球之前各种打工，米兰那个快递哥梅西亚斯来欧洲之前虽然接受过青训也是踢野球的
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  xxren  
+##### 75#       发表于 2022-3-21 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55124925&amp;ptid=2059058" target="_blank">black199 发表于 2022-3-21 08:55</a>
+足球没发展出小场地三人足球的替代品在国内铺展不开</blockquote>
+五人室内足球很成熟了吧
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yxds  
+##### 76#       发表于 2022-3-21 09:43
+
+篮球最大的问题是天赋是肉眼看见的，最简单个子高矮一眼就能看出来，你不让大个子上场总要有个理由吧，足球你水平再好不让你上场谁看得出来。
+
+*****
+
+####  孤狼arcueid  
+##### 77#       发表于 2022-3-21 09:45
+
+本质是中国人就不怎么喜欢足球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yxds  
+##### 78#       发表于 2022-3-21 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55125251&amp;ptid=2059058" target="_blank">xxren 发表于 2022-3-21 09:25</a>
+
+也不是，维埃里就十几岁才正经接受青训。他那个年代澳大利亚根本没正经踢球的。
+
+而且至少我的城市5，6岁 ...</blockquote>
+主要是踢不起了，年前抓了天津泰达的一批人，按他们的说法要从青年队踢上来一年最少30万，每场比赛要上场先交钱。
+
+*****
+
+####  孤狼arcueid  
+##### 79#       发表于 2022-3-21 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55124938&amp;ptid=2059058" target="_blank">JustW 发表于 2022-3-21 08:56</a>
+时至今日国足输越南这件事都能创造如此可观的流量，说明足球在国内的影响力不是假装没有就真的没有了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟人人都能踩一脚
+还有被人阴阳了自己跑出来送脸的几个
+你说别的__让你说吗
+
+*****
+
+####  gajangmudohe  
+##### 80#       发表于 2022-3-21 09:52
+
+<blockquote>JustW 发表于 2022-3-21 08:56
+时至今日国足输越南这件事都能创造如此可观的流量，说明足球在国内的影响力不是假装没有就真的没有了 ...</blockquote>
+大概就是这样的流量和“影响力”吧
+
+<img src="https://img.saraba1st.com/forum/202203/21/095144lj75065u7553w55w.jpg" referrerpolicy="no-referrer">
+
+<strong>006aYRIXgy1h0ga81lh00j30qo1lr79m.jpg</strong> (202.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-21 09:51 上传
+
