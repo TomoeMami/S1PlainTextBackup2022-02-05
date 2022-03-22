@@ -4189,3 +4189,54 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 试了下单挑 用了三发令咒回血 大的艰难 非洲人各种吃暴击 DEBUFF 赌狗传说想要攻击上升或者红方 结 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  qixinno2  
+##### 87368#       发表于 2022-3-22 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55144465&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-22 18:37</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这弱智技能既然减NP就该使用后触发全效果啊混蛋
+
+*****
+
+####  alucardcz  
+##### 87369#       发表于 2022-3-22 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145159&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-22 19:27</a>
+
+这弱智技能既然减NP就该使用后触发全效果啊混蛋</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我打完都每开过3技能
+
+*****
+
+####  黑上シグマ  
+##### 87370#       发表于 2022-3-22 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55144316&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-22 18:26</a>
+
+还行啊 不过如此  基本就是呆梅 最后换了个狐狸上来加buff一波带走    虽然以前怎么打的我也不记 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我23回合过的，你为什么那么菜要32回合
+
+*****
+
+####  alucardcz  
+##### 87371#       发表于 2022-3-22 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145219&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-22 19:31</a>
+
+我23回合过的，你为什么那么菜要32回合</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新是这样的
+
+*****
+
+####  gpx234mqx  
+##### 87372#       发表于 2022-3-22 19:37
+
+龙娘太烦，不大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+凡是不能3T的都没兴趣打<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

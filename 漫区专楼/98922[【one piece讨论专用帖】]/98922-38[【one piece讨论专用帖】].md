@@ -15295,3 +15295,153 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 <img src="https://img.saraba1st.com/forum/202203/22/191903i6d6wboxwlx1lx7x.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 56768#       发表于 2022-3-22 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">nm 猜了那么久果实名称结果是这种图省事一般的结果
+
+虽然这个感觉是世界政府也不知道实际是什么，还有余地
+
+*****
+
+####  cckuku  
+##### 56769#       发表于 2022-3-22 19:25
+
+尼卡是什么东西？
+
+*****
+
+####  hkguty  
+##### 56770#       发表于 2022-3-22 19:25
+
+逼真解放王了
+
+*****
+
+####  proselyte  
+##### 56771#       发表于 2022-3-22 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这算吃书了吧
+
+*****
+
+####  7sevenseven  
+##### 56772#       发表于 2022-3-22 19:28
+
+如果是真的那就很失望
+
+*****
+
+####  yario  
+##### 56773#       发表于 2022-3-22 19:29
+
+世界政府认为的“人人果实幻兽种，尼卡”，我觉得尾田还是留了悬念
+
+*****
+
+####  chanrs2  
+##### 56774#       发表于 2022-3-22 19:30
+
+ 本帖最后由 chanrs2 于 2022-3-22 19:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145119&amp;ptid=98922" target="_blank">cckuku 发表于 2022-3-22 19:25</a>
+
+尼卡是什么东西？</blockquote>
+百度了一下第1018话福兹福提到的“太阳神尼卡在上古时代，奴隶们坚信某一天会出现一位来解放他们的传说中的战士。终会有一个传奇的战士会来拯救他们，为给每一位受苦者带回「快乐」与「自由」。而他的「名字」，则被这群期待者们称为「太阳神」尼卡。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+尼卡.png
+(614.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202203/22/193456h3qomi9yxl9xiiol.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxzeroga0  
+##### 56775#       发表于 2022-3-22 19:30
+
+免费的路飞可还行，这词现在是真的会让人ptsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saturnus  
+##### 56776#       发表于 2022-3-22 19:31
+
+粪作现在能盖棺定论了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 56777#       发表于 2022-3-22 19:31
+
+还真是人人果实太阳神，**无聊
+
+*****
+
+####  cckuku  
+##### 56778#       发表于 2022-3-22 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145199&amp;ptid=98922" target="_blank">chanrs2 发表于 2022-3-22 19:30</a>
+ 百度了一下第1018话福兹福提到的“太阳神尼卡在上古时代，奴隶们坚信某一天会出现一位来解放他们的传说中 ...</blockquote>
+所以尼卡是个人名？所以说路飞相当于吃了个华盛顿果实或者朱元璋果实这种？？？
+
+*****
+
+####  晴岚  
+##### 56779#       发表于 2022-3-22 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道该怎么描述,希望情报是假的
+
+*****
+
+####  owada  
+##### 56780#       发表于 2022-3-22 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这?
+
+*****
+
+####  klzxs  
+##### 56781#       发表于 2022-3-22 19:36
+
+嘛，还是要看具体内容的
+
+情报怪怪的但实际观感还不错的情况也挺常见
+
+*****
+
+####  rt7539515  
+##### 56782#       发表于 2022-3-22 19:36
+
+唉，没意思
+
+*****
+
+####  shqingda_  
+##### 56783#       发表于 2022-3-22 19:37
+
+又一个自由的。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yeluffy  
+##### 56784#       发表于 2022-3-22 19:37
+
+怪不得路飞血条那么长了，原来是动物系
+
+*****
+
+####  银翼的维罗西  
+##### 56785#       发表于 2022-3-22 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145323&amp;ptid=98922" target="_blank">yeluffy 发表于 2022-3-22 19:37</a>
+
+怪不得路飞血条那么长了，原来是动物系</blockquote>
+我就就口嗨了一句五黄这血条是动物系，没想到尾田就是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
