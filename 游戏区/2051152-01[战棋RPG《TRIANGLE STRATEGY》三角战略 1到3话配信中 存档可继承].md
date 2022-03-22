@@ -12242,3 +12242,51 @@ image.png
 
 体感难度...还行？铁国线明显最难，七个人打想不死人有点困难（我这条命都是药师和罗兰给的），剩下两条线都能不死人过
 
+
+
+*****
+
+####  ryj  
+##### 1092#       发表于 2022-3-22 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55106206&amp;ptid=2051152" target="_blank">henryqxg 发表于 2022-3-19 17:36</a>
+
+其实没多少啊，数值要求很低的，选项要选对</blockquote>
+请问具体怎么选....几次都没说服成功
+
+*****
+
+####  vyou  
+##### 1093#       发表于 2022-3-22 15:59
+
+请问这作和FFTA比游戏性哪个更强一点。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hhgjf  
+##### 1094#       发表于 2022-3-22 15:59
+
+突然有点好奇三选项投票时如果是331的结果那会咋样。譬如说开始前是2221，我说服其中一个2的转投另一个2，变成3211，然后再把墙头草那个1说服到剩下那个2，那不就成331（0）了？ 系统会作何处理，选项之间有隐藏的优先级？还是打平就看主角信念哪个最高？还是说这种情况下系统会背地里把你除了墙头草的说服忽略掉（就是说服时虽然显示被你说服了，但到投票时还是投原来的），于是像刚刚那个情况会投成232（0）？
+
+有人试过么。
+
+*****
+
+####  Aresu  
+##### 1095#       发表于 2022-3-22 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55142280&amp;ptid=2051152" target="_blank">hhgjf 发表于 2022-3-22 15:59</a>
+
+突然有点好奇三选项投票时如果是331的结果那会咋样。譬如说开始前是2221，我说服其中一个2的转投另一个2， ...</blockquote>
+打平可以自选
+
+*****
+
+####  hhgjf  
+##### 1096#       发表于 2022-3-22 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55142331&amp;ptid=2051152" target="_blank">Aresu 发表于 2022-3-22 16:02</a>
+
+打平可以自选</blockquote>
+原来是主角自己当tie-breaker呀，了解了。谢解答。
+
