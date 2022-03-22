@@ -1,3 +1,13 @@
 
-
-!!error:id=2059190
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [No address associated with hostname]
+!!error:id=2058536
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [No address associated with hostname]
+!!error:id=2058463
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [No address associated with hostname]
+!!error:id=2058412
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [No address associated with hostname]
+!!error:id=2058345
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [No address associated with hostname]
+!!error:id=2058048
+Cannot connect to host bbs.saraba1st.com:443 ssl:default [No address associated with hostname]
+!!error:id=2058365
