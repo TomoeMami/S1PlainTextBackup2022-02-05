@@ -9157,3 +9157,17 @@ Towa说夸夸告诉她自己网不好所以晚上不A了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前看哪里说22号才公布赛程吧
 
+
+
+*****
+
+####  面具13  
+##### 8540#       发表于 2022-3-22 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55135990&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-3-22 02:57</a>
+谁能告我一下啥时候比赛</blockquote>
+隔壁apex女管人楼那里偷的：<blockquote>V最协S4一图流
+4月11日-4月15日练习赛
+4月16日前夜祭
+4月17日18:00- 本赛</blockquote>
+
