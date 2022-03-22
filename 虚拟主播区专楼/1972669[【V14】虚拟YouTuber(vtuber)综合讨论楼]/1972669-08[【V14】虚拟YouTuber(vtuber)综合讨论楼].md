@@ -12899,3 +12899,15 @@ oreapoレイド深夜情绪高的可怕……
 这回oreapo+reid真好啊，里状态的脑死聊天和各种反应都好有意思。
 kmt能对reid说不能对hnn说也不能在配信里说的的恋バナ总不会是vspo关系者的事吧（
 
+
+
+*****
+
+####  FCCHua  
+##### 11667#       发表于 2022-3-22 08:32
+
+ 本帖最后由 FCCHua 于 2022-3-22 08:35 编辑 
+
+他们应该算是现充转向宅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+旅团麻将惩罚游戏多来点，爱听故事会<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
