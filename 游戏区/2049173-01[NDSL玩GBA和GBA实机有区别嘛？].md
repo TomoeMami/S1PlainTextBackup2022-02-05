@@ -3073,3 +3073,34 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 最大循环几次以后自己估摸着差不 ...</blockquote>
 但是这家不是号称自己有低压预警？
 
+
+
+*****
+
+####  zris  
+##### 226#         楼主| 发表于 2022-3-22 13:59
+
+<img src="https://img.saraba1st.com/forum/202203/22/135629iimg1w1201eew5ge.jpg" referrerpolicy="no-referrer">
+
+<strong>1647769361984.jpg</strong> (343.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202203/22/135629nxgmw269lxugmvly.jpg" referrerpolicy="no-referrer">
+
+<strong>1647769360363.jpg</strong> (262.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 13:56 上传
+
+看到老任那出了2022点对点的ips，可以调两种显示模式。看来除去舞馆又多了一个选择。
+
+舞馆点对点可视角度以及对40针的有横纹不好。
+
+市面上基本就老任和舞馆算是各自的方案了。之前老任产品不如舞馆，但是胜在它不用改壳以及方便。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
