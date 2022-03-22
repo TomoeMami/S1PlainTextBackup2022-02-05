@@ -16652,3 +16652,80 @@ B63943D5-66FE-4EC8-A9EA-C3FE5018E537.jpeg
 
 本来今天漫区都要打不过pc数码去，多亏wt整一手好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acejoe  
+##### 56915#       发表于 2022-3-22 22:21
+
+烂！
+
+*****
+
+####  Cranberries  
+##### 56916#       发表于 2022-3-22 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146771&amp;ptid=98922" target="_blank">带带阿苏卡 发表于 2022-3-22 21:21</a>
+其实尼卡这个也是有原形的，源于日本冲绳传说故事里面橡胶树上寄宿着的精灵
+
+https://www.bilibili. ...</blockquote>
+看了下，五黄的橡胶果实设定还真有很大可能是从这里搞来的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 56917#       发表于 2022-3-22 22:24
+
+艾斯死的太冤了这下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BUFDS5  
+##### 56918#       发表于 2022-3-22 22:25
+
+wt只管画，海学家追着编<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">伏笔都给你编排完了直接取材形成闭环
+
+*****
+
+####  silentback  
+##### 56919#       发表于 2022-3-22 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147242&amp;ptid=98922" target="_blank">风朝北吹 发表于 2022-3-22 22:02</a>
+
+我看日本那边那个UP主 解析（没出这个之前）说尼卡这个是底层设定之一 当初尾田初二画海贼王就做好的设定 ...</blockquote>
+刚才看了一下，如果按视频中说的，确实目前路飞果实觉醒是有现实中的设定来源，但是这也很难支撑目前路飞身上设定的巨大变化。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 个人看法，这种对现实传说的隐喻对于作品来说只能说是参考或者起到锦上添花的效果，作品好看还是要回归作品本身的内容上的。如果说一开始就有对果实能力深挖的想法，那之前那么多的战斗描写加上一些伏笔就行了，把橡胶果实有觉醒能力慢慢在作品加强，没有必要把一些在前期只能说存在感很低的细节伏笔突然串联抛出一个那么大的新设定，主要是看起来头重脚轻，显得新设定太突兀了。
+
+*****
+
+####  proselyte  
+##### 56920#       发表于 2022-3-22 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147475&amp;ptid=98922" target="_blank">超紳士 发表于 2022-3-22 22:18</a>
+
+什么你英，这下尾田不止乱战场面不如阿平，剧情都得抄她了是不是。</blockquote>
+阿平直接六个个性
+
+这还算收敛了
+
+*****
+
+####  evangelina  
+##### 56921#       发表于 2022-3-22 22:35
+
+其实跟上周不少人猜的差不多吧，就是按这水平估计大秘宝的真相也就是打通变成一大片的某物，不会有太多惊喜。
+
+话说谁还记得和之国只是倒数第二个篇章，最终章你们看还能更烂不<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zxc4563982  
+##### 56922#       发表于 2022-3-22 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147281&amp;ptid=98922" target="_blank">zodiac137 发表于 2022-3-22 22:04</a>
+
+死神还是别吹了
+
+我敢打赌，斩月大叔刚出场的时候，绝对不是友哈，是后来改的设定，是一个后来加的“伏笔 ...</blockquote>
+很遗憾，斩月第一次出场自报家门的时候，告诉一护的就是“友哈巴赫”这个名字，顺便教了一护该怎么用飞镰脚
+
