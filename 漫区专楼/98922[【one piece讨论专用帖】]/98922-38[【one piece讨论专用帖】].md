@@ -17361,3 +17361,16 @@ wt就是年纪大了吧，用战术上的勤奋（把画面堆满）试图解决
 
 前两年的消息了，提到五年完结还要更早点
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 56985#       发表于 2022-3-23 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55148882&amp;ptid=98922" target="_blank">youjh 发表于 2022-3-23 00:07</a>
+还用好多年？老爹革命军头头，老爷海军顶级高手，老哥白胡子头马，还有四皇为他断手。
+
+这他妈的一开始就 ...</blockquote>
+艾斯不也是天选之子，然后凉了
+
