@@ -15445,3 +15445,129 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 怪不得路飞血条那么长了，原来是动物系</blockquote>
 我就就口嗨了一句五黄这血条是动物系，没想到尾田就是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Supermangunv3  
+##### 56786#       发表于 2022-3-22 19:41
+
+<blockquote>银翼的维罗西 发表于 2022-3-22 19:39
+我就就口嗨了一句五黄这血条是动物系，没想到尾田就是这么想的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/22/194110p430na3433klu44m.jpg" referrerpolicy="no-referrer">
+
+<strong>3m51u78o5l4ws660w7dkpvpbm.jpg</strong> (20.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-22 19:41 上传
+
+文斯莫克家以前有这个果实，做过研究？
+
+*****
+
+####  cckuku  
+##### 56787#       发表于 2022-3-22 19:44
+
+艾尼路先森应该很关心为什么这个叫尼卡的不怕被电吧？
+
+*****
+
+####  逸yi  
+##### 56788#       发表于 2022-3-22 19:48
+
+you are free<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 56789#       发表于 2022-3-22 19:49
+
+无聊，这不是我要的橡胶果实！
+
+*****
+
+####  athena_1982  
+##### 56790#       发表于 2022-3-22 19:50
+
+这下可以实锤黄猿是路飞的人了吧，第十位伙伴？
+
+理由？有了太阳，才有光啊！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qzfjnv  
+##### 56791#       发表于 2022-3-22 19:53
+
+凯老师走好，我们会想念你的
+
+*****
+
+####  银翼的维罗西  
+##### 56792#       发表于 2022-3-22 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145437&amp;ptid=98922" target="_blank">cckuku 发表于 2022-3-22 19:44</a>
+
+艾尼路先森应该很关心为什么这个叫尼卡的不怕被电吧？</blockquote>
+五黄都是太阳了，还能怕区区电子流呢，现在明白黄猿舅舅为啥不用激光射五黄了吧，因为射了也没用，五黄也能放光波<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sandrock  
+##### 56793#       发表于 2022-3-22 19:53
+
+就这？爆炸在哪里
+
+*****
+
+####  Supermangunv3  
+##### 56794#       发表于 2022-3-22 19:54
+
+<blockquote>银翼的维罗西 发表于 2022-3-22 19:53
+五黄都是太阳了，还能怕区区电子流呢，现在明白黄猿舅舅为啥不用激光射五黄了吧，因为射了也没用，五黄也 ...</blockquote>
+什么jb……尾田还是日本人
+
+*****
+
+####  仟音一心  
+##### 56795#       发表于 2022-3-22 19:55
+
+好无聊的设定啊
+
+*****
+
+####  冰懔  
+##### 56796#       发表于 2022-3-22 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145437&amp;ptid=98922" target="_blank">cckuku 发表于 2022-3-22 19:44</a>
+
+艾尼路先森应该很关心为什么这个叫尼卡的不怕被电吧？</blockquote>
+可能幻兽种不怕雷击，个个血厚的要死
+
+*****
+
+####  Moberking  
+##### 56797#       发表于 2022-3-22 19:55
+
+已经无敌了？
+
+*****
+
+####  轻尘有雨  
+##### 56798#       发表于 2022-3-22 19:59
+
+啊这…当时是火焰帮太阳神挡岩浆来着？太阳神要是挨了赤老师一发岩浆会不会当场就自由了？
+
+*****
+
+####  yario  
+##### 56799#       发表于 2022-3-22 20:00
+
+<blockquote>轻尘有雨 发表于 2022-3-22 19:59
+啊这…当时是火焰帮太阳神挡岩浆来着？太阳神要是挨了赤老师一发岩浆会不会当场就自由了？ ...</blockquote>
+贯穿伤直接没了吧，还靠罗救了一次
+

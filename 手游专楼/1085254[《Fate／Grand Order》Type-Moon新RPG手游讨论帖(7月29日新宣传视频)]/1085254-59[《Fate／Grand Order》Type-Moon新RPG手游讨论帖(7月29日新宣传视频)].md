@@ -4240,3 +4240,35 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 
 凡是不能3T的都没兴趣打<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87373#       发表于 2022-3-22 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145190&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-22 19:29</a>
+
+我打完都每开过3技能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">无敌
+
+*****
+
+####  黑上シグマ  
+##### 87374#       发表于 2022-3-22 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145440&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-22 19:44</a>
+
+无敌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">无敌有1技能和梅老板2技能和C呆宝具，哪里需要开赌博
+
+*****
+
+####  qixinno2  
+##### 87375#       发表于 2022-3-22 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145533&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-3-22 19:51</a>
+
+无敌有1技能和梅老板2技能和C呆宝具，哪里需要开赌博</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我说的是萌新无敌 本非洲人带拐打只会被各种发卡制裁
+
