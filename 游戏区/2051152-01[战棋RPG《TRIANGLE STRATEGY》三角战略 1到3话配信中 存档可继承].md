@@ -12302,3 +12302,19 @@ image.png
 请问具体怎么选....几次都没说服成功</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这你难到我了，一般都是选有理有据的
 
+
+
+*****
+
+####  dren_zheng  
+##### 1098#       发表于 2022-3-22 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55142178&amp;ptid=2051152" target="_blank">ryj 发表于 2022-3-22 15:52</a>
+
+请问具体怎么选....几次都没说服成功</blockquote>
+看角色
+
+比如鹰弓是罗兰的亲卫队长，说服时优先选会影响到罗兰的选项，往往没错
+
+女主是圣母，往那方面选就行
+

@@ -8136,3 +8136,28 @@ i want be with you
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 9860#       发表于 2022-3-22 17:02
+
+错误的，VCP几把谁啊👋
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Rem-清曲  
+##### 9861#       发表于 2022-3-22 17:09
+
+想象了一下那天尬聊的场景，人要冻住了     <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 9862#       发表于 2022-3-22 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不看不就完事儿了
+
