@@ -4284,3 +4284,59 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 我说的是萌新无敌 本非洲人带拐打只会被各种发卡制裁</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c呆注意叠c啊  基本没什么发卡硬性要求
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87377#       发表于 2022-3-22 21:45
+
+<img src="https://p.sda1.dev/5/55522e2260c4bbba5255f1f0a7253378/IMG_CMP_184177614.png" referrerpolicy="no-referrer">
+试了次准备不足一次成功了
+倒是脚后跟想打个3T打得火大，刷发牌不提，每次都盯着我后排上来的马老师单挑
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  gpx234mqx  
+##### 87378#       发表于 2022-3-22 21:50
+
+ 本帖最后由 gpx234mqx 于 2022-3-22 21:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147055&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-3-22 21:45</a>
+
+试了次准备不足一次成功了
+
+倒是脚后跟想打个3T打得火大，刷发牌不提，每次都盯着我后排上来的马老师单挑</blockquote>
+你方法错了，不要用集中
+
+1T第一排血用巴那清空，就是巴那单挑了
+
+2T麻痹
+
+3T三红带走
+
+*****
+
+####  不垃圾屌丝  
+##### 87379#       发表于 2022-3-22 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147097&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-22 21:50</a>
+你方法错了，不要用集中
+
+1T第一排血用巴那清空，就是巴那单挑了</blockquote>
+有新衣服肯定用新衣服啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+后来刷烦了换B叔瞎打过了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  qixinno2  
+##### 87380#       发表于 2022-3-22 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146594&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-22 21:05</a>
+
+c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">反正单挑过了 无所谓了 就看明天的神祖有多恶心了
+
