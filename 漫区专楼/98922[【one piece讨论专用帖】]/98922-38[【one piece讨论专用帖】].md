@@ -16183,3 +16183,161 @@ onepiece，堂堂完结
 一开始也不知道是死神灭却师和虚的三位一体吧</blockquote>
 至少尸魂界时候死神灭却虚这设定已经牢了
 
+
+
+*****
+
+####  带带阿苏卡  
+##### 56865#       发表于 2022-3-22 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">其实尼卡这个也是有原形的，源于日本冲绳传说故事里面橡胶树上寄宿着的精灵
+
+[https://www.bilibili.com/video/BV1zP4y1u7F5](https://www.bilibili.com/video/BV1zP4y1u7F5)
+
+这哥们分析得还挺准的
+
+*****
+
+####  cdfjg  
+##### 56866#       发表于 2022-3-22 21:22
+
+是啊，为什么最正牌的人人果实反而最普通，以后乔巴怎么想，会不会睡不着！
+
+*****
+
+####  Supermangunv3  
+##### 56867#       发表于 2022-3-22 21:22
+
+<blockquote>带带阿苏卡 发表于 2022-3-22 21:21
+其实尼卡这个也是有原形的，源于日本冲绳传说故事里面橡胶树上寄宿着的精灵
+
+https://www.bilibili. ...</blockquote>
+这个抄的是日本分析师，是个搬运工
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 56868#       发表于 2022-3-22 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146561&amp;ptid=98922" target="_blank">Aoi_ 发表于 2022-3-22 21:02</a>
+微博上针对血统挂已经吵起来了😂</blockquote>
+只能说海贼王连载到现在读者太多，加上尾田硬实力问题，读者有怨言也正常，许久不看觉得离谱也正常，从没看过闻风来喷也正常。
+地下党爹海军爷，名字带D，果实能力，霸王色，能听万物之声。两个义兄一个贵族一个海贼王儿子四皇义子。没出海就有未来四皇罩，七武海不是同盟就是手下败将，超新星自己人占一半。要说宿命论血统论，早在空岛司法岛就是了。从设定来看路飞从一开始就是“天选之人”，而不是什么中途天降外挂。
+海贼王不是打打杀杀，而是人情世故<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  jxzeroga0  
+##### 56869#       发表于 2022-3-22 21:24
+
+鸣人各种外挂往上叠最后也就多了一个六道儿子转生，九尾人柱力挂一直是不变的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换果实种类实在是乐过头了
+
+*****
+
+####  chais613  
+##### 56870#       发表于 2022-3-22 21:27
+
+绿牛还没出来吗？
+
+*****
+
+####  gs2-d2up  
+##### 56871#       发表于 2022-3-22 21:28
+
+倒也说不上多失望，只是觉得橡胶果实变成人人果实尼卡形态这种设定好无聊哦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+ ​​
+
+<img src="https://img.saraba1st.com/forum/202203/22/212738nngdy5twdc5dxzbn.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220322_212025.jpg</strong> (65.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 21:27 上传
+
+*****
+
+####  萌萌哒兆兆  
+##### 56872#       发表于 2022-3-22 21:28
+
+这楼好久没有这么热闹了，和之国开始真是崩的一塌糊涂<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hamartia  
+##### 56873#       发表于 2022-3-22 21:28
+
+<blockquote>带带阿苏卡 发表于 2022-3-22 21:21
+其实尼卡这个也是有原形的，源于日本冲绳传说故事里面橡胶树上寄宿着的精灵
+
+https://www.bilibili. ...</blockquote>
+那我更不能接受了。凯多好歹是条龙，就不说往影射那方面想，一条龙输给树精?索隆都知道抖威风抖战神阿修罗出来
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 56874#       发表于 2022-3-22 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146729&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-22 21:17</a>
+
+尼卡Nika的谐音就是2.9
+
+这也算伏笔？</blockquote>
+还有说路飞生日五月五日，把中文的五拆开就是”ニ力”的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病態極端  
+##### 56875#       发表于 2022-3-22 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146700&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-22 21:14</a>
+
+一开始也不知道是死神灭却师和虚的三位一体吧</blockquote>
+沒記錯的話，YHWH(斬月大叔)跟戴著假面的一護都在第八卷登場
+
+*****
+
+####  赤魔法师  
+##### 56876#       发表于 2022-3-22 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+B63943D5-66FE-4EC8-A9EA-C3FE5018E537.jpeg
+(178.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202203/22/213233pi2ene5n8n5wen28.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhuoqiu  
+##### 56877#       发表于 2022-3-22 21:33
+
+真是太有意思了。最后的民工漫晚节不保。哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天使的日曜日  
+##### 56878#       发表于 2022-3-22 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146852&amp;ptid=98922" target="_blank">萌萌哒兆兆 发表于 2022-3-22 21:28</a>
+
+这楼好久没有这么热闹了，和之国开始真是崩的一塌糊涂</blockquote>
+某阴间论坛情报一出直接干到第四位，以前哪有这么热闹人神共愤了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1647956275359.jpg
+(26.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202203/22/213955fmstlgklfmb11zzl.jpg" referrerpolicy="no-referrer">
+
