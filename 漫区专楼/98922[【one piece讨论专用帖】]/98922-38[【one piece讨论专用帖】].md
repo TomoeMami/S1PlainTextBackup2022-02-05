@@ -15660,3 +15660,184 @@ you are free<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 毕竟石油带来工业，工业带来革命，逻辑顺多了
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56811#       发表于 2022-3-22 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145815&amp;ptid=98922" target="_blank"> Eric_方歌阙 发表于 2022-3-22 20:12</a> 合着艾斯帮太阳神挡岩浆？艾斯你死得好惨呐！  —— 来自 S1Fun </blockquote>
+以前还说火焰最高温度比岩浆高多了
+你头顶上那颗表面就有5、6000度
+就这还上克下，尾田是不是物理没学好
+现在不用了，原来本尊就在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  gutzz  
+##### 56812#       发表于 2022-3-22 20:21
+
+你是自由的！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  飞升之后  
+##### 56813#       发表于 2022-3-22 20:22
+
+堪比魂殿追杀萧炎，追成了最强斗帝
+
+*****
+
+####  Renes  
+##### 56814#       发表于 2022-3-22 20:24
+
+真情报比假情报还像假情报
+
+贴吧老哥写的可有意思多了
+
+*****
+
+####  7sevenseven  
+##### 56815#       发表于 2022-3-22 20:27
+
+ 本帖最后由 7sevenseven 于 2022-3-22 20:31 编辑 
+
+md
+这崩的，之前我还有心思说虽然新世界剧情整体不如乐园剧情，和之国更是拉和崩，但是整部作品还是优秀的
+现在我说不出这句话了，把橡胶果实这个设定改了对我来说无异于换主角我就是因为橡胶果实有趣才入的坑。新世界之后不重点关注橡胶果实效果了，我感到很遗憾。现在直接换果实，跟吃苍蝇一样
+总算了解死神完结时为什么有人烧书了，我现在也想
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 56816#       发表于 2022-3-22 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145912&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-3-22 20:18</a>
+
+尾田：不怪你们，画了二十年，我也刚知道主角吃的是尼卡果实</blockquote>
+刚在贴吧抄的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 56817#       发表于 2022-3-22 20:28
+
+这个设定真的很无聊，五黄之所以有魅力在于他的性格和价值观，真的不该给那么多牛逼的设定
+
+*****
+
+####  火华火华火  
+##### 56818#       发表于 2022-3-22 20:28
+
+这搞得和同人写的似的，反正尾田都给路飞开了锁血挂了，咬死是橡胶果实又如何
+
+别来一出罗杰最后没能成为joyboy是因为没橡胶果实
+
+*****
+
+####  rryu  
+##### 56819#       发表于 2022-3-22 20:32
+
+我记得之前说过卡二的年糕果实是橡胶的上位果实，还是我记错了…
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  proselyte  
+##### 56820#       发表于 2022-3-22 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146140&amp;ptid=98922" target="_blank">rryu 发表于 2022-3-22 20:32</a>
+
+我记得之前说过卡二的年糕果实是橡胶的上位果实，还是我记错了…
+
+—— 来自 OnePlus GM1910, Android 11上 ...</blockquote>
+好像没说过
+
+就是提到同样的事他更省力
+
+
+
+*****
+
+####  novem  
+##### 56821#       发表于 2022-3-22 20:33
+
+尾田这是去贴吧取材归来编出来的剧情吗，说实话还不如贴吧呢
+
+*****
+
+####  7sevenseven  
+##### 56822#       发表于 2022-3-22 20:33
+
+只能祈祷完整剧情了，不报任何希望了
+
+*****
+
+####  SteinLee  
+##### 56823#       发表于 2022-3-22 20:34
+
+尾田这还不如把剧本交给贴吧老哥
+
+*****
+
+####  cckuku  
+##### 56824#       发表于 2022-3-22 20:35
+
+🤔️有没有可能红发早就知道了路飞将来会一飞冲天，所以不惜断一只手也要刷路飞的好感度
+
+*****
+
+####  古畑任三郎2015  
+##### 56825#       发表于 2022-3-22 20:35
+
+和艾伦哪个更自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朗姆酒hentai  
+##### 56826#       发表于 2022-3-22 20:35
+
+看来wt也就这样了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  先手必胜  
+##### 56827#       发表于 2022-3-22 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145617&amp;ptid=98922" target="_blank">轻尘有雨 发表于 2022-3-22 19:59</a>
+
+啊这…当时是火焰帮太阳神挡岩浆来着？太阳神要是挨了赤老师一发岩浆会不会当场就自由了？ ...</blockquote>
+当年艾斯就不该挡那一拳，太阳温度比岩浆高多了，赤犬这一拳打过去还不把自己给融化了
+
+原来艾斯救的不是路飞，是赤犬...
+
+所以艾斯果然是海军卧底，这下逻辑就顺畅多了，毕竟靠一己之力搞垮白团，不是智力有问题就是敌方内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先手必胜  
+##### 56828#       发表于 2022-3-22 20:37
+
+艾斯：赤犬老大别轻举妄动，草帽那小子身上有鬼！
+
+赤犬感动的当上海军元帅后立马给艾斯追封一个荣誉大将
+
+*****
+
+####  klzxs  
+##### 56829#       发表于 2022-3-22 20:38
+
+与其说是战力上的需求
+
+我倒是觉得是为了世界故事塞进去的设定
+
+单纯想要更强没什么难强化的
+
+橡胶都强化到四档了，觉醒或者开五档都是很容易想象的强化方向
+
+只为了战力修改果实不是给自己添麻烦
+
