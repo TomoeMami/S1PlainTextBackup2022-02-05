@@ -15841,3 +15841,145 @@ md
 
 只为了战力修改果实不是给自己添麻烦
 
+
+
+*****
+
+####  草海灭巨  
+##### 56830#       发表于 2022-3-22 20:41
+
+岸本长舒一口气，看来大家都差不多嘛
+
+*****
+
+####  proselyte  
+##### 56831#       发表于 2022-3-22 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">都自由了什么时候那种事不要啊
+
+*****
+
+####  proselyte  
+##### 56832#       发表于 2022-3-22 20:41
+
+风怒
+
+*****
+
+####  Zcjy023  
+##### 56833#       发表于 2022-3-22 20:46
+
+感觉还不如隔壁火影，太子至少一开始读者就知道是钦定
+
+这个感觉就像后期天降九尾附体
+
+*****
+
+####  Algie  
+##### 56834#       发表于 2022-3-22 20:47
+
+以前说因为橡胶能力好玩所以给路飞橡胶果实的时候多潇洒，现在整这一出，格调跌到谷底，烂俗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  SY.Autumnman  
+##### 56835#       发表于 2022-3-22 20:49
+
+只能说cp0小队长一路走好了
+
+*****
+
+####  天使的日曜日  
+##### 56836#       发表于 2022-3-22 20:50
+
+吹两年前路飞性格就算了，两年后路飞我感觉不到一点喜欢的点，现在烂了也正好，作品跟主角一样烂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  躺平咸鱼在翻身  
+##### 56837#       发表于 2022-3-22 20:51
+
+原来特殊的不是路飞，而是果实(=_=)
+海贼王？自由？不过是果实的傀儡罢了
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  BigLittle1999  
+##### 56838#       发表于 2022-3-22 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉稀  
+##### 56839#       发表于 2022-3-22 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146441&amp;ptid=98922" target="_blank">躺平咸鱼在翻身 发表于 2022-3-22 20:51</a>
+原来特殊的不是路飞，而是果实(=_=)
+海贼王？自由？不过是果实的傀儡罢了</blockquote>
+别瞎说，路飞是自由的，马上就来前果实能力者传功
+
+*****
+
+####  先生空气  
+##### 56840#       发表于 2022-3-22 20:55
+
+感觉不如…一护
+
+*****
+
+####  逸yi  
+##### 56841#       发表于 2022-3-22 20:55
+
+那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icecry  
+##### 56842#       发表于 2022-3-22 20:56
+
+什么**剧情...
+
+*****
+
+####  古畑任三郎2015  
+##### 56843#       发表于 2022-3-22 20:57
+
+等一个路飞穿越时空控制海王类咬断红发手臂的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gs2-d2up  
+##### 56844#       发表于 2022-3-22 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145911&amp;ptid=98922" target="_blank">导游 发表于 2022-3-22 20:17</a>
+日和摘下了面具……日和又是谁？
+
+和之国篇真是乱七八糟的出存在感极低的新人 ...</blockquote>
+就是花魁小紫，日和是她的原名
+
+*****
+
+####  Supermangunv3  
+##### 56845#       发表于 2022-3-22 20:58
+
+什么jb玩意
+
+*****
+
+####  病態極端  
+##### 56846#       发表于 2022-3-22 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146059&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-22 20:27</a>
+
+md
+
+这崩的，之前我还有心思说虽然新世界剧情整体不如乐园剧情，和之国更是拉和崩，但是整部作品还是优秀的
+
+ ...</blockquote>
+久保帶人：可我是三本柱中唯一沒改設定的作者<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

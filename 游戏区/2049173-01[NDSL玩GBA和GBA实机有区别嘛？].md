@@ -3113,3 +3113,23 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 话说现在要买个二手的gba有好的渠道吗？
 
+
+
+*****
+
+####  zris  
+##### 228#         楼主| 发表于 2022-3-22 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55142583&amp;ptid=2049173" target="_blank">anmdrree 发表于 2022-3-22 16:21</a>
+
+话说现在要买个二手的gba有好的渠道吗？</blockquote>
+海淘是最好的了
+
+尤其现在二手价格不友好
+
+其次可以只买主板自己买屏幕和壳来改
+
+或者买店家的整机
+
+主要看预算···
+

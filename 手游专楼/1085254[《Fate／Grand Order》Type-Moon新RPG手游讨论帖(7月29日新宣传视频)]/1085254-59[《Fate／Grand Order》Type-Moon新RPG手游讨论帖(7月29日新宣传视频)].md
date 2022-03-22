@@ -4272,3 +4272,15 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 无敌有1技能和梅老板2技能和C呆宝具，哪里需要开赌博</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我说的是萌新无敌 本非洲人带拐打只会被各种发卡制裁
 
+
+
+*****
+
+####  alucardcz  
+##### 87376#       发表于 2022-3-22 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145556&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-22 19:53</a>
+
+我说的是萌新无敌 本非洲人带拐打只会被各种发卡制裁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c呆注意叠c啊  基本没什么发卡硬性要求
+
