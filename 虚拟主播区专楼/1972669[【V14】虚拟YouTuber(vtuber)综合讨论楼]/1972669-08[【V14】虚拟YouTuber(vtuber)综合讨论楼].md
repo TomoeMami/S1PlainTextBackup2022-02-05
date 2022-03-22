@@ -12911,3 +12911,31 @@ kmt能对reid说不能对hnn说也不能在配信里说的的恋バナ总不会�
 他们应该算是现充转向宅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 旅团麻将惩罚游戏多来点，爱听故事会<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11668#       发表于 2022-3-22 09:29
+
+好吧还是自己去找了下，哈弟居然不搞接力初配信啊，那样不是热度更高一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+黑毛初配信
+[https://youtu.be/YPK3wQTrDqE](https://youtu.be/YPK3wQTrDqE)
+
+粉毛 23号
+[https://youtu.be/RC8F-sRPqxU](https://youtu.be/RC8F-sRPqxU)
+
+白毛 25号
+[https://youtu.be/_Jgzdl1dJeU](https://youtu.be/_Jgzdl1dJeU)
+
+*****
+
+####  poipanchao  
+##### 11669#       发表于 2022-3-22 09:46
+
+说起来老叶的最协是不是经常找底边
+印象中老是有奇奇怪怪的队友
+
+哈弟箱新人，我就知道蹭了一下魔法美发，但是枪打的这么菜，有毛用
+
