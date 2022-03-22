@@ -8234,3 +8234,34 @@ vcp这企划已经迷惑到一时间我居然都分不清这到底是谁蹭谁�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  路人庚  
+##### 9872#       发表于 2022-3-22 20:02
+
+第一反应，索尼跟pok的版权没谈好（x
+
+<img src="https://img.saraba1st.com/forum/202203/22/200213sklq909lbvmzvclb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>54C9F9E7-39B2-496B-80BB-A2FF3FD49693.jpeg</strong> (183.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 20:02 上传
+
+*****
+
+####  路人庚  
+##### 9873#       发表于 2022-3-22 20:08
+
+因为心里烦所以为了释放压力捐款了5万日元的神乐mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（富婆有多的钱可以捐给我吗
+
+*****
+
+####  路人庚  
+##### 9874#       发表于 2022-3-22 20:13
+
+油管居然有绯赤的anti在评论区刷屏，真奇妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
