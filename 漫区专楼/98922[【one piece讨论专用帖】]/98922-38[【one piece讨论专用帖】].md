@@ -16729,3 +16729,96 @@ wt只管画，海学家追着编<img src="https://static.saraba1st.com/image/smi
 我敢打赌，斩月大叔刚出场的时候，绝对不是友哈，是后来改的设定，是一个后来加的“伏笔 ...</blockquote>
 很遗憾，斩月第一次出场自报家门的时候，告诉一护的就是“友哈巴赫”这个名字，顺便教了一护该怎么用飞镰脚
 
+
+
+*****
+
+####  晃来晃去  
+##### 56923#       发表于 2022-3-22 22:42
+
+<img src="https://img.saraba1st.com/forum/202203/22/224248q1pdvpsn3pzd8dsd.gif" referrerpolicy="no-referrer">
+
+<strong>1854291150.gif</strong> (680.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 22:42 上传
+
+*****
+
+####  汤圆です  
+##### 56924#       发表于 2022-3-22 22:42
+
+整这一出后人人果实幻兽种想口胡是啥都行了，来个人人果实幻兽种舞蹈神御田岂不直接起飞<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 56925#       发表于 2022-3-22 22:43
+
+又想到了当年看路飞暴揍天龙人的畅快
+
+现在看倒是有点变味了 到底谁才是天选之人
+
+*****
+
+####  怀特布莱克  
+##### 56926#       发表于 2022-3-22 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147742&amp;ptid=98922" target="_blank">汤圆です 发表于 2022-3-22 22:42</a>
+整这一出后人人果实幻兽种想口胡是啥都行了，来个人人果实幻兽种舞蹈神御田岂不直接起飞 ...</blockquote>
+那继续套娃人人果实 幻兽种 路飞果实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巴尔干炮  
+##### 56927#       发表于 2022-3-22 22:46
+
+太扯淡了，这次海贼可再没资格嘲笑太子忍了，因为它更过分了了
+
+*****
+
+####  陶矢  
+##### 56928#       发表于 2022-3-22 22:48
+
+彻底拉了
+
+*****
+
+####  chenflyyy  
+##### 56929#       发表于 2022-3-22 22:55
+
+jump新老世代代表以这种形式碰在一起了，很难说谁更烂
+
+<img src="https://img.saraba1st.com/forum/202203/22/225333figtgw5g5xmxtmxi.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220322_225148.jpg</strong> (13.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 22:53 上传
+
+*****
+
+####  太太  
+##### 56930#       发表于 2022-3-22 22:55
+
+还别说，记得打完明哥之后就一直没看，尾田这一下来个大活我顿时就想回来追了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 56931#       发表于 2022-3-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147889&amp;ptid=98922" target="_blank">chenflyyy 发表于 2022-3-22 22:55</a>
+
+jump新老世代代表以这种形式碰在一起了，很难说谁更烂</blockquote>
+确实，两个都是烂活，作品内作品外齐活了
+
+*****
+
+####  柏露伯德  
+##### 56932#       发表于 2022-3-22 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总觉得世界线变动过了…这是平行世界的OP吧
+

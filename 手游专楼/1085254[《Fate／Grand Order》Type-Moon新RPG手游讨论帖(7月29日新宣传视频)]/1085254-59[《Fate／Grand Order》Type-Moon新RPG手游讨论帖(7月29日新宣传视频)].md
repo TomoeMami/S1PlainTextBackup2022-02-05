@@ -4340,3 +4340,19 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">反正单挑过了 无所谓了 就看明天的神祖有多恶心了
 
+
+
+*****
+
+####  sosgame67  
+##### 87381#       发表于 2022-3-22 22:49
+
+我现在还记得当初刚入坑日服不到一周年只能用水阿荣刷随机过的神祖，各种11点卡令咒回复还是在最后一天上午过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87382#       发表于 2022-3-22 23:08
+
+明天大概率罗马层数加快，罗马状态带框，血量加倍<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
