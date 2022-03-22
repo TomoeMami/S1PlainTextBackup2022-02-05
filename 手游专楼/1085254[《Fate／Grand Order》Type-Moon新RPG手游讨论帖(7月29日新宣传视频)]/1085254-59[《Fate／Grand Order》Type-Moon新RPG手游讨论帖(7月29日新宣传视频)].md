@@ -4162,3 +4162,30 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行啊 不过如此  基本就是呆梅 最后换了个狐狸上来加buff一波带走    虽然以前怎么打的我也不记得了
 
+
+
+*****
+
+####  qixinno2  
+##### 87366#       发表于 2022-3-22 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">试了下单挑 用了三发令咒回血 大的艰难 非洲人各种吃暴击 DEBUFF 赌狗传说想要攻击上升或者红方 结果用了三次一次无敌 一次星星 一次回血 非洲人好难啊
+
+<img src="https://img.saraba1st.com/forum/202203/22/183441n2hll7p9lqxbxhfl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 18:34 上传
+
+*****
+
+####  alucardcz  
+##### 87367#       发表于 2022-3-22 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55144411&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-22 18:33</a>
+
+试了下单挑 用了三发令咒回血 大的艰难 非洲人各种吃暴击 DEBUFF 赌狗传说想要攻击上升或者红方 结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+

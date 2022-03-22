@@ -15259,3 +15259,12 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每周都是大爆炸,最后还不是面子果实
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 56765#       发表于 2022-3-22 18:25
+
+懂了，可能是路飞一口吃了joy boy，海贼王第一部完，第二部海军篇移籍jump+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
