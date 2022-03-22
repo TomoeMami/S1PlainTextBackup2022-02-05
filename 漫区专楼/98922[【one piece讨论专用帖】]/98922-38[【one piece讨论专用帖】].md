@@ -17242,3 +17242,34 @@ wt就是年纪大了吧，用战术上的勤奋（把画面堆满）试图解决
 
 大意是说也许太阳神果实第一次觉醒（或者延伸一下，比如作为最初的恶魔果实诞生的时候？）把整个世界软化了，之后再硬化，世界被重塑。
 
+
+
+*****
+
+####  天下至贱  
+##### 56974#       发表于 2022-3-23 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145199&amp;ptid=98922" target="_blank">chanrs2 发表于 2022-3-22 19:30</a>
+
+第1018话福兹福提到的“太阳神尼卡在上古时代，奴隶们坚信某一天会出现一位来解放他们的传说中的战士。终 ...</blockquote>
+太强行了，提到尼卡的是这个福兹·弗，当年护送橡胶果实的世界政府的船的也是他，太强设定了。
+
+*****
+
+####  JC_AR  
+##### 56975#       发表于 2022-3-23 01:30
+
+有没有一种可能
+
+尾田已经死了，三年后的剧情是助手和JUMP小编搞得
+
+*****
+
+####  天网  
+##### 56976#       发表于 2022-3-23 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55149453&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2022-3-23 01:05</a>
+
+现在回头看当初那一拳其实是“你也配姓赵？”的意思XD</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那倒也不妨碍是爽点，爽文第10086种喜欢的酒店小经理对寒酸客人耍横，没想到客人竟然是竞争对手集团总裁的继承人，略施手段花了三天时间把小经理的酒店搞破产然后收购下来，然后优雅一笑：我只是想体面、从容、优雅地将你个破奴才扫地出门
+
