@@ -16909,3 +16909,44 @@ jump新老世代代表以这种形式碰在一起了，很难说谁更烂</block
 
 2022-3-22 23:19 上传
 
+
+
+*****
+
+####  越动天下  
+##### 56941#       发表于 2022-3-22 23:19
+
+还好 
+
+*****
+
+####  rsgdn  
+##### 56942#       发表于 2022-3-22 23:30
+
+最近刚还在补，令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南条一间  
+##### 56943#       发表于 2022-3-22 23:32
+
+这还不如贴吧老哥编的孙悟空果实和橡皮果实合理
+
+我monkey king不比什么太阳神尼卡自由，路飞名字里还有个Monkey能让粉丝吹吹伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 56944#       发表于 2022-3-22 23:36
+
+直接开始地鸣吧 ttk到世界尽头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南条一间  
+##### 56945#       发表于 2022-3-22 23:37
+
+ 本帖最后由 南条一间 于 2022-3-22 23:39 编辑 
+
+想想罗杰也是惨，一不靠果实二不靠父母真真正正做到了一切到达拉夫德鲁然后发现自己原来不是命中注定的那个人
+
