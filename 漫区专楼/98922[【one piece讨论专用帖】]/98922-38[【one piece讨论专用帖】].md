@@ -15216,3 +15216,14 @@ CP0是革命军吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 那只好在看到剧透前提前“就这”了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 56760#       发表于 2022-3-22 08:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种时候往往是看文字剧透是就这?
+
+看到完整内容了又发现比剧透时想象的好一些
+
