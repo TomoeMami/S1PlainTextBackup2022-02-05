@@ -16478,3 +16478,177 @@ B63943D5-66FE-4EC8-A9EA-C3FE5018E537.jpeg
 
 我记得漫区曾经有过投票，当时大家都认为尾田是“没有低潮的”，但现在和之国篇真的看得人上火.....
 
+
+
+*****
+
+####  宅之猴晒阴  
+##### 56895#       发表于 2022-3-22 22:02
+
+这么说，战国的人人果实也是觉醒了才成为大佛的？话说战国到底是幻兽种还是人人果实我都忘记了，还有，路飞没觉醒前这果实为什么和橡胶的性质一毛一样啊。
+
+*****
+
+####  风朝北吹  
+##### 56896#       发表于 2022-3-22 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147193&amp;ptid=98922" target="_blank">silentback 发表于 2022-3-22 21:58</a>
+
+其实胡逼开挂没什么，毕竟战斗层面都到世上几个人的水平了，开挂打观众看的也爽，而且wt本身也不是以战斗设 ...</blockquote>
+我看日本那边那个UP主 解析（没出这个之前）说尼卡这个是底层设定之一 当初尾田初二画海贼王就做好的设定
+[https://www.bilibili.com/video/BV1zP4y1u7F5](https://www.bilibili.com/video/BV1zP4y1u7F5)
+
+可以说完全猜中
+
+*****
+
+####  流浪的咸鱼  
+##### 56897#       发表于 2022-3-22 22:02
+
+没想到啊没想到<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七十七  
+##### 56898#       发表于 2022-3-22 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2022-3-22 22:02</a>
+
+这么说，战国的人人果实也是觉醒了才成为大佛的？话说战国到底是幻兽种还是人人果实我都忘记了，还有，路飞 ...</blockquote>
+战国是 人人果实 幻兽种 大佛形态
+
+还有和之国那个狐狸 也是人人果实幻兽种大入道
+
+*****
+
+####  风朝北吹  
+##### 56899#       发表于 2022-3-22 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2022-3-22 22:02</a>
+
+这么说，战国的人人果实也是觉醒了才成为大佛的？话说战国到底是幻兽种还是人人果实我都忘记了，还有，路飞 ...</blockquote>
+因为他就是“橡胶果实” 基础设定是来自于冲绳的一个神话。包括尼卡什么的设定都是连在一起的
+
+*****
+
+####  zodiac137  
+##### 56900#       发表于 2022-3-22 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146524&amp;ptid=98922" target="_blank">病態極端 发表于 2022-3-22 21:00</a>
+
+久保帶人：可我是三本柱中唯一沒改設定的作者</blockquote>
+死神还是别吹了
+
+我敢打赌，斩月大叔刚出场的时候，绝对不是友哈，是后来改的设定，是一个后来加的“伏笔”
+
+一护一直用的是灭却师的力量，不是刀的解放，肯定也是改的设定
+
+*****
+
+####  银翼的维罗西  
+##### 56901#       发表于 2022-3-22 22:05
+
+我比较在意的是白胡子以前说过的黑胡子的缺陷是狂妄自大终会败北，五黄最后会不会胜于性格，这种性格决定命运的桥段就很舒适了，现在突然整出个天选之人果实，感觉黑胡子就算是完人也对抗不了天命了，相较之下凯老师基本没什么弱点，拼尽全力才逼出五黄的觉醒，凯老师好惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游蜓  
+##### 56902#       发表于 2022-3-22 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">两年后的路飞是真的少了以前的那种灵性了，虽然偶尔还有点回光返照
+
+*****
+
+####  Cranberries  
+##### 56903#       发表于 2022-3-22 22:07
+
+和之国积怨已久了属于是。
+
+*****
+
+####  三点几，饮茶啦  
+##### 56904#       发表于 2022-3-22 22:08
+
+心疼凯老师，让路飞死吧，我要看凯多传奇
+
+*****
+
+####  仟音一心  
+##### 56905#       发表于 2022-3-22 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147242&amp;ptid=98922" target="_blank">风朝北吹 发表于 2022-3-22 22:02</a>
+我看日本那边那个UP主 解析（没出这个之前）说尼卡这个是底层设定之一 当初尾田初二画海贼王就做好的设定 ...</blockquote>
+贴吧说这个也是抄外网其他人的分析
+
+*****
+
+####  莫老五  
+##### 56906#       发表于 2022-3-22 22:10
+
+动物果实是有兽型、**型。那路飞平时算什么形态
+
+*****
+
+####  Cranberries  
+##### 56907#       发表于 2022-3-22 22:10
+
+我记得半年前好像也是因为路飞果实问题炎上过。
+
+*****
+
+####  超紳士  
+##### 56908#       发表于 2022-3-22 22:10
+
+什么幻兽种尼哥果实，效果是能零元购是吧。
+
+*****
+
+####  摸鱼先锋  
+##### 56909#       发表于 2022-3-22 22:10
+
+还行吧，五黄开外挂从卡普那块基本就都看出来了，一路走来大概也是仅次于红发的面子能力者了，跟火影殊途同归呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过说一开始就能看出来鸣人是太子可就扯淡了，开篇到前两百话都在疯狂地塑造莫欺少年穷的气氛搞出了一种屌丝逆袭的假象，光因为老子是吊车尾这句话前期就拿来开好几次挂了，后来啪叽加个四代儿子的设定是真给我看麻了，更别提后面的阿修罗因陀罗那些鸡掰东西了
+
+*****
+
+####  摸鱼先锋  
+##### 56910#       发表于 2022-3-22 22:13
+
+这幻兽种果实加的属实没有必要，就为了强行加上乔伊波伊命运buff？要战力增强有一万种方法吧，非得把大家看了二十多年的橡胶果实给干碎，老读者表示心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  超紳士  
+##### 56911#       发表于 2022-3-22 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145732&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-3-22 20:06</a>
+
+这个所谓太阳神应该只是某一届使用者吧，不然也太不好玩了</blockquote>
+什么你英，这下尾田不止乱战场面不如阿平，剧情都得抄她了是不是。
+
+*****
+
+####  暗影翔  
+##### 56912#       发表于 2022-3-22 22:18
+
+这盖楼的速度太快了。真的是好作品没啥讨论，一到党争或者烂桥段/烂片就一堆讨论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bard  
+##### 56913#       发表于 2022-3-22 22:19
+
+看情报，这是从少年漫直接变成搞笑漫。
+
+搞笑漫画角色还讲什么战斗力，这不把凯老师扬了？
+
+*****
+
+####  chenflyyy  
+##### 56914#       发表于 2022-3-22 22:19
+
+本来今天漫区都要打不过pc数码去，多亏wt整一手好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

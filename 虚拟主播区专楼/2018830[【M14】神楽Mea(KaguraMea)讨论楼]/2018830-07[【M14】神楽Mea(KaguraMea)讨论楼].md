@@ -8265,3 +8265,25 @@ vcp这企划已经迷惑到一时间我居然都分不清这到底是谁蹭谁�
 
 油管居然有绯赤的anti在评论区刷屏，真奇妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 9875#       发表于 2022-3-22 22:06
+
+是日本人还是中国人
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  往世雷书  
+##### 9876#       发表于 2022-3-22 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55145832&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-3-22 20:13</a>
+油管居然有绯赤的anti在评论区刷屏，真奇妙</blockquote>
+好事，anti也在努力当事业民
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
