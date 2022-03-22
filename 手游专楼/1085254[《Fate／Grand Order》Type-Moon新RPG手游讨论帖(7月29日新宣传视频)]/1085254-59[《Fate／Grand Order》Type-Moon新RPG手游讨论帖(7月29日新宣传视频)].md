@@ -4137,3 +4137,28 @@ Return我折腾了半天想用新人 不过最后还是拿出了无敌的黑狗<
 你能不能狂阶挂一下水武藏，我要试一下2宝水武藏的伤害，看看未来国服能不能用水武藏爆破。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒我水武藏1宝
 
+
+
+*****
+
+####  alucardcz  
+##### 87365#       发表于 2022-3-22 18:26
+
+<img src="https://img.saraba1st.com/forum/202203/22/182603br29zw6ataytlb61.jpg" referrerpolicy="no-referrer">
+
+<strong>2221.jpg</strong> (409.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 18:26 上传
+
+<img src="https://img.saraba1st.com/forum/202203/22/182607r9jy76vjuv6v9k7d.jpg" referrerpolicy="no-referrer">
+
+<strong>22222.jpg</strong> (381.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 18:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行啊 不过如此  基本就是呆梅 最后换了个狐狸上来加buff一波带走    虽然以前怎么打的我也不记得了
+

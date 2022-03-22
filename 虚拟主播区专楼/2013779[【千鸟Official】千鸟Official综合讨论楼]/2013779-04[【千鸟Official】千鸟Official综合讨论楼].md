@@ -11869,3 +11869,14 @@ co子活啦！co子活啦！
 
 我电台怎么发不了sc啊，没见那个按钮
 
+
+
+*****
+
+####  人民de救星  
+##### 5761#       发表于 2022-3-22 18:07
+
+我说最近怎么只只直播间家乡话浓度高，看样子最近没少陪大思和猫雷私联<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
