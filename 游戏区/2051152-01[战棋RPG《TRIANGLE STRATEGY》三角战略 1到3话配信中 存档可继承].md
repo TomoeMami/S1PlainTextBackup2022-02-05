@@ -12290,3 +12290,15 @@ image.png
 打平可以自选</blockquote>
 原来是主角自己当tie-breaker呀，了解了。谢解答。
 
+
+
+*****
+
+####  henryqxg  
+##### 1097#       发表于 2022-3-22 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55142178&amp;ptid=2051152" target="_blank">ryj 发表于 2022-3-22 15:52</a>
+
+请问具体怎么选....几次都没说服成功</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这你难到我了，一般都是选有理有据的
+

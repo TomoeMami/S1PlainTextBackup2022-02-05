@@ -8104,3 +8104,35 @@ i want be with you
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Dualist彩  
+##### 9856#       发表于 2022-3-22 16:54
+
+这下鸡犬升天了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 9857#       发表于 2022-3-22 16:59
+
+这企划已经落魄到要用海苔男人脉的程度了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onlv星骸  
+##### 9858#       发表于 2022-3-22 16:59
+
+为什么不是苔苔蹭索尼热度
+
+*****
+
+####  pei23333  
+##### 9859#       发表于 2022-3-22 17:00
+
+这vcp企划把苔苔拉到了还行，拉关系是吧，赌一个后面还会有黄兔子联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
