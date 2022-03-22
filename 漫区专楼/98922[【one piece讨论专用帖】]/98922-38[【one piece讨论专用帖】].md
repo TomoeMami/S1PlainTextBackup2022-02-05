@@ -17162,3 +17162,83 @@ wt就是年纪大了吧，用战术上的勤奋（把画面堆满）试图解决
 
 我现在非常害怕空白的一百年是个极其弱智的剧情
 
+
+
+*****
+
+####  Junchoon  
+##### 56967#       发表于 2022-3-23 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147659&amp;ptid=98922" target="_blank">evangelina 发表于 2022-3-22 22:35</a>
+
+其实跟上周不少人猜的差不多吧，就是按这水平估计大秘宝的真相也就是打通变成一大片的某物，不会有太多惊 ...</blockquote>
+有这个说法？官方确认的？
+
+*****
+
+####  风浦可符香(P.N)  
+##### 56968#       发表于 2022-3-23 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147755&amp;ptid=98922" target="_blank">Acatv 发表于 2022-3-22 22:43</a>
+
+又想到了当年看路飞暴揍天龙人的畅快
+
+现在看倒是有点变味了 到底谁才是天选之人 ...</blockquote>
+现在回头看当初那一拳其实是“你也配姓赵？”的意思XD
+
+*****
+
+####  天网  
+##### 56969#       发表于 2022-3-23 01:09
+
+ 本帖最后由 天网 于 2022-3-23 01:19 编辑 
+<blockquote>angelooo 发表于 2022-3-23 00:59
+我现在非常害怕空白的一百年是个极其弱智的剧情</blockquote>
+能止步于海上冒险故事，再弱智也就那回事。应该非常害怕尾田巨巨准备深入探讨一下人类与历史、社会与革命、战争与和平，然后这些都以🇯🇵身上代入为展开！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我也不是故意这样联想，就是看到今天很多人说“日本冲绳传说”，忍不住想到其实和族的太阳神就是天照，尼卡是从琉球土著传说里文化挪用的吧，相当于美国人挪用印第安人文化那样。然后就想到我国也没承认🇯🇵对琉（冲）的主权，就想到…
+
+*****
+
+####  zxc4563982  
+##### 56970#       发表于 2022-3-23 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55149401&amp;ptid=98922" target="_blank">angelooo 发表于 2022-3-23 00:59</a>
+
+我现在非常害怕空白的一百年是个极其弱智的剧情</blockquote>
+“拉普拉斯之盒”
+
+
+
+*****
+
+####  Algie  
+##### 56971#       发表于 2022-3-23 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55149401&amp;ptid=98922" target="_blank">angelooo 发表于 2022-03-23 00:59:16</a>
+我现在非常害怕空白的一百年是个极其弱智的剧情</blockquote>还怕他写复杂了呢，自我感动式的深刻还不如简单纯粹的傻乐
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  拉鲁拉丝  
+##### 56972#       发表于 2022-3-23 01:11
+
+一下三个热搜，我还以为咋了。
+
+—— 来自 samsung SM-T865N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  风浦可符香(P.N)  
+##### 56973#       发表于 2022-3-23 01:15
+
+ 本帖最后由 风浦可符香(P.N) 于 2022-3-23 01:20 编辑 
+
+ https://tieba.baidu.com/p/7739509560?pn=1
+
+带预言家在9L。另外主楼的猜测我觉得挺合理的，而且算蛮符合早期海贼王略荒诞又有趣的风格了。
+
+大意是说也许太阳神果实第一次觉醒（或者延伸一下，比如作为最初的恶魔果实诞生的时候？）把整个世界软化了，之后再硬化，世界被重塑。
+
