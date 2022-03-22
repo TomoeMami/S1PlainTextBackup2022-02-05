@@ -12318,3 +12318,12 @@ image.png
 
 女主是圣母，往那方面选就行
 
+
+
+*****
+
+####  神他妈的开胃菜  
+##### 1099#       发表于 2022-3-22 17:33
+
+一周目hard真结局打完，看了下游戏时间都50小时了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
