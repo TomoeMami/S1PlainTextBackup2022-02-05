@@ -16822,3 +16822,90 @@ jump新老世代代表以这种形式碰在一起了，很难说谁更烂</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总觉得世界线变动过了…这是平行世界的OP吧
 
+
+
+*****
+
+####  adfj  
+##### 56933#       发表于 2022-3-22 23:00
+
+这么多年了终于想起可以开大挂了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+看那个图透怎么着也该是幻兽：喜羊羊果实啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柏露伯德  
+##### 56934#       发表于 2022-3-22 23:03
+
+不是…还有这“五档”是怎么来的？？
+
+敢情路飞在岛上练级时就开出来过？？
+
+*****
+
+####  proselyte  
+##### 56935#       发表于 2022-3-22 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147920&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-3-22 22:57</a>
+确实，两个都是烂活，作品内作品外齐活了</blockquote>
+那边虽然光速滑跪但有些压不住了
+这个……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fault  
+##### 56936#       发表于 2022-3-22 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉萨乌姆  
+##### 56937#       发表于 2022-3-22 23:06
+
+什么时候挂倒档
+
+*****
+
+####  躺平咸鱼在翻身  
+##### 56938#       发表于 2022-3-22 23:11
+
+大长篇，后期烂尾挺正常的，大家早就做好心理准备了。
+但这个设定太土了，我能接受海贼王这么烂，但不能接受海贼王这么土。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zodiac137  
+##### 56939#       发表于 2022-3-22 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147676&amp;ptid=98922" target="_blank">zxc4563982 发表于 2022-3-22 22:36</a>
+
+很遗憾，斩月第一次出场自报家门的时候，告诉一护的就是“友哈巴赫”这个名字，顺便教了一护该怎么用飞镰 ...</blockquote>
+这一看就是后设好吗，人物的名字长度还不是随便设？这个也能成为证据？
+
+不就是98回去看看斩月的黑框长度，然后编一个合适长度的名字，要是黑框底下的名字能去码看清还差不多
+
+这个就和“尼卡是多年伏笔”一样扯淡，尼卡的身份起码还有贴吧老哥真的在这次情报之前猜出来了呢，起码能说是有线索
+
+你说血战篇前有人能猜到斩月是灭却师？
+
+*****
+
+####  海月水母  
+##### 56940#       发表于 2022-3-22 23:19
+
+旧图新看：
+
+<img src="https://img.saraba1st.com/forum/202203/22/231905i4ed3hd3he4hhwhh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 23:19 上传
+

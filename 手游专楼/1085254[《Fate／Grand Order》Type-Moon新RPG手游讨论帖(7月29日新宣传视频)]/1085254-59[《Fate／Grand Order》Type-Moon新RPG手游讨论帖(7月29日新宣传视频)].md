@@ -4356,3 +4356,43 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 明天大概率罗马层数加快，罗马状态带框，血量加倍<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 87383#       发表于 2022-3-22 23:11
+
+突然想起我的高宝蓝卡单体剑是花嫁..寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87384#       发表于 2022-3-22 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55148101&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-3-22 23:11</a>
+
+突然想起我的高宝蓝卡单体剑是花嫁..寄了</blockquote>
+阿荣好早了吧，那时候咸鱼了？
+
+*****
+
+####  eyeego  
+##### 87385#       发表于 2022-3-22 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55148055&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-22 23:08</a>
+明天大概率罗马层数加快，罗马状态带框，血量加倍
+
+突然想到一个奇怪的从者，就是骑龙娘，骑龙娘宝 ...</blockquote>
+每T弱体解除的手办娘<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87386#       发表于 2022-3-22 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55148174&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-3-22 23:16</a>
+
+每T弱体解除的手办娘</blockquote>
+草，都忘记手办娘了，那么手办娘算是最优解之一了
+
