@@ -15983,3 +15983,203 @@ md
  ...</blockquote>
 久保帶人：可我是三本柱中唯一沒改設定的作者<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  7sevenseven  
+##### 56847#       发表于 2022-3-22 21:01
+
+呵
+变就变到底，干脆来个人人果实造物主，路飞随手一招，所有对手被吸过来，打个响指都变成灰
+onepiece，堂堂完结
+
+*****
+
+####  Aoi_  
+##### 56848#       发表于 2022-3-22 21:02
+
+微博上针对血统挂已经吵起来了😂
+
+*****
+
+####  赤魔法师  
+##### 56849#       发表于 2022-3-22 21:07
+
+路飞： 本来我打算以橡胶人的身份与你对战，换来的却是殴打，不装了，我也是幻兽种，我摊牌了。
+
+*****
+
+####  躺平咸鱼在翻身  
+##### 56850#       发表于 2022-3-22 21:07
+
+醒来后的路飞受到了前任尼卡的传功，获得了强大的力量。
+三大古代兵器从远方飞到和之国，路飞发表了关于受压迫的奴隶的相关演讲，决心踏碎世界政府！
+话音刚落，三大古代兵器发生共振，沉睡在海洋、大地、天空的超·远古巨人纷纷苏醒。向着世界政府所在地前进！
+自由的声音已经响起！
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  今天不守尸  
+##### 56851#       发表于 2022-3-22 21:08
+
+我已经看开了
+
+比起那种一两百话剧情就控制不住的，海贼起码让我享受了几百话的优秀篇章
+
+后面烂了的就当不存在好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  7sevenseven  
+##### 56852#       发表于 2022-3-22 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146561&amp;ptid=98922" target="_blank">Aoi_ 发表于 2022-3-22 21:02</a>
+微博上针对血统挂已经吵起来了😂</blockquote>
+我反而希望他是血统论，什么D之一族觉醒
+现在1000多话没多少铺垫改设定，尾田脑子里面想的什么
+
+*****
+
+####  Freemasons  
+##### 56853#       发表于 2022-3-22 21:10
+
+本楼多少年没有这盖楼速度了
+
+*****
+
+####  银翼的维罗西  
+##### 56854#       发表于 2022-3-22 21:13
+
+破案了，罗杰他们说来早了是因为恶魔果实树还没结出太阳神果实，罗杰就把这个秘密告诉了红发，红发才抢了橡胶果实祭献了一只手臂说赌在未来了，等一个五黄是罗杰真儿子，艾斯是替死鬼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cdfjg  
+##### 56855#       发表于 2022-3-22 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146524&amp;ptid=98922" target="_blank">病態極端 发表于 2022-3-22 21:00</a>
+ 久保帶人：可我是三本柱中唯一沒改設定的作者</blockquote>
+一开始也不知道是死神灭却师和虚的三位一体吧
+
+*****
+
+####  klzxs  
+##### 56856#       发表于 2022-3-22 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不喜欢看了二十年的果实变成其他东西可以理解，我也很不喜欢
+
+但事到如今才觉得路飞是那个天选之子 命中注定的人是不是迟了点
+
+一路上遇到的人和物都是这么展示的
+
+我还是想说不用这么急着说死
+
+等完整的图出来可能就不一样了
+
+路飞的果实有隐情是之前就知道了
+
+文字情报的尼卡果实我是觉得只是海军也不知道这东西究竟是什么才用上一任使用者的名字命名的
+
+还有回旋余地
+
+*****
+
+####  是这样  
+##### 56857#       发表于 2022-3-22 21:15
+
+那五皇吃了蓝波球会咋样
+乔巴：我也是人人果实，我不比五皇差
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  hamartia  
+##### 56858#       发表于 2022-3-22 21:16
+
+俩感想:
+
+捡了真橡胶果实的只能混一身粗浅霸气;捡了太阳神果实就是人类救世主，迫真血淋现实
+
+当初艾斯一火苗居然替太阳挡岩浆，不自量力，十分狂妄
+
+顶上那会儿“海贼第一次正剧时挂人”的悲剧感一下子就像煮熟的鸭子，飞走了
+
+*****
+
+####  仟音一心  
+##### 56859#       发表于 2022-3-22 21:17
+
+尼卡Nika的谐音就是2.9
+
+这也算伏笔？
+
+36B9566C-AD35-4C1C-B4AB-D83280B87AAA.jpeg
+(103.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202203/22/211643ds2o5vfzb3omkbz0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bas3721  
+##### 56860#       发表于 2022-3-22 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146140&amp;ptid=98922" target="_blank">rryu 发表于 2022-3-22 20:32</a>
+我记得之前说过卡二的年糕果实是橡胶的上位果实，还是我记错了…
+
+—— 来自 OnePlus GM1910, Android 11上 ...</blockquote>
+性质相似而已
+
+*****
+
+####  7sevenseven  
+##### 56861#       发表于 2022-3-22 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146702&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-22 21:14</a>
+不喜欢看了二十年的果实变成其他东西可以理解，我也很不喜欢
+
+但事到如今才觉得路飞是那个天选之子  ...</blockquote>
+基本不可能的，海贼王情报表达的意思和完整图的意思都差不多
+橡胶果实有隐情，一处福兹弗一处五老星，就这两处，还都是1000往后的剧情，临场这么随意变更最基本设定太傻逼了
+
+*****
+
+####  ArowRocher  
+##### 56862#       发表于 2022-3-22 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146713&amp;ptid=98922" target="_blank">是这样 发表于 2022-3-22 21:15</a>
+那五皇吃了蓝波球会咋样
+乔巴：我也是人人果实，我不比五皇差</blockquote>
+这个乔巴是东南亚的是吧
+
+*****
+
+####  银翼的维罗西  
+##### 56863#       发表于 2022-3-22 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146729&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-22 21:17</a>
+
+尼卡Nika的谐音就是2.9
+
+这也算伏笔？</blockquote>
+因果倒置了，是需要匹配2.9才取了尼卡的名字，反正动物系挂多少台头都不影响最后起名
+
+*****
+
+####  センコウ  
+##### 56864#       发表于 2022-3-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55146700&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-22 21:14</a>
+
+一开始也不知道是死神灭却师和虚的三位一体吧</blockquote>
+至少尸魂界时候死神灭却虚这设定已经牢了
+
