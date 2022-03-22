@@ -12991,3 +12991,20 @@ vta二期不要素人了w, 果然自己也有数一期这纯素人多拉么<img 
 
 玩不转obs也太怪了，vta里又不是没播过也不是不教……上了几个月的课就学了啥啊
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 11676#       发表于 2022-3-22 13:29
+
+这是终于要来当管人了？
+
+<img src="https://img.saraba1st.com/forum/202203/22/132858dizcg9nfuiac3bgi.png" referrerpolicy="no-referrer">
+
+<strong>0%_6GD{8~2%5JT5$[DZLL34.png</strong> (47.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-22 13:28 上传
+
