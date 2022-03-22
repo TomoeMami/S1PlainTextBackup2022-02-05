@@ -17273,3 +17273,91 @@ wt就是年纪大了吧，用战术上的勤奋（把画面堆满）试图解决
 现在回头看当初那一拳其实是“你也配姓赵？”的意思XD</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那倒也不妨碍是爽点，爽文第10086种喜欢的酒店小经理对寒酸客人耍横，没想到客人竟然是竞争对手集团总裁的继承人，略施手段花了三天时间把小经理的酒店搞破产然后收购下来，然后优雅一笑：我只是想体面、从容、优雅地将你个破奴才扫地出门
 
+
+
+*****
+
+####  蔡卓妍  
+##### 56977#       发表于 2022-3-23 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55147991&amp;ptid=98922" target="_blank">柏露伯德 发表于 2022-3-22 23:03</a>
+不是…还有这“五档”是怎么来的？？
+
+敢情路飞在岛上练级时就开出来过？？ ...</blockquote>
+是的、这又是一个bug，都被打死了都不用是吧
+
+*****
+
+####  akstcle  
+##### 56978#       发表于 2022-3-23 01:54
+
+现在看红发当年不是看得起路飞而是因为他吃的那个果实啊，和吃妈巨一样把最初的感动毁的一干二净
+
+*****
+
+####  baizhi  
+##### 56979#       发表于 2022-3-23 02:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">妈的，现在这剧情跟之前我的英雄学院学院莫名其妙觉醒7种个性一样。
+
+呵呵，凯多，想不到吧，橡胶只不过是我路飞其中的一种力量。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  UncleY  
+##### 56980#       发表于 2022-3-23 02:25
+
+真的被气笑了，真没想到居然能烂成这样
+
+*****
+
+####  如梦令  
+##### 56981#       发表于 2022-3-23 02:36
+
+尾田老师是不是对超级赛亚人有执念，之前兔子变身就跟超三似的，这次路飞开尼卡形态从情报图上又变超级赛亚人了
+
+*****
+
+####  baizhi  
+##### 56982#       发表于 2022-3-23 02:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我服了，你开五档那就开嘛，为什么非要把橡胶果实的设定给改了？
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Acatv  
+##### 56983#       发表于 2022-3-23 04:06
+
+太阳神：我将以橡胶形态出击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  evangelina  
+##### 56984#       发表于 2022-3-23 04:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55149418&amp;ptid=98922" target="_blank">Junchoon 发表于 2022-3-23 01:01</a>
+
+有这个说法？官方确认的？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/23/042715h56pur1prfb274pr.jpg" referrerpolicy="no-referrer">
+
+<strong>ba8b0c29a608a01.jpg</strong> (430.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 04:27 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/042713n5daxhxg6hzahq55.jpg" referrerpolicy="no-referrer">
+
+<strong>aQAIoBoG.jpg</strong> (137.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 04:27 上传
+
+前两年的消息了，提到五年完结还要更早点
+
