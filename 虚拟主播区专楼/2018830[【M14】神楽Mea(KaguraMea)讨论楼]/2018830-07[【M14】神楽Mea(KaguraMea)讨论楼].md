@@ -8314,3 +8314,12 @@ vcp这企划已经迷惑到一时间我居然都分不清这到底是谁蹭谁�
 
 这企划的胜负手是还未出现的新人，阿咩拖着走实属吹过头，neet能借机会体验生活就应该感激了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 9880#       发表于 2022-3-22 23:57
+
+我觉得有军训就赚了，没军训就亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
