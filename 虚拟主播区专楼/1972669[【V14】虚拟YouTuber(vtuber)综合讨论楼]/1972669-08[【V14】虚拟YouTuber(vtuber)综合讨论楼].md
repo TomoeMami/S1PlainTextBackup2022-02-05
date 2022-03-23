@@ -13095,3 +13095,30 @@ noah玩太多valo了，要抓紧时间复健了
 
 胡桃のあ，今天也在和黑白头二人valheim。
 
+
+
+*****
+
+####  winda  
+##### 11686#       发表于 2022-3-23 18:09
+
+neoporte第一个新女人开场唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">唱见方向的吧
+
+*****
+
+####  lhawp  
+##### 11687#       发表于 2022-3-23 18:18
+
+「引退」を伝えます。いままでありがとうございました【Ｐ丸様。】
+[https://www.youtube.com/watch?v=Y42yCohdrSc](https://www.youtube.com/watch?v=Y42yCohdrSc)
+
+看到标题差点心脏骤停
+
+*****
+
+####  渡鸦骑士  
+##### 11688#       发表于 2022-3-23 18:20
+
+这位绯月好有亲和力啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+没听到歌
+
