@@ -13177,3 +13177,12 @@ nayuta原s1s2猎杀，ow出身
 
 草刚发现这不是钻2那个，初期猎杀压到钻4给5ptマ？
 
+
+
+*****
+
+####  Suzutsuki  
+##### 11694#       发表于 2022-3-23 20:14
+
+这比赛本来就是配合新人出道，给新人炒热度的，实力怎么会差，倒不如说差了岂不是很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

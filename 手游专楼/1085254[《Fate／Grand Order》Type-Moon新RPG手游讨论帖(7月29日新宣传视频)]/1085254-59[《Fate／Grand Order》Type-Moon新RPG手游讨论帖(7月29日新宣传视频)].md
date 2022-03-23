@@ -4495,3 +4495,15 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 我也想要挂五宝村正的大佬啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得那大佬是潭友
 
+
+
+*****
+
+####  qixinno2  
+##### 87396#       发表于 2022-3-23 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55158994&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-23 19:57</a>
+
+我记得那大佬是潭友</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">能加的我肯定加了 没有就只有大佬看不上我这渣渣不想加我
+
