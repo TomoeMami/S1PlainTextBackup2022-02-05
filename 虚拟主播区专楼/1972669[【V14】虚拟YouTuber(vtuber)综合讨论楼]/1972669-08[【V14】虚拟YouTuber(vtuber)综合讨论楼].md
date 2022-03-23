@@ -13214,3 +13214,22 @@ Syl，安啾这新衣服太顶了
 
 2022-3-23 22:01 上传
 
+
+
+*****
+
+####  winda  
+##### 11697#       发表于 2022-3-23 23:51
+
+hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在算9分
+新人这队通算只有14分，不考虑优先选点的情况下，他算9分一样能组队成功的
+
+*****
+
+####  poipanchao  
+##### 11698#       发表于 2022-3-23 23:52
+
+既然都分数欺诈一个男人了，再欺诈一个女人好不好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+话说最后的那个女人天帝フォルテ，有传言说是春茶
+
