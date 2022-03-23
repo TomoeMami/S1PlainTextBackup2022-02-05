@@ -13249,3 +13249,14 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 其实话说回来一直猜谁是道明寺 其实也没啥意义，毕竟游戏部粉丝肯定都死完了，谁又知道他做直播有没有才能呢，视频势所谓大物转型直播也没啥保证可言。
 
+
+
+*****
+
+####  rzrbtk  
+##### 11701#       发表于 2022-3-24 01:56
+
+郡郡拽meso帮她打原神打了四小时，服了，这哥是真好人啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，听郡郡教比她年长的叔婚活要做什么也微妙的好笑。
+
+郡郡舞元直播的时候就觉得，三十岁叔真不错啊
+

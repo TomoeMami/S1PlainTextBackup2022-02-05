@@ -1341,3 +1341,44 @@ NGA
 
 <img src="https://img.saraba1st.com/forum/202203/23/235519fa77p0ncovk2v33f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  统御之冠  
+##### 57100#       发表于 2022-3-24 01:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">要不整成橡胶猴子吃了人人果实5档是满月觉醒吧
+
+*****
+
+####  hagaren  
+##### 57101#       发表于 2022-3-24 02:15
+
+王路飞以前知不知道自己还有五档这么回事。
+
+如果是被果实夺舍了，原来那帮成员还认他吗
+
+*****
+
+####  fault  
+##### 57102#       发表于 2022-3-24 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55157907&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-3-23 18:36</a>
+
+凯老师真的太绝望了，力战数人一人没锤死，还锤出个神仙
+
+凡人之躯，比肩神明 ...</blockquote>
+好歹是和之国的苍蓝野兽。
+
+就是八卦比不过隔壁八门。
+
+*****
+
+####  baizhi  
+##### 57103#       发表于 2022-3-24 04:32
+
+我感觉尼卡果实就是实质上的多果实了，现在保底橡胶果实+烧烧果实+动物系强大的恢复力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区区黑胡子双果实怎么跟路飞打？还要承受加倍伤害。
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

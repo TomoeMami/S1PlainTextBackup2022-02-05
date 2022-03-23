@@ -4601,3 +4601,14 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 依然是安定3T力大飞砖 奥宝真是把斩杀线提得太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  承尘  
+##### 87404#       发表于 2022-3-24 01:55
+
+653805863求倍卡高宝村正<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

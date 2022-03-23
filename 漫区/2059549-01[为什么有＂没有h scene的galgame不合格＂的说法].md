@@ -811,3 +811,77 @@ galgame一开始就算在有h场景的冒险游戏上加入海量文字，为什
 
 还是喜欢动画那样含蓄点。
 
+
+
+*****
+
+####  alleriawr9  
+##### 74#       发表于 2022-3-24 02:39
+
+<blockquote>银河爆碎 发表于 2022-3-23 16:48
+对，从观众体验上来说，动画、漫画远超过galgame毫无疑问。
+
+只不过动画、漫画很多都是一般向，所以可以h ...</blockquote>
+怎么还有lex那种看不起galgame的。gal就别和动画漫画比，它首先是小说，其次加上了音画提高感染力，要比体裁就直接比日常恋爱轻小说或者推理小说什么的。论证动画漫画体验远超过小说有任何意义吗。
+
+*****
+
+####  fuochai  
+##### 75#       发表于 2022-3-24 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55156610&amp;ptid=2059549" target="_blank">银河爆碎 发表于 2022-3-23 16:48</a>
+
+对，从观众体验上来说，动画、漫画远超过galgame毫无疑问。
+
+只不过动画、漫画很多都是一般向，所以可以h ...</blockquote>
+怎么就毫无疑问了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+代入感和沉浸感肯定galgame强啊
+
+*****
+
+####  dookiee  
+##### 76#       发表于 2022-3-24 03:47
+
+说难听点很多剧本不行的galgame，没了hs那更是没有玩的价值了，很多时候比较喜欢人设还会为了看看hs什么样忍受一下垃圾剧本<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">如果能保证自己的故事像石头门那样有趣的话，大家是不会要求要什么h的
+
+—— 来自 OPPO PBEM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  可惜是个变态  
+##### 77#       发表于 2022-3-24 03:47
+
+没有h那不就是轻小说，轻小说什么风评不用说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Swanfal  
+##### 78#       发表于 2022-3-24 04:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55157670&amp;ptid=2059549" target="_blank">性欲モンスター 发表于 2022-3-23 18:15</a>
+BSD有一个问题是如果原来世界里死的是男猪的话，那酒吧里各种任人玩的AI就是男猪了。
+
+另外巨人在地鸣前叙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">bsd我通关时间太久了，你说的那段我只记得有这一码事，没想起有什么问题
+巨人我个人是觉得马莱篇不看地鸣还行的，不过你说的我也不是不能理解，要这么说的话就到看海吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  lancasterliang  
+##### 79#       发表于 2022-3-24 05:32
+
+看到这讨论我感觉我年轻了二十岁
+
+*****
+
+####  ipcjs  
+##### 80#       发表于 2022-3-24 05:48
+
+这种事情无所谓吧，真有人要用到时候会特意去翻那几张CG？
+Steam不是一堆专用的黄油吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
