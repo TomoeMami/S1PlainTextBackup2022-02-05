@@ -61,3 +61,84 @@
 红发当年被一条鱼咬掉手臂放到现在看不也挺离谱的，毕竟二十多年了，哪能想到今天的剧情 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">都是红发的错
 
+
+
+*****
+
+####  klzxs  
+##### 57008#       发表于 2022-3-23 10:20
+
+就算不是现在这种极其特别的果实
+
+恶魔果实本身就是贵重物品
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不该随便给小孩拿到这点上实际没什么变化
+
+*****
+
+####  jsyyyz  
+##### 57009#       发表于 2022-3-23 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151840&amp;ptid=98922" target="_blank">朗姆酒hentai 发表于 2022-3-23 10:18</a>
+红发当年被一条鱼咬掉手臂放到现在看不也挺离谱的，毕竟二十多年了，哪能想到今天的剧情 ...</blockquote>
+我原来写过个同人文，那个咬断红发的海王类其实是母的，她仰慕红发，觉得路飞抢了她爱的男人，就要报仇，不小心把红发给咬了
+
+*****
+
+####  Cranberries  
+##### 57010#       发表于 2022-3-23 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151810&amp;ptid=98922" target="_blank">kuroro 发表于 2022-3-23 10:16</a>
+不是啊，如果橡胶果实真这么牛逼，红发当年拿到手后怎么随随便便放的连个小孩子都能吃？不合常理啊 ...</blockquote>
+海贼王当初谁知道连载这么多年。
+香克斯当初设定可能就是普通海贼。
+
+*****
+
+####  blueflames001  
+##### 57011#       发表于 2022-3-23 10:23
+
+路飞锁血锁到现在了也没多少人真的在吐槽这点吧，热血男主血厚也很正常啊，现在为了加新能力说是幻兽种，我等着看尾田能从贴吧抄来哪些出乎意料的新能力
+
+*****
+
+####  kuroro  
+##### 57012#       发表于 2022-3-23 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151911&amp;ptid=98922" target="_blank">Cranberries 发表于 2022-3-23 10:22</a>
+
+海贼王当初谁知道连载这么多年。
+
+香克斯当初设定可能就是普通海贼。</blockquote>
+也是，我刚开始看海贼王的时候，以为红发就是个普通的邻家大哥（叔？）式人物，没想到摇身一变成教父了
+
+*****
+
+####  朗姆酒hentai  
+##### 57013#       发表于 2022-3-23 10:25
+
+记得尾田说过海贼王没想过能画这么多年，很多设定都是后加的
+
+*****
+
+####  银翼的维罗西  
+##### 57014#       发表于 2022-3-23 10:29
+
+虎扑都说红发当年带着橡胶果实是去找艾斯的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kirbykelin  
+##### 57015#       发表于 2022-3-23 10:33
+
+主要是新能力不能是仰卧起坐学会的啊，这真的比火影还离谱了。。。都不说和前面的剧情矛盾之类，就这个仰卧起坐速度都实在是没有逻辑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuroro  
+##### 57016#       发表于 2022-3-23 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151995&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-3-23 10:29</a>
+
+虎扑都说红发当年带着橡胶果实是去找艾斯的</blockquote>
+没吧，我记得红发是在顶上的时候才知道艾斯是他前老板的儿子
+
