@@ -163,3 +163,64 @@
 我原来写过个同人文，那个咬断红发的海王类其实是母的，她仰慕红发，觉得路飞抢了她爱的男人，就要报仇， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朗姆酒hentai  
+##### 57019#       发表于 2022-3-23 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有没有可能joyboy就是路飞自己，橡胶果实觉醒只在两个时间节点出现过，一个是八百年前，另一个就是现在路飞，八百年都没人觉醒也太离谱了，路飞说不定利用那个夫人的果实能力穿越时间回到过去解放奴隶，然后拿和之国的那个特殊的钢做成历史正文
+
+*****
+
+####  Eric_方歌阙  
+##### 57020#       发表于 2022-3-23 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152431&amp;ptid=98922" target="_blank">朗姆酒hentai 发表于 2022-3-23 11:01</a>
+
+有没有可能joyboy就是路飞自己，橡胶果实觉醒只在两个时间节点出现过，一个是八百年前，另一个就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话有可能，桃之助就是例子。但是这个展开反而太土了
+
+*****
+
+####  朗姆酒hentai  
+##### 57021#       发表于 2022-3-23 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152537&amp;ptid=98922" target="_blank">Eric_方歌阙 发表于 2022-3-23 11:08</a>
+
+说实话有可能，桃之助就是例子。但是这个展开反而太土了</blockquote>
+确实，这个设定都被玩烂了
+
+*****
+
+####  陶矢  
+##### 57022#       发表于 2022-3-23 11:10
+
+ 本帖最后由 陶矢 于 2022-3-23 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152431&amp;ptid=98922" target="_blank">朗姆酒hentai 发表于 2022-3-23 11:01</a>
+
+有没有可能joyboy就是路飞自己，橡胶果实觉醒只在两个时间节点出现过，一个是八百年前，另一个就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">我刚在另一个帖子也回了类似内容，这个也是我能想到最稳妥的剧情了，不过这个还是比较low N多涉及时间系的作品都是这个设定，放到现在也没啥新鲜。
+
+另外凭路飞的智力也很难设计出这一整套穿越方案，我估计还有个狗头军师的角色
+
+*****
+
+####  朗姆酒hentai  
+##### 57023#       发表于 2022-3-23 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152563&amp;ptid=98922" target="_blank">陶矢 发表于 2022-3-23 11:10</a>
+
+我刚在另一个帖子也回了类似内容，这个也是我能想到最稳妥的剧情了，不过这个还是比较low N多涉及 ...</blockquote>
+尾田之前说海贼王的结局从来没变过，如果是这个结局的话那路飞觉醒应该是一早就想好的，现在看来这个设定出现的太突兀了也不太靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李剡s  
+##### 57024#       发表于 2022-3-23 11:18
+
+<blockquote>ceruleancard 发表于 2022-3-23 10:48
+虽然我很讨厌宿命论，但是一堆人吐槽世界政府我觉得也没道理，首先杀了路飞或者把他关到死也不能掌控果实， ...</blockquote>
+不觉醒也不能给革命军的儿子啊，拿剿灭革命军做借口围剿就可以了啊，路飞团东海出来的那么弱，怎么玩不行啊。关到死掌控不了果实也不一定啊，抢到暗暗果实就能掌控了啊。什么决策啊，根本不合理。
+
