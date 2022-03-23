@@ -702,3 +702,45 @@ FGO 是靠 Fate 系列所建立的世界基础撑着，是利用一个拥有广�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lonelyleaf  
+##### 64#       发表于 2022-3-23 20:48
+
+有很多人加h才会买，剩下的人加不加无所谓，来看故事和妹子，的确，也会有因为有了h就不买的人，但这些人大部分对于这种纯文字游戏本来就没有兴趣，不加h也起不到吸引他们的作用。
+
+一个东西成为常态就会开始有人觉得理所当然，对于背离这种期待的行为加以批判，出现这种言论也没什么奇怪的。
+
+*****
+
+####  银河爆碎  
+##### 65#       发表于 2022-3-23 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55156740&amp;ptid=2059549" target="_blank">ParadiseMartyr 发表于 2022-3-23 16:57</a>
+
+动画漫画你做到galgame故事长度都是超长连载作了，故事很难不被一些场外因素扭曲
+
+galgame作为一次性的成 ...</blockquote>
+现在的观众，看几集动画不合意就直接弃了，并不会有多少人有耐性看长篇大论<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银河爆碎  
+##### 66#       发表于 2022-3-23 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55156815&amp;ptid=2059549" target="_blank">Swanfal 发表于 2022-3-23 17:02</a>
+
+你这个问题问的
+
+因为有人就是喜欢严密的长篇规划布局和一气呵成的体验，而不满足于小体量的连续的 ...</blockquote>
+你当然可以有自己的喜好，但这跟大众喜好未必一致
+
+*****
+
+####  神杀赛利卡  
+##### 67#       发表于 2022-3-23 21:00
+
+galgame一开始就算在有h场景的冒险游戏上加入海量文字，为什么要去讨论没有h场景有没有人去看文字呢？
+

@@ -4507,3 +4507,53 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 我记得那大佬是潭友</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">能加的我肯定加了 没有就只有大佬看不上我这渣渣不想加我
 
+
+
+*****
+
+####  J-002  
+##### 87397#       发表于 2022-3-23 20:51
+
+<img src="https://img.saraba1st.com/forum/202203/23/205026fn7vaavhtyry07lv.bmp" id="aimg_982230" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>]MYWBZJ_TX0YA})R}}_MQAW.bmp</strong> (1.7 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 20:50 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/205025oo4z1tg1jvimtl1x.bmp" id="aimg_982229" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BZO]]%BK2~Z7PC_RL4HWMY6.bmp</strong> (1.56 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 20:50 上传
+
+打完了，等25号的合订本了
+
+<img src="https://img.saraba1st.com/forum/202203/23/205025ao01rz9kjkdbyjo1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220323-204831_FateGO.jpg</strong> (588.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 20:50 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/205027ihl92z1hleh0yqj9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220323-204841_FateGO.jpg</strong> (582.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 20:50 上传
+
+能用的人太少，打的累死
+
+*****
+
+####  rooarr  
+##### 87398#       发表于 2022-3-23 21:06
+
+这种时候要果断亮出码等大佬加啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

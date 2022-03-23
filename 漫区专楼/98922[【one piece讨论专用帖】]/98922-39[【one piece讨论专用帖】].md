@@ -1142,3 +1142,12 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 最新情报出来怎么感觉路飞像是被夺舍了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蹲一个“凯多 快躲开”
 
+
+
+*****
+
+####  cwlo  
+##### 57081#       发表于 2022-3-23 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">详细战斗情报把我笑死了
+
