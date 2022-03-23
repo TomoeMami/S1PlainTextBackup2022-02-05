@@ -4566,3 +4566,19 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 磨了30回合才磨死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87400#       发表于 2022-3-23 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">借了个5宝泳装总司27回合磨过去了 没想到泳装总司性能这么强
+
+*****
+
+####  qixinno2  
+##### 87401#       发表于 2022-3-23 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说有没有强者用超人熊打神祖 感觉宝具的弱体无效和无敌贯通完克神祖啊 就是逆职介太容易暴毙了
+
