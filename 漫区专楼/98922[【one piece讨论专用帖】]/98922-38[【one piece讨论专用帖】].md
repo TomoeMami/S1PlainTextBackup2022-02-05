@@ -17453,3 +17453,38 @@ wt就是年纪大了吧，用战术上的勤奋（把画面堆满）试图解决
 
 后期路飞已经是大罪犯了又逮不到了
 
+
+
+*****
+
+####  saturnus  
+##### 56994#       发表于 2022-3-23 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151036&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-23 09:14</a>
+世界政府自己也半放弃了吧
+
+看文字是原因不明的八百年都拿不到橡胶果实
+
+可能是唯一一次拿到手还让cp护送了也 ...</blockquote>
+正常来说，被3000w悬赏的时候，ZF就应该派cp过来干掉路飞了。反正这种长篇强行改设定和画圆只有越描越黑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 56995#       发表于 2022-3-23 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151036&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-23 09:14</a>
+世界政府自己也半放弃了吧
+
+看文字是原因不明的八百年都拿不到橡胶果实
+
+可能是唯一一次拿到手还让cp护送了也 ...</blockquote>
+早期被悬赏在阿拉巴斯坦的时候直接派CP出场就解决了，结果到了司法岛还是罗宾作用比路飞高。路飞给机会了，世界政府不中用啊。
+
+*****
+
+####  拉稀  
+##### 56996#       发表于 2022-3-23 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶上混战的时候五黄出了多大风头海军又划了多大的水，就海军的悬赏系统就能看出世界政府的情报能力了，真要杀哪里有杀不掉的，图一乐就是了
+
