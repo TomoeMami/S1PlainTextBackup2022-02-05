@@ -13260,3 +13260,14 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 郡郡舞元直播的时候就觉得，三十岁叔真不错啊
 
+
+
+*****
+
+####  真飞鸟i  
+##### 11702#       发表于 2022-3-24 07:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么多人惦记着还游戏部粉丝死完呢，vtb本来就看个情感了，还不允许别人有铭记青春的情怀吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
