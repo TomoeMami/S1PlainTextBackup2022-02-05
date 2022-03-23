@@ -12495,3 +12495,17 @@ image.png
 
 复活饰品 复活魔法之类的使用是不是不影响不死人道具的获得
 
+
+
+*****
+
+####  henryqxg  
+##### 1115#       发表于 2022-3-23 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55156588&amp;ptid=2051152" target="_blank">minysun 发表于 2022-3-23 16:46</a>
+
+三线王妹一条挡箭一条挡枪一条完全没事人，结果下一章讲大舅子的意大利炮计划时都是一脸病容，说实话一周 ...</blockquote>
+共通线剧情一点都不做差异化的确有点怪怪的
+
+可以说是缺乏打磨，赶工痕迹
+
