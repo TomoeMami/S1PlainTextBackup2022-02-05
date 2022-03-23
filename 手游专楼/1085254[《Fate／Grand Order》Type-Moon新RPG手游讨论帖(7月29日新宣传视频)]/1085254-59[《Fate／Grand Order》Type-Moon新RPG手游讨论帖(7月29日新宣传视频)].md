@@ -4408,3 +4408,32 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  alucardcz  
+##### 87388#       发表于 2022-3-23 19:46
+
+<img src="https://img.saraba1st.com/forum/202203/23/194606bt2f992db3q9a0ou.jpg" referrerpolicy="no-referrer">
+
+<strong>1222222222.jpg</strong> (409.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 19:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太简单了 2个版本根本就没区别 也就血多了点
+
+*****
+
+####  alucardcz  
+##### 87389#       发表于 2022-3-23 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55157931&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-3-23 18:39</a>
+
+攻击力变高了，第二条血的减伤幅度体感变高，其他的感觉差别不大
+
+—— 来自 Sony XQ-AT72, Android 11上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这本贞德吊打梅林啊  
+
