@@ -1291,3 +1291,16 @@ image.jpg
 
 <img src="https://img.saraba1st.com/forum/202203/23/230354lbvorg3wgoowcioi.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57096#       发表于 2022-3-23 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55159408&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-23 20:27</a>
+蹲一个“凯多 快躲开”</blockquote>
+快进到烟鬼成为海贼王
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
