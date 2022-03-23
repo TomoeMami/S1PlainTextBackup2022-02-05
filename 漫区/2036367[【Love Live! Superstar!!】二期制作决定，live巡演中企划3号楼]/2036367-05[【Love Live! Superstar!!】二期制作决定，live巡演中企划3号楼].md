@@ -7819,3 +7819,17 @@ Pay子这期的create club节目效果拉满，还唱了《甩葱歌》</blockqu
 【【Liyuu】不同摸法能发出不同的憨憨鲤鱼叫-哔哩哔哩】 https://b23.tv/KgMTBVJ
 这什么怪东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 6593#       发表于 2022-3-23 11:06
+
+【💫表紙初公開💫】
+
+「ラブライブ！スーパースター!! TVアニメオフィシャルブック」は３月30日発売です！
+
+「ラブライブ！スーパースター!!」TVアニメ１期全12話の振り返りや、スタッフ、キャスト、みなさんからのコメントを掲載＆それぞれ想いが詰まったマストバイな1冊です💞
+<img src="https://p.sda1.dev/5/5f20e00bd3dafdae97b13448802e6ade/20220323_110525.jpg" referrerpolicy="no-referrer">
+
