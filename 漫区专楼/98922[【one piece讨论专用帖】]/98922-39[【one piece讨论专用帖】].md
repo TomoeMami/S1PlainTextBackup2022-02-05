@@ -224,3 +224,73 @@
 虽然我很讨厌宿命论，但是一堆人吐槽世界政府我觉得也没道理，首先杀了路飞或者把他关到死也不能掌控果实， ...</blockquote>
 不觉醒也不能给革命军的儿子啊，拿剿灭革命军做借口围剿就可以了啊，路飞团东海出来的那么弱，怎么玩不行啊。关到死掌控不了果实也不一定啊，抢到暗暗果实就能掌控了啊。什么决策啊，根本不合理。
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 57025#       发表于 2022-3-23 11:21
+
+尾田就是硬是要强行设定天选之命，路飞靠超人系橡胶果实觉醒打败凯多有啥不合理的，又没说幻兽种一定天下无敌，不过现在看来幻兽种可能就是尾田心目中的t0果实
+
+*****
+
+####  朗姆酒hentai  
+##### 57026#       发表于 2022-3-23 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152247&amp;ptid=98922" target="_blank">ceruleancard 发表于 2022-3-23 10:48</a>
+
+虽然我很讨厌宿命论，但是一堆人吐槽世界政府我觉得也没道理，首先杀了路飞或者把他关到死也不能掌控果实， ...</blockquote>
+讲道理如果橡胶果实真的很重要可以无视路飞死亡带来的影响，那把路飞关进去杀了还真能拿到果实，果实刷新的设定是能力者死亡后附近的水果变成恶魔果实
+
+*****
+
+####  klzxs  
+##### 57027#       发表于 2022-3-23 11:23
+
+800年没拿到手过实际上也说明800年……也没出过什么事
+
+不是真那么上心也可以理解
+
+就像上面说的 就算已经在和之国了
+
+最开始的目标也依然不是路飞
+
+早期是可能没有现在这设定，但和之国的时候肯定有了
+
+*****
+
+####  ceruleancard  
+##### 57028#       发表于 2022-3-23 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152729&amp;ptid=98922" target="_blank">朗姆酒hentai 发表于 2022-3-23 11:22</a>
+
+讲道理如果橡胶果实真的很重要可以无视路飞死亡带来的影响，那把路飞关进去杀了还真能拿到果实，果实刷新 ...</blockquote>
+这个是才知道的吧，顶上黑胡子玩这一出的时候海军都是震惊脸，不知道五老星知不知道这个方法
+
+*****
+
+####  赤魔法师  
+##### 57029#       发表于 2022-3-23 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+42EA0BDB-45DF-4290-B306-3402AD3AE456.jpeg
+(98.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/113500cezeppljszpe2azf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  朗姆酒hentai  
+##### 57030#       发表于 2022-3-23 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152757&amp;ptid=98922" target="_blank">ceruleancard 发表于 2022-3-23 11:24</a>
+
+这个是才知道的吧，顶上黑胡子玩这一出的时候海军都是震惊脸，不知道五老星知不知道这个方法 ...</blockquote>
+这个应该知道吧，贝加庞克人造果实都研究出来了。黑胡子吸收果实的能力按现在的推理和他本人身体构造有问题，果实只是个媒介
+
