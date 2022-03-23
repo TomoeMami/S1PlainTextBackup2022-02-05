@@ -4396,3 +4396,15 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 每T弱体解除的手办娘</blockquote>
 草，都忘记手办娘了，那么手办娘算是最优解之一了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87387#       发表于 2022-3-23 18:39
+
+<img src="https://p.sda1.dev/5/60ac3c3d5b6e444190e3f74f3ffd75f2/IMG_CMP_250331395.png" referrerpolicy="no-referrer">
+攻击力变高了，第二条血的减伤幅度体感变高，其他的感觉差别不大
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
