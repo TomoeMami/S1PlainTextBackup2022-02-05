@@ -1151,3 +1151,65 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">详细战斗情报把我笑死了
 
+
+
+*****
+
+####  绝赞販売中  
+##### 57082#       发表于 2022-3-23 21:01
+
+堪十郎居然在火前坊身上，仰卧起坐到大妈退场他居然跑过来把大蛇烧了.尾田真是不行了吗，这剧情到底在干嘛呢
+
+*****
+
+####  7sevenseven  
+##### 57083#       发表于 2022-3-23 21:03
+
+太俗套了
+
+*****
+
+####  rsgdn  
+##### 57084#       发表于 2022-3-23 21:06
+
+海贼不也可以是搞笑漫，什么果实能力不如黄金周的一根毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  肉搏光头  
+##### 57085#       发表于 2022-3-23 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55155223&amp;ptid=98922" target="_blank">李剡s 发表于 2022-3-23 15:02</a>
+
+凯多才是真男儿，啥挂没有愣是压制全身各种挂知道各种内幕的赤发几十年</blockquote>
+没有挂却压制了挂,本身就是开了最大的挂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  7sevenseven  
+##### 57086#       发表于 2022-3-23 21:09
+
+ 本帖最后由 7sevenseven 于 2022-3-23 21:11 编辑 
+
+搞笑漫X
+可笑漫✓
+
+*****
+
+####  angelooo  
+##### 57087#       发表于 2022-3-23 21:17
+
+<blockquote>绝赞販売中 发表于 2022-3-23 21:01
+堪十郎居然在火前坊身上，仰卧起坐到大妈退场他居然跑过来把大蛇烧了.尾田真是不行了吗，这剧情到底在干嘛 ...</blockquote>
+黑炭家两个精神病抱着一起死不是挺合适，我就怕这样了他俩还不死，精神崩溃了要
+
+*****
+
+####  黑岩泪香  
+##### 57088#       发表于 2022-3-23 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55153648&amp;ptid=98922" target="_blank">BUFDS5 发表于 2022-3-23 12:33</a>
+
+有没有一种可能，wt觉得不加补丁没得打，翻旧剧情的时候觉得这地方以前我没想法但是现在我可以瞎扯点东西还 ...</blockquote>
+不能，这个情况只允许存在于某些海贼粉丝口中的”其它漫画“，海贼王是断然不可能出现的。
+
