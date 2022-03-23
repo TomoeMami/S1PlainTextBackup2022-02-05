@@ -317,3 +317,15 @@ WT：我是一开始就说了路飞会成为海贼王，但我没说过程不变
 
 当初红发赶到时，路飞已经被海王类咬成重伤了。红发本想着捡回条尸体把路飞从海王口中挖出来，谁知道刚出来路飞就觉醒暴走把红发的一只手撕掉，之后才恢复冷静。那只海王类只是在旁边看着他们装逼而已。最后红发瞪一眼是，你丫的看完戏还不走。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BUFDS5  
+##### 57033#       发表于 2022-3-23 12:33
+
+有没有一种可能，wt觉得不加补丁没得打，翻旧剧情的时候觉得这地方以前我没想法但是现在我可以瞎扯点东西还能被他们以为是伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+或者上论坛发现“原来我这还是个伏笔”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
