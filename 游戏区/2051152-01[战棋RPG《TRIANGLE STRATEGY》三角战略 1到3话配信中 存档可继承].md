@@ -12327,3 +12327,14 @@ image.png
 
 一周目hard真结局打完，看了下游戏时间都50小时了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Niyah  
+##### 1100#       发表于 2022-3-23 11:54
+
+ 本帖最后由 Niyah 于 2022-3-23 11:56 编辑 
+
+女主安娜鹰弓真是大爹，普通难度炸桥那关人均落后3级管家12级，本来只想刷刷经验连弓仙都贴脸打aoe了。结果其他人基本2轮躺的情况下竟然硬是过了
+
