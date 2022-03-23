@@ -1264,3 +1264,12 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 
 看有人说这果实再反转一次可以是变相怪杰（洛基）果实，既然大秘宝跟笑话有关那我五皇其实是喜剧之神也不突兀吧，甚至金凯瑞电影里的面具看着还挺像塑胶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天使的日曜日  
+##### 57094#       发表于 2022-3-23 22:59
+
+凯多还在原本的海贼世界观中，而路飞已然成为搞笑漫画的角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
