@@ -13186,3 +13186,12 @@ nayuta原s1s2猎杀，ow出身
 
 这比赛本来就是配合新人出道，给新人炒热度的，实力怎么会差，倒不如说差了岂不是很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwera3469  
+##### 11695#       发表于 2022-3-23 21:31
+
+上一个第一赛季猎杀的ow职业哥おばくん给8分都被说分数欺诈，这真的不会被炎上？哈弟还自己担保说没分数欺诈
+

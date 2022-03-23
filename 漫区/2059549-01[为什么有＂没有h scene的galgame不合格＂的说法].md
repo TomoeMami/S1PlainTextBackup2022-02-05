@@ -753,3 +753,12 @@ galgame一开始就算在有h场景的冒险游戏上加入海量文字，为什
 
 这……没有hs的不是文字冒险游戏吗，大作那么多，干嘛非要分类到galgame里面
 
+
+
+*****
+
+####  林然若水  
+##### 69#       发表于 2022-3-23 21:43
+
+我可以不撸，你不能没有<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
