@@ -888,3 +888,47 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 
 虽然尾田现在有问题，但还是胜过火影几层的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  先手必胜  
+##### 57059#       发表于 2022-3-23 15:42
+
+两年后这逼德行是怎么好意思说升过火影几层的，就和之国都比火影最烂的篇章还要烂，更别提大家都捏把汗的最终篇章了
+
+*****
+
+####  evangelina  
+##### 57060#       发表于 2022-3-23 15:55
+
+ 本帖最后由 evangelina 于 2022-3-23 15:57 编辑 
+<blockquote>白金口袋 发表于 2022-3-23 15:11
+这我就要吹一波鸟大师踩WT了
+
+龙珠悟空可以说是JUMP最著名的血统怪，克林之死变超赛的经典桥段掀起了风靡全 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/23/155657oc7f4zo7sfffrlke.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>210C20BC-7968-415E-B856-89D3DCDAC4C9.jpeg</strong> (455.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 15:56 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/155701s9ifntnt4p6qbhxh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FA66DAF5-78B7-4DF8-84FA-BFEBEB028C2F.jpeg</strong> (416.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 15:57 上传
+
+关于悟空可能是外星人这事，作者可能没多想，但要说有没有铺垫那还真有。
+
+第一次变大猩猩又断尾后，乌龙就说过悟空该不会是外星人吧。然后小悟空濒死和击穿老比克时背景里浮现的也都是巨猿，暗示悟空的力量确实跟这个巨猿有关。
+
+直到赛亚人篇亲哥到来大家都懂的剧情
+
+还有真的很建议开一帖，感觉你这段把OP现在决战的节奏和伏笔问题说的很透彻了
+
