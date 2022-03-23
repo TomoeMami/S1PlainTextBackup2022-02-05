@@ -691,3 +691,14 @@ FGO 是靠 Fate 系列所建立的世界基础撑着，是利用一个拥有广�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">上一个想学fate做手游的那个叫di，然后就没有然后了
 
+
+
+*****
+
+####  meailove  
+##### 63#       发表于 2022-3-23 20:43
+
+因为很多gal没有h就没有玩的意义了，自己剧本什么水平，粉丝喜欢看什么，大部分公司还是明白的。比如你说那柚子做全年龄能做吗？没那个能力知道吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1123,3 +1123,22 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 
 橡胶身体不变，附加更强的神灵之力？
 
+
+
+*****
+
+####  gs2-d2up  
+##### 57079#       发表于 2022-3-23 20:21
+
+最新情报出来怎么感觉路飞像是被夺舍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  和真克瓦尔  
+##### 57080#       发表于 2022-3-23 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55159312&amp;ptid=98922" target="_blank">gs2-d2up 发表于 2022-3-23 20:21</a>
+
+最新情报出来怎么感觉路飞像是被夺舍了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蹲一个“凯多 快躲开”
+
