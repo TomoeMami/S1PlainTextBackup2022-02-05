@@ -452,3 +452,66 @@ WT：我是一开始就说了路飞会成为海贼王，但我没说过程不变
 
 王路飞：你这只不过是岩浆，我这可是能烧尽岩浆的太阳，我和你的果实是上下位关系<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SteinLee  
+##### 57046#       发表于 2022-3-23 14:27
+
+还记得Queen说正常人类能着火么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">，山治老豆估计是在和贝加朋克做同事的时候一起研究过橡胶果实，提取其中的血统因子给了自己的孩子，标志性的卷眉毛还有火焰能力
+
+<img src="https://img.saraba1st.com/forum/202203/23/142137orwnrqrw9nnry67v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (174.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/142215r5knnrnxnyn24nh4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-23 14:22 上传
+
+*****
+
+####  我不是大叔  
+##### 57047#       发表于 2022-3-23 14:29
+
+这话出了我把搁着的一块看了吧，这设定倒燃起了我一些兴趣
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  arthes  
+##### 57048#       发表于 2022-3-23 14:29
+
+有没有可能觉醒的果实能号召海王类
+路飞发动海鸣号召海皇类去摧毁世界政府
+顺便穿越时间操控了当年那只海王类去咬断了红发的手
+最后海贼和海军联手打败路飞
+结束之后黑胡子到达onepiece ，发现只是一个800年前的公约，当人类踏上大航海时代之后，世界政府的要职应当由出海的人担任云云
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rt7539515  
+##### 57049#       发表于 2022-3-23 14:30
+
+我算是能体会到某些作品粉丝的心情了，感觉十几年追了坨屎
+
+*****
+
+####  天下至贱  
+##### 57050#       发表于 2022-3-23 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55154810&amp;ptid=98922" target="_blank">SteinLee 发表于 2022-3-23 14:27</a>
+还记得Queen说正常人类能着火么，山治老豆估计是在和贝加朋克做同事的时候一起研究过橡胶果实，提取 ...</blockquote>
+好家伙，还玩伦理哏的。
+

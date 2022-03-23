@@ -12352,3 +12352,17 @@ image.png
 
 我到15章已经32小时了，通关估计也要40+
 
+
+
+*****
+
+####  牧月萌  
+##### 1102#       发表于 2022-3-23 14:43
+
+一周目打完，最后的三选一简直了
+女主的想法我倒还能理解，王子你根本就是巨魔吧<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+要不是为了走全路线，我真想把这人从大桥上扔下去<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
+

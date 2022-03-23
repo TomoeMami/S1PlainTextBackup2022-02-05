@@ -7833,3 +7833,19 @@ Pay子这期的create club节目效果拉满，还唱了《甩葱歌》</blockqu
 「ラブライブ！スーパースター!!」TVアニメ１期全12話の振り返りや、スタッフ、キャスト、みなさんからのコメントを掲載＆それぞれ想いが詰まったマストバイな1冊です💞
 <img src="https://p.sda1.dev/5/5f20e00bd3dafdae97b13448802e6ade/20220323_110525.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 6594#       发表于 2022-3-23 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55093838&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-3-18 16:37</a>
+
+为什么齐藤朱夏的《裸足》能买那么多，咻推跟我说说
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next- ...</blockquote>
+水动画效应是很强的（缪的时候没那么强调中之人），可以说是2.5次元企划的巅峰，那段时间其实全方位的数据都能反映这点（包括咻和梨的出道专销量都是1W5以上）。路人买账多的反而是frrn那本，因为frrn在摄影杂志专栏常驻了很久。
+
+和拍的好不好关系倒没那么大，拍的稀烂的几本也有7000+销量了，纯厨力。
+
