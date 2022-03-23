@@ -965,3 +965,23 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 
 尾田的最大问题问题是精力和限定五年内完结吧 结果还搞那么多无聊人物篇幅无趣刹不住<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57064#       发表于 2022-3-23 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55155329&amp;ptid=98922" target="_blank">白金口袋 发表于 2022-3-23 15:11</a>
+这我就要吹一波鸟大师踩WT了
+
+龙珠悟空可以说是JUMP最著名的血统怪，克林之死变超赛的经典桥段掀起了风靡全 ...</blockquote>
+凯多要真把小玉杀了，大妈第一个给凯多捅刀<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cdfjg  
+##### 57065#       发表于 2022-3-23 16:50
+
+是CP0小队长！是他的铁块让路飞觉醒，太伟大了
+
