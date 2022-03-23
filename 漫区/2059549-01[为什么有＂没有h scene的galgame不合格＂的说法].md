@@ -885,3 +885,12 @@ Steam不是一堆专用的黄油吗<img src="https://static.saraba1st.com/image/
 
 — from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  zhouwanpeng123  
+##### 81#       发表于 2022-3-24 06:40
+
+8800日元，500RMB，一个全价galgame也就两周就玩完，除了极个别的譬如a社e社双尾软屋剩下的都是往架子上一扔再不打开的状态，你要是没有hs，谁买啊？那钱难道是大风刮来的？
+
