@@ -294,3 +294,26 @@
 这个是才知道的吧，顶上黑胡子玩这一出的时候海军都是震惊脸，不知道五老星知不知道这个方法 ...</blockquote>
 这个应该知道吧，贝加庞克人造果实都研究出来了。黑胡子吸收果实的能力按现在的推理和他本人身体构造有问题，果实只是个媒介
 
+
+
+*****
+
+####  触手皇帝  
+##### 57031#       发表于 2022-3-23 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55152625&amp;ptid=98922" target="_blank">朗姆酒hentai 发表于 2022-3-23 11:14</a>
+
+尾田之前说海贼王的结局从来没变过，如果是这个结局的话那路飞觉醒应该是一早就想好的，现在看来这个设定 ...</blockquote>
+WT：我是一开始就说了路飞会成为海贼王，但我没说过程不变啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  youjh  
+##### 57032#       发表于 2022-3-23 12:15
+
+这下倒是可以圆红发断手了。
+
+比如说：
+
+当初红发赶到时，路飞已经被海王类咬成重伤了。红发本想着捡回条尸体把路飞从海王口中挖出来，谁知道刚出来路飞就觉醒暴走把红发的一只手撕掉，之后才恢复冷静。那只海王类只是在旁边看着他们装逼而已。最后红发瞪一眼是，你丫的看完戏还不走。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
