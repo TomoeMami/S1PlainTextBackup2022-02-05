@@ -439,3 +439,16 @@ WT：我是一开始就说了路飞会成为海贼王，但我没说过程不变
 
 主要是尼卡这玩意是啥也太抽象了
 
+
+
+*****
+
+####  qzfjnv  
+##### 57045#       发表于 2022-3-23 14:12
+
+感觉最终战会出现这样一幕
+
+王路飞和赤犬对拳，赤犬全身着火满地打滚<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+王路飞：你这只不过是岩浆，我这可是能烧尽岩浆的太阳，我和你的果实是上下位关系<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
