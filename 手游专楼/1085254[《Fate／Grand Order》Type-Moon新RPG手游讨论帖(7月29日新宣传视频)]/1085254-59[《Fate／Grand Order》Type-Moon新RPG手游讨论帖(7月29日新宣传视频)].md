@@ -4582,3 +4582,22 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说有没有强者用超人熊打神祖 感觉宝具的弱体无效和无敌贯通完克神祖啊 就是逆职介太容易暴毙了
 
+
+
+*****
+
+####  khxooo  
+##### 87402#       发表于 2022-3-23 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55160546&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-23 21:53</a>
+
+话说有没有强者用超人熊打神祖 感觉宝具的弱体无效和无敌贯通完克神祖啊 就是逆职介太容易暴毙了 ...</blockquote>
+超人熊别想了，第二条血有减伤，等效伤害怕不是要直达400W.
+
+*****
+
+####  eyeego  
+##### 87403#       发表于 2022-3-23 22:18
+
+依然是安定3T力大飞砖 奥宝真是把斩杀线提得太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

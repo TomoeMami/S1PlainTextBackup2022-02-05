@@ -1234,3 +1234,22 @@ WT这三点可以说是全揉在一起且瞬间全部搞砸了，俗话说编筐
 
 看了情报，我觉得本周还是御田ptsd最难受
 
+
+
+*****
+
+####  今天不守尸  
+##### 57091#       发表于 2022-3-23 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55159408&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-23 20:27</a>
+
+蹲一个“凯多 快躲开”</blockquote>
+不是应该“凯多，快杀了我，拜托了”？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朗姆酒hentai  
+##### 57092#       发表于 2022-3-23 22:12
+
+凯多被从头揍到尾，还要路飞觉醒才能结束战斗
+
