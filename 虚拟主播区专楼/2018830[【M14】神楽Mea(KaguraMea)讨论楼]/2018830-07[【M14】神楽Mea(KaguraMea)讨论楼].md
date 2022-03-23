@@ -8323,3 +8323,14 @@ vcp这企划已经迷惑到一时间我居然都分不清这到底是谁蹭谁�
 
 我觉得有军训就赚了，没军训就亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 9881#       发表于 2022-3-23 08:09
+
+一年是从去年12月开始算还是从新人到位开始算
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
