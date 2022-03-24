@@ -7878,3 +7878,15 @@ Pay子这期的create club节目效果拉满，还唱了《甩葱歌》</blockqu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也能掉眼泪
 
+
+
+*****
+
+####  lj205  
+##### 6598#       发表于 2022-3-24 19:47
+
+星团的人都好温柔，谢谢大家<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+但是鲤鱼哭的时候，我的反应跟nagi一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+话说看鲤鱼抓刀切肉的方式，感觉她没怎么拿过菜刀…………<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

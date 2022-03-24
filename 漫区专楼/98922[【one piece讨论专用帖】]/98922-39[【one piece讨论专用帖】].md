@@ -2022,3 +2022,40 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 可惜海贼王还有好几年好好扩充故事且不会像巨人烂得那么惊人，看不到知乎乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gg326  
+##### 57158#       发表于 2022-3-24 19:45
+
+龙形态凯多就像条泥鳅一样被一把捉了回去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  承尘  
+##### 57159#       发表于 2022-3-24 19:48
+
+其实我觉得新形态比四档好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  アルメリア  
+##### 57160#       发表于 2022-3-24 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55171852&amp;ptid=98922" target="_blank">承尘 发表于 2022-3-24 19:48</a>
+
+其实我觉得新形态比四档好看多了
+
+—— 来自 OPPO PCLM10, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四档丑破天际 真的存在比四档更丑的吗
+
+*****
+
+####  hkguty  
+##### 57161#       发表于 2022-3-24 20:00
+
+确实···四档真是太TM丑了
+

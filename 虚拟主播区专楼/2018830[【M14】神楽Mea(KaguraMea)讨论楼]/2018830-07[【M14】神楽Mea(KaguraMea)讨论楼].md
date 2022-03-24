@@ -8633,3 +8633,14 @@ y1s1，还是有两个搞笑艺人出力的。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ashero  
+##### 9912#       发表于 2022-3-24 19:53
+
+说白了现状就是她想要的 饿不死有点名有事情做但是又不用完全被企业管到死
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
