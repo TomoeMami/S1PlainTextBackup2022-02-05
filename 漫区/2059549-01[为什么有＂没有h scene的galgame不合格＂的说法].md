@@ -1134,3 +1134,55 @@ gal玩家和全年龄玩家根本是两个圈子，做全年龄的确能扩大�
 gal玩家和全年龄玩家根本是两个圈子，做全年龄的确能扩大受众，但是扩大出来的受众到底能不能接受gal是另一 ...</blockquote>
 我觉得GAL因为没有动画漫画那么活灵活现，除了剧本外，CV的演出水平也很重要。
 
+
+
+*****
+
+####  诚司  
+##### 103#       发表于 2022-3-24 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165249&amp;ptid=2059549" target="_blank">Swanfal 发表于 2022-3-24 11:01</a>
+
+科学adv 打越 07 
+
+这几个我感觉都挺刺激的啊，虽然不知道是不是你理解中的刺激性</blockquote>
+07这种异类就算了，一共也没几个
+
+5pb不过是这圈子里从kid开始就扩受众，然后把kid扩死的例子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ahoge2004  
+##### 104#       发表于 2022-3-24 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165228&amp;ptid=2059549" target="_blank">kuluwu 发表于 2022-3-24 10:59</a>
+不能这么说吧，难道这些老粉粉的是h scene</blockquote>
+h sence 很多情况下确实是可有可无的，但可有可无做上又怎么样呢，不想看就c呗。
+但黄油公司不做hs的原因是什么呢？
+成本原因是一方面但肯定不关键，多几张插画几段语音
+原因只有一个，扩大受众
+失败了就暴死gg，成功了就招来一堆什么什么是人生，遗老们懂个p
+以前的逸站内容，比现在的s1刺激多了
+
+*****
+
+####  Swanfal  
+##### 105#       发表于 2022-3-24 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165414&amp;ptid=2059549" target="_blank">诚司 发表于 2022-3-24 11:11</a>
+07这种异类就算了，一共也没几个
+
+5pb不过是这圈子里从kid开始就扩受众，然后把kid扩死的例子啊 ...</blockquote>
+好像也是，那科A算是玩崩以后浪子回头么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  呆呆兽二号  
+##### 106#       发表于 2022-3-24 11:21
+
+所以我不懂为啥很多CV不配GAL呢，又不是黄油。GAL多考验演出啊。
+
+GAL说穿了就是有大尺度的电影么，很多名角不也照样演。
+
