@@ -1281,3 +1281,15 @@ fsn的H没有声音是一个历史遗留问题。
 
 所以型月不是宁愿留白，而是从有配音的那一刻起FSN就已经是全年龄游戏了
 
+
+
+*****
+
+####  呆呆兽二号  
+##### 114#       发表于 2022-3-24 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166391&amp;ptid=2059549" target="_blank">ahoge2004 发表于 2022-3-24 12:20</a>
+
+会被冲</blockquote>
+NABA有被冲么，反而成了她最著名角色之一吧。
+

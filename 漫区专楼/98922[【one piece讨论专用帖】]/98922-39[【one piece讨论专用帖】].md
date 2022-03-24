@@ -1472,3 +1472,30 @@ joyboy其实也是标准的trickster形象，和洛基、变相怪杰是同一�
 不能说鸟山明就是个画漫画的不懂龙珠吧，但是很多年前同人漫龙珠多元宇宙的作者拜访老鸟的时候，老鸟自己 ...</blockquote>
 应该是老鸟记不住桃白白吧，这特么两大主角合体的贝吉特都记不住，干脆说老鸟记不住孙悟空是谁算了233
 
+
+
+*****
+
+####  仟音一心  
+##### 57112#       发表于 2022-3-24 12:37
+
+凯老师也太惨了吧
+
+3546AC8A-EAE6-4F8D-828A-61B5A3ADDC3C.jpeg
+(393.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 12:37 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/123741iv2p6ntpsy98bysy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+99C12205-F301-4413-A737-03D44AB815F7.jpeg
+(401.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 12:37 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/123741ala2gav1x2tl21t2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
