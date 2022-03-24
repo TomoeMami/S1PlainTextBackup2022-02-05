@@ -8577,3 +8577,21 @@ y1s1，还是有两个搞笑艺人出力的。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  呓亘  
+##### 9906#       发表于 2022-3-24 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165015&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-3-24 10:46</a>
+ 别做梦了，她再也不会变回整活v了。我之前以为vtuber们都是一个风格走到头，看到她我明白了半途转型是真 ...</blockquote>
+真的可行吗……她恩唱歌都唱跑多少粉丝了……404的涨粉不还是靠联动整活
+
+*****
+
+####  路人庚  
+##### 9907#       发表于 2022-3-24 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不爱听歌就别听罢，不需要总是把“唱歌唱走多少粉丝”挂嘴上，你咩姐404同接又没大幅下降，你急个啥
+
