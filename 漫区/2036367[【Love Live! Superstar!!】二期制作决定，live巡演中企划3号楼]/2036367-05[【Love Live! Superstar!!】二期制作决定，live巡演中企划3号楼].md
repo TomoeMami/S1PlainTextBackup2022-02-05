@@ -8000,3 +8000,12 @@ F3AC1D48-6849-4346-A87F-36CBF98DDE1F.jpeg
 
 大只而纤细的鲤鱼，小百合的应变太强了。
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6606#       发表于 2022-3-24 23:18
+
+这种团队战自己拖后腿而且还是差点拉崩确实挺难受的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">反正我从来不和大家玩这种团队战换奖励的游戏，一旦拉大胯就太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

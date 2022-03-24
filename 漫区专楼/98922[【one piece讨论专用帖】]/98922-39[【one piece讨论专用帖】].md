@@ -2237,3 +2237,19 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 没感觉哪里烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sfqjsml  
+##### 57179#       发表于 2022-3-24 23:01
+
+其实观感还行，但是五老星补设定实在太lowb了，新设定带来的问题比解决的更多，看尾田后续怎么画吧
+
+*****
+
+####  韶华白首  
+##### 57180#       发表于 2022-3-24 23:18
+
+路飞五档这谐的不行，史上最高<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
