@@ -1419,3 +1419,44 @@ NGA
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 57107#       发表于 2022-3-24 11:42
+
+这几天这楼的回贴数比大半年都多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 57108#       发表于 2022-3-24 11:56
+
+<blockquote>仟音一心 发表于 2022-3-24 11:42
+这几天这楼的回贴数比大半年都多</blockquote>
+说明有多少人没在追漫画了
+
+*****
+
+####  真红眼教授  
+##### 57109#       发表于 2022-3-24 11:58
+
+<blockquote>evangelina 发表于 2022-3-23 22:36
+看有人说这果实再反转一次可以是变相怪杰（洛基）果实
+
+既然大秘宝跟笑话有关那我五皇其实是恶作剧之神也不 ...</blockquote>
+joyboy其实也是标准的trickster形象，和洛基、变相怪杰是同一属性的人物
+
+*****
+
+####  死神狙击手  
+##### 57110#       发表于 2022-3-24 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55161621&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-23 23:40</a>
+
+快进到烟鬼成为海贼王
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+烟鬼是魔界之王
+

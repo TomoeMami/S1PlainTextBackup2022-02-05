@@ -13304,3 +13304,13 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 好歹是新箱，这个数字不错了，跟vspo差不多吧
 虹女debuff那也是虹，跟第三箱有断层差距
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11706#       发表于 2022-3-24 11:57
+
+古早MAD感suki。
+[https://www.bilibili.com/video/BV1d44y1P7hi](https://www.bilibili.com/video/BV1d44y1P7hi)
+
