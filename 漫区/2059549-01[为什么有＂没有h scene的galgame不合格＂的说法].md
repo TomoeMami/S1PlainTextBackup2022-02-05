@@ -1302,3 +1302,41 @@ NABA有被冲么，反而成了她最著名角色之一吧。
 
 没有黄色的gal对我来说就是avg
 
+
+
+*****
+
+####  ahoge2004  
+##### 116#       发表于 2022-3-24 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166485&amp;ptid=2059549" target="_blank">呆呆兽二号 发表于 2022-3-24 12:27</a>
+
+NABA有被冲么，反而成了她最著名角色之一吧。</blockquote>
+那是什么年代？她开始配嘎喽给的时候你都不一定出生
+
+泥潭最爱女声优要是说明天配r18铁被冲，好理解吧
+
+*****
+
+####  发财就手  
+##### 117#       发表于 2022-3-24 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166485&amp;ptid=2059549" target="_blank">呆呆兽二号 发表于 2022-3-24 12:27</a>
+
+NABA有被冲么，反而成了她最著名角色之一吧。</blockquote>
+你指生天目仁美吗，她本来就是两栖声优不在乎
+
+*****
+
+####  赤星ビスコ  
+##### 118#       发表于 2022-3-24 13:32
+
+与其去和其他主机游戏竞争，不如讨好哪些愿意花全价买带h的galgame的那些人
+
+*****
+
+####  minamichisei  
+##### 119#       发表于 2022-3-24 13:41
+
+某种意义上说，有hs才能完整地描绘女角色，简单的一个有无，给人的感觉差异是巨大的，就如同再缜密的推理也不如一个能直接锤定犯罪行为的证据一样<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

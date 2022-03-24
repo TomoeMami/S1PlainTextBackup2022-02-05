@@ -1607,3 +1607,31 @@ CADF4DFE-24B3-411C-9710-DF17861390C2.jpeg
 
 nga怎么尾田神教纯度那么高啊
 
+
+
+*****
+
+####  届得到  
+##### 57124#       发表于 2022-3-24 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55154295&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-3-23 13:30</a>
+
+其实倒回去数离谱的事情太多而且很早就开始了
+
+命中注定——草帽最早是罗杰的,而所有人都当没见过这顶草帽
+
+ ...</blockquote>
+山治在老沙篇化名就是MR王子
+
+*****
+
+####  届得到  
+##### 57125#       发表于 2022-3-24 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55155517&amp;ptid=98922" target="_blank">kuroro 发表于 2022-3-23 15:26</a>
+
+楼上的分析很到位啊，海贼的最巅峰的确是顶上，而后一去不复返了</blockquote>
+海贼巅峰我觉得是空岛和七水之都梅丽救场，那种冒险的浪漫真的能冲击到心灵
+
+现在的乡土爱篇一对比什么玩意
+
