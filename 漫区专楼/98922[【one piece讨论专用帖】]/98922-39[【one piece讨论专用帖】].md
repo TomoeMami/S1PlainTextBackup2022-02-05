@@ -1731,3 +1731,55 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 如果说太阳神只是命名，而果实能力依然是橡胶，觉醒后并非轻松的击败凯多，这样风评可救嘛？
 
+
+
+*****
+
+####  klzxs  
+##### 57135#       发表于 2022-3-24 15:24
+
+路飞本人的变化很明显，但至少目前来说还只是橡胶的强化
+
+*****
+
+####  7sevenseven  
+##### 57136#       发表于 2022-3-24 15:27
+
+ 本帖最后由 7sevenseven 于 2022-3-24 15:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168417&amp;ptid=98922" target="_blank">少年包工头 发表于 2022-3-24 15:18</a>
+
+如果说太阳神只是命名，而果实能力依然是橡胶，觉醒后并非轻松的击败凯多，这样风评可救嘛？ ...</blockquote>
+尾田绕这么一大圈子干啥
+
+*****
+
+####  仟音一心  
+##### 57137#       发表于 2022-3-24 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168417&amp;ptid=98922" target="_blank">少年包工头 发表于 2022-3-24 15:18</a>
+如果说太阳神只是命名，而果实能力依然是橡胶，觉醒后并非轻松的击败凯多，这样风评可救嘛？ ...</blockquote>
+那就不该给果实改名，哪怕说上一个用橡胶果实觉醒的人是Joyboy都没啥大问题。
+
+*****
+
+####  Supermangunv3  
+##### 57138#       发表于 2022-3-24 15:33
+
+<blockquote>7sevenseven 发表于 2022-3-24 15:27
+尾田绕这么一大圈子干啥</blockquote>
+如果原来的尼卡是空岛人的话呢？
+
+毕竟空岛没有橡皮筋，这句话是重点强调过两边的。
+
+*****
+
+####  仟音一心  
+##### 57139#       发表于 2022-3-24 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168597&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-3-24 15:33</a>
+如果原来的尼卡是空岛人的话呢？
+
+毕竟空岛没有橡皮筋，这句话是重点强调过两边的。 ...</blockquote>
+那尼卡一个空岛人凭什么是果实的名字？
+这个头开得无比坏，就像贴吧那个图吐槽的一样，这下谁知道自己的果实名字是不是真的？不是另一个人人果实幻兽种神星？
+

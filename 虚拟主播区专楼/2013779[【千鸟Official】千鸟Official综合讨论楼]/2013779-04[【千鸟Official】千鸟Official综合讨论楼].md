@@ -11914,3 +11914,16 @@ co子活啦！co子活啦！
 
 我超，静子今天都6个钟了
 
+
+
+*****
+
+####  有效击穿  
+##### 5765#       发表于 2022-3-24 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55154445&amp;ptid=2013779" target="_blank">人民de救星 发表于 2022-3-23 13:45</a>
+文静锐评s1：s1太冷门了
+
+—— 来自 S1Fun</blockquote>
+那我写的小作文岂不是不能被妈妈看到了
+
