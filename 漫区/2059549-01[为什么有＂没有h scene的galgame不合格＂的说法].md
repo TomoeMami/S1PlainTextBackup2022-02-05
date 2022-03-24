@@ -1426,3 +1426,26 @@ hs确实对大部分非拔作都无关紧要，但是有hs就保证了这部作�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  天人五衰  
+##### 127#       发表于 2022-3-24 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166395&amp;ptid=2059549" target="_blank">ReginaldMorgan 发表于 2022-3-24 12:21</a>
+
+fsn的H没有声音是一个历史遗留问题。
+
+04年发售的pc版本是无语音的R18游戏</blockquote>
+我知道老版是无语音的。新版PC无R18语音正好说明两件事，一个是表界一线不会配H声音，一个是型月也枪毙了一个角色表里分开或者床戏静音的蹩脚操作，宁可做成全年龄。
+
+*****
+
+####  fhegfisg  
+##### 128#       发表于 2022-3-24 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168468&amp;ptid=2059549" target="_blank">ParadiseMartyr 发表于 2022-3-24 15:23</a>
+ 还好吧，没透很关键的东西  —— 来自 S1Fun</blockquote>
+那就好，我才玩到表姐线，看到本来的世界里死掉的是甲顿时心里一惊
+
