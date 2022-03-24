@@ -2215,3 +2215,14 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 还有一点，这个太阳神说的不是我们头顶那个太阳，类似东方红歌里的太阳，他为人民谋幸福，呼儿嗨哟，他是人民大救星<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  重名的mufasa  
+##### 57177#       发表于 2022-3-24 21:58
+
+搞不好要涉及果实的本质.
+
+现在出来的恶魔果实名字都是世界政府搞出来的图鉴.
+
