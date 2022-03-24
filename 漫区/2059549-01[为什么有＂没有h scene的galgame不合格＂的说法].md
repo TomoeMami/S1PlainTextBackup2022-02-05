@@ -1406,3 +1406,23 @@ hs确实对大部分非拔作都无关紧要，但是有hs就保证了这部作�
 —— 来自  ...</blockquote>
 动画打开电视就能看，最多开个流媒体会员的钱，买圆盘是厨力放出；黄油不买玩不了正版啊
 
+
+
+*****
+
+####  fhegfisg  
+##### 125#       发表于 2022-3-24 15:14
+
+点进来看下讨论，突然被bsd剧透糊一脸<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 126#         楼主| 发表于 2022-3-24 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168370&amp;ptid=2059549" target="_blank">fhegfisg 发表于 2022-3-24 15:14</a>
+点进来看下讨论，突然被bsd剧透糊一脸</blockquote>
+还好吧，没透很关键的东西
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

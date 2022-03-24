@@ -1687,3 +1687,47 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 还是水了快半话无聊的日和大蛇部分，下周总算能认真打一场了。
 
+
+
+*****
+
+####  届得到  
+##### 57131#       发表于 2022-3-24 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55167360&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-24 13:41</a>
+
+所以下一话是“草帽路飞自杀”吗
+
+一话成神太可笑了</blockquote>
+这个神是指天龙人的自视
+
+我说有些人黑op好歹看看完再来黑
+
+*****
+
+####  河水  
+##### 57132#       发表于 2022-3-24 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55154335&amp;ptid=98922" target="_blank">jaewoongh 发表于 2022-3-23 13:34</a>
+那红发要在小丑和投机分子这两个选项当中挑一个了？</blockquote>
+不然很难解释和巴基势均力敌
+
+*****
+
+####  7sevenseven  
+##### 57133#       发表于 2022-3-24 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168342&amp;ptid=98922" target="_blank">届得到 发表于 2022-3-24 15:12</a>
+这个神是指天龙人的自视
+
+我说有些人黑op好歹看看完再来黑</blockquote>
+我知道
+我只是想说这剧情太草率随意了，一话成神干脆自杀彻底完结算了，反正是神的敌人
+
+*****
+
+####  少年包工头  
+##### 57134#       发表于 2022-3-24 15:18
+
+如果说太阳神只是命名，而果实能力依然是橡胶，觉醒后并非轻松的击败凯多，这样风评可救嘛？
+
