@@ -13355,3 +13355,12 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 省一楼，听了郡郡的杏拆箱t台，感觉也就嘴上说说喜欢其实根本就不熟，aki名字不会念不说，抽到百鬼说：”没什么在直播的印象，是不是身体不好还是很忙啊？“，是假粉还是巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 11711#       发表于 2022-3-24 20:48
+
+这不是描述的很贴切嘛 百鬼的情况 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

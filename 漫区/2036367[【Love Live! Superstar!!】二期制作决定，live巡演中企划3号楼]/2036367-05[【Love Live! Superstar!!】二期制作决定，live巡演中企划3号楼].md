@@ -7901,3 +7901,68 @@ Pay子这期的create club节目效果拉满，还唱了《甩葱歌》</blockqu
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  starring  
+##### 6600#       发表于 2022-3-24 20:47
+
+鲤鱼这拿刀方式好危险，手腕不好用力戴了手套也容易手滑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+2nd live结束后还能再拍个外景吗，运营给点力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 6601#       发表于 2022-3-24 21:01
+
+我倒是对自己拖了团队后腿的挫败感感同身受
+
+9963A3FA-9D6F-4EDB-A51B-B11FA1784D8F.jpeg
+(80.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/210119csyylu7kkrdl522u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2AC3043C-B9CA-47C8-AE00-D9D44E687607.jpeg
+(79.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/210119g2npnnynec8qpj1y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+92049D2C-ECD7-407E-8AC6-93BFA6055F6C.jpeg
+(276.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/210130xzxi5h1iw5a99xoi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C329289A-5389-4DD6-A65B-5B46CC9505AD.jpeg
+(439.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/210130l8c8b3digc3jxriu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F3AC1D48-6849-4346-A87F-36CBF98DDE1F.jpeg
+(468.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/210130ygghzsj2egg0nxhh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
