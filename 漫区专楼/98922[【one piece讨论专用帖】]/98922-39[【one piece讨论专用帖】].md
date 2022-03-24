@@ -1499,3 +1499,68 @@ joyboy其实也是标准的trickster形象，和洛基、变相怪杰是同一�
 
 <img src="https://img.saraba1st.com/forum/202203/24/123741ala2gav1x2tl21t2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  迪米特里  
+##### 57113#       发表于 2022-3-24 12:45
+
+这表情不抄袭变相怪杰么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天使的日曜日  
+##### 57114#       发表于 2022-3-24 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166593&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-24 12:37</a>
+
+凯老师也太惨了吧</blockquote>
+这个形态真是自由
+
+960a304e251f95caf8fb5220227cd03a6609528e.jpeg
+(39.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 12:47 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/124734bk6a0ykzh3d8zxid.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 57115#       发表于 2022-3-24 12:49
+
+地上最自由的男人诞生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轻尘有雨  
+##### 57116#       发表于 2022-3-24 12:51
+
+卡通果实
+
+*****
+
+####  七十七  
+##### 57117#       发表于 2022-3-24 12:58
+
+这算是比以前更彻底使用美式卡通画风，
+
+*****
+
+####  仟音一心  
+##### 57118#       发表于 2022-3-24 13:00
+
+实锤幻兽种
+
+CADF4DFE-24B3-411C-9710-DF17861390C2.jpeg
+(285.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 13:00 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/130019ykkqpzxbb0esr2sq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
