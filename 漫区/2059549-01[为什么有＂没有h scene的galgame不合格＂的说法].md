@@ -1186,3 +1186,68 @@ h sence 很多情况下确实是可有可无的，但可有可无做上又怎么
 
 GAL说穿了就是有大尺度的电影么，很多名角不也照样演。
 
+
+
+*****
+
+####  天人五衰  
+##### 107#       发表于 2022-3-24 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165564&amp;ptid=2059549" target="_blank">呆呆兽二号 发表于 2022-3-24 11:21</a>
+
+所以我不懂为啥很多CV不配GAL呢，又不是黄油。GAL多考验演出啊。
+
+GAL说穿了就是有大尺度的电影么，很多名 ...</blockquote>
+不是R-18的GAL几年出不了一个，R-18的GAL也会请到表界不那么一线的CV挂马甲出场，但当红的CV为了商业考虑事务所不会接R-18的GAL的。
+
+例外的是男CV，没配BL的反倒是少数
+
+*****
+
+####  呆呆兽二号  
+##### 108#       发表于 2022-3-24 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165625&amp;ptid=2059549" target="_blank">天人五衰 发表于 2022-3-24 11:26</a>
+
+不是R-18的GAL几年出不了一个，R-18的GAL也会请到表界不那么一线的CV挂马甲出场，但当红的CV为了商业考虑 ...</blockquote>
+实在不行H情节换人配么，类似替身。
+
+*****
+
+####  天人五衰  
+##### 109#       发表于 2022-3-24 11:30
+
+ 本帖最后由 天人五衰 于 2022-3-24 11:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165673&amp;ptid=2059549" target="_blank">呆呆兽二号 发表于 2022-3-24 11:28</a>
+
+实在不行H情节换人配么，类似替身。</blockquote>
+这是花冤枉钱买出戏的同时得罪两拨声优厨啊，你看FATE就是H戏份宁可留白都不找吹替的
+
+*****
+
+####  魔皇崩裂拳  
+##### 110#       发表于 2022-3-24 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165691&amp;ptid=2059549" target="_blank">天人五衰 发表于 2022-3-24 11:30</a>
+
+这是花冤枉钱买出戏的同时得罪两拨声优厨啊，你看FATE就是H戏份宁可留白都不找吹替的 ...</blockquote>
+超时空要塞系列，有些角色平时是一个人配音，唱歌是另一个人献声。
+
+我寻思性质也差不多。
+
+galgame不这么做主要还是经济帐。
+
+*****
+
+####  天人五衰  
+##### 111#       发表于 2022-3-24 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165803&amp;ptid=2059549" target="_blank">魔皇崩裂拳 发表于 2022-3-24 11:39</a>
+
+超时空要塞系列，有些角色平时是一个人配音，唱歌是另一个人献声。
+
+我寻思性质也差不多。</blockquote>
+讲道理FATE又不差钱
+
+唱歌和说话反差比较大，C&amp;T的CV和VOCAL差别那么明显都没事。但床戏和日常如果是两个声音，我反正想象了一下觉得挺神经病的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

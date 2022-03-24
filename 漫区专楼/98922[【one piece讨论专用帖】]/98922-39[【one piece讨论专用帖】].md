@@ -1408,3 +1408,14 @@ NGA
 —— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 “三年内谁也不许出海！”
 
+
+
+*****
+
+####  灌水机  
+##### 57106#       发表于 2022-3-24 11:30
+
+好久没这么热闹了？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
