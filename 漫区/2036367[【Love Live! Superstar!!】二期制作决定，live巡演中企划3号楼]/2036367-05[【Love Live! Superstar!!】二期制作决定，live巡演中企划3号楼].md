@@ -7975,3 +7975,19 @@ F3AC1D48-6849-4346-A87F-36CBF98DDE1F.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来实在很忙，这切的手法就基本没做几次饭
 
+
+
+*****
+
+####  优妮可  
+##### 6603#       发表于 2022-3-24 21:29
+
+这拿刀方式，大概是不会拿刀又很想表现就这样拿了？
+
+*****
+
+####  cybernetics31  
+##### 6604#       发表于 2022-3-24 21:37
+
+话说青山可算是换手机了…………
+
