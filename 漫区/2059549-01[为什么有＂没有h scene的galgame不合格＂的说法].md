@@ -904,3 +904,39 @@ Steam不是一堆专用的黄油吗<img src="https://static.saraba1st.com/image/
 gal本来就是鄙视链最底层，不是没hs不合格，是本身内容和剧情不加hs没人买
 没hs还能大卖的可以说已经超越gal这个小圈子了
 
+
+
+*****
+
+####  Swanfal  
+##### 83#       发表于 2022-3-24 08:10
+
+ 本帖最后由 Swanfal 于 2022-3-24 08:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55162986&amp;ptid=2059549" target="_blank">zhouwanpeng123 发表于 2022-3-24 06:40</a>
+
+8800日元，500RMB，一个全价galgame也就两周就玩完，除了极个别的譬如a社e社双尾软屋剩下的都是往架子上一 ...</blockquote>
+其实还是比买动画小圆片便宜的，那个更短，一个周末就能看完不说，一季还拆成好几卷卖<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  Swanfal  
+##### 84#       发表于 2022-3-24 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55162918&amp;ptid=2059549" target="_blank">ipcjs 发表于 2022-3-24 05:48</a>
+这种事情无所谓吧，真有人要用到时候会特意去翻那几张CG？
+Steam不是一堆专用的黄油吗</blockquote>
+我以前高强度玩的时候还真会专门开回想或者做流程存档
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  完全武装希耶尔  
+##### 85#       发表于 2022-3-24 08:14
+
+ 本帖最后由 完全武装希耶尔 于 2022-3-24 08:16 编辑 
+
+没h我都不想玩现在key最要紧的事就是出sp的r18dlc，然后出ab的r18dlc。型月最要紧的事就是把月r从主机上拽回来然后加r18
+
