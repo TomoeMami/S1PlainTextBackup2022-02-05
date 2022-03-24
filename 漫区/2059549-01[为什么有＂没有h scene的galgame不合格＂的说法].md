@@ -1477,3 +1477,14 @@ fsn的H没有声音是一个历史遗留问题。
 
 大部分都是白开水 只能靠跟美少女谈恋爱做到最后 来吸引肥宅了
 
+
+
+*****
+
+####  ReginaldMorgan  
+##### 131#       发表于 2022-3-24 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168816&amp;ptid=2059549" target="_blank">天人五衰 发表于 2022-3-24 15:54</a>
+我知道老版是无语音的。新版PC无R18语音正好说明两件事，一个是表界一线不会配H声音，一个是型月也枪毙了 ...</blockquote>
+其实我觉得不是宁可做成全年龄，而是要做成全年龄。因为我感觉07年之后型月彻底洗手上岸变成全年龄会社了，fhw后还有R18作品吗我应该没记漏什么吧
+
