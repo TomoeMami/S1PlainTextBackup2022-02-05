@@ -1100,3 +1100,37 @@ leaf社传颂之物，提亚拉之泪都搞过全年龄化，上主机，戏画�
 
 非gal一般都是游戏性为主，就算是被“吹爆”的剧情绝大多数也淡如水，这就是不同圈子玩家的感官问题
 
+
+
+*****
+
+####  kuluwu  
+##### 100#       发表于 2022-3-24 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55164012&amp;ptid=2059549" target="_blank">ahoge2004 发表于 2022-3-24 09:29</a>
+
+再提供个角度，通过全年龄扩大受众本身就是对老粉的背叛，去ACG化了解一下？ ...</blockquote>
+不能这么说吧，难道这些老粉粉的是h scene<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Swanfal  
+##### 101#       发表于 2022-3-24 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55164878&amp;ptid=2059549" target="_blank">诚司 发表于 2022-3-24 10:36</a>
+gal玩家和全年龄玩家根本是两个圈子，做全年龄的确能扩大受众，但是扩大出来的受众到底能不能接受gal是另一 ...</blockquote>
+科学adv 打越 07 
+这几个我感觉都挺刺激的啊，虽然不知道是不是你理解中的刺激性
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  呆呆兽二号  
+##### 102#       发表于 2022-3-24 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55164878&amp;ptid=2059549" target="_blank">诚司 发表于 2022-3-24 10:36</a>
+
+gal玩家和全年龄玩家根本是两个圈子，做全年龄的确能扩大受众，但是扩大出来的受众到底能不能接受gal是另一 ...</blockquote>
+我觉得GAL因为没有动画漫画那么活灵活现，除了剧本外，CV的演出水平也很重要。
+

@@ -8564,3 +8564,16 @@ y1s1，还是有两个搞笑艺人出力的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个月应该都不会在自己频道了
 
+
+
+*****
+
+####  往世雷书  
+##### 9905#       发表于 2022-3-24 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55162041&amp;ptid=2018830" target="_blank">呓亘 发表于 2022-3-24 00:28</a>
+我倒是希望她能好好跟那两个搞笑艺人学学整活</blockquote>
+别做梦了，她再也不会变回整活v了。我之前以为vtuber们都是一个风格走到头，看到她我明白了半途转型是真的存在而且可行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
