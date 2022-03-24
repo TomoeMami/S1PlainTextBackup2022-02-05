@@ -1985,3 +1985,15 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 就是火焰头和圈圈眼，圈圈眉以前出现过。
 
+
+
+*****
+
+####  Algie  
+##### 57154#       发表于 2022-3-24 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55167801&amp;ptid=98922" target="_blank">angelooo 发表于 2022-3-24 14:21</a>
+
+你一定没去过微博和知乎</blockquote>
+早就被知乎的狂热熏跑了，而微博用都不用
+
