@@ -2226,3 +2226,14 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 现在出来的恶魔果实名字都是世界政府搞出来的图鉴.
 
+
+
+*****
+
+####  八汰乌  
+##### 57178#       发表于 2022-3-24 22:32
+
+听说海贼王烂尾了，特意看了最新一集
+
+没感觉哪里烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

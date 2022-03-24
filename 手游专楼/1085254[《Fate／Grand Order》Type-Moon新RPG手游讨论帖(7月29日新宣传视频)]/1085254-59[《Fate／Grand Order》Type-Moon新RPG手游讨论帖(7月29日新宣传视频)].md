@@ -4648,3 +4648,19 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202203/23/204923ngss4shqb8bd4272.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 87406#       发表于 2022-3-24 22:27
+
+绕了一圈还是用19年的剑阿荣阵容过了，不过现在有c呆和50冲司马懿ex也没难度（当时还是用的孔明cba和梅林），当初最麻烦的状况是第三层血10次无敌来不及破，第四罗马就建成了，现在有宝具清debuff+肃正防御基本算np是脚打..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87407#       发表于 2022-3-24 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">刷到现在大概40箱，只掉了2张礼装，还都是在前10箱掉的…………根本刷不动
+
