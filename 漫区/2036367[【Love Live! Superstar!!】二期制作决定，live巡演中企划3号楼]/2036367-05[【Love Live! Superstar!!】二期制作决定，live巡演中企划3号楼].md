@@ -7890,3 +7890,14 @@ Pay子这期的create club节目效果拉满，还唱了《甩葱歌》</blockqu
 
 话说看鲤鱼抓刀切肉的方式，感觉她没怎么拿过菜刀…………<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 6599#       发表于 2022-3-24 20:46
+
+喜茶在鲤鱼b站动态回了个表情，这是届到了吧。联动啊，搞不好有戏
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
