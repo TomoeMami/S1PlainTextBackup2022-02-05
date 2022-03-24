@@ -2325,3 +2325,80 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 所以才是人人果实，所以才是幻兽种尼卡
 
+
+
+*****
+
+####  超紳士  
+##### 57186#       发表于 2022-3-25 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55175226&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-25 01:05</a>
+
+看了一下熟肉
+
+感觉是因为800年间果实从没被海军拿到手
+
+所以他们判断这个果实是有意识的</blockquote>
+你走死胡同了，别试着从那些奇奇怪怪的用词上来推测狗嘴里的象牙，玩漫区这么长时间，第一次看见你这么想帮尾田圆上。
+
+*****
+
+####  tornadoDA  
+##### 57187#       发表于 2022-3-25 01:56
+
+我想知道动物系果实觉醒是什么样的？马尔科，凯多，他们觉醒了吗？难道马尔科不觉醒就不会变鸟，只能用蓝火治疗，凯多不觉醒就不会变龙，只会吹吹风，驾驾云？？如果动物形态是常态，那么他们为什么不觉醒呢？路飞为什么不会一开始就变成尼卡呢？
+
+*****
+
+####  anubis_s08  
+##### 57188#       发表于 2022-3-25 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55175034&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 00:40</a>
+发现有人接受了，那就说一下换果实的危害
+
+首先最直观的就是升级和强化。以后升级强化直接口胡完事，任何人 ...</blockquote>
+大草帽是始祖草帽，草帽可以生产恶魔果实。800年前自由的小草帽想要反抗，并寄生了一个叫joyboy的人，但最终失败了，小草帽为了躲避追杀分成两半，一半草帽可以脑控别人并寻找合适的宿主，另一半橡胶果实用来储存力量。小草帽控制人并给他们一些力量让他们寻找漂流的橡胶果实，终于在800年后遇到了合适的人选，并诱导他吃下果实，然后草帽在天选之子身边进入休眠等待觉醒的时机。时机一到就是塔塔开了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+*****
+
+####  klzxs  
+##### 57189#       发表于 2022-3-25 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55175471&amp;ptid=98922" target="_blank">超紳士 发表于 2022-3-25 01:48</a>
+
+你走死胡同了，别试着从那些奇奇怪怪的用词上来推测狗嘴里的象牙，玩漫区这么长时间，第一次看见你这么想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">猜猜而已，但我觉得还挺顺的啊
+
+虽然才一话，但这话的表现怎么看都依然是普通的超人系觉醒
+
+海军判断是动物系总会有些理由
+
+*****
+
+####  gutzz  
+##### 57190#       发表于 2022-3-25 04:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55175499&amp;ptid=98922" target="_blank">tornadoDA 发表于 2022-3-25 01:56</a>
+我想知道动物系果实觉醒是什么样的？马尔科，凯多，他们觉醒了吗？难道马尔科不觉醒就不会变鸟，只能用蓝火 ...</blockquote>
+第一次提到觉醒这个概念就是说推进城里的狱卒兽吧，大概就是完全变成动物形态，皮糙肉厚
+
+*****
+
+####  24k纯帅  
+##### 57191#       发表于 2022-3-25 05:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55174638&amp;ptid=98922" target="_blank">是这样 发表于 2022-3-24 23:51</a>
+五老星本来就是小丑啊
+
+— from Google Pixel 6, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+五老星还说着“不惜触怒凯多”，可能手上也没有能和凯多走几招的战斗力，现在五黄抓凯多如抓蚯蚓，回头拆家拆到zf头上大概就只有伊姆可以站出来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绝赞販売中  
+##### 57192#       发表于 2022-3-25 05:46
+
+比起泥潭，还是看虎扑打滚好玩.跟火影鬼灭比那会就说自己热血王道，现在就说是搞笑冒险漫画，孝子纯度太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灵活分类了属于是.还要追溯到第一卷，看本漫画看魔怔了一堆人太绝了
+
