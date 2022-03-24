@@ -1884,3 +1884,59 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 只是突然改个名加能力还是太突兀
 
+
+
+*****
+
+####  Supermangunv3  
+##### 57146#       发表于 2022-3-24 16:51
+
+<blockquote>仟音一心 发表于 2022-3-24 16:19
+我知道，现在最有希望的就是等单行本把那两页推翻掉，这也不是第一次了(比如改卡二的果实种类自然→特殊 ...</blockquote>
+尼卡这不太可能改，因为现在路飞的五档身上形象上有太阳神尼卡，大妈的魂魂果实形态，文斯莫克家族的圈圈眉，综合了这么多谜题，不可能是临时想出来的。
+
+*****
+
+####  赤魔法师  
+##### 57147#       发表于 2022-3-24 16:58
+
+感觉尼卡这东西尾田应该很早就想过了
+
+只是要不要画出来和什么时候画出来确实很难让人感觉不是最近想的
+
+*****
+
+####  仟音一心  
+##### 57148#       发表于 2022-3-24 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55169545&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-3-24 16:51</a>
+尼卡这不太可能改，因为现在路飞的五档身上形象上有太阳神尼卡，大妈的魂魂果实形态，文斯莫克家族的圈圈 ...</blockquote>
+这几个老实说要是能够凑一起再填上坑，难度不是一般的大。要说不是临时想是有计划的我可能还信，但揭开谜题的方式这话看实在是过于糟糕了。
+
+*****
+
+####  Supermangunv3  
+##### 57149#       发表于 2022-3-24 17:00
+
+<blockquote>仟音一心 发表于 2022-3-24 16:58
+这几个老实说要是能够凑一起再填上坑，难度不是一般的大。要说不是临时想是有计划的我可能还信，但揭开谜 ...</blockquote>
+看到一个分析师的两张图
+
+<img src="https://img.saraba1st.com/forum/202203/24/170008tc17bbwsto0w878a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-a506f9040825bad1fe9cf2bd7a901020.jpeg</strong> (218.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-24 17:00 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/170015wrcc99z5ozr88ri3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>v2-a1ef3701b72f04eaf659eb5e6ff42dce.jpeg</strong> (265.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-24 17:00 上传
+
