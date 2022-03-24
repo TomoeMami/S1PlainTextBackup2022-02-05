@@ -4612,3 +4612,39 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  sin.yugi  
+##### 87405#       发表于 2022-3-24 09:49
+
+这最后两个罗马本你们怎么都喜欢用光炮的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">用单体不是乱杀么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 普通版3T 加强版随便也可以9t
+
+1.jpg
+(287.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 09:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/204645b00m00c3988zn8qa.jpg" referrerpolicy="no-referrer">
+
+2.jpg
+(386.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 09:47 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/204737dk6k4q1kdkh8kqye.jpg" referrerpolicy="no-referrer">
+
+3.jpg
+(295.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 09:49 上传
+
+<img src="https://img.saraba1st.com/forum/202203/23/204923ngss4shqb8bd4272.jpg" referrerpolicy="no-referrer">
+

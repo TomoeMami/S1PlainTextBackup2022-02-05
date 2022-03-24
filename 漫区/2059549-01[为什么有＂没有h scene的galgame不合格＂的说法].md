@@ -1041,3 +1041,47 @@ Steam不是一堆专用的黄油吗</blockquote>
 
 没有hs的gal就像没有脏话的rap一样
 
+
+
+*****
+
+####  qderaaa  
+##### 95#       发表于 2022-3-24 09:45
+
+我个人的观点是，我只需要你告诉我他们到底做了没有。即使你屏幕一黑，但是一行小字明确告诉我他们搞了三天三夜，我也能接受。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qderaaa  
+##### 96#       发表于 2022-3-24 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55157670&amp;ptid=2059549" target="_blank">性欲モンスター 发表于 2022-03-23 18:15:22</a>
+BSD有一个问题是如果原来世界里死的是男猪的话，那酒吧里各种任人玩的AI就是男猪了。
+
+另外巨人在地鸣前叙 ...</blockquote>bsd剧情有点忘了，我就记得千夏线好像解释过为什么酒吧性偶长得像呼。所以是为啥来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  桧月彩花  
+##### 97#       发表于 2022-3-24 10:16
+
+往好的一方面想，水树奈奈也给Galgame配过傻白甜主役
+
+你们Hgame做得到吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呆呆兽二号  
+##### 98#       发表于 2022-3-24 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55164635&amp;ptid=2059549" target="_blank">桧月彩花 发表于 2022-3-24 10:16</a>
+
+往好的一方面想，水树奈奈也给Galgame配过傻白甜主役
+
+你们Hgame做得到吗 ...</blockquote>
+水树奈奈后来的理奈也配得好棒，简直为她制作的角色。
+
