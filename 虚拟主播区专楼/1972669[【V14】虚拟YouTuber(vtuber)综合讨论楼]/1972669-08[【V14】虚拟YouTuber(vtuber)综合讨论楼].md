@@ -13271,3 +13271,12 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Suny08  
+##### 11703#       发表于 2022-3-24 08:56
+
+看了一下哈弟箱新人订阅刚过两万，不知道昨晚同接什么数据，感觉箱力不太够啊，虹新人播了两天都快银盾了，还是带着虹女debuff 的，感觉哈弟和mfmf 这几个老板引流做的还是不好，有没有vspo 信来说说这数据和vspo 比怎么样
+
