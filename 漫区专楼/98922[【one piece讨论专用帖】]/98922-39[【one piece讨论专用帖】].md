@@ -1651,3 +1651,21 @@ nga怎么尾田神教纯度那么高啊
 所以下一话是“草帽路飞自杀”吗
 一话成神太可笑了
 
+
+
+*****
+
+####  inconolast  
+##### 57127#       发表于 2022-3-24 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这明显是猫猫果实幻兽种汤姆猫形态
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这么搞倒是能理解这果实为啥幻兽种了，你往刃牙的片场塞一只汤姆猫怕是怂次郎都得跪下来
+
+*****
+
+####  yario  
+##### 57128#       发表于 2022-3-24 14:08
+
+造型咋那么像哪吒?
+

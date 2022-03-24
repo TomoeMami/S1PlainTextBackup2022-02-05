@@ -1351,3 +1351,35 @@ NABA有被冲么，反而成了她最著名角色之一吧。</blockquote>
 
 ----发送自 [samsung SM-T835,Android 10](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Vicarious  
+##### 121#       发表于 2022-3-24 14:12
+
+老黄油玩家说下自己想法吧
+
+个人在意的并不是没有hs，而是转向全年龄的这种风潮。
+
+hs确实对大部分非拔作都无关紧要，但是有hs就保证了这部作是R18
+
+为什么R18很重要呢？
+
+我认为，正是因为R18带来的百无禁忌才能让黄油能够涉及各种题材，无视各路政治正确和社会道德，让创作者能天马行空。
+
+目光再放到现在，去掉Hs-转全年龄-扩大受众，必然带来自我审查。
+
+这才是我最不能接受的
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  RUDK  
+##### 122#       发表于 2022-3-24 14:23
+
+可以允许不含HS的AVG，比例嘛，低于总数20％叭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
