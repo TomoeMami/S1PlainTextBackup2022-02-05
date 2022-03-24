@@ -12559,3 +12559,21 @@ image.png
 这游戏以后会出PC么。</blockquote>
 大概率半年后出，不过出pc也是八方那个400定价啊，不想买ns我觉得直接上模拟器吧，没必要憋着。。。
 
+
+
+*****
+
+####  Vladimeow  
+##### 1120#       发表于 2022-3-24 13:12
+
+演出的时候没人物头像好那啥啊。。就看着像素人在那边罚站
+
+*****
+
+####  夏之岚  
+##### 1121#       发表于 2022-3-24 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166292&amp;ptid=2051152" target="_blank">henryqxg 发表于 2022-3-24 12:12</a>
+大概率半年后出，不过出pc也是八方那个400定价啊，不想买ns我觉得直接上模拟器吧，没必要憋着。。。 ...</blockquote>
+已经玩到十一掌了，就是问问。以后PC要是有战斗加速之类的话刷起来会更好。
+
