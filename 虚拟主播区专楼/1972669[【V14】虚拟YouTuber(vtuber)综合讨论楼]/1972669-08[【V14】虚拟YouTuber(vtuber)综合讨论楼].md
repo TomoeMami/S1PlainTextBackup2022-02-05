@@ -13334,3 +13334,13 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 我记得blessing里也有他
 这下十年老粉了
 
+
+
+*****
+
+####  Kokichi  
+##### 11709#       发表于 2022-3-24 15:00
+
+还真看过めろちん打枪，翻了翻他有s7的大师，s9至少钻1<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+……哈弟脑子没问题吧？
+

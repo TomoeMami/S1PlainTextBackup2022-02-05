@@ -1392,3 +1392,17 @@ hs确实对大部分非拔作都无关紧要，但是有hs就保证了这部作�
 
 以萌妹子人设为卖点，不提供下官方色图就太可惜了
 
+
+
+*****
+
+####  shudushimo  
+##### 124#       发表于 2022-3-24 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55163299&amp;ptid=2059549" target="_blank">Swanfal 发表于 2022-3-24 08:10</a>
+
+其实还是比买动画小圆片便宜的，那个更短，一个周末就能看完不说，一季还拆成好几卷卖
+
+—— 来自  ...</blockquote>
+动画打开电视就能看，最多开个流媒体会员的钱，买圆盘是厨力放出；黄油不买玩不了正版啊
+
