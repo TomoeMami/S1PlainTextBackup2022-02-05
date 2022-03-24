@@ -1340,3 +1340,14 @@ NABA有被冲么，反而成了她最著名角色之一吧。</blockquote>
 
 某种意义上说，有hs才能完整地描绘女角色，简单的一个有无，给人的感觉差异是巨大的，就如同再缜密的推理也不如一个能直接锤定犯罪行为的证据一样<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ssmusai  
+##### 120#       发表于 2022-3-24 14:03
+
+黄剧情不是为了那点黄 而是为了剧情突破
+
+----发送自 [samsung SM-T835,Android 10](http://stage1.5j4m.com/?1.37)
+

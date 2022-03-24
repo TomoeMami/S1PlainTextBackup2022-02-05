@@ -1635,3 +1635,19 @@ nga怎么尾田神教纯度那么高啊
 
 现在的乡土爱篇一对比什么玩意
 
+
+
+*****
+
+####  7sevenseven  
+##### 57126#       发表于 2022-3-24 13:41
+
+ 本帖最后由 7sevenseven 于 2022-3-24 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55166878&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-24 13:00</a>
+
+实锤幻兽种</blockquote>
+<img src="https://p.sda1.dev/5/33e1377b4b57b87f49a0700c1e63eb3a/IMG_CMP_45133830.jpeg" referrerpolicy="no-referrer">
+
+所以下一话是“草帽路飞自杀”吗
+一话成神太可笑了
+
