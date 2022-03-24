@@ -940,3 +940,104 @@ Steam不是一堆专用的黄油吗</blockquote>
 
 没h我都不想玩现在key最要紧的事就是出sp的r18dlc，然后出ab的r18dlc。型月最要紧的事就是把月r从主机上拽回来然后加r18
 
+
+
+*****
+
+####  发财就手  
+##### 86#       发表于 2022-3-24 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55156409&amp;ptid=2059549" target="_blank">Swanfal 发表于 2022-3-23 16:34</a>
+
+说起来突然有个想法
+
+如果说科学adv这样的，天然没有hs的galgame，放家用机上可以卖更多
+
+那先出带hs的pc版， ...</blockquote>
+带H的galgame有个问题，一般是请不到有名气的声优参与配音作为宣传卖点的
+
+*****
+
+####  ahoge2004  
+##### 87#       发表于 2022-3-24 09:11
+
+都是正人君子体面人啊
+大家好，我喜欢看r18
+
+*****
+
+####  Swanfal  
+##### 88#       发表于 2022-3-24 09:13
+
+ 本帖最后由 Swanfal 于 2022-3-24 09:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55163804&amp;ptid=2059549" target="_blank">发财就手 发表于 2022-3-24 09:10</a>
+
+带H的galgame有个问题，一般是请不到有名气的声优参与配音作为宣传卖点的</blockquote>
+也是，不过很多二线都会接Hgame吧
+
+比如P4里阳介的声优配过11眼的火焰混混<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">而且声线几乎一样
+
+今井麻美也配过很多hgame，一堆艺名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YFIIII  
+##### 89#       发表于 2022-3-24 09:17
+
+我是觉得key社作品的h sense都挺不合适的，尤其是little busters
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  发财就手  
+##### 90#       发表于 2022-3-24 09:20
+
+ 本帖最后由 发财就手 于 2022-3-24 09:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55162783&amp;ptid=2059549" target="_blank">可惜是个变态 发表于 2022-3-24 03:47</a>
+
+没有h那不就是轻小说，轻小说什么风评不用说了吧</blockquote>
+如今的轻小说/网文可以做到比黄游更黄，还能以非18  禁止级名义来扩大受众（只要插画不露关键部位就行）
+
+
+
+*****
+
+####  ahoge2004  
+##### 91#       发表于 2022-3-24 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55163804&amp;ptid=2059549" target="_blank">发财就手 发表于 2022-3-24 09:10</a>
+带H的galgame有个问题，一般是请不到有名气的声优参与配音作为宣传卖点的</blockquote>
+理论上来说现在很难请偶像化声优来配r18了
+但实际上全年龄太少了，也很难说全年龄就请得到
+最后里界大手子也是大手子，只是路人不熟悉
+
+*****
+
+####  hamartia  
+##### 92#       发表于 2022-3-24 09:25
+
+<blockquote>YFIIII 发表于 2022-3-24 09:17
+我是觉得key社作品的h sense都挺不合适的，尤其是little busters
+
+  -- 来自 能手机投票的 Stage1官方 Andr ...</blockquote>
+最不会写床戏的四天王，里面一定有东出佑一郎
+
+哪个作品我就不说了，在同一个地点，同伴正在和敌人干部血战，主角和女主角正在床上大战，这是同一时间不同距离发生的事情
+
+还有那样的写手，就是在情趣上感性比较奇葩。某名作里，女主之一用自动手枪掰穴，光着下半身枪战
+
+*****
+
+####  ahoge2004  
+##### 93#       发表于 2022-3-24 09:29
+
+再提供个角度，通过全年龄扩大受众本身就是对老粉的背叛，去ACG化了解一下？
+
+*****
+
+####  sheshiro  
+##### 94#       发表于 2022-3-24 09:31
+
+没有hs的gal就像没有脏话的rap一样
+

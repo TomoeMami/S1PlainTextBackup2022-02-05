@@ -1394,3 +1394,17 @@ NGA
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 57105#       发表于 2022-3-24 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55161621&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-23 23:40</a>
+
+快进到烟鬼成为海贼王
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+“三年内谁也不许出海！”
+
