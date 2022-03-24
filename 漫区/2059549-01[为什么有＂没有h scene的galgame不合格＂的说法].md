@@ -1251,3 +1251,33 @@ galgame不这么做主要还是经济帐。
 
 唱歌和说话反差比较大，C&amp;T的CV和VOCAL差别那么明显都没事。但床戏和日常如果是两个声音，我反正想象了一下觉得挺神经病的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ahoge2004  
+##### 112#       发表于 2022-3-24 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165564&amp;ptid=2059549" target="_blank">呆呆兽二号 发表于 2022-3-24 11:21</a>
+所以我不懂为啥很多CV不配GAL呢，又不是黄油。GAL多考验演出啊。
+
+GAL说穿了就是有大尺度的电影么，很多名 ...</blockquote>
+会被冲
+
+*****
+
+####  ReginaldMorgan  
+##### 113#       发表于 2022-3-24 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55165691&amp;ptid=2059549" target="_blank">天人五衰 发表于 2022-3-24 11:30</a>
+这是花冤枉钱买出戏的同时得罪两拨声优厨啊，你看FATE就是H戏份宁可留白都不找吹替的 ...</blockquote>
+fsn的H没有声音是一个历史遗留问题。
+
+04年发售的pc版本是无语音的R18游戏
+07年发售的ps2移植版本增加了语音、bgm、新结局，但是作为上主机的代价变成了全年龄游戏，去掉了HS。直接没有HS的剧情自然没有对应的文本配音
+11年的新PC版配置和PS2版差不多，也是全年龄的。
+
+国内现在大家玩的FSN汉化版是民间在04版的基础上，把PS2版上的追加内容塞了进去（甚至还塞了06版动画的bgm）的一个混合版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟任何一个官方版本的内容都不一样。因为PS2版就没有HS的语音所以汉化版更不可能变出来。
+
+所以型月不是宁愿留白，而是从有配音的那一刻起FSN就已经是全年龄游戏了
+

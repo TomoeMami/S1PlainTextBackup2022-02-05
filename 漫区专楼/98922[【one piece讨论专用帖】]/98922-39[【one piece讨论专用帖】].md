@@ -1460,3 +1460,15 @@ joyboy其实也是标准的trickster形象，和洛基、变相怪杰是同一�
 —— 来自 HUAWEI NOP-AN00, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 烟鬼是魔界之王
 
+
+
+*****
+
+####  宅之猴晒阴  
+##### 57111#       发表于 2022-3-24 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55157649&amp;ptid=98922" target="_blank">Freemasons 发表于 2022-3-23 18:13</a>
+
+不能说鸟山明就是个画漫画的不懂龙珠吧，但是很多年前同人漫龙珠多元宇宙的作者拜访老鸟的时候，老鸟自己 ...</blockquote>
+应该是老鸟记不住桃白白吧，这特么两大主角合体的贝吉特都记不住，干脆说老鸟记不住孙悟空是谁算了233
+
