@@ -12605,3 +12605,17 @@ image.png
 想问一下欧美版实体版能继承日服DEMO的存档吗。
 还有欧美版有没有日语语音啊
 
+
+
+*****
+
+####  allenz3  
+##### 1124#       发表于 2022-3-24 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55170653&amp;ptid=2051152" target="_blank">heseran 发表于 2022-3-24 18:19</a>
+想问一下欧美版实体版能继承日服DEMO的存档吗。
+还有欧美版有没有日语语音啊 ...</blockquote>
+存档应该是公用的，字幕和语音均可选
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
