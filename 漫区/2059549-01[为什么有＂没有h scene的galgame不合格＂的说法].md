@@ -1449,3 +1449,31 @@ fsn的H没有声音是一个历史遗留问题。
  还好吧，没透很关键的东西  —— 来自 S1Fun</blockquote>
 那就好，我才玩到表姐线，看到本来的世界里死掉的是甲顿时心里一惊
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 129#         楼主| 发表于 2022-3-24 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55168947&amp;ptid=2059549" target="_blank">fhegfisg 发表于 2022-3-24 16:06</a>
+那就好，我才玩到表姐线，看到本来的世界里死掉的是甲顿时心里一惊</blockquote>
+只是说，如果当年死的不是空，被做成那种随处可见的招待机器人的就变成了男主甲。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  miao123177  
+##### 130#       发表于 2022-3-24 16:15
+
+我可以不看 但你不能没有
+
+虽然很多的H都是按着CTRL跳过去的 
+
+但是跟美少女谈恋爱 最后还是要馋身子的 哪怕短短几笔 但完成了最后一步 算是满足了
+
+你做全年龄也不是不可以 但剧本要精彩啊 可没几个能做到的
+
+大部分都是白开水 只能靠跟美少女谈恋爱做到最后 来吸引肥宅了
+
