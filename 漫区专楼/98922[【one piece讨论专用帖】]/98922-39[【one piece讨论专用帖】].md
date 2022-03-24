@@ -2006,3 +2006,19 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 这5档有点和超赛反着来的样子，身上都是火光笼罩，但一个是愤怒驱动的一个是开心驱动的
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 57156#       发表于 2022-3-24 19:13
+
+听你们说的去逼乎看了一圈，尾田孝子们真是让人大开眼界啊，尾田仔苦心伏笔二十年，哭惹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isummon  
+##### 57157#       发表于 2022-3-24 19:16
+
+可惜海贼王还有好几年好好扩充故事且不会像巨人烂得那么惊人，看不到知乎乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

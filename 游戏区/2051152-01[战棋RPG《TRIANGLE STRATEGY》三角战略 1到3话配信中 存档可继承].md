@@ -12635,3 +12635,16 @@ image.png
 
 因为日版也可以选英文语言和字幕
 
+
+
+*****
+
+####  heseran  
+##### 1126#       发表于 2022-3-24 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55170875&amp;ptid=2051152" target="_blank">allenz3 发表于 2022-3-24 18:38</a>
+存档应该是公用的，字幕和语音均可选
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+好的，谢谢
+
