@@ -13364,3 +13364,31 @@ hnn也是s2猎杀啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这不是描述的很贴切嘛 百鬼的情况 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Porsche  
+##### 11712#       发表于 2022-3-24 23:59
+
+介绍一个能把GT7驾照全金的女v ゆっちょ
+
+其他也有直播GT7的，大多都是图一乐，能混个铜就不错
+
+这位虽然一开始目标就是全金但水平并没到那个程度，但短短的两周水平就从一般入门级一直进化到能冲击金牌
+
+GT7的终极鬼门S-10（单论难度比环难多了）总共几个小时就摸到窍门过了
+
+那么这么牛逼的管人究竟是什么来头呢
+
+答案揭晓：日本首个女性职业玩家チョコブランカ
+
+325005050.jpg
+(190.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-24 23:53 上传
+
+<img src="https://img.saraba1st.com/forum/202203/24/235353sb9bseej9ezqjz40.jpg" referrerpolicy="no-referrer">
+

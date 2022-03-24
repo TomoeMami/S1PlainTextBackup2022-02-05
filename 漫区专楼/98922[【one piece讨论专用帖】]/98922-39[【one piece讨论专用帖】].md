@@ -2253,3 +2253,21 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 路飞五档这谐的不行，史上最高<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TAQ  
+##### 57181#       发表于 2022-3-24 23:22
+
+这话的感觉还是“最近wt才告诉五老星橡胶果实真相的啊”
+
+*****
+
+####  是这样  
+##### 57182#       发表于 2022-3-24 23:51
+
+五老星本来就是小丑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
