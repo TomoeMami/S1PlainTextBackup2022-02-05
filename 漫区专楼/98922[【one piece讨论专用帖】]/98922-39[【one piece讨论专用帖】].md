@@ -2912,3 +2912,12 @@ nika翻译成乐正好，乐子人果实
 就这点来说，我宁可当时香克斯是普通海贼，然后在路飞吃了果实后到长大出海的这段时间里闯出的四皇名头。 ...</blockquote>
 设定上红发是六年前才成为的四皇，也就是路飞出海四年前，他们分别的六年后
 
+
+
+*****
+
+####  maverickhunter  
+##### 57237#       发表于 2022-3-25 17:56
+
+怎么讨论讨论着我看这果实像巴耶力了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
