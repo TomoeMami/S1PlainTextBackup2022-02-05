@@ -2937,3 +2937,40 @@ nika翻译成乐正好，乐子人果实
 
 就冲罗杰到了终点那大笑和起的Laugh Tale这名字，我觉得还是WT在耍我们，五老星说的又不是真理，只不过是他们自己的认知而已，说不定就是被耍了800年呢。这果实名字再天花乱坠，1044话目前显示出来的5裆能力还是橡胶的能力啊。这才哪儿到哪儿就急着盖棺论定了。
 
+
+
+*****
+
+####  wingzerocos  
+##### 57240#       发表于 2022-3-25 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55182772&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-25 16:41</a>
+本来就是讨论路飞的果实还有形态变化是不是特别
+
+说四档不也还是路飞吗
+
+不过这么提一下确实想不起来 ...</blockquote>
+我只是想说既然路飞本来就能靠果实能力变化外形，那这果实能力强化后使出的5档根本体现不了啥特殊性。
+
+
+
+*****
+
+####  X(iaolw)S  
+##### 57241#       发表于 2022-3-25 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55181015&amp;ptid=98922" target="_blank">tornadoDA 发表于 2022-3-25 14:15</a>
+
+超人系的橡胶果实那觉醒为啥会改变外观？？？这怕不是双果实，幻兽尼卡加橡胶果实，不然怎么能改变地形呢 ...</blockquote>
+最后怕不是还能化身太阳，集超人.动物.自然系能力于一体
+
+其他人吃的是恶魔果实，五皇吃的可是神仙果实啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  7sevenseven  
+##### 57242#       发表于 2022-3-25 19:59
+
+感觉不大可能反转了
+五老星说了句这世上最胡闹的能力，橡皮果实再怎么觉醒也不会得到最胡闹这个评价
+
