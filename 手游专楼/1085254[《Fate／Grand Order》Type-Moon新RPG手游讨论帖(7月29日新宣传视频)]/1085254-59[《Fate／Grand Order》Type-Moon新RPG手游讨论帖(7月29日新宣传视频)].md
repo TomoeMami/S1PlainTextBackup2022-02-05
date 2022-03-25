@@ -4673,3 +4673,27 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 小钟，刷个50金苹果助助兴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87409#       发表于 2022-3-25 18:36
+
+<img src="https://img.saraba1st.com/forum/202203/25/183607q229fj8whavewhwx.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (764.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 18:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一一个全新的高难就这？ 3t秒了
+
+*****
+
+####  DARKGRAY  
+##### 87410#       发表于 2022-3-25 18:43
+
+新的高难啥机制啊，还在刷打神祖的大腿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
