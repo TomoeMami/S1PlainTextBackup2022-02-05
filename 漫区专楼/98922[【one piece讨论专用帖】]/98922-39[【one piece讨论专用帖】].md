@@ -2453,3 +2453,16 @@ nika翻译成乐正好，乐子人果实
 
 周刊连载二十多年要是水平没下降那尾田都不算人类了
 
+
+
+*****
+
+####  7sevenseven  
+##### 57198#       发表于 2022-3-25 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55176749&amp;ptid=98922" target="_blank">proselyte 发表于 2022-3-25 08:57</a>
+我觉得你还是看开点吧
+
+周刊连载二十多年要是水平没下降那尾田都不算人类了 ...</blockquote>
+新世界可以叫水平下降，和之国可以说剧情加速难以掌控，而变果实基本是否定作品了，水平再下降也不能整这个烂活
+
