@@ -11974,3 +11974,14 @@ co子活啦！co子活啦！
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5771#       发表于 2022-3-25 15:01
+
+我昨晚进去看了一眼总督爆金币然后退出来了
+
+说起来今晚7点也是艾瑞思3万纪念回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

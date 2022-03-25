@@ -5718,3 +5718,14 @@ qq_pic_merged_1648190012323.jpg
 
 好！
 
+
+
+*****
+
+####  a2276382  
+##### 14072#       发表于 2022-3-25 15:03
+
+这个字符画不错 加到项目注释里<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
