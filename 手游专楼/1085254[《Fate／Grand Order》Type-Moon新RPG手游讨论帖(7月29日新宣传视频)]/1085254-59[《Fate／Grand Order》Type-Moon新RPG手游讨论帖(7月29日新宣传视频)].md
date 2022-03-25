@@ -4697,3 +4697,15 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 新的高难啥机制啊，还在刷打神祖的大腿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87411#       发表于 2022-3-25 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55184255&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2022-3-25 18:43</a>
+
+新的高难啥机制啊，还在刷打神祖的大腿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有个等于没有的红耐  其他懒得看了。。 反正3t秒了
+
