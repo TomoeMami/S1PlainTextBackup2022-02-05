@@ -13433,3 +13433,36 @@ GT7的终极鬼门S-10（单论难度比环难多了）总共几个小时就摸�
 这个皮我觉得非常适合她</blockquote>
 谁啊。不是老爱吧2333
 
+
+
+*****
+
+####  free  
+##### 11716#       发表于 2022-3-25 16:09
+
+ 本帖最后由 free 于 2022-3-25 16:11 编辑 
+
+[https://twitter.com/TOBIA_official/status/1506933848264921090](https://twitter.com/TOBIA_official/status/1506933848264921090)
+
+【お知らせ】
+
+初めての弾き語りカバーライブ「カシオペアライブ」の開催が決定しました。
+
+楽しんでいただけるように色んな曲を用意してます。
+
+また、ライブ中に大事なお知らせもあるのでぜひ見に来てね。
+
+みんなと同じ時間を過ごせるのを楽しみにしています。
+
+[https://youtu.be/uWGhFMbKFkA](https://youtu.be/uWGhFMbKFkA)
+
+裸春的男人要开弹唱live了
+
+<img src="https://img.saraba1st.com/forum/202203/25/161111l4z1uahgvojuguo0.jpg" referrerpolicy="no-referrer">
+
+<strong>跳亚.jpg</strong> (260.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 16:11 上传
+
