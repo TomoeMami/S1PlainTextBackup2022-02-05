@@ -13573,3 +13573,22 @@ syl
 想起了最近的某冠军AD<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/5/5b2699e201218daee202ece3326fa0a6/QQ图片20220325212318.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 11726#       发表于 2022-3-25 21:31
+
+<img src="https://img.saraba1st.com/forum/202203/25/213122trzlx3ma6ycfm06z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 21:31 上传
+
+瑠璃姐接了多少声优工作阿……
+
+这又是个手游
+

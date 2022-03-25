@@ -2983,3 +2983,15 @@ nika翻译成乐正好，乐子人果实
 
 就像是吃了卡通果实一样，挺有趣的表现方式。
 
+
+
+*****
+
+####  JC_AR  
+##### 57244#       发表于 2022-3-25 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55178804&amp;ptid=98922" target="_blank">SadNess 发表于 2022-3-25 11:17</a>
+
+还有一点，如果没觉醒之前，要和世界政府对决，在大众的认知里就是，又有一个自不量力的人要挑战世界政府。 ...</blockquote>
+什么一呼百应，尼卡读者都不知道是啥玩意，指望这个一呼百应还不如指望路飞自己的人脉
+
