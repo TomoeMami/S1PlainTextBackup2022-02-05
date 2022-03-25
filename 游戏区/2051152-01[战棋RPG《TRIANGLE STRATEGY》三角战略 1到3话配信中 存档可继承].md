@@ -12664,3 +12664,31 @@ FFTA職業技能多太多
 
 難度來說三角比較好
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 1128#       发表于 2022-3-25 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55170653&amp;ptid=2051152" target="_blank">heseran 发表于 2022-3-24 18:19</a>
+
+想问一下欧美版实体版能继承日服DEMO的存档吗。
+
+还有欧美版有没有日语语音啊 ...</blockquote>
+这游戏很奇怪的，demo的时候是全区同一个demo。
+
+但是正式版的港区和日区是一个版本，但是和美区不是同一个版本。
+
+所以应该不管在哪个区买都能继承demo存档，但是你在日区买了，在美区还能再买一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 1129#       发表于 2022-3-25 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55167704&amp;ptid=2051152" target="_blank">逆旅行客 发表于 2022-3-24 14:13</a>
+
+本来我对这游戏剧情整体上感觉还行，抛开一夜灭国这种地方不谈，至少整体上逻辑在线，几个分支选择也真的是 ...</blockquote>
+同玩到15章，觉得帕特里亚德这种人一直没失势真挺扯的。太理想化的奸臣形象，实际做起事来废的不行还把自己命送掉。玩到现在还有两个感觉喂屎的点：男主的身世和罗兰的性格。
+
