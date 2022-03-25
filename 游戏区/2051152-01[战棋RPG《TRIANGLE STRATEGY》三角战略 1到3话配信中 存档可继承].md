@@ -12648,3 +12648,19 @@ image.png
 —— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
 好的，谢谢
 
+
+
+*****
+
+####  Adam0_0  
+##### 1127#       发表于 2022-3-25 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55142275&amp;ptid=2051152" target="_blank">vyou 发表于 2022-3-22 15:59</a>
+
+请问这作和FFTA比游戏性哪个更强一点。</blockquote>
+FFTA職業技能多太多
+
+但關卡太簡單
+
+難度來說三角比較好
+

@@ -2430,3 +2430,26 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 感觉还好
 
+
+
+*****
+
+####  SteinLee  
+##### 57196#       发表于 2022-3-25 08:56
+
+nika翻译成乐正好，乐子人果实
+
+*****
+
+####  proselyte  
+##### 57197#       发表于 2022-3-25 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55175034&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 00:40</a>
+
+发现有人接受了，那就说一下换果实的危害
+
+首先最直观的就是升级和强化。以后升级强化直接口胡完事，任何人 ...</blockquote>
+我觉得你还是看开点吧
+
+周刊连载二十多年要是水平没下降那尾田都不算人类了
+
