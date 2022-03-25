@@ -13601,3 +13601,14 @@ syl
 
 看了叶山哥通宵13小时无灵魂骨灰只身一人一匕首刮死女武神，感动<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11728#       发表于 2022-3-26 00:31
+
+看黛灰玩unpacking和料理模拟器真的很降压，做事细致又贴心，跟升压下饭类有不一样的好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">（话说这么A型血刻板印象居然是B型血
+
+ 说起来我大部分都是工作黑听的毫无察觉，打完之后黑客感慨还能窥见一名女性人生的故事我真挺佩服的，他很适合剧情类游戏，可惜现在已经没有耐心花好几窗去推长篇剧情的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
