@@ -12832,3 +12832,12 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 当然从前几章的剧情来看他爹和他哥对他也没什么指望，别搞事就行了
 
+
+
+*****
+
+####  Vladimeow  
+##### 1142#       发表于 2022-3-26 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本尼迪特那个二动技到底咋用的啊。。是给已经结束行动的队员使用然后立刻可以再动？
+
