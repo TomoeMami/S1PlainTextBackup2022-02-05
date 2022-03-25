@@ -12749,3 +12749,25 @@ FFTA職業技能多太多
 狗血归狗血，没这个宣称的话主角在那条线里就是勾结外国势力扶植傀儡国王归位之后翻脸不认人的纯反派了 ...</blockquote>
 现在不也差不多吗……无非也就是曹丕和朱棣的区别吧……
 
+
+
+*****
+
+####  Niyah  
+##### 1135#       发表于 2022-3-25 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55178056&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-25 10:27</a>
+
+除了铁国总帅，盐国骑士团长，可能再加个伊德，其他反派塑造的都过于模版化了 ...</blockquote>
+感觉编剧想要塑造的帕特里亚德是那种精擅权谋，无论何种情势都能靠逢迎混得风生水起的奸臣。结果针对男主家行动亲自出马就算了，一失败命都送掉，这也太<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 1136#       发表于 2022-3-25 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55183604&amp;ptid=2051152" target="_blank">逆旅行客 发表于 2022-3-25 17:48</a>
+
+男主的身世感觉狗血而且毫无必要，难道就为了让霸道结局有个合理的理由吗？你这国家都被灭过了，国王都要 ...</blockquote>
+十五章我没走王子那条线不知道他遇到了啥。前面的情节他总给我一种自暴自弃还经常意气用事（无能狂怒？）的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实挺怀疑他能不能当好国王
+

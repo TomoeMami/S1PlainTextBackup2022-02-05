@@ -8671,3 +8671,12 @@ y1s1，还是有两个搞笑艺人出力的。
 
 其实三酱唱歌听习惯了还不错的，准点打开当游戏bgm
 
+
+
+*****
+
+####  路人庚  
+##### 9916#       发表于 2022-3-25 20:05
+
+要是身上多放几个手机就能cos崇皇时王了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
