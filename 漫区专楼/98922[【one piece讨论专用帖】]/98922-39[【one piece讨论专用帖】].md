@@ -2824,3 +2824,21 @@ nika翻译成乐正好，乐子人果实
 
 看了野生汉化，想起来御田出海前还只是个胡闹的莽汉，找到one piece回国后才整个人变得笑嘻嘻的样子……这话又强调说尼卡能让人绽放笑容……<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tornadoDA  
+##### 57229#       发表于 2022-3-25 16:29
+
+<blockquote>wingzerocos 发表于 2022-3-25 14:31
+4档就在变外形了。</blockquote>
+那么5档浑身有火焰飘带，瞳孔变化，头发变成火，这都是橡胶的能力吗
+
+*****
+
+####  jxzeroga0  
+##### 57230#       发表于 2022-3-25 16:30
+
+戏里戏外都挺乐的，最后都是屁股大战了，果然OP是部自由的作品
+
