@@ -2891,3 +2891,24 @@ nika翻译成乐正好，乐子人果实
 就这点来说，我宁可当时香克斯是普通海贼，然后在路飞吃了果实后到长大出海的这段时间里闯出的四皇名头。 ...</blockquote>
 10年前肯定不是四皇啊
 
+
+
+*****
+
+####  kyanno  
+##### 57235#       发表于 2022-3-25 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55173022&amp;ptid=98922" target="_blank">gg326 发表于 2022-3-24 21:18</a>
+
+叫成动物系还是太怪了，动物系特点是使用者在常态不会受到过多影响，要变身成兽形/半兽型才会有特殊能力， ...</blockquote>
+可以借鉴后辈的漫画鬼灭之刃。前两个人变身动物相当于碳治郎初期使用战技的时候才有呼吸法，路飞是和柱一样包括睡觉在内都持续的使用呼吸法。
+
+*****
+
+####  7sevenseven  
+##### 57236#       发表于 2022-3-25 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55182857&amp;ptid=98922" target="_blank">GMJ 发表于 2022-3-25 16:48</a>
+就这点来说，我宁可当时香克斯是普通海贼，然后在路飞吃了果实后到长大出海的这段时间里闯出的四皇名头。 ...</blockquote>
+设定上红发是六年前才成为的四皇，也就是路飞出海四年前，他们分别的六年后
+

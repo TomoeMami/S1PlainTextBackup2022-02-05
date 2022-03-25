@@ -4664,3 +4664,12 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">刷到现在大概40箱，只掉了2张礼装，还都是在前10箱掉的…………根本刷不动
 
+
+
+*****
+
+####  khxooo  
+##### 87408#       发表于 2022-3-25 17:14
+
+小钟，刷个50金苹果助助兴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
