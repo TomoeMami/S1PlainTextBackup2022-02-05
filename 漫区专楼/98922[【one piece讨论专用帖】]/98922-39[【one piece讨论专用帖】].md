@@ -2842,3 +2842,52 @@ nika翻译成乐正好，乐子人果实
 
 戏里戏外都挺乐的，最后都是屁股大战了，果然OP是部自由的作品
 
+
+
+*****
+
+####  klzxs  
+##### 57231#       发表于 2022-3-25 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来就是讨论路飞的果实还有形态变化是不是特别
+
+说四档不也还是路飞吗
+
+不过这么提一下确实想不起来哪个超人系是有变身的
+
+我就想的起来一个吞吞果实的瓦波尔可以算变身
+
+不过这个也不算自己独力变的
+
+*****
+
+####  GMJ  
+##### 57232#       发表于 2022-3-25 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55151911&amp;ptid=98922" target="_blank">Cranberries 发表于 2022-3-23 10:22</a>
+
+海贼王当初谁知道连载这么多年。
+
+香克斯当初设定可能就是普通海贼。</blockquote>
+就这点来说，我宁可当时香克斯是普通海贼，然后在路飞吃了果实后到长大出海的这段时间里闯出的四皇名头。
+
+*****
+
+####  GMJ  
+##### 57233#       发表于 2022-3-25 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55154239&amp;ptid=98922" target="_blank">致远星总书记 发表于 2022-3-23 13:25</a>
+
+还不如编成橡胶果实能无限改变人体潜力，王路飞在面对同伴和自己生死关头时刻，冒着身体爆裂的危险吞下了另 ...</blockquote>
+乔巴：路飞心有两科心脏跳动就是看不起我乔某人的医术了，路飞的身体我乔巴里里外外都处理多少回了，他有几个心脏我能不知道？
+
+*****
+
+####  klzxs  
+##### 57234#       发表于 2022-3-25 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55182857&amp;ptid=98922" target="_blank">GMJ 发表于 2022-3-25 16:48</a>
+
+就这点来说，我宁可当时香克斯是普通海贼，然后在路飞吃了果实后到长大出海的这段时间里闯出的四皇名头。 ...</blockquote>
+10年前肯定不是四皇啊
+

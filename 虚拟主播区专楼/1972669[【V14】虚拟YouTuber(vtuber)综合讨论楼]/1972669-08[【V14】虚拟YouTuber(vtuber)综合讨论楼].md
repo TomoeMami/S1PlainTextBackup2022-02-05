@@ -13466,3 +13466,33 @@ GT7的终极鬼门S-10（单论难度比环难多了）总共几个小时就摸�
 
 2022-3-25 16:11 上传
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 11717#       发表于 2022-3-25 16:51
+
+<blockquote>终于将在明天！
+
+距离花谱高校毕业纪念演唱会，还有！1天！
+
+这3年间的生活中花谱的形象一直充满于脑海，于身边。栖身之所好像确立于另一个世界，不可思议、忽远忽近，在这个假想世界之中，从大家身上获取了各种各样的感情。一直以来真的非常感谢大家。
+
+这次LIVE，如果大家能够静静地守护我的话我会很开心的。我等着大家。
+
+花谱高校毕业纪念Special演唱会
+
+「我们叹气的一瞬间就会成为大人啊。」
+
+ 2022年3月26日(周六)19:00开演</blockquote>
+URL：[https://live.bilibili.com/blackboard/activity-AGgAY3Qs2z.html?is_live_full_webview=1](https://live.bilibili.com/blackboard/activity-AGgAY3Qs2z.html?is_live_full_webview=1)
+
+<img src="https://img.saraba1st.com/forum/202203/25/165015o4vro8dar03rxopa.png" referrerpolicy="no-referrer">
+
+<strong>1648198123701.png</strong> (587.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 16:50 上传
+
