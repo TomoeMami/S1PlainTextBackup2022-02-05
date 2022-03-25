@@ -2744,3 +2744,43 @@ nika翻译成乐正好，乐子人果实
 1.果实还是原来的橡胶果实能力，不是说觉醒了，就一拳秒凯多，比对响雷果实，暗暗果实，那才是真的果实本 ...</blockquote>
 超人系的橡胶果实那觉醒为啥会改变外观？？？这怕不是双果实，幻兽尼卡加橡胶果实，不然怎么能改变地形呢？
 
+
+
+*****
+
+####  tornadoDA  
+##### 57225#       发表于 2022-3-25 14:26
+
+<img src="https://img.saraba1st.com/forum/202203/25/142624dr5vc9vavvggxyvx.jpg" referrerpolicy="no-referrer">
+
+<strong>42792992723495BE0561053A6614AF89.jpg</strong> (217.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202203/25/142624f1yebeq1b51faprk.jpg" referrerpolicy="no-referrer">
+
+<strong>75557D222FB1BCC05DF995C5E60D6953.jpg</strong> (201.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202203/25/142624agihq24exq2tu4rr.jpg" referrerpolicy="no-referrer">
+
+<strong>F20F424C065776E9A41FD0CFD4092039.jpg</strong> (155.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 14:26 上传
+
+*****
+
+####  wingzerocos  
+##### 57226#       发表于 2022-3-25 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55181015&amp;ptid=98922" target="_blank">tornadoDA 发表于 2022-3-25 14:15</a>
+超人系的橡胶果实那觉醒为啥会改变外观？？？这怕不是双果实，幻兽尼卡加橡胶果实，不然怎么能改变地形呢 ...</blockquote>
+4档就在变外形了。
+
