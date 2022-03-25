@@ -2402,3 +2402,12 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 比起泥潭，还是看虎扑打滚好玩.跟火影鬼灭比那会就说自己热血王道，现在就说是搞笑冒险漫画，孝子纯度太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灵活分类了属于是.还要追溯到第一卷，看本漫画看魔怔了一堆人太绝了
 
+
+
+*****
+
+####  cdfjg  
+##### 57193#       发表于 2022-3-25 07:47
+
+我现在觉得最危险的血统有可能路飞妈那边的，如果是天龙人……<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
