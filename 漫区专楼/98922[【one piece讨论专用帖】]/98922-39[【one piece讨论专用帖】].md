@@ -2545,3 +2545,43 @@ nika翻译成乐正好，乐子人果实
 
 不然就全是问题，现在的路飞看着活活一个反派<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  赤魔法师  
+##### 57206#       发表于 2022-3-25 10:42
+
+这次加动物系，下次打黑胡子加太阳的自然系能力
+
+齐了
+
+*****
+
+####  7sevenseven  
+##### 57207#       发表于 2022-3-25 10:49
+
+我觉得很多人都认同更改了果实会动摇作品根基啊，贴吧找的图
+<img src="https://p.sda1.dev/5/b881214fb4203baed0f8e4ffe532e83e/851c0a55b319ebc41133554dc726cffc1f17164c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/ee234e4ace3ea904089cbeeaa215c9ea/IMG_CMP_72778926.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/d7b9c53d0636fe10b89bb69e0ed91d7b/IMG_CMP_81531635.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  wingzerocos  
+##### 57208#       发表于 2022-3-25 10:55
+
+解放之鼓是路飞的心跳？
+
+*****
+
+####  SadNess  
+##### 57209#       发表于 2022-3-25 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55177443&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 09:44</a>
+
+你的还是橡皮果实的能力，对应的情况是橡皮果实五档尼卡形态，而不是人人果实尼卡种觉醒
+
+现在情况不明朗 ...</blockquote>
+这话其实说的很明白了，世界政府为什么害怕这个果实觉醒，不是这个果实力量有多强，而是果实内寄宿的解放与自由意志，如果继承了这种意志，必将推翻现有的世界政府。这才是掩盖果实真名，到现在要灭口的原因。
+
