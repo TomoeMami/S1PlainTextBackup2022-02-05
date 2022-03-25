@@ -12841,3 +12841,15 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本尼迪特那个二动技到底咋用的啊。。是给已经结束行动的队员使用然后立刻可以再动？
 
+
+
+*****
+
+####  穿越护城河  
+##### 1143#       发表于 2022-3-26 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55188248&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-3-26 00:56</a>
+
+本尼迪特那个二动技到底咋用的啊。。是给已经结束行动的队员使用然后立刻可以再动？ ...</blockquote>
+对啊
+
