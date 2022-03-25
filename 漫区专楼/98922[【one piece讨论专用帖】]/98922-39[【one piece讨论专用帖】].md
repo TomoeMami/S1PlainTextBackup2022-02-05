@@ -2466,3 +2466,37 @@ nika翻译成乐正好，乐子人果实
 周刊连载二十多年要是水平没下降那尾田都不算人类了 ...</blockquote>
 新世界可以叫水平下降，和之国可以说剧情加速难以掌控，而变果实基本是否定作品了，水平再下降也不能整这个烂活
 
+
+
+*****
+
+####  owada  
+##### 57199#       发表于 2022-3-25 09:25
+
+<img src="https://img.saraba1st.com/forum/202203/25/092531ttferb2s44qtt40y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-25 09:25 上传
+
+什么变相怪杰
+
+*****
+
+####  Bojenkins  
+##### 57200#       发表于 2022-3-25 09:30
+
+这不比之前有乐子多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SadNess  
+##### 57201#       发表于 2022-3-25 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55176874&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 09:06</a>
+
+新世界可以叫水平下降，和之国可以说剧情加速难以掌控，而变果实基本是否定作品了，水平再下降也不能整这 ...</blockquote>
+什么叫否定作品，这个果实是全知全能了，还是秒天秒地了，不还是橡胶果实能力范畴吗？换个名字为了把路飞和joyboy，尼卡的传说串联到一起，是一种意志的传承。唯一的问题就是为什么现在觉醒了，是内在的还是外在的原因，尾田还没说明白，显得有点突兀。
+
