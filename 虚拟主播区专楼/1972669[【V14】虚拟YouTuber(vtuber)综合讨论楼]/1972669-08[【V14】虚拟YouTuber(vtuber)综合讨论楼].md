@@ -13543,3 +13543,33 @@ syl，新人开局瓦剪辑，这期唯一枪女来了
 
 这就是素人感，还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11723#       发表于 2022-3-25 20:57
+
+ 本帖最后由 fastary 于 2022-3-25 21:04 编辑 
+
+水无濑的声音倒是不错，但是动捕（机师）是三人最僵硬的……眼睛总觉得没有聚焦不知道在看哪里（放大了看清高光就好多了）。这差分数量让我开始思考是社长的爱还是U助的爱……
+
+syl
+
+虹最近live和发歌的频繁度让我认真的觉得2434在转型艺人事务所<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 11724#       发表于 2022-3-25 21:05
+
+哈箱最后一个男的能不能叫做哈箱叶或者哈叶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 11725#       发表于 2022-3-25 21:24
+
+想起了最近的某冠军AD<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/5b2699e201218daee202ece3326fa0a6/QQ图片20220325212318.png" referrerpolicy="no-referrer">
+
