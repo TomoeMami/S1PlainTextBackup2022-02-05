@@ -2411,3 +2411,22 @@ nga怎么尾田神教纯度那么高啊</blockquote>
 
 我现在觉得最危险的血统有可能路飞妈那边的，如果是天龙人……<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  导游  
+##### 57194#       发表于 2022-3-25 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55176151&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-25 07:47</a>
+
+我现在觉得最危险的血统有可能路飞妈那边的，如果是天龙人……</blockquote>
+再加上一些诸如“天龙人也有好(女）人”、“天龙人的妈由于阶级壁垒被迫殉情”、“龙为情所伤才创建了革命军”的狗血剧情……想着就比老坛酸菜还酸爽！
+
+*****
+
+####  越动天下  
+##### 57195#       发表于 2022-3-25 08:27
+
+感觉还好
+
