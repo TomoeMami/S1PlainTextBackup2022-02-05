@@ -13505,3 +13505,23 @@ URL：[https://live.bilibili.com/blackboard/activity-AGgAY3Qs2z.html?is_live_ful
 
 哈弟这箱的黑毛新人倒是看起来apex不太行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过皮是真好看啊
 
+
+
+*****
+
+####  winda  
+##### 11719#       发表于 2022-3-25 19:16
+
+ 本帖最后由 winda 于 2022-3-25 19:25 编辑 
+
+绯月居然是pad势，水平和叶山感觉也差不多，电脑还卡
+syl，新人开局瓦剪辑，这期唯一枪女来了
+瓦段位最高immortal，喷喷x段，来和noa，luna竞争来了
+
+*****
+
+####  Suzutsuki  
+##### 11720#       发表于 2022-3-25 19:22
+
+瓦罗指定唯一枪女来了
+
