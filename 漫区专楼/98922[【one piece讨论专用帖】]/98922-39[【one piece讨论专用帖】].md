@@ -3013,3 +3013,41 @@ nika翻译成乐正好，乐子人果实
 
 不过这果实如果解释不好真走成隔壁好基友岸本画的阿修罗因陀罗六道轮回之类的走向，海贼王也快彻底废了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逸yi  
+##### 57247#       发表于 2022-3-25 22:43
+
+所以两年后人物刻画本来就一泡污啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 57248#       发表于 2022-3-25 22:48
+
+笑死，这么高潮的剧情还要安排一段根本没人在意的和之国亲爹们的剧情，尾田江郎才尽可以不画
+
+*****
+
+####  cdfjg  
+##### 57249#       发表于 2022-3-25 22:55
+
+没有新敌人的话，路飞打完凯多大家都没事了，感觉有点轻松？
+传次郎摸鱼这么久，日和这里好像也不用他
+
+有点古怪
+
+*****
+
+####  银翼的维罗西  
+##### 57250#       发表于 2022-3-25 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55187239&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-25 22:55</a>
+
+没有新敌人的话，路飞打完凯多大家都没事了，感觉有点轻松？
+
+传次郎摸鱼这么久，日和这里好像也不用他</blockquote>
+才发现吗，凯多团除了凯老师本人是被草帽团对位全面碾压的，要不是来了个大妈助阵凯老师可能需要一打五<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
