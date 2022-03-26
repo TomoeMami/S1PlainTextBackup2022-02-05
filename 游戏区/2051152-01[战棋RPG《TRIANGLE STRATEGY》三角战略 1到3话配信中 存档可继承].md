@@ -12935,3 +12935,14 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 ----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ryj  
+##### 1152#       发表于 2022-3-26 13:11
+
+刷了几天信念终于劝过去了，结果后面几关每关都要给我塞个主动出击的npc是什么意思
+
+—— 来自 OPPO PAFM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
