@@ -13891,3 +13891,13 @@ lizean开幕交换定情信物，乐了
 花谱 高校毕业纪念Special演唱会
 [https://www.aliyundrive.com/s/St9K7SkQwo6](https://www.aliyundrive.com/s/St9K7SkQwo6)
 
+
+
+*****
+
+####  Kokichi  
+##### 11750#       发表于 2022-3-26 23:34
+
+哈弟箱的inu比想象中还能说，听着都会累的能说。
+水无濑枪可以。现在双人派被inu聊到应付不来，时不时才回想起自己营业人设营业声线有点生草。
+
