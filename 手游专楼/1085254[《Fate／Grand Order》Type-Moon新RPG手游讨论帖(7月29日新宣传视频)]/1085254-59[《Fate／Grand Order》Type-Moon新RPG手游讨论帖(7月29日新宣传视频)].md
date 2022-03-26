@@ -4890,3 +4890,15 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 100池+9，不过也就剩10苹果的余额了，留点苹果给后面吧。
 
+
+
+*****
+
+####  alucardcz  
+##### 87428#       发表于 2022-3-27 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55199345&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-3-26 23:40</a>
+
+你们好认真啊，这种活动高难我看都不会看一眼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁船给的是垃圾 下面2个给护符啊（
+

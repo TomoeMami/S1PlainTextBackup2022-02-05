@@ -9362,3 +9362,27 @@ syl [找到了](https://ngabbs.com/read.php?tid=17024052)
 阿夸的魂1，字母组有个初见的剪辑烤肉，还有个三小时速通烤肉</blockquote>
 这些都找到了 但是想云游戏所以想要看全程通关
 
+
+
+*****
+
+####  17119854  
+##### 8559#       发表于 2022-3-27 00:14
+
+爷复活了
+
+<img src="https://img.saraba1st.com/forum/202203/27/001422n5urf535unznqnkq.jpg" referrerpolicy="no-referrer">
+
+<strong>FOycjbXVUAEWDRI.jpg</strong> (194.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 00:14 上传
+
+*****
+
+####  nian1538  
+##### 8560#       发表于 2022-3-27 00:20
+
+好像说这个录好拖了太久不得不放了，明天再看下
+
