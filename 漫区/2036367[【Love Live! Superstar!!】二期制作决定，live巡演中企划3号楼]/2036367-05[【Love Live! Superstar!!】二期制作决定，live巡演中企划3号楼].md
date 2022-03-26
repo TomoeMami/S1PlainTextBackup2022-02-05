@@ -8349,3 +8349,22 @@ E6A59F5C-FD1A-49A6-AD01-EC96AA4B7066.jpeg
 CelticWhite</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">每次看到香音汪酱都想笑
 
+
+
+*****
+
+####  名津流  
+##### 6624#       发表于 2022-3-26 17:37
+
+看来国外也基本认可鲤酱是裂啦专属摄影师的名头了啊，pay新图那很多人感谢鲤酱
+
+<img src="https://img.saraba1st.com/forum/202203/26/173452u6bo3pbl41lk0b03.jpg" referrerpolicy="no-referrer">
+
+<strong>3h2Nla2.jpg</strong> (515.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 17:34 上传
+
+这个特点貌似有逆输入的可能？前几天games的这个健全水着图（貌似没人发过？），可可也是拍摄担当
+

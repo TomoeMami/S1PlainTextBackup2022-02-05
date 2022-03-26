@@ -4718,3 +4718,12 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 一个晚上把锁图高难给打了，最后还是图省事交了2发令咒，小太郎最后一管血给我来了个3连回避，差点就翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87413#       发表于 2022-3-26 17:41
+
+艹 这新锁船第1个就这么麻烦。。难度没有 但是要打很久啊
+
