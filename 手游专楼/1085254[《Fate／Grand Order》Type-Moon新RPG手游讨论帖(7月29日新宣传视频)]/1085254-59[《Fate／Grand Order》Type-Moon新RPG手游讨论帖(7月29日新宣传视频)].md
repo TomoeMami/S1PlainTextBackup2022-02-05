@@ -4736,3 +4736,33 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一个结晶而已 无视了
 
+
+
+*****
+
+####  sosgame67  
+##### 87415#       发表于 2022-3-26 18:28
+
+小太郎主要是不想用大拐打的痛苦..不过这次依然是第一个本最难<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87416#       发表于 2022-3-26 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55195354&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-3-26 18:28</a>
+
+小太郎主要是不想用大拐打的痛苦..不过这次依然是第一个本最难</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白贞+三藏+个送死的  很轻松就是麻烦。。。。。我打了15分钟
+
+*****
+
+####  sosgame67  
+##### 87417#       发表于 2022-3-26 18:31
+
+ 本帖最后由 sosgame67 于 2022-3-26 18:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55195375&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-26 18:30</a>
+
+白贞+三藏+个送死的  很轻松就是麻烦。。。。。我打了15分钟</blockquote>
+日服没白贞我一直习惯用c呆解异常了..这次难得拉出了仓库的医神<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
