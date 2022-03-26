@@ -12062,3 +12062,21 @@ co子活啦！co子活啦！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前其实我还是不太相信qa是文静写的  看今天文静的反应很难不把这层滤镜干碎了
 
+
+
+*****
+
+####  人民de救星  
+##### 5781#       发表于 2022-3-26 21:32
+
+dlsite<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nishazhiyang  
+##### 5782#       发表于 2022-3-26 21:35
+
+文静竟然请来了dlsite作嘉宾
+

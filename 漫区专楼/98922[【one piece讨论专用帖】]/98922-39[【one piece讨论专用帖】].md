@@ -3971,3 +3971,58 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 
 —— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  klzxs  
+##### 57313#       发表于 2022-3-26 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55197078&amp;ptid=98922" target="_blank">gg326 发表于 2022-3-26 20:49</a>
+
+罗宾8岁就被编了个“奥哈拉的恶魔”的理由悬赏8000万，能动用CP大将去捉她，到人人果实幻兽种尼卡能力者就 ...</blockquote>
+路飞也不需要什么借口，他本身就是大罪犯了
+
+司法岛在他身上发动了屠魔令，天龙人事件直接上了大将
+
+虽然这些事肯定都和果实无关，但确实是动用了相当力量了
+
+其实提到的罗宾也能说明一部分问题
+
+对于橡胶果实五老星的想法我们暂且不得而知
+
+但罗宾肯定是被视为相当的威胁，她也从8岁开始跑了二十年了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这方面我觉得海军大概确实没那么强大的能力
+
+*****
+
+####  lqchina  
+##### 57314#       发表于 2022-3-26 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55197293&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-26 21:07</a>
+
+剧情跟设定一回事，都是情节的一部分，你前面打得一大堆字都是在解释这个你所谓不在的设定，让他合乎情理 ...</blockquote>
+我本来在乎过，是在霸气出来推翻果实相克设定的时候，既然都没人在乎，那我还在乎什么呢？既然当时都没人在乎，所以我才奇怪你们为何现在才叫。
+
+剧情是故事线，设定是故事线的支撑点和逻辑自洽点，两者都很重要，但并不是一回事儿。这个支柱和拿来自洽的逻辑虽然早就已经面目全非了，但至少整个故事线并没有崩坏，前因后果并未因为设定的问题出现太过分的矛盾。网上的梗图我也看了不少，但也就只是梗图罢了。
+
+说白了就是，我不在乎，但我现在明白你们为啥这么在乎了，我很同情，但我无法共情。你非要把你们纠结的东西搞得大家都来跟你们共情，抱歉，实在做不到。
+
+*****
+
+####  谁说法海不懂爱  
+##### 57315#       发表于 2022-3-26 21:21
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-26 21:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55197494&amp;ptid=98922" target="_blank">lqchina 发表于 2022-3-26 21:20</a>
+
+我本来在乎过，是在霸气出来推翻果实相克设定的时候，既然都没人在乎，那我还在乎什么呢？既然当时都没人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">建议把你前面那堆文字编辑了，省得人嘈你。讨论中出现异见者是很正常的，包括作品情节有好坏之处，讨论提及都是正常的，但安成分来回避讨论本身，自顾自宣布正确是会挺让人迷惑的。
+
+*****
+
+####  OnlyW  
+##### 57316#       发表于 2022-3-26 21:26
+
+漫画不是拿来让读者赞美作者伏笔埋了几年的，说实话如果和之国篇评价没拉，这次争议不会这么大
+

@@ -4778,3 +4778,16 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  khxooo  
+##### 87419#       发表于 2022-3-26 21:24
+
+ 本帖最后由 khxooo 于 2022-3-26 21:27 编辑 
+
+决战服5级了，这么容易升级的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+本想用3狐狸队的，可惜好友EX挂狐狸的太少了，只能换回仇凛队。
+
