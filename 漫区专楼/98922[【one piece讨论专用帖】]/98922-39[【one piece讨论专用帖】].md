@@ -4086,3 +4086,49 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 
 其实我觉得这话挺好的，除了御田的部分
 
+
+
+*****
+
+####  5678给  
+##### 57322#       发表于 2022-3-26 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55198022&amp;ptid=98922" target="_blank">lqchina 发表于 2022-3-26 21:56</a>
+我一直是不明白的，不懂你们在纠结什么。刚刚才明白了一点，感觉挺同情的。
+
+确实，互不认同就要给按名头 ...</blockquote>
+按名头这一点我如果没记错的话好像是您先开始的呀，上来就是现在凡是对这件事情不满的都是怎么怎么样的人，不是吗？
+
+*****
+
+####  lqchina  
+##### 57323#       发表于 2022-3-26 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55198107&amp;ptid=98922" target="_blank">5678给 发表于 2022-3-26 22:01</a>
+
+按名头这一点我如果没记错的话好像是您先开始的呀，上来就是现在凡是对这件事情不满的都是怎么怎么样的人 ...</blockquote>
+是么？哪儿？我改呗。
+
+*****
+
+####  谁说法海不懂爱  
+##### 57324#       发表于 2022-3-26 22:05
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-26 22:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55198022&amp;ptid=98922" target="_blank">lqchina 发表于 2022-3-26 21:56</a>
+
+我一直是不明白的，不懂你们在纠结什么。刚刚才明白了一点，感觉挺同情的。
+
+确实，互不认同就要给按名头 ...</blockquote>
+你这种就是在转移话题，前面也有坛友说，别人跟你谈剧本问题，你给歪到别的地方，然后给人定性。我前面第一次回你，你就回避我对你具体情节的论述，转而到现在都在车轱辘纠结同情没问题这个词上。所以后面扯起来就跟一开始说的东西作品本身都没关系了。
+
+*****
+
+####  lqchina  
+##### 57325#       发表于 2022-3-26 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55198176&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-26 22:05</a>
+
+你这种就是在转移话题，前面也有坛友说，别人跟你谈剧本问题，你给歪到别的地方，然后给人定性。我前面第 ...</blockquote>
+不是已经对互不认同表示理解了么，就别再回了。
+
