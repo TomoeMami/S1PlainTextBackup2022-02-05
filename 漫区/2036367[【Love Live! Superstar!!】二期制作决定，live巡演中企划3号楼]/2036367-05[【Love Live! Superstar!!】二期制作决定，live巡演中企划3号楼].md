@@ -8318,3 +8318,22 @@ E6A59F5C-FD1A-49A6-AD01-EC96AA4B7066.jpeg
 
 本来为了线上特典T买的e+，这下只有10分钟，我觉得可以有，反正那个T也穿不出去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 6621#       发表于 2022-3-26 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55189069&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-26 07:01</a></blockquote>
+这个好，是固定每期都有人转化成文字版吗？是的话我想关注
+
+*****
+
+####  仟音一心  
+##### 6622#       发表于 2022-3-26 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55194203&amp;ptid=2036367" target="_blank">名津流 发表于 2022-3-26 16:46</a>
+这个好，是固定每期都有人转化成文字版吗？是的话我想关注</blockquote>
+不是
+
