@@ -8337,3 +8337,15 @@ E6A59F5C-FD1A-49A6-AD01-EC96AA4B7066.jpeg
 这个好，是固定每期都有人转化成文字版吗？是的话我想关注</blockquote>
 不是
 
+
+
+*****
+
+####  ykyin09  
+##### 6623#       发表于 2022-3-26 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55191541&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-26 12:15</a>
+
+CelticWhite</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">每次看到香音汪酱都想笑
+

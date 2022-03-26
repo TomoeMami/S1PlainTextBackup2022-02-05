@@ -3582,3 +3582,54 @@ emmm
 
 至于为什么世界政府把这个果实叫尼卡果实，可能这个就要和空白的一百年和恶魔果实起源扯上关系了。
 
+
+
+*****
+
+####  csd  
+##### 57294#       发表于 2022-3-26 17:03
+
+这楼里的某些脑补感动党挺有意思的，有巨人粉临终前那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 先手必胜| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  lqchina  
+##### 57295#       发表于 2022-3-26 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55194194&amp;ptid=98922" target="_blank">Gooddays 发表于 2022-3-26 16:45</a>
+
+你问大家为何不跟你一样嘛，当中原因便是你说这些在目前为止大多是脑补，剧情在这一刻没描写那些行为当中 ...</blockquote>
+基于现有剧情提供的所有线索进行很简单的推理就能得出的合理结论，你硬要说是自以为是的脑补那就是吧。
+
+我只是在告诉那些看不懂为何被骂的读者，我也不懂为啥要骂，但你们如果觉得还不错的话，也并没有理解错误，我能给出合理的解释。
+
+既然你都对着尾田开骂了，自然知道为啥要骂，何必还跟我们这些不懂你们在干嘛的所谓脑补党一般见识呢？
+
+*****
+
+####  仟音一心  
+##### 57296#       发表于 2022-3-26 17:05
+
+马上改名！
+
+2B19F75E-F97B-43C4-AB12-8B8D2F7B27B1.jpeg
+(228 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 17:05 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/170535tr6zqqeu60069e2u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
