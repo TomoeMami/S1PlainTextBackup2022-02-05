@@ -4800,3 +4800,50 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 我断断续续打了2个多小时了 还剩2关
 
+
+
+*****
+
+####  qixinno2  
+##### 87421#       发表于 2022-3-26 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55198460&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-26 22:25</a>
+
+草 我断断续续打了2个多小时了 还剩2关</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">佩服 我尝试打了一关 打半截直接放弃了
+
+*****
+
+####  alucardcz  
+##### 87422#       发表于 2022-3-26 22:52
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 87423#       发表于 2022-3-26 22:52
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 87424#       发表于 2022-3-26 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55198610&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-26 22:36</a>
+
+佩服 我尝试打了一关 打半截直接放弃了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/26/225231bc9tr6qr996zpg39.jpg" referrerpolicy="no-referrer">
+
+<strong>2356.jpg</strong> (372.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 22:52 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜猜这3t秒了 我sl了多久
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还剩最后一关了
+
