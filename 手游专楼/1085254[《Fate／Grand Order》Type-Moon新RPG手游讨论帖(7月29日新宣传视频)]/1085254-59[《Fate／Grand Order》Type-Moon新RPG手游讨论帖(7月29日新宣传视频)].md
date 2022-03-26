@@ -4766,3 +4766,15 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 白贞+三藏+个送死的  很轻松就是麻烦。。。。。我打了15分钟</blockquote>
 日服没白贞我一直习惯用c呆解异常了..这次难得拉出了仓库的医神<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87418#       发表于 2022-3-26 18:53
+
+刚刚打完了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+这种设计很恶心，下次不要再搞了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
