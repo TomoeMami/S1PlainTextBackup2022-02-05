@@ -4709,3 +4709,12 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 新的高难啥机制啊，还在刷打神祖的大腿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有个等于没有的红耐  其他懒得看了。。 反正3t秒了
 
+
+
+*****
+
+####  xiongxingyu  
+##### 87412#       发表于 2022-3-26 09:34
+
+一个晚上把锁图高难给打了，最后还是图省事交了2发令咒，小太郎最后一管血给我来了个3连回避，差点就翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
