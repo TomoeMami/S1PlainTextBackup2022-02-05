@@ -3500,3 +3500,34 @@ emmm
 
 有点巨人味了，倒数第二话的狂欢我还记得。
 
+
+
+*****
+
+####  cdfjg  
+##### 57288#       发表于 2022-3-26 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55193932&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-26 16:18</a>
+ 有点巨人味了，倒数第二话的狂欢我还记得。</blockquote>
+如果这是海贼倒数第二话到简单了……
+将来真到最后的岛，一看joyboy的整活，再回忆800年。估计以尾田现在的状态也画不好了，又是一顿喷
+
+*****
+
+####  六道仙鱼  
+##### 57289#       发表于 2022-3-26 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55193856&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-3-26 16:11</a>
+
+和巨人一样，厨黑大战是吧！</blockquote>
+在知道one piece到底是个啥之前，情绪依旧稳定<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">因为我现在觉得不管op是个啥，结合一些剧情，都会很乐子。
+
+*****
+
+####  Supermangunv3  
+##### 57290#       发表于 2022-3-26 16:36
+
+<blockquote>六道仙鱼 发表于 2022-3-26 16:31
+在知道one piece到底是个啥之前，情绪依旧稳定因为我现在觉得不管op是个啥，结合一些剧情，都会很 ...</blockquote>
+反正就是1000多话了最重要的三个问题，大秘宝是什么？空白的一百年发生了什么？恶魔果实的原理是什么？（目前只说了动物系果实有自己意志。）一句话不说，两年后还挖了这么多无关紧要的坑，简直了。
+
