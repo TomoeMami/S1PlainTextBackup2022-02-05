@@ -13663,3 +13663,66 @@ syl
 你虹是真缺钱了吧。
 真直播带货起来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 11735#       发表于 2022-3-26 19:22
+
+因为看得多了大概能看出来
+是录播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  baizhi  
+##### 11736#       发表于 2022-3-26 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55195962&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-3-26 19:22</a>
+
+因为看得多了大概能看出来
+
+是录播</blockquote>
+在虚拟世界虚拟一点，对自己耳朵好一点，录歌挺好的。<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|不是，是虹掩盖的手法有点拙劣…….|
+
+查看全部评分
+
+*****
+
+####  rzrbtk  
+##### 11737#       发表于 2022-3-26 19:24
+
+ 本帖最后由 rzrbtk 于 2022-3-26 19:39 编辑 
+
+跳得比虹一砖MMD好多了，意外！
+
+这首很好但inui的偶像舞蹈也想看<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，
+
+来惹，还是紫团曲！
+
+*****
+
+####  布莱士·西伯利  
+##### 11738#       发表于 2022-3-26 19:25
+
+至少带货是真带货，lize也是真可爱。
+
+*****
+
+####  winda  
+##### 11739#       发表于 2022-3-26 19:33
+
+[https://www.youtube.com/watch?v=5zitEf2bWaQ](https://www.youtube.com/watch?v=5zitEf2bWaQ)
+
+qu酱今天毕业回
+
