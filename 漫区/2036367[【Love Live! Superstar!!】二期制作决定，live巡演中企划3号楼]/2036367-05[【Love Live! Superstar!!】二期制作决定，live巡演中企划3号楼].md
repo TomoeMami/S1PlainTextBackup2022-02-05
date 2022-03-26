@@ -8196,3 +8196,116 @@ Liyuu: 在日中国人因为会说日语，如果突然被陌生人用中文问�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 6616#       发表于 2022-3-26 11:54
+
+只延迟十分钟应该是极限了
+
+9ABB1D9D-B6E4-4D23-8B9F-F8112253B7B4.jpeg
+(303.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:53 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115340bp558gmgmkcml89e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6617#       发表于 2022-3-26 11:54
+
+<blockquote>ins
+
+外景第四弹！💫
+
+现在part.3正在公开中！
+
+part.3为了获得好吃的食材玩了多米诺骨牌！请务必要去看哦💚
+
+照片是鲤酱给我拍的🥰
+
+谢谢你一直把我拍的这么可爱❣️#lovelive##liella# </blockquote>
+
+872406A6-D2FA-466D-AEC2-4DBE00A0CB08.jpeg
+(459.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115430wzqdmz38f0q7nfmm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0A1F1FE8-D8DD-408C-ADB4-B17BECF1BD90.jpeg
+(479.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115430yyoocp6huc6coppb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+66CEB68D-E4A9-4E23-969D-8ADB0E3C1FAF.jpeg
+(368.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115430vke4q4pr29z5wz9r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C3E12CC2-06C4-4DE1-BE8C-2E763A789AF2.jpeg
+(393.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115431dz60b4m703tb70fb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+30458893-75C4-499F-88B8-80B56FF2B8A5.jpeg
+(287.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115431qvu7kv4ovn7v8y3t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+895A6EF3-B40F-4CED-9F6D-5ADB7938F8EA.jpeg
+(210.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/115438gxsvlssxv8lsazqy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6618#       发表于 2022-3-26 12:15
+
+CelticWhite
+
+E6A59F5C-FD1A-49A6-AD01-EC96AA4B7066.jpeg
+(193.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/121536ebtfxtq10bly8lgf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 6619#       发表于 2022-3-26 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55191272&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-26 11:54</a></blockquote>
+最近几天pay的照片都好看，BLT还有准备发售的声优R，连自拍也变得上手<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -3236,3 +3236,24 @@ nika翻译成乐正好，乐子人果实
 
 现在砖楼讨论的真名假名果实还挺怪的，如果不是为了师出有名，那这话估计就是复活后展现这些能力，也不用安排大段解说，之前也不用下死命令。虽然就观感来说，是很突兀的追加设定。
 
+
+
+*****
+
+####  草海灭巨  
+##### 57265#       发表于 2022-3-26 11:58
+
+ 本帖最后由 草海灭巨 于 2022-3-26 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55179278&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-25 11:49</a>
+别的不说，现在说这玩意是他们一直想入手，但果实像有意志一样无法得到就是问题了。 ...</blockquote>
+简单的说就是，过去的剧情看不出他们很重视这个果实
+哪怕你前期提一嘴有个海贼吃了橡胶果实要注意一下也行啊，更何况这个海贼还是四皇红发引导的，d之一族，卡普老爷子的孙子，龙的儿子，海贼王儿子的结拜兄弟，司法岛的破坏者，深海大监狱的越狱者，顶上战争的搅局者，还戴着一顶罗杰/joyboy的草帽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这上面任一个身份哪不值得你五老星提高警惕的，更何况还特么全都凑齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  584520184  
+##### 57266#       发表于 2022-3-26 12:08
+
+只有女帝赢了的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
