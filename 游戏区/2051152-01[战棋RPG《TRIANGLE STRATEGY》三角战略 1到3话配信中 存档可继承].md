@@ -12957,3 +12957,22 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 这几个ne一个比一个抑郁，打完感觉气咽不下去
 
+
+
+*****
+
+####  Adam0_0  
+##### 1154#       发表于 2022-3-26 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55195067&amp;ptid=2051152" target="_blank">MikawaFumika 发表于 2022-3-26 18:02</a>
+
+这几个ne一个比一个抑郁，打完感觉气咽不下去</blockquote>
+我反倒覺得NE挺真實
+
+完美結局很多東西很都合
+
+太不自然了
+
+反許是因為我無法喜歡男女主角這對CP
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
