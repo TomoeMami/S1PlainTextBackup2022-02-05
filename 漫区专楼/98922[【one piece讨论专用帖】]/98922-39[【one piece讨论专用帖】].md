@@ -3286,3 +3286,21 @@ nika翻译成乐正好，乐子人果实
 
 所以如此信誓旦旦是为什么?
 
+
+
+*****
+
+####  uponutopia  
+##### 57269#       发表于 2022-3-26 12:46
+
+有什么好纠结的一直念叨，吃了就是吃了，改了就是改了，开了就是开了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  
+
+WT早就说了你觉得海贼变了是因为你长大了，你应该去看大人/成年人该看的东西了，这已经说得很委婉了，直白点就是六字真言<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  和真克瓦尔  
+##### 57270#       发表于 2022-3-26 12:55
+
+现在最大的问题是这搞笑模式咋封印住？以后肯定不能动不动就掏出来，如果作为搞笑角色还输给正经角色那可成彻底的🤡了。除非路飞打算转职成一拳光头like今后永远不败
+

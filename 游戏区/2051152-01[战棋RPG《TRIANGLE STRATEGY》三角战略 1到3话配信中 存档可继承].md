@@ -12922,3 +12922,16 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 为啥我越打比主线的推荐等级越低，难度也感觉越来越大，要去驻扎所练级吗 ...</blockquote>
 撤退保留等级和经验，不追求拿不死人饰品的话可以直接在关卡内练级，打到lose了自动撤退重来就行
 
+
+
+*****
+
+####  牧月萌  
+##### 1151#       发表于 2022-3-26 12:58
+
+觉着难可以先把梯子哥和药师妹妹弄出来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+我现在已经是药师妹妹的形状了，没她都不会玩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
+
