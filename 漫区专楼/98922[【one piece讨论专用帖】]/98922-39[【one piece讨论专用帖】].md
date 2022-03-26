@@ -3257,3 +3257,32 @@ nika翻译成乐正好，乐子人果实
 
 只有女帝赢了的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cdfjg  
+##### 57267#       发表于 2022-3-26 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55191320&amp;ptid=98922" target="_blank">草海灭巨 发表于 2022-3-26 11:58</a>
+ 简单的说就是，过去的剧情看不出他们很重视这个果实 哪怕你前期提一嘴有个海贼吃了橡胶果实要注意一下也 ...</blockquote>
+这是真的说不过去，草帽海贼团的危险程度值得每到一个岛都发动屠魔令
+
+*****
+
+####  Supermangunv3  
+##### 57268#       发表于 2022-3-26 12:30
+
+ 本帖最后由 Supermangunv3 于 2022-3-26 12:32 编辑 
+
+<img src="https://img.saraba1st.com/forum/202203/26/123046h6so1sv2wzo6446p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1648267381622.jpeg</strong> (52.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-3-26 12:30 上传
+
+所以如此信誓旦旦是为什么?
+
