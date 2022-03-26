@@ -12875,3 +12875,30 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 他有两个3tp技能，一个是把队友直接拉到下一个行动队列，自己动完了他立刻动，效果和令出必行绝技是一样 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">懂了，我现在开了第一个，以为是后面那个BUFF效果，好强啊管家哥。顺便想问下一转素材大概啥时候开始掉，现在第六章还是一堆虾兵蟹将，好艰难。
 
+
+
+*****
+
+####  Petilil  
+##### 1146#       发表于 2022-3-26 11:08
+
+<blockquote>Vladimeow 发表于 2022-3-26 10:41
+懂了，我现在开了第一个，以为是后面那个BUFF效果，好强啊管家哥。顺便想问下一转素材大概啥时候 ...</blockquote>
+下一章应该就能掉了吧，这种勋章一般是boss掉的，首先这关得有boss…
+
+*****
+
+####  Vladimeow  
+##### 1147#       发表于 2022-3-26 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55190720&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-26 11:08</a>
+下一章应该就能掉了吧，这种勋章一般是boss掉的，首先这关得有boss…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我普通难度都打得有点蛋疼，这游戏难度对我来说好高，太难了，不过目前还没死人。
+
+*****
+
+####  陈玉礼  
+##### 1148#       发表于 2022-3-26 11:11
+
+为啥我越打比主线的推荐等级越低，难度也感觉越来越大，要去驻扎所练级吗
+
