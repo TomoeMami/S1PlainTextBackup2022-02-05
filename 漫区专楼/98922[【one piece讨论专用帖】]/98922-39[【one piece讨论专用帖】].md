@@ -4173,3 +4173,18 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 
 好奇绿牛会以一个什么样的契机露脸，身上有什么线索值得让他在藤虎出场这么久了还不出面
 
+
+
+*****
+
+####  baizhi  
+##### 57330#       发表于 2022-3-27 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55192055&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-26 12:57</a>
+参考动画龙珠超的自极不濒死开不了就可以解决了，虽然这种开了场面会不好看。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但悟空濒死是开启冷酷模式，路飞这濒死开启嘻嘻哈哈的搞笑模式，会不会有点太滑稽了。。。
+
+妈的，路飞前一话为了自由与和平绝对不会停下来的必杀乱打，多热血啊。
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
