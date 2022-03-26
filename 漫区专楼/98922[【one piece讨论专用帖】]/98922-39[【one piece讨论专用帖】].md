@@ -3633,3 +3633,183 @@ emmm
 
 <img src="https://img.saraba1st.com/forum/202203/26/170535tr6zqqeu60069e2u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Supermangunv3  
+##### 57297#       发表于 2022-3-26 18:04
+
+一个费劲心思圆的分析师，看看，反正就图一乐
+
+Screenshot_20220326_180019_com.zhihu.android.jpg
+(133.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180406n1hhgg0rg854cuhh.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180030_com.zhihu.android.jpg
+(173.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180425yjgnh3ivzn8wz8tw.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180035_com.zhihu.android.jpg
+(165.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180426jg8fazjgxn55q02a.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180043_com.zhihu.android.jpg
+(245.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180428bjsylnkh7777jyb0.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180055_com.zhihu.android.jpg
+(183.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180429vg72c7cl7q9j3jez.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180059_com.zhihu.android.jpg
+(225.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180430bbam44tbnjq4iq4n.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180103_com.zhihu.android.jpg
+(251.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180430fg80yc8edjtdscyd.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180110_com.zhihu.android.jpg
+(186.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180431gpxhh9xmpo508oh4.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180114_com.zhihu.android.jpg
+(216.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180432oiilzhp4uz5ph5zk.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180120_com.zhihu.android.jpg
+(142.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180433fcacujyckvn5i7la.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180124_com.zhihu.android.jpg
+(170.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180434sl3iozppf103wh0p.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180128_com.zhihu.android.jpg
+(189.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180435ivgu6edhoveud6g0.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180136_com.zhihu.android.jpg
+(231.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180436qf79jmoroo7urafa.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180142_com.zhihu.android.jpg
+(160.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180437uqqaj7lafiza9lpe.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180147_com.zhihu.android.jpg
+(180.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180438unv2jii86e28ttt8.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20220326_180151_com.zhihu.android.jpg
+(172.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-26 18:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/26/180439ns4sttgizi8x777z.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  thomaszyj  
+##### 57298#       发表于 2022-3-26 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55193419&amp;ptid=98922" target="_blank">lqchina 发表于 2022-03-26 15:24:27</a>
+一开始，政府觉得橡胶果实觉醒的秘密不能让任何人知道。他们认定，只要果实持有者不知道觉醒的秘密，应该就 ...</blockquote>大将杀路飞的原因漫画里说的很明显，是龙的儿子，是高悬赏犯人，和这个果实没关系。如果这个果实是一开始就设定好的，那么前期五老星对路飞的态度和评价就很奇怪，五老星对路飞关注的一直是D，而不是果实或者是草帽。鉴于霸气这个后来加上的设定，完全有理由说这个尼卡果实也是后期加上去的设定。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  inconolast  
+##### 57299#       发表于 2022-3-26 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿米有个词叫思维体操，指通过长的一逼的逻辑得出结论
+
+上面那分析就给我这种感觉了
+
+*****
+
+####  少年包工头  
+##### 57300#       发表于 2022-3-26 18:15
+
+作为读者我的底线是索隆千万别“开眼”！
+瞎了就是瞎了可千万别走入最最最最最烂俗的展开求求尾田了！
+

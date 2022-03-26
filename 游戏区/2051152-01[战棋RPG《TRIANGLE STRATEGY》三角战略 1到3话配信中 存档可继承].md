@@ -12946,3 +12946,14 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 —— 来自 OPPO PAFM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  MikawaFumika  
+##### 1153#       发表于 2022-3-26 18:02
+
+ 本帖最后由 MikawaFumika 于 2022-3-26 18:08 编辑 
+
+这几个ne一个比一个抑郁，打完感觉气咽不下去
+
