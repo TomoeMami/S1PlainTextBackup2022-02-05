@@ -12864,3 +12864,14 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 本尼迪特那个二动技到底咋用的啊。。是给已经结束行动的队员使用然后立刻可以再动？ ...</blockquote>
 他有两个3tp技能，一个是把队友直接拉到下一个行动队列，自己动完了他立刻动，效果和令出必行绝技是一样的；另一个是给队友上一个buff，让他在轮到他下一次行动的时候可以连续行动两次
 
+
+
+*****
+
+####  Vladimeow  
+##### 1145#       发表于 2022-3-26 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55188659&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-26 02:11</a>
+他有两个3tp技能，一个是把队友直接拉到下一个行动队列，自己动完了他立刻动，效果和令出必行绝技是一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">懂了，我现在开了第一个，以为是后面那个BUFF效果，好强啊管家哥。顺便想问下一转素材大概啥时候开始掉，现在第六章还是一堆虾兵蟹将，好艰难。
+
