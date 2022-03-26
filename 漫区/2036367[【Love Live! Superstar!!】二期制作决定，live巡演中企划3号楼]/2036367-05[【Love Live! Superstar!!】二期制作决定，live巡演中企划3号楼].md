@@ -8309,3 +8309,12 @@ E6A59F5C-FD1A-49A6-AD01-EC96AA4B7066.jpeg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55191272&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-26 11:54</a></blockquote>
 最近几天pay的照片都好看，BLT还有准备发售的声优R，连自拍也变得上手<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6620#       发表于 2022-3-26 14:51
+
+本来为了线上特典T买的e+，这下只有10分钟，我觉得可以有，反正那个T也穿不出去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
