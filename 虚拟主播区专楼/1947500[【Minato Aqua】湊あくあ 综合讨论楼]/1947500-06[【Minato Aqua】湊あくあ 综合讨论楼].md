@@ -9303,3 +9303,17 @@ ASMR就不用说了，杂谈有时也感觉挺色的
 
 会限短文，电脑无限蓝屏，0xc00002e3，等运营回复。大概只能重装系统了
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 8554#       发表于 2022-3-26 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55183661&amp;ptid=1947500" target="_blank">fromsaitama 发表于 2022-3-25 17:53</a>
+
+话说哪还能找到夸宝黑魂1的初见录像啊，油管删档了B站也没，难道得去找字幕组老人py吗 ...</blockquote>
+[https://hololivevideos.download/channel/minatoaqua](https://hololivevideos.download/channel/minatoaqua)
+
+这里能下载以前的旧档，只不过都是480p的
+
