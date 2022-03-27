@@ -4337,3 +4337,31 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 
 所以说贴吧版命运论看起来恶臭了点，但也比尾田强不少
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57344#       发表于 2022-3-27 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55203334&amp;ptid=98922" target="_blank">摸鱼先锋 发表于 2022-3-27 12:29</a>
+
+那么，和之国肉眼可见的快完事了，接下来又要到大家最喜闻乐见的最新世界局势介绍，从世界会议来看至少有薇 ...</blockquote>
+还有海军针对七武海的秘密武器，如果现在搞加速爆点的话，可能膨胀一波，搞出比本体弱一些的量产凯多级选手，对应两年前的量产熊。刚好凯多也被抓去研究过。
+
+*****
+
+####  肉搏光头  
+##### 57345#       发表于 2022-3-27 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55195389&amp;ptid=98922" target="_blank">lqchina 发表于 2022-3-26 18:31</a>
+
+我大概算是明白负评的点了，关键就是这设定到底是啥时候做好的是吧。如果是一开始就做好了，那尾田牛逼。 ...</blockquote>
+嘴遁三件套：
+
+1 我无所谓的，我不在乎的，不关我事的都是消遣，小事而已，很无聊的
+
+2 你们怎么怎么不好，你们好可怜，我好同情你们啊
+
+3  别说了别说了
+

@@ -4973,3 +4973,36 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 我还想着联动完街机就把街机当异闻带给铡了 看来还是舍不得盐川大尊师的遗产啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87436#       发表于 2022-3-27 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我讨厌riyo那玩意儿
+
+*****
+
+####  eyeego  
+##### 87437#       发表于 2022-3-27 13:30
+
+这俩真不是从pm跑出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/d6a0f91ae2faf7fdf34d181918812ecd/IMG_CMP_178694316.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 87438#       发表于 2022-3-27 13:33
+
+越南双子姐妹，二征夫人？对抗北方强大侵略者东汉马援，这国服怕是过不了
+
+*****
+
+####  kxh007458  
+##### 87439#       发表于 2022-3-27 13:37
+
+<blockquote>eyeego 发表于 2022-3-27 13:30
+这俩真不是从pm跑出来的？</blockquote>
+应该是抗汉奇侠二征姐妹没跑了，有乐子看了
+
