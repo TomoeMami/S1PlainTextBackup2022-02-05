@@ -12976,3 +12976,72 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 反許是因為我無法喜歡男女主角這對CP
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  llysander  
+##### 1155#       发表于 2022-3-27 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55160178&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-3-23 21:23</a>
+
+大事件与大事件之间，很多时候是天降，强行衔接
+
+一夜灭国这种已经被吐槽多了
+
+像是王党派，铁国占领时期献媚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">因为王家被看出虚弱且跟铁国一比统治不得人心了，一夜就能灭国的。而且谁都看得出来这王子废柴。
+
+如果能离反王家和沃尔夫特家说不定能逼王子放弃那个复仇一根筋好好过日子。
+
+演出上欠缺了点解释
+
+*****
+
+####  llysander  
+##### 1156#       发表于 2022-3-27 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55167704&amp;ptid=2051152" target="_blank">逆旅行客 发表于 2022-3-24 14:13</a>
+
+本来我对这游戏剧情整体上感觉还行，抛开一夜灭国这种地方不谈，至少整体上逻辑在线，几个分支选择也真的是 ...</blockquote>
+这个是之前铺垫的 国民更喜欢铁国统治， 然后比较生硬演绎出来了。
+
+物资是海森德出的，打手是沃尔夫特，你个花架子凭什么冒出来继续收我们税 ，大致这样 ， 归根结底还是铁国统治没什么不好。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tyauto  
+##### 1157#       发表于 2022-3-27 16:50
+
+说起来SE又要出新战棋IP了？这回似乎是xcom类的?
+
+<img src="https://img.saraba1st.com/forum/202203/27/165025ug61k4hydqhhx4xh.jpg" referrerpolicy="no-referrer">
+
+<strong>1232e32rf323f.jpg</strong> (136.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 16:50 上传
+
+<img src="https://img.saraba1st.com/forum/202203/27/165026b1c0b6c6beb64bwu.jpg" referrerpolicy="no-referrer">
+
+<strong>1232e32rf323f1.jpg</strong> (47.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 16:50 上传
+
+*****
+
+####  llysander  
+##### 1158#       发表于 2022-3-27 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55188248&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-3-26 00:56</a>
+
+本尼迪特那个二动技到底咋用的啊。。是给已经结束行动的队员使用然后立刻可以再动？ ...</blockquote>
+增加一个“两次行动”buff的那个对需要蓄力的技能无效，第一个回合吟唱会直接跳过
+
+但是开始蓄力后，管家的提顺序技能拉了能直接紧接着管家出蓄力技能。
+
+于是调整一下速度顺序， 老婆，药师（补两个豆子提升威力），管家分别是123动，就组成“费得利卡战术太阳小队” <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
