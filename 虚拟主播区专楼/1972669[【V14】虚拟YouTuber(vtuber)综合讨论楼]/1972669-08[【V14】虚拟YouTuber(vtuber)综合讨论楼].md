@@ -13941,3 +13941,14 @@ lizean开幕交换定情信物，乐了
 
 还有三个solo人凑了一队
 
+
+
+*****
+
+####  rzrbtk  
+##### 11755#       发表于 2022-3-28 02:18
+
+偶然中偶然看安洁杂谈听到关键词笑喷了，不知为何取关了lize还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+⚖：あと、リゼさんのフォロー外したのは自分ではないです。本当に皆に迷惑かけてしまってごめんなさい。
+

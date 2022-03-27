@@ -5185,3 +5185,12 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 这些高难也太无聊了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放弃了
 
+
+
+*****
+
+####  khxooo  
+##### 87456#       发表于 2022-3-28 02:53
+
+一直以为礼装是船长掉的，没想到竟然是土方掉的<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
