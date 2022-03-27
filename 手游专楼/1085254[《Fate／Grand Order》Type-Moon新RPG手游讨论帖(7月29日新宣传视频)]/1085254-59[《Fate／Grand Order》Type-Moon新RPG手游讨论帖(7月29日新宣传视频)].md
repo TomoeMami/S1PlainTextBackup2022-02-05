@@ -5122,3 +5122,57 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了庆祝ooxx  萌新护符全丢金闪闪了 没出 合理吗
 
+
+
+*****
+
+####  UNISONIA  
+##### 87451#       发表于 2022-3-27 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55209880&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-3-27 22:03</a>
+
+FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布狄卡，还有这次的二征夫人...可能是某位主创的XP ...</blockquote>
+还有个彭忒，除了布妈是樱井和奈须一起想出来的，章西和彭忒是确定水濑写的，芝诺比阿也有点像水濑的风格
+
+*****
+
+####  sin.yugi  
+##### 87452#       发表于 2022-3-28 00:36
+
+把这杯赛全清了，好几个从者单挑比想象中强<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+20220327122818.jpg
+(550.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202203/27/113133dr0a6bo16avmbt2v.jpg" referrerpolicy="no-referrer">
+
+20220327122844.jpg
+(545.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202203/27/113153usy9u02jk95330gp.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87453#       发表于 2022-3-28 00:47
+
+翻页
+
+*****
+
+####  alucardcz  
+##### 87454#       发表于 2022-3-28 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55208178&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-3-27 20:07</a>
+
+终于打完了，就鬼柴田有点麻烦，剩下的都还行。我真闲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柴田我用的三姐妹  不过浪费了3个结晶。。。
+
