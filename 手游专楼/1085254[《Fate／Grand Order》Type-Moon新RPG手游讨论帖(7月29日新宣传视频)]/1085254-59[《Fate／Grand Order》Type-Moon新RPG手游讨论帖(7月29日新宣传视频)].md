@@ -5006,3 +5006,27 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 这俩真不是从pm跑出来的？</blockquote>
 应该是抗汉奇侠二征姐妹没跑了，有乐子看了
 
+
+
+*****
+
+####  白金口袋  
+##### 87440#       发表于 2022-3-27 14:48
+
+推特趋势第二是月姬联动，吓得我赶紧看了眼情报，结果根本一点关系都没有，这是什么集体幻觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202203/27/004844i3x1lraj33x6j1l3.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220327014708.png</strong> (8.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 14:48 上传
+
+*****
+
+####  angelooo  
+##### 87441#       发表于 2022-3-27 14:51
+
+忙到没时间看生放送直到有人开始讨论新从者了才看到......很喜欢竹小姐的画风，但如果真是那对姐妹的话到时候国服要么改名要么直接寄了吧......
+
