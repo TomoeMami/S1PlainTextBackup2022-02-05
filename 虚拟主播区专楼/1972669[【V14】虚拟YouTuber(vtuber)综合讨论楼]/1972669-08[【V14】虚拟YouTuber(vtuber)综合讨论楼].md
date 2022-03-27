@@ -13912,3 +13912,12 @@ lizean开幕交换定情信物，乐了
 
 なずNEWS也最终回了，也是妹妹新衣回
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11752#       发表于 2022-3-27 19:20
+
+哈弟也准备更新形象了，一期首播结束杂谈还特意拾了「実際１期生デビューからこんなにクォリティー高い所そうそうないよね」的评论，春分得意啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
