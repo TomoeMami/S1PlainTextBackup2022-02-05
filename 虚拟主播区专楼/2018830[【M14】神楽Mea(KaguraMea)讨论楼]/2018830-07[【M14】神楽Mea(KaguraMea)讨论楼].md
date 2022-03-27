@@ -8881,3 +8881,28 @@ y1s1，还是有两个搞笑艺人出力的。
 
 月底好酬勤
 
+
+
+*****
+
+####  路人庚  
+##### 9938#       发表于 2022-3-27 20:27
+
+突然大脸唱歌
+
+*****
+
+####  T_Hb  
+##### 9939#       发表于 2022-3-27 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能把直播间里的牛皮藓去了
+
+*****
+
+####  璃絵和花瑠  
+##### 9940#       发表于 2022-3-27 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">直播间贴各种牛皮癣小广告不是传统艺能么。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
