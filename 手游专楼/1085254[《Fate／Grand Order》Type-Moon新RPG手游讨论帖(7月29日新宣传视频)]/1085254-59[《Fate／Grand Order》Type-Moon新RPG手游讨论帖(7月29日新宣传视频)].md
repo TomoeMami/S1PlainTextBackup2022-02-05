@@ -5039,3 +5039,15 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 
 征氏姐妹有铁金水节奏应该不会太大，真乐子得等明年国服叔叔自我阉割<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87443#       发表于 2022-3-27 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55204872&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-3-27 14:51</a>
+
+忙到没时间看生放送直到有人开始讨论新从者了才看到......很喜欢竹小姐的画风，但如果真是那对姐妹的话到时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我甚至不知道今天有生放送。。这几天都在看疫情情报。。。
+

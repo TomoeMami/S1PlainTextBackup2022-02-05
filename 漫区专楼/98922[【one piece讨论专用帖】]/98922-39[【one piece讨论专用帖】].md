@@ -4462,3 +4462,24 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 2 你们怎么怎么不好， ...</blockquote>
 嗯，了解了就没再讨论的必要了吧。死缠烂打非要对方认同自己，既无意义又浪费时间。
 
+
+
+*****
+
+####  baizhi  
+##### 57354#       发表于 2022-3-27 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55203334&amp;ptid=98922" target="_blank">摸鱼先锋 发表于 2022-3-27 12:29</a>
+
+那么，和之国肉眼可见的快完事了，接下来又要到大家最喜闻乐见的最新世界局势介绍，从世界会议来看至少有薇 ...</blockquote>
+萨博不会就这么死吧，不然这角色被塑造出来的意义是什么？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 57355#       发表于 2022-3-27 19:59
+
+<blockquote>baizhi 发表于 2022-3-27 19:56
+萨博不会就这么死吧，不然这角色被塑造出来的意义是什么？</blockquote>
+萨博的意义是路飞推翻世界秩序后解决问题的角色，所以绝对不会死的。
+
