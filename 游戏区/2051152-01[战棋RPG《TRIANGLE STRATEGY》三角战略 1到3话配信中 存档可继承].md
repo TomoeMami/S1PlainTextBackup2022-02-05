@@ -13045,3 +13045,19 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 于是调整一下速度顺序， 老婆，药师（补两个豆子提升威力），管家分别是123动，就组成“费得利卡战术太阳小队” <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dren_zheng  
+##### 1159#       发表于 2022-3-27 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55205997&amp;ptid=2051152" target="_blank">llysander 发表于 2022-3-27 16:44</a>
+
+因为王家被看出虚弱且跟铁国一比统治不得人心了，一夜就能灭国的。而且谁都看得出来这王子废柴。
+
+ ...</blockquote>
+我就这么说吧，三个国家，互相临近，发展出了三种完全不同的文化，这样的体量是一夜灭得了的？
+
+说白了，小子日人的编剧，写不出宏大叙事的国家战争，写的其实只是小企业之间的斗争而已
+
