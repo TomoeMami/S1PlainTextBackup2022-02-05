@@ -4950,3 +4950,26 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 水BB锁卡加冲田啊 轻松愉快 只需要凹1T</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来什么水bb 你给我吗
 
+
+
+*****
+
+####  miro112233  
+##### 87433#       发表于 2022-3-27 12:57
+
+结果今年联动不是街机fsf月姬魔夜，而是riyo的从漫画了解FGO<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87434#       发表于 2022-3-27 12:58
+
+毫无波动，果然是同一群人，还是那个味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 87435#       发表于 2022-3-27 13:00
+
+我还想着联动完街机就把街机当异闻带给铡了 看来还是舍不得盐川大尊师的遗产啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
