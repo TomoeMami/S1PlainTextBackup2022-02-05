@@ -13061,3 +13061,14 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 说白了，小子日人的编剧，写不出宏大叙事的国家战争，写的其实只是小企业之间的斗争而已
 
+
+
+*****
+
+####  治丧委  
+##### 1160#       发表于 2022-3-27 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55206071&amp;ptid=2051152" target="_blank">tyauto 发表于 2022-3-27 16:50</a>
+ 说起来SE又要出新战棋IP了？这回似乎是xcom类的?</blockquote>
+看起来不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

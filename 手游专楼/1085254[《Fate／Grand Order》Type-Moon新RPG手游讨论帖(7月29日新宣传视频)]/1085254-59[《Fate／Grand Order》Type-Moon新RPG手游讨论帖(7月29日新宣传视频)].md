@@ -5087,3 +5087,20 @@ c呆注意叠c啊  基本没什么发卡硬性要求</blockquote>
 终于打完了，就鬼柴田有点麻烦，剩下的都还行。我真闲</blockquote>
 鬼柴田好像用二姐好打一些...不过要用到蓝卡队配件...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87448#       发表于 2022-3-27 22:03
+
+ 本帖最后由 Jamaisvu 于 2022-3-27 22:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55204043&amp;ptid=1085254" target="_blank">longrider 发表于 2022-3-27 13:33</a>
+
+越南双子姐妹，二征夫人？对抗北方强大侵略者东汉马援，这国服怕是过不了 ...</blockquote>
+FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布狄卡，还有这次的二征夫人...可能是某位主创的XP吧
+
+（或者单纯是给同人本提供素材）
+
+总之别XJB做成复仇者职介就行...
+

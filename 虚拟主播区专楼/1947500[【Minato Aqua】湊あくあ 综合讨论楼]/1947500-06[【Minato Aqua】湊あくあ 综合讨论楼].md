@@ -9539,3 +9539,49 @@ Towa那边说团练改到9点了
 
 圣皇一倒就没戏唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 8578#       发表于 2022-3-27 22:05
+
+打匹配不就是这么自信嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8579#       发表于 2022-3-27 22:11
+
+春游啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新磕娘  
+##### 8580#       发表于 2022-3-27 22:13
+
+这打的太随意了，也没有危机感，这越练越菜了
+
+
+
+*****
+
+####  乌鸦绅士  
+##### 8581#       发表于 2022-3-27 22:15
+
+主要是一直在说话，比起单人打集中力肯定不足，该看看排位什么水准了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8582#       发表于 2022-3-27 22:16
+
+配合好烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8583#       发表于 2022-3-27 22:17
+
+怎么狂练wingman，这枪很强吗
+
