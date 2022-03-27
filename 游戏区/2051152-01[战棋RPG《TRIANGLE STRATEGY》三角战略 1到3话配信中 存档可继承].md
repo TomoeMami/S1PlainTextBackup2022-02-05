@@ -13081,3 +13081,14 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 第七章守成那关打了一个小时才过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">。女主的火盾配合盾卫，加个防御buff真好用。
 
+
+
+*****
+
+####  LMBS  
+##### 1162#       发表于 2022-3-28 01:25
+
+17关罗兰的选择真傻逼，真影响观感
+
+都看到女主族人的待遇还敢这样做真是服了
+

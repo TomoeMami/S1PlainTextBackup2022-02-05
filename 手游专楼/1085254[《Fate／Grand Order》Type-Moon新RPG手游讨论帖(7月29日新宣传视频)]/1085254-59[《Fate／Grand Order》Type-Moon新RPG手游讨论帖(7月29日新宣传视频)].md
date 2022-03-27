@@ -5176,3 +5176,12 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 终于打完了，就鬼柴田有点麻烦，剩下的都还行。我真闲</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柴田我用的三姐妹  不过浪费了3个结晶。。。
 
+
+
+*****
+
+####  rooarr  
+##### 87455#       发表于 2022-3-28 01:24
+
+这些高难也太无聊了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放弃了
+
