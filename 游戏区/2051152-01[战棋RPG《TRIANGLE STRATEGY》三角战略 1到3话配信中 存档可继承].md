@@ -13072,3 +13072,12 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
  说起来SE又要出新战棋IP了？这回似乎是xcom类的?</blockquote>
 看起来不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  heseran  
+##### 1161#       发表于 2022-3-27 22:59
+
+第七章守成那关打了一个小时才过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">。女主的火盾配合盾卫，加个防御buff真好用。
+
