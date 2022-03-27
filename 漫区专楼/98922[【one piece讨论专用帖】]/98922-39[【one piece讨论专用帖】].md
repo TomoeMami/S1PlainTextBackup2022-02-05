@@ -4509,3 +4509,32 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 
 <img src="https://img.saraba1st.com/forum/202203/27/204406xzjuzz9txn1p98t1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  C男人  
+##### 57357#       发表于 2022-3-27 21:34
+
+美国读者的想法也有道理，
+
+“你不能抱怨一个漫画变成卡通风格。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202203/27/213411ulxmm5fix5li7lfl.jpg" referrerpolicy="no-referrer">
+
+<strong>51983483-c7bc-11e8-881a-024352452ce0.jpg</strong> (244.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202203/27/213411lbbowof56s8m8bd2.jpg" referrerpolicy="no-referrer">
+
+<strong>51983487-c7bc-11e8-881a-024352452ce0.jpg</strong> (189.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 21:34 上传
+

@@ -9484,3 +9484,35 @@ Towa那边说团练改到9点了
 
 人呢？翻了下推好像是9点半再来？
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 8571#       发表于 2022-3-27 21:20
+
+另外两人那边说夸夸还在调双pc的设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 8572#       发表于 2022-3-27 21:22
+
+来了来了
+
+*****
+
+####  面具13  
+##### 8573#       发表于 2022-3-27 21:35
+
+今天是在厕所玩apex的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  あのん  
+##### 8574#       发表于 2022-3-27 21:36
+
+夸夸落地紫甲的被动怎么还没关
+
+和むらさき的羁绊，我哭了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
