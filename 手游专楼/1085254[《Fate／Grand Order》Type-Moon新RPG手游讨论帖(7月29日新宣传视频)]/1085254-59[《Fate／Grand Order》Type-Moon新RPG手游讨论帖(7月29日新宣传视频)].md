@@ -5113,3 +5113,12 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 感觉在国内没什么节奏，韩服玩家怕是要有节奏了，蘑菇有说出不出某半岛英灵吗？
 
+
+
+*****
+
+####  alucardcz  
+##### 87450#       发表于 2022-3-27 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了庆祝ooxx  萌新护符全丢金闪闪了 没出 合理吗
+
