@@ -4410,3 +4410,13 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 现在情况不明朗 ...</blockquote>
 讲道理，一个普通人被人找到说”你生来就有使命，你注定要为了拯救大家而奋斗“这种设定是可行的，黑客帝国就是典型的例子，但是你倒是早说啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 57350#       发表于 2022-3-27 14:05
+
+我觉得大家谈到的逻辑漏洞是海贼一直有的，但之前读者都包容了，现在被重提就不是逻辑漏洞问题。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">个人觉得现在这事是一直以来作为热血和动作漫画的失败。所以逻辑对不对，伏笔好不好没啥关系。
+
