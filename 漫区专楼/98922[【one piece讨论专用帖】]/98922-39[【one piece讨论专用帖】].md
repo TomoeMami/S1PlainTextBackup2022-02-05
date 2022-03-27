@@ -4365,3 +4365,48 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 
 3  别说了别说了
 
+
+
+*****
+
+####  肉搏光头  
+##### 57346#       发表于 2022-3-27 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55175034&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 00:40</a>
+
+发现有人接受了，那就说一下换果实的危害
+
+首先最直观的就是升级和强化。以后升级强化直接口胡完事，任何人 ...</blockquote>
+尾田：我说的自由是解放全人类自由，这种想法不浪漫吗<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+改设定是战力膨胀带来的必然结果，主角上限设定上已经定死，而反派却没有，最后就变成龙珠里弗利萨变身前说的”三只蚂蚁能战胜恐龙吗？“是不能，你说的很有道理，所以我不装了，我是超级赛亚人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SteinLee  
+##### 57347#       发表于 2022-3-27 13:48
+
+更让人好奇的是现在海贼王的世界观里还有谁能打得过路飞一伙人，毕竟只要跟着主角混，锦卫门都能几个小时内反复吃下凯多霸王色缠绕大招，然后仰卧起坐，黑胡子他有没有这个实力和锦卫门打都是问题。海军更不用说了，黄猿他能打么，卧底一个，藤虎那是草帽的迷弟，下得了手么，青雉那是草帽兄弟，绿牛一个植物系更是被太阳完虐，红狗不用说了，在太阳神面前就是个弟弟。四皇里面还剩一个香克斯，那注定是对路飞下不了手的，第一大剑豪是绿藻头师傅，还打什么，建议五老星投了算了，都是我草帽一伙的人，你们拿头赢。
+
+*****
+
+####  肉搏光头  
+##### 57348#       发表于 2022-3-27 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55178362&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 10:49</a>
+
+我觉得很多人都认同更改了果实会动摇作品根基啊，贴吧找的图</blockquote>
+这不就是黑客帝国里的尼奥必定成为救世主吗，原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  肉搏光头  
+##### 57349#       发表于 2022-3-27 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55177443&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-25 09:44</a>
+
+你的还是橡皮果实的能力，对应的情况是橡皮果实五档尼卡形态，而不是人人果实尼卡种觉醒
+
+现在情况不明朗 ...</blockquote>
+讲道理，一个普通人被人找到说”你生来就有使命，你注定要为了拯救大家而奋斗“这种设定是可行的，黑客帝国就是典型的例子，但是你倒是早说啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
