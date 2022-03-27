@@ -4483,3 +4483,29 @@ Screenshot_20220326_180151_com.zhihu.android.jpg
 萨博不会就这么死吧，不然这角色被塑造出来的意义是什么？</blockquote>
 萨博的意义是路飞推翻世界秩序后解决问题的角色，所以绝对不会死的。
 
+
+
+*****
+
+####  仟音一心  
+##### 57356#       发表于 2022-3-27 20:44
+
+4chan吐槽
+
+<img src="https://img.saraba1st.com/forum/202203/27/204406c6fhv66gg6hnm3y0.png" referrerpolicy="no-referrer">
+
+<strong>A222EAA0-F5A7-4D1A-8EEE-304008A1F542.png</strong> (387.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 20:44 上传
+
+EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
+(1.13 MB, 下载次数: 0)
+
+下载附件
+
+2022-3-27 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202203/27/204406xzjuzz9txn1p98t1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
