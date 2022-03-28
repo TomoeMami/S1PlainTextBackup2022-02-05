@@ -13173,3 +13173,34 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 一周目normal真结局通关了，用的基本是开局的七人＋参谋和黑将军。战斗的难度不强求不死人打起来还是挺爽的，很多看似困难的局面尝试着慢慢打就有拨云见日的感觉，除了分头行动的几关也不需要练级。私心希望最终boss是中boss，他的遗言一语成谶男主再遭遇一些黑暗（比如身世爆雷）陷入绝望的境地就好了。配乐越听越入脑。
 
+
+
+*****
+
+####  heseran  
+##### 1171#       发表于 2022-3-28 11:44
+
+普通难度，一直说服不了送私盐<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">。话说回来，难度都影响哪些部分啊？
+
+*****
+
+####  Onelooker  
+##### 1172#       发表于 2022-3-28 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215024&amp;ptid=2051152" target="_blank">heseran 发表于 2022-3-28 11:44</a>
+
+普通难度，一直说服不了送私盐，已经SL两遍了，可能是我搜图不够认真吧有的选项就是不解锁……现在 ...</blockquote>
+隐藏信念值不够有些选项对也讲不通的
+
+*****
+
+####  dren_zheng  
+##### 1173#       发表于 2022-3-28 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215024&amp;ptid=2051152" target="_blank">heseran 发表于 2022-3-28 11:44</a>
+
+普通难度，一直说服不了送私盐，已经SL两遍了，可能是我搜图不够认真吧有的选项就是不解锁……现在 ...</blockquote>
+信念值是及格线，信念值不够的话，再怎么说得都没用的
+
+只要信念值达标，超过此次天枰事件的要求，选项选对就能说得
+
