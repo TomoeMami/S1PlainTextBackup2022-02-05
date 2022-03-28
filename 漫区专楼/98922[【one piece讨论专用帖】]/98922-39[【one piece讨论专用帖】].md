@@ -4998,3 +4998,14 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 
 当时人家都说老沙弱 我就奇怪了 人家干掉主角两次了 第三次平手 哪里弱了
 
+
+
+*****
+
+####  天使的日曜日  
+##### 57394#       发表于 2022-3-28 21:16
+
+路飞是水都司法岛篇才削弱的
+以前就是一拳超人，出场满级的那种
+沙鳄只是棘手在自然系，找到弱点后就是吊打了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
