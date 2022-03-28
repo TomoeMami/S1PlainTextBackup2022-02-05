@@ -13334,3 +13334,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 有几关难度感觉还挺高的，敌人伤害太高基本两下一个，只能龟缩着打导致节奏好慢
 
+
+
+*****
+
+####  bainiangudu  
+##### 1186#       发表于 2022-3-28 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216833&amp;ptid=2051152" target="_blank">geniuswu 发表于 2022-3-28 14:12</a>
+
+运私盐那段我第一次糊里糊涂地选成运盐了没存档，后面再试就没一次成功过
+
+然后走揭发路线发 ...</blockquote>
+没有吧，对面无罪主角不就药丸了
+

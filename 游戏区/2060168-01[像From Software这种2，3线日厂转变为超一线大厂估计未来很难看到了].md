@@ -1075,3 +1075,15 @@ Yosuke Matsuda: “Project Athia (Tentative title), coming to PS5 will let playe
 说不过别人就开始脑补别人说话，也就这智商了，拜拜吧您</blockquote>
 别走啊，继续卖弄你百度出来的知识啊
 
+
+
+*****
+
+####  drx66  
+##### 103#       发表于 2022-3-28 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215984&amp;ptid=2060168" target="_blank">诚司 发表于 2022-3-28 12:56</a>
+
+老头环和只狼都成功了，FS哪里依赖IP了</blockquote>
+FS最依赖的就是宫崎英高这个”IP“
+
