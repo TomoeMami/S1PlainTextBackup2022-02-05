@@ -13215,3 +13215,16 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 隐藏信念值不够有些选项对也讲不通的</blockquote>
 发现了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Petilil  
+##### 1175#       发表于 2022-3-28 12:37
+
+ 本帖最后由 Petilil 于 2022-3-28 12:38 编辑 
+
+女主ne体验太差了，几个ne里最难打的，而且啥都不要了拼死拼活最后换来这么个结局
+
+一样被人骂的王子线至少结局某种意义上还...挺好
+

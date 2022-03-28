@@ -812,3 +812,30 @@ ff16引擎是水晶改良？谁讲的？你发明的吗？ff14 1.0才是水晶�
 
 魂系列ip都不是FS的？那不就是个高级打工的，高级版的白金？
 
+
+
+*****
+
+####  唯_change  
+##### 85#       发表于 2022-3-28 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215512&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 12:21</a>
+
+满地打滚各种脑补拿出的论据一个都站不住脚，你好歹拿出点技术干货给我科普下夜光烂在哪儿 ...</blockquote>
+确实没你脑补厉害，连工作室有多少人欧美成分有多少都知道了，希望你看好的夜光可以继续开发一部大ip 哦，一部都没有就别不用说什么技术了，没这个必要，就是被抛弃的引擎。forspoken 这个体量都能说成顶级3A，笑死
+
+*****
+
+####  铁拳圣裁  
+##### 86#       发表于 2022-3-28 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215538&amp;ptid=2060168" target="_blank">diablo5 发表于 2022-3-28 12:23</a>
+魂系列ip都不是FS的？那不就是个高级打工的，高级版的白金？</blockquote>
+从恶魂到老头环，开发的这些游戏没有一个ip是fs自己完全掌握的。
+恶魂血缘肯定是索尼拿着全部版权。
+魂，环还有只狼这种甲方出钱然后合作开发的游戏，不知道fs能分到多少版权
+
+fs确实一直都是高级打工仔，不过因为质量高名头大所以很多人忘了这回事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

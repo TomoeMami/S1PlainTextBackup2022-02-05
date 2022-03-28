@@ -3133,3 +3133,20 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 主要看预算···
 
+
+
+*****
+
+####  zris  
+##### 229#         楼主| 发表于 2022-3-28 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+最近手痒又淘了一台101的SP
+
+价格很便宜
+
+但是屏幕老化红屏
+
+我看看是否能修复一下
+
