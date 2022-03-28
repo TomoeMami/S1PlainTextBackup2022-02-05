@@ -13204,3 +13204,14 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 只要信念值达标，超过此次天枰事件的要求，选项选对就能说得
 
+
+
+*****
+
+####  heseran  
+##### 1174#       发表于 2022-3-28 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215043&amp;ptid=2051152" target="_blank">Onelooker 发表于 2022-3-28 11:46</a>
+隐藏信念值不够有些选项对也讲不通的</blockquote>
+发现了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -760,3 +760,55 @@ SE现在还怕口碑崩坏？真怕的话巴兰 寂静人 巴比伦 left alive�
 那虚幻4那么好为什么吉田不用呢？ff16就不是自研引擎了吗？自研引擎吃力不讨好，为什么ff16不去用虚幻引 ...</blockquote>
 16不用虚幻4就代表夜光不烂了吗？同样是自研吉田宁愿用水晶改良也不用夜光，不更说明夜光的烂吗？
 
+
+
+*****
+
+####  zikimi  
+##### 80#       发表于 2022-3-28 12:05
+
+ 本帖最后由 zikimi 于 2022-3-28 12:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215193&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 12:00</a>
+
+16不用虚幻4就代表夜光不烂了吗？同样是自研吉田宁愿用水晶改良也不用夜光，不更说明夜光的烂吗？ ...</blockquote>
+
+ff16引擎是水晶改良？谁讲的？你发明的吗？ff14 1.0才是水晶工具，新生ff14的引擎没有公开的名字是和夜光并行研发的，还用了夜光的技术，哪怕6.0前夕吉田都说过ff14没有1.0的技术负债，换新引擎就是为了彻底解决1.0的技术问题，自称关注SE能不能不要瞎脑补？
+
+*****
+
+####  ネコカイザー  
+##### 81#       发表于 2022-3-28 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215028&amp;ptid=2060168" target="_blank">角龙大剑 发表于 2022-3-28 11:44</a>
+
+能做好游戏能赚钱有没有IP也不重要吧，白金打了这么多年工搞了第一个自有IP，但最近拉成啥样了(然而泥潭还 ...</blockquote>
+因为纯打工的话很可能收入跟销量直接脱钩，卖再多自己也只能拿到一笔固定的开发费用。
+
+（但是FS这种盛名远播的公司我觉得至少不会是固定费用，应该还是会有销量分成的。不过赚钱的大头一定是万代。）
+
+*****
+
+####  唯_change  
+##### 82#       发表于 2022-3-28 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215267&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 12:05</a>
+
+ff16引擎是水晶改良？谁讲的？你发明的吗？ff14 1.0才是水晶工具，新生ff14的引擎没有公开的名字是和夜光 ...</blockquote>
+你继续扣我字眼也无所谓，改变不了夜光就是烂摊子这个事实
+
+*****
+
+####  zikimi  
+##### 83#       发表于 2022-3-28 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215448&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 12:17</a>
+你继续扣我字眼也无所谓，改变不了夜光就是烂摊子这个事实</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">满地打滚各种脑补拿出的论据一个都站不住脚，你好歹拿出点技术干货给我科普下夜光烂在哪儿
+
+*****
+
+####  diablo5  
+##### 84#       发表于 2022-3-28 12:23
+
+魂系列ip都不是FS的？那不就是个高级打工的，高级版的白金？
+
