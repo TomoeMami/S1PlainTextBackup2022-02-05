@@ -8828,3 +8828,30 @@ E4013F72-B1BE-4387-A86D-D7434C9EDDE2.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼土豆都削不来啊
 
+
+
+*****
+
+####  csolfans  
+##### 6650#       发表于 2022-3-28 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222148&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-3-28 22:14</a>
+
+鱼土豆都削不来啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计习惯用快削刀之类的工具了吧（我就是
+
+*****
+
+####  仟音一心  
+##### 6651#       发表于 2022-3-28 22:53
+
+<img src="https://img.saraba1st.com/forum/202203/28/225401o4t8akxaatrfssz4.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_CMP_36265896.jpeg</strong> (374.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 22:54 上传
+
+白色草莓好不好吃你看某真实系偶像的表情就知道了。
+

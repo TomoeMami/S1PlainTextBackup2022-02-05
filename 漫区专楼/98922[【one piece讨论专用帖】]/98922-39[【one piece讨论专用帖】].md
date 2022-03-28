@@ -5138,3 +5138,35 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222131&amp;ptid=98922" target="_blank"> 谁说法海不懂爱 发表于 2022-3-28 22:12</a> 引用:游蜓 发表于 2022-3-28 22:07 路飞前期纯粹是劲大血厚反应快，技术方面比较糙，遇到技术真的好的其他属性差不多的就被吊打了（指六式) ... 二档作为一个形态算坚持很久表现也不错的了，三档这种带DEBUFF，只是作为一个招式输出，再结合表现就很鸡肋了。 </blockquote>
 二档现在还是海贼潮指数的顶点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  先手必胜  
+##### 57406#       发表于 2022-3-28 22:50
+
+反而四档的活跃周期就太短了，还不帅，感觉很失败
+
+*****
+
+####  uponutopia  
+##### 57407#       发表于 2022-3-28 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222046&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-28 22:02</a>
+
+路飞出海一般当成一亿水平吧
+
+明显升级也就二挡开始（实际也不可能一路一点强化没有）
+
+那之前不就真 ...</blockquote>
+还没有强敌啊，被烟男吊打没有还手余地，不是他爹是李刚伟大航路门都进不去，打沙饿尾田送了3条命，打青鸡也是蚍蜉撼树，说起来路飞第一次升级还是受了青鸡的刺激<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 57408#       发表于 2022-3-28 23:00
+
+<blockquote>先手必胜 发表于 2022-3-28 22:50
+反而四档的活跃周期就太短了，还不帅，感觉很失败</blockquote>
+主要是橡胶果实很难有更有趣的开发方向，除非之前的觉醒成石油果实，或者之前脑洞的溶胶果实。
+
