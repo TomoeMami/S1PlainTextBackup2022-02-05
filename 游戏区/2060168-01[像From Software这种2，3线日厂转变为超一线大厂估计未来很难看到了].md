@@ -1053,3 +1053,25 @@ Yosuke Matsuda: “Project Athia (Tentative title), coming to PS5 will let playe
 我只知道Decima是SIE自己其他制作组都不想复用的东西呢，距离17年发售的游骑兵到现在5年沉淀已久 ...</blockquote>
 笑死了，SE今年的口碑就等着出3A黑马的夜光组拯救了，你就是独具慧眼领悟非凡见多识广的干货哥。确实所有觉得夜光不行的人都在脑补，就你和松田看清夜光的潜质了，快去应聘SE社长
 
+
+
+*****
+
+####  zikimi  
+##### 101#       发表于 2022-3-28 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216915&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 14:21</a>
+
+笑死了，SE今年的口碑就等着出3A黑马的夜光组拯救了，你就是独具慧眼领悟非凡见多识广的干货哥。确实所有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">说不过别人就开始脑补别人说话，也就这智商了，拜拜吧您
+
+*****
+
+####  唯_change  
+##### 102#       发表于 2022-3-28 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216964&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 14:25</a>
+
+说不过别人就开始脑补别人说话，也就这智商了，拜拜吧您</blockquote>
+别走啊，继续卖弄你百度出来的知识啊
+
