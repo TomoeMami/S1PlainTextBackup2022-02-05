@@ -14011,3 +14011,23 @@ lizean开幕交换定情信物，乐了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">复活吧！
 
+
+
+*****
+
+####  Suzutsuki  
+##### 11761#       发表于 2022-3-28 23:23
+
+ 本帖最后由 Suzutsuki 于 2022-3-28 23:37 编辑 
+
+这哈弟箱的3个女人，都看了几天，感觉都差不多。本来觉得黑毛强多了，结果今晚在猫耳直播间看她们玩apex，没黑毛立绘看了，感觉声音也就那样，和其他人也就半斤八两，真就全靠皮啊。猫耳apex菜菜的，看了几次也没啥印象。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11762#       发表于 2022-3-28 23:36
+
+天帝好像前世挖出来了，瞄了眼不算素人吧
+
+年轻小姑娘一个
+
