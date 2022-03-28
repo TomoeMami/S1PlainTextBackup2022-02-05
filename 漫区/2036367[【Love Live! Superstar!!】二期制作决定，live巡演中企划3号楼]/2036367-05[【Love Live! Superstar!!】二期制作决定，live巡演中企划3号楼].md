@@ -8559,3 +8559,12 @@ Payton尚未 高中毕业
 
 <img src="https://img.saraba1st.com/forum/202203/28/162208of9kqmqdfw7k9k86.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6635#       发表于 2022-3-28 16:33
+
+接下来直接走演艺界的路吧，就看往哪个方向发展了，可能演员差一点？歌手声优都不错。
+
