@@ -5128,3 +5128,13 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 路飞前期纯粹是劲大血厚反应快，技术方面比较糙，遇到技术真的好的其他属性差不多的就被吊打了（指六式) ...</blockquote>
 二档作为一个形态算坚持很久表现也不错的了，三档这种带DEBUFF，只是作为一个招式输出，再结合表现就很鸡肋了。
 
+
+
+*****
+
+####  天使的日曜日  
+##### 57405#       发表于 2022-3-28 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222131&amp;ptid=98922" target="_blank"> 谁说法海不懂爱 发表于 2022-3-28 22:12</a> 引用:游蜓 发表于 2022-3-28 22:07 路飞前期纯粹是劲大血厚反应快，技术方面比较糙，遇到技术真的好的其他属性差不多的就被吊打了（指六式) ... 二档作为一个形态算坚持很久表现也不错的了，三档这种带DEBUFF，只是作为一个招式输出，再结合表现就很鸡肋了。 </blockquote>
+二档现在还是海贼潮指数的顶点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

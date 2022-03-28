@@ -13357,3 +13357,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 其实都没差，只是老头权术的一环，除去光头和笼络抓到沃家的把柄。
 
+
+
+*****
+
+####  罐子  
+##### 1188#       发表于 2022-3-28 22:36
+
+终于圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+一周目的老婆线把我憋屈的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/14c16a0be726df456bd50f19906dfb80/IMG_CMP_66581383.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
