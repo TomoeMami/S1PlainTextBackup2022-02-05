@@ -13128,3 +13128,27 @@ jrpg的主角可以当客观上的坏人，但是不能当主观上的坏人，�
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  minysun  
+##### 1167#       发表于 2022-3-28 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55212536&amp;ptid=2051152" target="_blank">wyy123 发表于 2022-3-28 07:11</a>
+第十章选举报圣人卖盐，调查阶段，克拉鲁斯第二个问题第二个选项怎么出现 ...</blockquote>
+那里应该是要在rpg模式帮那个走私人回家然后他会给你线索，其他线索一个是某房子里面有一本书知道账本的事情，另一个好像是问门卫问出的线索。反正进最后睿智线的选择是选找账本，然后位置在他家里。
+
+*****
+
+####  新年才醒  
+##### 1168#       发表于 2022-3-28 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">女主大概就是在封建王国时代觉醒了民族主义的异类吧，
+
+ 在铁国一直过的很憋屈对娘家一直有期待很正常。但是自己根本就没有受过娘家人的苦难，就无脑共情实在看的别扭
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">按感情线索来 应该是期待----崩溃否定-----危难时受到帮助----恢复肯定并协助。
+
+结果红毛一族从头到尾除了手握一个开局就被铁国掌握的秘密外，对局势的影响不能说是毫无存在感吧，只能说是从头躺到尾   
+
