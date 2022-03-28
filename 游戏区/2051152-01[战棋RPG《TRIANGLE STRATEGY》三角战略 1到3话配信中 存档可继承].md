@@ -13371,3 +13371,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Petilil  
+##### 1189#       发表于 2022-3-28 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222373&amp;ptid=2051152" target="_blank">罐子 发表于 2022-3-28 22:36</a>
+
+终于圆满了
+
+一周目的老婆线把我憋屈的</blockquote>
+其实我一直想吐槽为什么琥珀能混进这张图里来，明明连枪圣都没有...
+

@@ -5227,3 +5227,12 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 【【FGO日服】祭典无限池2022活动合集「BATTLE IN NEWYORK 2022 ～太空奥德修斯对尼古拉·特斯拉～」-哔哩哔哩】 [https://b23.tv/9Jugr72](https://b23.tv/9Jugr72)
 
+
+
+*****
+
+####  空气蛹  
+##### 87460#       发表于 2022-3-28 23:13
+
+正好高难一个都没打的，明天冲刺下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
