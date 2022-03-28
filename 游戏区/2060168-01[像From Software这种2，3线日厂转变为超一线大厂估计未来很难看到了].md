@@ -921,3 +921,17 @@ Yosuke Matsuda: “Project Athia (Tentative title), coming to PS5 will let playe
 
 老头环和只狼都成功了，FS哪里依赖IP了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  唯_change  
+##### 90#       发表于 2022-3-28 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215835&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 12:45</a>
+
+来啊，继续打滚啊
+
+这是近期的访谈</blockquote>
+制作组说比肩就比肩咯，以前田畑端还说FF15反派比肩萨菲罗斯呢，加油！forspoken一定是黑马！夜光组是宝藏！干货哥你最了解SE了！
+
