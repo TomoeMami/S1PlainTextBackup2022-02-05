@@ -9678,3 +9678,21 @@ startend什么鬼，没吃鸡耻辱下播</blockquote>
 
 练习赛吃鸡了还行
 
+
+
+*****
+
+####  新磕娘  
+##### 8595#       发表于 2022-3-28 17:35
+
+？练习赛是什么鬼？哪里能看？
+
+*****
+
+####  梅斯之围  
+##### 8596#       发表于 2022-3-28 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219170&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-3-28 17:35</a>
+？练习赛是什么鬼？哪里能看？</blockquote>
+后半夜打的，没开台直播，404有人剪了观战视角
+

@@ -4920,3 +4920,47 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 
  至于尼卡果实，我认为还是早有预谋的。
 
+
+
+*****
+
+####  yario  
+##### 57387#       发表于 2022-3-28 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55214644&amp;ptid=98922" target="_blank">dewey 发表于 2022-3-28 11:11</a>
+
+可不可以这么说 如果路飞没有五档 这次是不是就真的输了？</blockquote>
+是的。其实当年阿拉巴斯坦 3场决斗 他也是一场都没赢。。。。最后打飞沙鳄 自己也中了剧毒  算平手
+
+*****
+
+####  舞鬼  
+##### 57388#       发表于 2022-3-28 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55212436&amp;ptid=98922" target="_blank">icecry 发表于 2022-3-28 05:49</a>
+
+意义是告诉大家烧烧果实其实是人人果实幻兽种短命果实</blockquote>
+哈哈哈，这个笑得不行了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 57389#       发表于 2022-3-28 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">两年前鳄鱼和莫利亚虽然结果上胜利了
+
+也不会觉得路飞有比较强吧
+
+最后更是被熊轻松团灭
+
+两年后强化还是很明显的
+
+*****
+
+####  24k纯帅  
+##### 57390#       发表于 2022-3-28 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55218347&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-28 16:24</a>
+凯多这还嫌强吗？之前漫画吹嘘的是世上最强生物单挑最强。结果现在成了刷时髦的生物。九侠超新星路飞大和挨 ...</blockquote>
+索隆以前打boss都要临场升级，现在就是有大不早放，和凯多打能放大破防，那当初对霍金斯咋不放一个，<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

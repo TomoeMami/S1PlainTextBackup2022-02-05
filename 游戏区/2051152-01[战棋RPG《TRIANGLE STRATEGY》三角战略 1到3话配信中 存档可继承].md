@@ -13303,3 +13303,12 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后面找到了两个分支，没找到账本当庭对质也能判对面有罪的，找账本在驻屯所开打的。
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">有判对面无罪的路线么
 
+
+
+*****
+
+####  Yui_hirasawa  
+##### 1183#       发表于 2022-3-28 17:22
+
+普通难度打到11章。感觉从9章开始难度有点起来了，敌方伤害高了好多，11章佣兵头子一棒把我防最高的盾哥满血打残，开局王子没摆好位置被落魄贵族嘲讽到人堆里两下秒了。
+
