@@ -992,3 +992,14 @@ image.png
 
 一直是路人的稻荷一终于开始活跃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天那个啥  
+##### 85#       发表于 2022-3-29 01:13
+
+赛马娘世界观没有平成所以从平成三强变成了永世三强是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2071, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
