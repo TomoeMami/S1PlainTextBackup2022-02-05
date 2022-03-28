@@ -5214,3 +5214,16 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正负电拍拍?
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87459#       发表于 2022-3-28 19:37
+
+ 本帖最后由 Jamaisvu 于 2022-3-28 19:38 编辑 
+
+找到一个奥特祭速通高难攻略，英灵多但是没通关的朋友可以参考一下，能多一张呼符总是好的：
+
+【【FGO日服】祭典无限池2022活动合集「BATTLE IN NEWYORK 2022 ～太空奥德修斯对尼古拉·特斯拉～」-哔哩哔哩】 [https://b23.tv/9Jugr72](https://b23.tv/9Jugr72)
+

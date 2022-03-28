@@ -8714,3 +8714,49 @@ A6E5D7D3-607B-4892-A891-F0D445B14441.jpeg
 山形那牛肉很好吃的样子，鲤鱼全程鱼叫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 还有下集太好了
 
+
+
+*****
+
+####  铃芽户缔  
+##### 6642#       发表于 2022-3-28 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55218317&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-3-28 16:22</a>
+
+制服</blockquote>
+这图pay酱居然有小雀斑？该说不愧是拥有美国血统的青春期少女吗
+
+*****
+
+####  名津流  
+##### 6643#       发表于 2022-3-28 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219250&amp;ptid=2036367" target="_blank">llllife 发表于 2022-3-28 17:41</a>
+
+说起来鲤鱼大学学的什么，很好奇，按她之前说法是家里想让她有个保障，那大学应该也不是上的北影上戏这种电 ...</blockquote>
+食品包装设计，访谈里有说过的
+
+*****
+
+####  cybernetics31  
+##### 6644#       发表于 2022-3-28 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219250&amp;ptid=2036367" target="_blank">llllife 发表于 2022-3-28 17:41</a>
+
+说起来鲤鱼大学学的什么，很好奇，按她之前说法是家里想让她有个保障，那大学应该也不是上的北影上戏这种电 ...</blockquote>
+平面设计 大学反正不是啥好学校 
+
+*****
+
+####  cat1230  
+##### 6645#       发表于 2022-3-28 19:37
+
+<blockquote>引用第6637楼llllife于2022-03-28 17:41发表的  :
+
+说起来鲤鱼大学学的什么，很好奇，按她之前说法是家里想让她有个保障，那大学应该也不是上的北影上戏这种电......</blockquote>
+@llllife
+
+萌百上标了，商品设计包装设计，我记得以前楼里也提过是上海本地的2本。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
