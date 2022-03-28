@@ -13385,3 +13385,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 一周目的老婆线把我憋屈的</blockquote>
 其实我一直想吐槽为什么琥珀能混进这张图里来，明明连枪圣都没有...
 
+
+
+*****
+
+####  llysander  
+##### 1190#       发表于 2022-3-29 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216833&amp;ptid=2051152" target="_blank">geniuswu 发表于 2022-3-28 14:12</a>
+
+运私盐那段我第一次糊里糊涂地选成运盐了没存档，后面再试就没一次成功过
+
+然后走揭发路线发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">七圣人里其他六个都想看他死，神前决斗是必定的，这个案子跟判案无关
+

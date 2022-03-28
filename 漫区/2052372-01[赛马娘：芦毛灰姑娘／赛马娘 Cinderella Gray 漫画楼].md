@@ -983,3 +983,12 @@ image.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55221955&amp;ptid=2052372" target="_blank">klzxs 发表于 2022-3-28 21:51</a></blockquote>
 啊啊啊？这周的情报这么快就出来了？
 
+
+
+*****
+
+####  icoywt  
+##### 84#       发表于 2022-3-29 00:29
+
+一直是路人的稻荷一终于开始活跃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
