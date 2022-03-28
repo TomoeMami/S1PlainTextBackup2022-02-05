@@ -4631,3 +4631,17 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 
 现在要交代大世界观了，芭比Q了
 
+
+
+*****
+
+####  高卢鸡  
+##### 57365#       发表于 2022-3-28 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55210645&amp;ptid=98922" target="_blank">reficul 发表于 2022-3-27 23:12</a>
+按以前的节奏，尼卡的能力什么的肯定不会马上透露，现在这种烂活真的只能忍着骂声了
+
+我是不知道和之国该怎 ...</blockquote>
+致敬罗杰和白胡子对打了。这样处理符合漫画最开始的基调，及目前所知尼卡让所有人开心的设定。
+但是跟砂之国乃至恶龙开始的打败霸占一方的boss的剧情套路又不相符了。
+
