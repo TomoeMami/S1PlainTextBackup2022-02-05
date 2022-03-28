@@ -990,3 +990,66 @@ Yosuke Matsuda: “Project Athia (Tentative title), coming to PS5 will let playe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 2k旗下游戏咋都不换rega引擎呢，R星也不过如此，杯赛咋不换装ID tech呢，估计ID也不行吧，全业界都不行就您最懂，两嘴一张，别人都是垃圾，唯独capcom和epic，天下无敌
 
+
+
+*****
+
+####  唯_change  
+##### 96#       发表于 2022-3-28 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216685&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 13:58</a>
+
+您这地图炮，做不到泛用的引擎全是烂引擎，那看来99%的游戏引擎都是烂引擎呢，大佬能不能科普下除 ...</blockquote>
+我只知道夜光是SE自己其他制作组都不想复用的东西呢，距离16年发售的FF15到现在6年沉淀已久的神级引擎，6年时间SE其他制作组开发水平都不如夜光组，只能用虚幻4和水晶工具。然后夜光组6年没出游戏只为给大家贡献世不二出的3A大作forspoken。我没你见多识广，各种干货，你说的其他引擎我都不清楚呢。
+
+*****
+
+####  zikimi  
+##### 97#       发表于 2022-3-28 14:09
+
+ 本帖最后由 zikimi 于 2022-3-28 14:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我算是认识到了一句话什么叫不读书还乱说话
+
+*****
+
+####  realgyf1985  
+##### 98#       发表于 2022-3-28 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55199949&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-27 00:45</a>
+
+大厂的标准起码得是一年能产出一堆游戏开复数产品线，一作暴雷了能扛住风险，只是在一条产品线上产出爆款 ...</blockquote>
+我觉得LZ说的挺中肯的……他开帖讨论的只是日本第三方，不过硬要说的话，拳头算超一线大厂没啥问题吧？
+
+首先网游跟单机就有区别，不可能年年有新作，但是能一直更新保持游戏生命力也很重要啊。蓝洞就不算超一线，因为PUBG大火之后根本没持续多久，然后就是一直在快速走下坡路，蓝洞也拿不出啥好方法扭转颓势。拳头能一直保持LOL的在线人数没有太大下滑，而且游戏热度甚至通过运营职业赛事越来越高影响力越来越大，这个真的很厉害了。
+
+其次拳头现在也是很多产品的，瓦洛兰特这个FPS现在外网上直播热度很高的（虽然我完全看不懂这游戏好玩在哪里），云顶之弈、金铲铲，甚至还有LOL手游，这个产品线怎么也说不上就靠一款游戏吧。
+
+另外双城之战这个动画更是爆火，拿奖拿到手软。
+
+拳头怎么也能算得上了啊。
+
+*****
+
+####  zikimi  
+##### 99#       发表于 2022-3-28 14:12
+
+ 本帖最后由 zikimi 于 2022-3-28 14:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216758&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 14:05</a>
+
+我只知道夜光是SE自己其他制作组都不想复用的东西呢，距离16年发售的FF15到现在6年沉淀已久的神级引擎，6 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我只知道Decima是SIE自己其他制作组都不想复用的东西呢，距离17年发售的游骑兵到现在5年沉淀已久的神级引擎，5年时间SIE其他制作组开发水平都不如游骑兵，只能用自研引擎或者虚幻4，然后游骑兵5年没出游戏只为给大家贡献世不二出的3A大作地平线2
+
+我能按你这格式改改名字造几十个句子呢，没文化还出来瞎蹦哒，越蹦哒越丢人呢
+
+*****
+
+####  唯_change  
+##### 100#       发表于 2022-3-28 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216829&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 14:12</a>
+
+我只知道Decima是SIE自己其他制作组都不想复用的东西呢，距离17年发售的游骑兵到现在5年沉淀已久 ...</blockquote>
+笑死了，SE今年的口碑就等着出3A黑马的夜光组拯救了，你就是独具慧眼领悟非凡见多识广的干货哥。确实所有觉得夜光不行的人都在脑补，就你和松田看清夜光的潜质了，快去应聘SE社长
+

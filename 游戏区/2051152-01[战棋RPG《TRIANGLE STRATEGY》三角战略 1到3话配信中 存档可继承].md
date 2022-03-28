@@ -13268,3 +13268,38 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 好SRPG，找回皇骑、贝维克那种体验感了。
 
+
+
+*****
+
+####  Vladimeow  
+##### 1180#       发表于 2022-3-28 14:03
+
+打到第十关了，其实还是挺好玩的。就是剧情不停地列车难题很无语，还有RPG老是剧烈掉帧，服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能给演出加上人物头像和表情差分就好了，语音都那么多了也不差这些吧。
+
+*****
+
+####  Niu  
+##### 1181#       发表于 2022-3-28 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216627&amp;ptid=2051152" target="_blank">suke 发表于 2022-3-27 21:52</a>
+
+真结局图里莱拉旁边小孩怎么突然冒出来了，完全都没见过。
+
+好SRPG，找回皇骑、贝维克那种体验感了。 ...</blockquote>
+那個小孩要刷信念值才能收
+
+利益要1600
+
+跟槍神一個水準
+
+*****
+
+####  geniuswu  
+##### 1182#       发表于 2022-3-28 14:12
+
+运私盐那段我第一次糊里糊涂地选成运盐了没存档，后面再试就没一次成功过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">然后走揭发路线发现还要到处对话搜集证据+当庭对质，我是在玩逆转裁判吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后面找到了两个分支，没找到账本当庭对质也能判对面有罪的，找账本在驻屯所开打的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">有判对面无罪的路线么
+
