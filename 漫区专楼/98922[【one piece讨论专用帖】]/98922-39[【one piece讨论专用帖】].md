@@ -5009,3 +5009,78 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 以前就是一拳超人，出场满级的那种
 沙鳄只是棘手在自然系，找到弱点后就是吊打了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  刹那の劍  
+##### 57395#       发表于 2022-3-28 21:42
+
+两年后的谜好像还有一个身上的疤痕怎么来的
+
+*****
+
+####  klzxs  
+##### 57396#       发表于 2022-3-28 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55221864&amp;ptid=98922" target="_blank">刹那の劍 发表于 2022-3-28 21:42</a>
+
+两年后的谜好像还有一个身上的疤痕怎么来的</blockquote>
+你说路飞？
+
+就顶上被赤犬烧的
+
+*****
+
+####  戏言学者  
+##### 57397#       发表于 2022-3-28 21:50
+
+看了这一话的海贼，就感受到JSC的伟大之处了，你看尾田这伏笔铺垫了这么多，在正式情报出来之前，以前的伏笔被挖的一丝不剩，甚至连果实名字都几乎推测的一模一样，然后等漫画一出，果然和大家猜想的毫无二致，加上和之国垃圾剧情让大家积怨已久，于是所有观众都对这种失望的展开口诛笔伐。。。
+
+反观JSC，早就猜到了自己展开的太大，可能没法完美收场，与其写一个平庸的结局被你们痛骂，我为啥不直接摆烂恶心你们呢，来啊，互相伤害啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 57398#       发表于 2022-3-28 21:54
+
+25周年纪念
+
+FE353659-E818-4510-8238-E7A444F42C01.jpeg
+(119.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/215419zyeta9ggvsyi9yyt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JC_AR  
+##### 57399#       发表于 2022-3-28 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55221640&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-3-28 21:16</a>
+
+路飞是水都司法岛篇才削弱的
+
+以前就是一拳超人，出场满级的那种
+
+沙鳄只是棘手在自然系，找到弱点后就是吊打 ...</blockquote>
+路飞实力确实没问题的，出海就是7武海级，顶多差一点点，按理说后面战斗力崩坏纯粹是尾田的问题，又要引入霸气又要引入果实觉醒，陷入无限升级加外挂的怪圈
+
+*****
+
+####  谁说法海不懂爱  
+##### 57400#       发表于 2022-3-28 21:57
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-28 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55221640&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-3-28 21:16</a>
+
+路飞是水都司法岛篇才削弱的
+
+以前就是一拳超人，出场满级的那种
+
+沙鳄只是棘手在自然系，找到弱点后就是吊打 ...</blockquote>
+跟一拳超人满级这些还是沾不上边的，初期打谁都吃力，典型的克里克，同时登场的第一个七武海鹰眼，没实际打就知道隔了好几层境界差。老沙体术菜是真的，后面的艾尼路也是吃了属性克制的亏。但他前面的体术优势反而没有了。到了顶上补丁打起来，老沙还能和明哥短暂五五开。
+

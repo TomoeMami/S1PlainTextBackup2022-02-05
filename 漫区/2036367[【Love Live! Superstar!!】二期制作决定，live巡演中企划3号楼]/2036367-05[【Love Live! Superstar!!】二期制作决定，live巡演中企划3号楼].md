@@ -8771,3 +8771,15 @@ A6E5D7D3-607B-4892-A891-F0D445B14441.jpeg
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  地図と青い森  
+##### 6647#       发表于 2022-3-28 21:51
+
+想着公会战要结束看能不能打点什么奖励，突然发现自己小号的gbf公会副会长是ニードロ、不知道是不是泥老师本尊……
+之前看她画crossick的时候也在玩gbf，这也是个百合控公会，感觉有可能？<img src="https://p.sda1.dev/5/ffd5842a15281f430595153412562c9f/IMG_CMP_190289101.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
