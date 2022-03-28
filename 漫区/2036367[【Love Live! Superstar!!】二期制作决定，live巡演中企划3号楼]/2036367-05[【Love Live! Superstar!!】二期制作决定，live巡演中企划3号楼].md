@@ -8596,3 +8596,111 @@ Payton尚未 高中毕业
 
 说起来鲤鱼大学学的什么，很好奇，按她之前说法是家里想让她有个保障，那大学应该也不是上的北影上戏这种电影学院了
 
+
+
+*****
+
+####  仟音一心  
+##### 6639#       发表于 2022-3-28 17:47
+
+鱼居然不知道要挖土豆芽眼……
+
+9856799E-4C80-44D1-865F-85DA84FD270C.jpeg
+(368.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174651nu93vn071uj7igi9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AB64BE1B-F215-41DC-A328-26EE9F40E3A7.jpeg
+(694.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174653sks9heklkekrul4h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+913520A1-4E29-4314-8480-E2CE74E0BEA7.jpeg
+(670.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174653pocc1ijlcwjbhoof.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1BAD91AF-3348-40BA-8184-7C6C7A9A40FB.jpeg
+(411.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174655id5d5cgdvkggbk79.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+81BACF3E-2578-49CA-9BB0-FA772A4D6A76.jpeg
+(496.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174655prh3j8odzjppzdds.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2A5D7A05-E1CF-43A9-A3C9-D5581F5929BB.jpeg
+(439.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174656la8r7fl7seluz131.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0F9AEFF8-15E5-4901-8BFF-07F90DAC0909.jpeg
+(404.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174656s6i446r26dyrpnig.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A6E5D7D3-607B-4892-A891-F0D445B14441.jpeg
+(373.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174658jovhvhhhhigjihsz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6B68F5C8-D048-4099-8763-2F1E6D002FE9.jpeg
+(542.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174700xga0zma3aan7607i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0D27A471-20BC-4C64-A92A-64A9858E0048.jpeg
+(449.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-28 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202203/28/174658g42eh0u9e0s2ji37.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6640#       发表于 2022-3-28 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219250&amp;ptid=2036367" target="_blank">llllife 发表于 2022-3-28 17:41</a>
+说起来鲤鱼大学学的什么，很好奇，按她之前说法是家里想让她有个保障，那大学应该也不是上的北影上戏这种电 ...</blockquote>
+平面设计，应该就是在上海本地
+

@@ -4964,3 +4964,23 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 凯多这还嫌强吗？之前漫画吹嘘的是世上最强生物单挑最强。结果现在成了刷时髦的生物。九侠超新星路飞大和挨 ...</blockquote>
 索隆以前打boss都要临场升级，现在就是有大不早放，和凯多打能放大破防，那当初对霍金斯咋不放一个，<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Algie  
+##### 57391#       发表于 2022-3-28 17:33
+
+在压倒性拉胯的阅读体验前找伏笔毫无意义了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cdfjg  
+##### 57392#       发表于 2022-3-28 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219107&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-3-28 17:30</a>
+ 索隆以前打boss都要临场升级，现在就是有大不早放，和凯多打能放大破防，那当初对霍金斯咋不放一个，[f:0 ...</blockquote>
+这次是不忘初心牢记使命。临场升级霸王色了
+

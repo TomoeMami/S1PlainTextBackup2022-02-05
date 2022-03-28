@@ -13312,3 +13312,14 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 普通难度打到11章。感觉从9章开始难度有点起来了，敌方伤害高了好多，11章佣兵头子一棒把我防最高的盾哥满血打残，开局王子没摆好位置被落魄贵族嘲讽到人堆里两下秒了。
 
+
+
+*****
+
+####  Vladimeow  
+##### 1184#       发表于 2022-3-28 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219024&amp;ptid=2051152" target="_blank">Yui_hirasawa 发表于 2022-3-28 17:22</a>
+普通难度打到11章。感觉从9章开始难度有点起来了，敌方伤害高了好多，11章佣兵头子一棒把我防最高的盾哥满 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">王子真的太菜了，输出低还特别脆，我被斗技场那个全是刺的图坑了很久，离谱。
+
