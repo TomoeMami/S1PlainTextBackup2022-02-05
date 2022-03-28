@@ -4889,3 +4889,34 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
 凯多这还嫌强吗？之前漫画吹嘘的是世上最强生物单挑最强。结果现在成了刷时髦的生物。九侠超新星路飞大和挨 ...</blockquote>
 所以我前面也说了四皇强度虚高，体现就在这，因为仰卧起坐，凯多大妈对上配角们，压迫力也谈不上，不说打死这种小概率情节，至少无力化别爬起来都行。大妈还内战内行外战外行。
 
+
+
+*****
+
+####  cdfjg  
+##### 57384#       发表于 2022-3-28 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55218347&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-28 16:24</a>
+ 凯多这还嫌强吗？之前漫画吹嘘的是世上最强生物单挑最强。结果现在成了刷时髦的生物。九侠超新星路飞大和挨 ...</blockquote>
+其实尾田画出来凯多团人多难打，只不过很多人那个时候要喷无聊的人拖时间（每层爬楼梯那里）现在知道为什么要设计跑酷了吧
+
+*****
+
+####  7sevenseven  
+##### 57385#       发表于 2022-3-28 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55218536&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-28 16:40</a>
+其实尾田画出来凯多团人多难打，只不过很多人那个时候要喷无聊的人拖时间（每层爬楼梯那里）现在知道为什 ...</blockquote>
+跑酷不是为了1000话打凯多，结果登场早了不得不水吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 57386#       发表于 2022-3-28 16:56
+
+<blockquote>7sevenseven 发表于 2022-3-28 16:50
+跑酷不是为了1000话打凯多，结果登场早了不得不水吗</blockquote>
+还是那句话，现在海贼变得难看还是因为顶上，顶上让尾田和读者对于海贼的期望发生了偏差，尾田以为海贼好看在冒险，读者其实在幽灵岛上就已经开始腻烦这一套了，于是顶上就来了，读者的期待值就变成世界局势的发展，但是在尾田那里，顶上销量的大成功让他信心爆棚，于是两年以后的杂鱼占地方的问题就出来了，
+
+ 至于尼卡果实，我认为还是早有预谋的。
+

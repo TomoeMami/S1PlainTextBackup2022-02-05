@@ -8568,3 +8568,15 @@ Payton尚未 高中毕业
 
 接下来直接走演艺界的路吧，就看往哪个方向发展了，可能演员差一点？歌手声优都不错。
 
+
+
+*****
+
+####  Enakina  
+##### 6636#       发表于 2022-3-28 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55217927&amp;ptid=2036367" target="_blank">stygian 发表于 2022-03-28 15:54:14</a>
+星团这个活动频率pay子应该也不会进学的，还是有点可惜吧。。。</blockquote>基本混个顺利毕业就得了，出路都找好了。想起来之前那个因为太蠢被停止活动的偶像，突然觉得顺利毕业的pay也算了不起了（世界史好像还拿了个A）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
