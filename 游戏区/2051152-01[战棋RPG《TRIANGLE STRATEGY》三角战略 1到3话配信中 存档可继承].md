@@ -13399,3 +13399,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 然后走揭发路线发 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">七圣人里其他六个都想看他死，神前决斗是必定的，这个案子跟判案无关
 
+
+
+*****
+
+####  灰狼  
+##### 1191#       发表于 2022-3-29 05:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216731&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-3-28 14:03</a>
+
+打到第十关了，其实还是挺好玩的。就是剧情不停地列车难题很无语，还有RPG老是剧烈掉帧，服了能给演 ...</blockquote>
+这个我倒觉得反而是这种表演形式其实还行，就是通过意境把场面表现出来，再留白一定给你脑补
+
+主要是我听日语语音，里面情感丰富的语音配上bgm其实已经够带劲了，表情要是不够丰富反而会破意境
+
