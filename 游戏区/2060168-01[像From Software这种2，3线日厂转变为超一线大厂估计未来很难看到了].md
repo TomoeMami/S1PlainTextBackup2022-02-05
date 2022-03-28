@@ -626,3 +626,38 @@ ff15和引擎有关的原因在哪？引擎的原因能导致包括剧情在内�
 
 另外还有一个不能忽略的影响，如果引擎的问题导致工期延误的太严重，那制作组在deadline临近时为保证按期发行砍剧情是最保险的一个选择。因为一段剧情砍掉，与之相关的制作就全砍了。
 
+
+
+*****
+
+####  唯_change  
+##### 68#       发表于 2022-3-28 11:06
+
+ 本帖最后由 唯_change 于 2022-3-28 11:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55214150&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 10:30</a>
+
+夜光组原来第二开发部的人还剩多少人我姑且蒙在鼓里，整个公司就一百多号人而且一直在新招人，目前相当多 ...</blockquote>
+12月的演示掉帧都掉成狗了，延迟发售明显是怕口碑崩坏在恶补，而不是SE看好。是不是弃子以后就知道了，还有半年发售只是亡羊补牢，我从演示就敢下定论，forspoken不会成功，夜光引擎在SE社内会越来越边缘，以后也挑不了大梁，希望夜光组的表现可以打我脸
+
+*****
+
+####  zikimi  
+##### 69#       发表于 2022-3-28 11:09
+
+ 本帖最后由 zikimi 于 2022-3-28 11:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55214585&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 11:06</a>
+
+12月的演示掉帧都掉成狗了，延迟发售明显是怕口碑崩坏在恶补，而不是SE看好。是不是弃子以后就知道了，还 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SE现在还怕口碑崩坏？真怕的话巴兰 寂静人 巴比伦 left alive这些纯纯的炮灰在哭啊，forspoken游戏本身成败在我看来不重要，为SE获得技术积累才是本来的目的
+
+*****
+
+####  唯_change  
+##### 70#       发表于 2022-3-28 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55214625&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 11:09</a>
+
+SE现在还怕口碑崩坏？真怕的话巴兰 寂静人 巴比伦 left alive这些纯纯的炮灰在哭啊，forspoken游 ...</blockquote>
+技术积累在一个烂引擎上面，确实和SE最近的摆烂挺一致的，其实我也无所谓，因为我想玩的SE大作都与夜光引擎无关了。
+
