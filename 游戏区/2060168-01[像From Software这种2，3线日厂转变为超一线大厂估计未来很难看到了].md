@@ -839,3 +839,85 @@ fs确实一直都是高级打工仔，不过因为质量高名头大所以很多
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zikimi  
+##### 87#       发表于 2022-3-28 12:45
+
+ 本帖最后由 zikimi 于 2022-3-28 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215623&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 12:28</a>
+
+确实没你脑补厉害，连工作室有多少人欧美成分有多少都知道了，希望你看好的夜光可以继续开发一部大ip 哦 ...</blockquote>
+来啊，继续打滚啊
+
+这是近期的访谈
+
+Yosuke Matsuda: “Project Athia (Tentative title), coming to PS5 will let players freely roam an open-world. PS5 uses a light reflecting technology, Ray Tracing, and overall has greatly improved graphics. As if it was running on PC. Using these features of the PS5, we are able to depict an incredibly beautiful game. Square Enix will keep developing games tailor-made for Cloud Gaming and mobile, but we will never stop developing for PS5 and high-end hardware either. Because this is where pure tech is”.
+
+[https://www.dualshockers.com/project-athia-open-world/](https://www.dualshockers.com/project-athia-open-world/)
+
+还有成立之初官网的访谈
+
+松田洋佑（Square Enix 社长）
+
+　　● 夜光制作组目前的项目是一款面向全球市场的 AAA 级原创新游戏。
+
+　　● 工作室成立之初大部分是由《最终幻想15》的开发成员组成的，但现在有许多新人，甚至海外的开发者也加入到了团队中。未来也继续欢迎各个不同国家，背景以及文化的开发者加入。
+
+　　● 工作室的最终目标是将艺术与最尖端的技术融合，为全世界玩家们创造前所未有的游戏体验。
+
+　　● 在今天，投入这么大的资源创造一个全新的 IP，并放手让开发者进行各种尝试是很难得也很少见的，但松田社长认为游戏行业一直都是这样一个高风险的行业，不冒风险，不舍得投入，也就不会有高回报。
+
+　　● 技术的进化将会如何改善/改变游戏体验？ 松田社长希望夜光制作组将在未来不断寻找这个问题的答案，不断追寻更加刺激，好玩和精彩的游玩体验。
+
+荒牧岳志（工作室负责人，之前是《最终幻想15》首席程序员）
+
+　　● 夜光制作组目前大约有 130 人，其中大约有 20 人来自海外，他们大多数都有参与过知名游戏的开发。在 130 人中，程序员和设计师大约各占了三分之一左右。
+
+　　● 工作室目前有多个内部项目正在进行中，包括引擎开发和其他内部研发。
+
+　　● 工作室的任务和挑战是面向全球玩家，制作一个能够比肩「最终幻想」和「勇者斗恶龙」这两大品牌的全新 IP。
+
+　　● 荒牧岳志认为夜光工作室的强项是技术和美术设计。他认为夜光工作室是全球少数能够开发大型开放世界游戏的工作室，自身技术并不比世界上其他工作室差；美术设计上，他们有和 Visual Works （ Square Enix 旗下著名 CGI 工作室）一起工作的经验，因此在美术设计，以及预渲染图像技术上也很有信心。
+
+　　● 夜光引擎（Luminous Engine）也是工作室引以为傲的技术产品之一，这个引擎正随着新技术的发展不断进化，目前最新的「光线追踪」等技术也已经支持。
+
+　　● 除了图像技术之外，工作室还在研究 AI 自动化方面的技术，例如通过 AI 生成场景和动画，进行 QA 测试并收集反馈。
+
+　　● 此外，夜光引擎现在加增加了对移动设备的支持。荒牧岳志表示移动游戏市场正在不断扩大，尤其是现在越来越多的年轻人都选择移动游戏，通过让夜光引擎支持移动设备，可以让他们将游戏保持高质量的同时，更方便移植到移动端，以扩大游戏的受众群体。
+
+　　● 夜光制作组内部氛围非常自由，每个人都可以在例行的学习会和演讲上畅所欲言，提出各种想法和意见，有时还会通过直播的方式在内部和所有人公开分享。
+
+[https://ss-agent.jp/pr/luminous-productions-1910/](https://ss-agent.jp/pr/luminous-productions-1910/) 招人信息
+
+官网介绍[https://www.luminous-productions.com/ja/company/](https://www.luminous-productions.com/ja/company/)
+
+社名株式会社Luminous Productions
+
+（英語表記: Luminous Productions Co., Ltd.）株主[株式会社スクウェア・エニックス・ホールディングス](https://www.hd.square-enix.com/jpn/) （100%）スタジオ代表者 松田洋祐事業内容ゲーム等エンタテインメント・コンテンツの企画・開発設立2018年従業員数約150名（2020年6月現在）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还要列举吗？要不要我一个一个拿出来打你脸？
+
+*****
+
+####  s32244153  
+##### 88#       发表于 2022-3-28 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215538&amp;ptid=2060168" target="_blank">diablo5 发表于 2022-3-28 12:23</a>
+
+魂系列ip都不是FS的？那不就是个高级打工的，高级版的白金？</blockquote>
+魂+环IP在万代手上
+
+照之前他们说的 现在开发大作基本4.50亿日圆+五年起跳 并且成本只会越来越高
+
+而且买断游戏现在赚不到什么钱 加上PS5到现在没有预想中的普及也有影响
+
+*****
+
+####  诚司  
+##### 89#       发表于 2022-3-28 12:56
+
+老头环和只狼都成功了，FS哪里依赖IP了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
