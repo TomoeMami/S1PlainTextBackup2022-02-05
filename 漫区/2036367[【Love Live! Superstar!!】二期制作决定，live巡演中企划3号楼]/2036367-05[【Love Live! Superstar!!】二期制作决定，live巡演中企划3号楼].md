@@ -8494,3 +8494,12 @@ Payton尚未 高中毕业
 
 <img src="https://img.saraba1st.com/forum/202203/28/150323bo4nln0o7i8nu52a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 6632#       发表于 2022-3-28 15:54
+
+星团这个活动频率pay子应该也不会进学的，还是有点可惜吧。。。
+
