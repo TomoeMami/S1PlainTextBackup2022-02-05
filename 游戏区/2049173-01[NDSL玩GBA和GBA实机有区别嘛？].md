@@ -3161,3 +3161,18 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 后面手里还有个橙透的WSC、翡玉透明的GBC，本来说也改一下，本来屏幕根本看不见啥了，结果一问光改个屏幕就要700大元，算了吧放弃了，前一阵都给卖了。
 
+
+
+*****
+
+####  zris  
+##### 231#         楼主| 发表于 2022-3-28 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55217618&amp;ptid=2049173" target="_blank">nilren 发表于 2022-3-28 15:27</a>
+价格还没炒的时候，200块换了个高亮GBA，就挺好的，多少年了这都
+
+后面手里还有个橙透的WSC、翡玉透明的GBC ...</blockquote>
+其实值得收藏就gba和sp。现在换屏是很贵，买个寨机基本都能完美覆盖了。主要还是实机有瘾。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
