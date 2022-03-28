@@ -935,3 +935,58 @@ Yosuke Matsuda: “Project Athia (Tentative title), coming to PS5 will let playe
 这是近期的访谈</blockquote>
 制作组说比肩就比肩咯，以前田畑端还说FF15反派比肩萨菲罗斯呢，加油！forspoken一定是黑马！夜光组是宝藏！干货哥你最了解SE了！
 
+
+
+*****
+
+####  zikimi  
+##### 91#       发表于 2022-3-28 13:44
+
+ 本帖最后由 zikimi 于 2022-3-28 13:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216454&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 13:34</a>
+
+制作组说比肩就比肩咯，以前田畑端还说FF15反派比肩萨菲罗斯呢，加油！forspoken一定是黑马！夜光组是宝藏 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dumplingpro  
+##### 92#       发表于 2022-3-28 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55199549&amp;ptid=2060168" target="_blank">diodio233 发表于 2022-3-26 23:58</a>
+
+老老实实做NS机能水平的东西就行了。这几年2042 ，2077，圣歌，贵物层出不穷。工匠精神+3A+新冠疫情我是不 ...</blockquote>
+真能做到2077那个水平直接上天了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唯_change  
+##### 93#       发表于 2022-3-28 13:51
+
+ 本帖最后由 唯_change 于 2022-3-28 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216546&amp;ptid=2060168" target="_blank">zikimi 发表于 2022-3-28 13:44</a>
+
+还嫌脑补上串下跳满地打滚不够丢人？forspoken质量制作组是说了不算，愿景能就像漫威复联的目标是 ...</blockquote>
+你最棒了，松田也没你清楚夜光的潜质啊，其他制作组没用夜光也是很大的损失啊。一个游戏引擎连泛用性都做不到，曾经的引擎的技术总监也不在了，从N年前就整天吹效果，看来还得积累个十年技术就成熟可以开发FF18了，SE未来之光就是夜光！
+
+*****
+
+####  soul_hacker  
+##### 94#       发表于 2022-3-28 13:54
+
+<blockquote>[ citrus replied on 2022-3-27 00:12](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55199687&amp;ptid=2060168) 换了虚幻的魂还会有月光大剑吗 </blockquote>
+换成虚幻大剑来自: iPhone客户端
+
+*****
+
+####  zikimi  
+##### 95#       发表于 2022-3-28 13:58
+
+ 本帖最后由 zikimi 于 2022-3-28 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55216624&amp;ptid=2060168" target="_blank">唯_change 发表于 2022-3-28 13:51</a>
+
+你最棒了，松田也没你清楚夜光的潜质啊，其他制作组没用夜光也是很大的损失啊。一个游戏引擎连泛用性都做 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 2k旗下游戏咋都不换rega引擎呢，R星也不过如此，杯赛咋不换装ID tech呢，估计ID也不行吧，全业界都不行就您最懂，两嘴一张，别人都是垃圾，唯独capcom和epic，天下无敌
+
