@@ -4984,3 +4984,17 @@ EF3EB88A-4C36-4865-832B-4B5E2FE04ECF.jpeg
  索隆以前打boss都要临场升级，现在就是有大不早放，和凯多打能放大破防，那当初对霍金斯咋不放一个，[f:0 ...</blockquote>
 这次是不忘初心牢记使命。临场升级霸王色了
 
+
+
+*****
+
+####  dewey  
+##### 57393#       发表于 2022-3-28 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55219025&amp;ptid=98922" target="_blank">yario 发表于 2022-3-28 17:22</a>
+
+是的。其实当年阿拉巴斯坦 3场决斗 他也是一场都没赢。。。。最后打飞沙鳄 自己也中了剧毒  算平手 ...</blockquote>
+是啊 英雄所见略同啊 
+
+当时人家都说老沙弱 我就奇怪了 人家干掉主角两次了 第三次平手 哪里弱了
+
