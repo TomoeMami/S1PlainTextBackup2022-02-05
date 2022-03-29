@@ -1081,3 +1081,15 @@ image.png
 要说百合要素的话，漫画目前只有超级大海湾和性转武丰有些许这个感觉</blockquote>
 啊我完全不喜欢看百合，我单纯觉得皇栗互动很有梗想多看一些罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  isummon  
+##### 94#         楼主| 发表于 2022-3-30 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55238439&amp;ptid=2052372" target="_blank">UnhappyTails 发表于 2022-3-30 00:13</a>
+
+啊我完全不喜欢看百合，我单纯觉得皇栗互动很有梗想多看一些罢了</blockquote>
+那到目前为止这两位互动还算挺多的
+
