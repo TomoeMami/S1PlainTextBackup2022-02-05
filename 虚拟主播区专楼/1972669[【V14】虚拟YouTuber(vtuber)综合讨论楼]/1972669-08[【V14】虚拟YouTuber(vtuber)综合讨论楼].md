@@ -14381,3 +14381,62 @@ RE:ACT是什么造型店吗，每一个转进去的都要换身衣服
 
 大概最后还是King会是King就是了估计。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11796#       发表于 2022-3-29 22:08
+
+说实话因为道明寺是很多老管人观众的白月光，所以我先入为主一直觉得这个人是不太喜欢杏那种偏偶像风的………有点意外，不知道是为了什么
+
+*****
+
+####  Longinus_  
+##### 11797#       发表于 2022-3-29 22:11
+
+昨天dtto：交了个新朋友
+
+今天selen上完大师：昨天交了个新朋友叫dtto，周末联动
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的是能不能好好rp一下不熟
+
+*****
+
+####  alcoholic1000  
+##### 11798#       发表于 2022-3-29 22:13
+
+你虹看样子是不想再往本社塞人了，以后en一等民，jp二等民
+
+Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入了她会员吗？
+
+*****
+
+####  lor  
+##### 11799#       发表于 2022-3-29 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在我云的范围里星男还是没现在的虹男偶像化的，去星也不错
+就是我的晴咲真的无了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  心垂万刃  
+##### 11800#       发表于 2022-3-29 22:17
+
+怎么就无了，虹女联动星男也不少了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 11801#       发表于 2022-3-29 22:18
+
+别的不说，道明寺明年能把pst拐来JP7我磕头叫一声爹也不是不可以
+
+*****
+
+####  OldGlory  
+##### 11802#       发表于 2022-3-29 22:20
+
+阿菜搞会限反而safe吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

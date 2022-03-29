@@ -13584,3 +13584,37 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 安娜可以利用隐身+高地形移动摸后排 偷高地的 ...</blockquote>
 安娜的巅峰应该就是炸桥路线船上战了，一个人摸到高台上去正好卡住两个弓兵位置，摸了弓兵之后送再动鹰弓上去，轻松无伤过关
 
+
+
+*****
+
+####  heseran  
+##### 1205#       发表于 2022-3-29 22:09
+
+ 本帖最后由 heseran 于 2022-3-29 22:11 编辑 
+
+通关了，游戏内显示时间不到点30小时，前半段玩的普通难度，后来打一局时间太长了换成简单难度了，真的是又爱又恨<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，战棋部分挺好玩的，战斗的特效和慢动作也挺上头，就是这个剧情怎么这么烂啊，稍微好好写个剧本都能让我多玩一个周目。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一开始想走真结局，结果送盐那章信念不够全员冷淡，刷了好多次酒馆还是说服不了，无奈放弃。然后综合了一下三个结局，感觉管家的提议还像个正常人，另外两个……不知道怎么描述。结果打完了管家线观感也一般。
+
+最终战开局管家用奥义给舞女和安娜开盾，舞女负责遛左边两个骑兵，安娜摸过去磕个路上捡的力量药，隐身背击奥义加平A，用盾抵消一次攻击，然后用绝技加一次TP，重复一波背击奥义加平A，直接把BOSS秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奈维和安娜是真好用，参谋看起来很好用可惜没练，如果哪天缓过来开二周目就带着参谋玩一玩。
+
+*****
+
+####  heseran  
+##### 1206#       发表于 2022-3-29 22:13
+
+可惜缺一个素材没办法开奈维的奥义<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，看描述就觉得很帅
+
+*****
+
+####  Petilil  
+##### 1207#       发表于 2022-3-29 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55236534&amp;ptid=2051152" target="_blank">heseran 发表于 2022-3-29 22:13</a>
+
+可惜缺一个素材没办法开奈维的奥义，看描述就觉得很帅</blockquote>
+其实大部分人一周目可能会先点魔力+2...贤者技能池好但是输出能力差点意思
+
