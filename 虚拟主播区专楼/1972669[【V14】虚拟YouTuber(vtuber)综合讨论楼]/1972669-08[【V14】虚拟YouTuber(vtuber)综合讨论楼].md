@@ -14138,3 +14138,14 @@ FO_fpqnVgAA8bQd.jpg
 
 会不会真独角兽早退坑了呢
 
+
+
+*****
+
+####  rzrbtk  
+##### 11771#       发表于 2022-3-29 17:43
+
+量产型不愧是量产型，造型和行为模式也太...了。
+
+babu姐上传了环球照片（好看），我一晃眼看成liz还想不是刚去完三丽鸥这又去玩儿啊？看了名字才反应过来是谁，结果想想babu姐好像也才刚去了三丽鸥<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
