@@ -14304,3 +14304,32 @@ RE:ACT是什么造型店吗，每一个转进去的都要换身衣服
 
 要开赌了吗，道明寺能不能带领杏星崛起反攻虹男？
 
+
+
+*****
+
+####  purdre  
+##### 11788#       发表于 2022-3-29 20:50
+
+ 本帖最后由 purdre 于 2022-3-29 20:54 编辑 
+
+那个男人居然去杏星了，一看数字，要是虹男的话感觉起码翻3倍，
+
+前面说VTA的，等了那么长时间了还害怕等VTA那点时间吗，怕不是心有所属所以追梦去了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 11789#       发表于 2022-3-29 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种意义上都太晚了，时代的眼泪享受低保就好。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  free  
+##### 11790#       发表于 2022-3-29 20:58
+
+稀羽好好的圆脸，进了你react就变成尖脸了，这审美真是不行<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

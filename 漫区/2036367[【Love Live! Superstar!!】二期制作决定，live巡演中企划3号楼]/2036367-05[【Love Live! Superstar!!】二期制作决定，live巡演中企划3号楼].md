@@ -9046,3 +9046,22 @@ Pay写错了标题，鱼是『募集』有涂改
 
 玛德，一群纱卵。这破聊天记录有什么好传的吗？非要把可可搞臭是吧
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6666#       发表于 2022-3-29 20:45
+
+楼上老哥是遇到啥了，怎么突然这么暴躁
+
+*****
+
+####  csolfans  
+##### 6667#       发表于 2022-3-29 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55235090&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-3-29 20:45</a>
+
+楼上老哥是遇到啥了，怎么突然这么暴躁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概知道是什么聊天记录了关于zz的，我已经习惯了，战吧每个月都几个帖子。实属月经
+
