@@ -14095,3 +14095,17 @@ lizean开幕交换定情信物，乐了
 
 不过我也想说他们那期不大部分都在阿美吗，前同事也在，找自己同期去啊别蹭<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 11768#       发表于 2022-3-29 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55227759&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-3-29 12:05</a>
+
+虽然不至于发散银趴这人铁基佬都不演的，在rosemi那打游戏破防怒骂游戏恐同
+
+不过我也想说他们那期不大部分 ...</blockquote>
+/vt/很多都是杏奴反串吧
+
