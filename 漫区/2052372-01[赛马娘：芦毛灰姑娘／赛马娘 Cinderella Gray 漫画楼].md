@@ -1030,3 +1030,33 @@ image.png
 
 终于到平成三强了
 
+
+
+*****
+
+####  UnhappyTails  
+##### 89#       发表于 2022-3-29 23:29
+
+所以这漫画到底有没有皇栗不存在的记忆呢，有的话我就开始看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isummon  
+##### 90#         楼主| 发表于 2022-3-29 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55237843&amp;ptid=2052372" target="_blank">UnhappyTails 发表于 2022-3-29 23:29</a>
+
+所以这漫画到底有没有皇栗不存在的记忆呢，有的话我就开始看</blockquote>
+目前是没有的，漫画完全集中在跑步上……不过以后可能会有也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  UnhappyTails  
+##### 91#       发表于 2022-3-29 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55237964&amp;ptid=2052372" target="_blank">isummon 发表于 2022-3-29 23:39</a>
+目前是没有的，漫画完全集中在跑步上……不过以后可能会有也说不定 ...</blockquote>
+好的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
