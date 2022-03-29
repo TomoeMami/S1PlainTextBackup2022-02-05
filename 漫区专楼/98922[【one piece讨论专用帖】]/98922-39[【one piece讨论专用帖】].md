@@ -5221,3 +5221,36 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 什么时候说的？
 尾田靠乱加新设定增强削弱，你在新设定前吹自然被嘲。
 
+
+
+*****
+
+####  klzxs  
+##### 57414#       发表于 2022-3-29 10:25
+
+第一次和路飞打的时候
+
+当时记得是说动物是肉体近战最强(感觉是句废话
+
+*****
+
+####  blueflames001  
+##### 57415#       发表于 2022-3-29 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55226327&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-29 10:18</a>
+
+什么时候说的？
+
+尾田靠乱加新设定增强削弱，你在新设定前吹自然被嘲。</blockquote>
+这是个戏服号，要说的话应该是水之都CP9动物果实能力者化时吧
+
+*****
+
+####  jxzeroga0  
+##### 57416#       发表于 2022-3-29 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55226125&amp;ptid=98922" target="_blank">ロブ・ルッチ 发表于 2022-3-29 10:02</a>
+
+我当时说恶魔果实动物系才是最强的时候是不是还有人嘲笑来着</blockquote>
+动物的战力也分三六九等，随机到ssr幻兽种就比搞笑类长颈鹿好多了
+
