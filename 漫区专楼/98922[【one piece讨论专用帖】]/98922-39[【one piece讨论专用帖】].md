@@ -5430,3 +5430,15 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 你看真到要用的时候他自己都觉得挺带劲的，没 ...</blockquote>
 你现在是和卡莉法在一起还是史翠西的……男………
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57434#       发表于 2022-3-29 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55227492&amp;ptid=98922" target="_blank">超紳士 发表于 2022-3-29 11:41</a>
+
+白胡子是人人果实幻兽种败北者形态吧</blockquote>
+N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话，变得像直戳痛处了，搞过家家，偏爱艾斯，因此送了命。
+
