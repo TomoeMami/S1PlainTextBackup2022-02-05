@@ -14333,3 +14333,21 @@ RE:ACT是什么造型店吗，每一个转进去的都要换身衣服
 
 稀羽好好的圆脸，进了你react就变成尖脸了，这审美真是不行<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 11791#       发表于 2022-3-29 21:19
+
+虽然我也不看好进星，但是VTA确实是浪费时间吧，意义何在 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 11792#       发表于 2022-3-29 21:21
+
+道明寺就是新一代的king
+
+什么kuzuha啦vox啦，是时候面对旧世的亡灵了
+
