@@ -8930,3 +8930,13 @@ EBF22F1D-AE8F-4C9B-B032-4530CE5B7F80.jpeg
 真实的表情</blockquote>
 这个好吃？ 鲤鱼疑惑脸<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6658#       发表于 2022-3-29 14:25
+
+翻到了一个生草的视频，以前给鲤鱼的翻唱提供钢琴声和后期的DMYoung大佬唱的小星星<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1DD4y1c7Tp](https://www.bilibili.com/video/BV1DD4y1c7Tp)
+

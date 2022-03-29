@@ -3176,3 +3176,14 @@ DS系列屏幕发黄是不是没办法换？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 232#         楼主| 发表于 2022-3-29 14:40
+
+算了，干脆再专楼里面问
+
+有老哥知道那个NDSI会尿屏嘛，我NDSL尿了，最近想玩W···发现下屏老化了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

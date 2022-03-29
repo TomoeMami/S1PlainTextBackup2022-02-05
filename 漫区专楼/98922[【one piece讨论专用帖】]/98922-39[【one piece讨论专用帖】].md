@@ -5366,3 +5366,15 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 我当时说恶魔果实动物系才是最强的时候是不是还有人嘲笑来着</blockquote>
 别人嘲笑也就罢了，你家卡库自己吃了长颈鹿果实不也满腹牢骚？ <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57429#       发表于 2022-3-29 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55228409&amp;ptid=98922" target="_blank">reficul 发表于 2022-3-29 12:49</a>
+
+但是现在轮到霸气超模了，要是霸气只能摸到自然系还行，后面开始给霸气打补丁出新招，打得霸气都要比果实高 ...</blockquote>
+因为新世界篇开始把霸气搞得有点数值化了，强弱变成霸气比拼自然就会这样。然后就是升级体系太太多的问题了。
+

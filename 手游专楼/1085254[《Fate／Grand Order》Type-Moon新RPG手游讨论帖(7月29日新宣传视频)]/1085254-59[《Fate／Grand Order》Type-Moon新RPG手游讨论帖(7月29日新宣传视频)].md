@@ -5285,3 +5285,15 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 让你们都不抽鹤姐姐，还说人家是杂技选手，结果这回超高难本逃课解有一半以上都可以用到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鹤小姐我抽了到现在一次都没用过
 
+
+
+*****
+
+####  alucardcz  
+##### 87466#       发表于 2022-3-29 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55228712&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-3-29 13:07</a>
+
+让你们都不抽鹤姐姐，还说人家是杂技选手，结果这回超高难本逃课解有一半以上都可以用到 ...</blockquote>
+超高难本不都是脚打的吗。。。还需要什么鹤姐姐？
+
