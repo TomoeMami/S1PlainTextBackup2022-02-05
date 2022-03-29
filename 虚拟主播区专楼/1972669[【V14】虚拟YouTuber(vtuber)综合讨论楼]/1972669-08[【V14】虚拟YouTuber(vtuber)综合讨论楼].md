@@ -14280,3 +14280,27 @@ RE:ACT是什么造型店吗，每一个转进去的都要换身衣服
 
 看了一下，好多队来啊……这么想蹭king的面子吗
 
+
+
+*****
+
+####  winda  
+##### 11785#       发表于 2022-3-29 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大舅哥要是去虹难道还要进vta荒废半年么，这么看还真不如杏星
+
+*****
+
+####  死体残留  
+##### 11786#       发表于 2022-3-29 20:29
+
+真是因为进vta要练半年才不进虹
+架子那么大还是别进虹了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 11787#       发表于 2022-3-29 20:40
+
+要开赌了吗，道明寺能不能带领杏星崛起反攻虹男？
+
