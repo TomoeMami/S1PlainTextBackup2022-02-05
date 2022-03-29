@@ -5306,3 +5306,18 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 速杀确实大多不是要高宝大腿就是要玩具的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87468#       发表于 2022-3-29 15:18
+
+ 本帖最后由 gpx234mqx 于 2022-3-29 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55204043&amp;ptid=1085254" target="_blank">longrider 发表于 2022-3-27 13:33</a>
+
+越南双子姐妹，二征夫人？对抗北方强大侵略者东汉马援，这国服怕是过不了 ...</blockquote>
+哪里的越南，是东汉交趾郡叛乱份子，被马伏波一波歼灭
+
+造位面之子的反有啥想不开的
+

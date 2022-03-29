@@ -8940,3 +8940,18 @@ EBF22F1D-AE8F-4C9B-B032-4530CE5B7F80.jpeg
 翻到了一个生草的视频，以前给鲤鱼的翻唱提供钢琴声和后期的DMYoung大佬唱的小星星<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV1DD4y1c7Tp](https://www.bilibili.com/video/BV1DD4y1c7Tp)
 
+
+
+*****
+
+####  chichengjerry  
+##### 6659#       发表于 2022-3-29 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55194203&amp;ptid=2036367" target="_blank">名津流 发表于 2022-3-26 16:46</a>
+
+这个好，是固定每期都有人转化成文字版吗？是的话我想关注</blockquote>
+这边打个广告
+[鲤鱼烧烤铺](https://space.bilibili.com/1217316294)每周会出上周广播翻译
+
+最近还会更新一些以前活动的
+
