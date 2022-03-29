@@ -9026,3 +9026,12 @@ Pay写错了标题，鱼是『募集』有涂改
 <blockquote>横滨公演期间鲤鱼爱上了生蛋拌饭，每天都在吃，然后想再次尝试纳豆。sayu说和拌饭一起吃也许比单独吃好一点，鲤鱼试了以后，果然还是不行。现在征求让纳豆好吃的方法。最后补了一句:剩下的纳豆没浪费，都让sayu吃了</blockquote>
 真是养🐶啊
 
+
+
+*****
+
+####  starring  
+##### 6664#       发表于 2022-3-29 19:09
+
+今天的广播几乎全是聊吃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
