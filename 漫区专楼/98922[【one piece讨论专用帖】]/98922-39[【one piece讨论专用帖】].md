@@ -5353,3 +5353,16 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 少年漫画的战斗力升上去了可就没办法降下 ...</blockquote>
 外海的是政府的人海军没来，最后估计也不太会打海军了，敌人只有黑胡子和伊姆了。
 
+
+
+*****
+
+####  C男人  
+##### 57428#       发表于 2022-3-29 14:06
+
+ 本帖最后由 C男人 于 2022-3-29 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55226125&amp;ptid=98922" target="_blank">ロブ・ルッチ 发表于 2022-3-29 10:02</a>
+
+我当时说恶魔果实动物系才是最强的时候是不是还有人嘲笑来着</blockquote>
+别人嘲笑也就罢了，你家卡库自己吃了长颈鹿果实不也满腹牢骚？ <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
