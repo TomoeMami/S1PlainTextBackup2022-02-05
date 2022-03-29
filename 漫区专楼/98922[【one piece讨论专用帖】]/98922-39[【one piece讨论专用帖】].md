@@ -5442,3 +5442,14 @@ FE353659-E818-4510-8238-E7A444F42C01.jpeg
 白胡子是人人果实幻兽种败北者形态吧</blockquote>
 N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话，变得像直戳痛处了，搞过家家，偏爱艾斯，因此送了命。
 
+
+
+*****
+
+####  是这样  
+##### 57435#       发表于 2022-3-30 07:10
+
+五皇直接化身巨人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
