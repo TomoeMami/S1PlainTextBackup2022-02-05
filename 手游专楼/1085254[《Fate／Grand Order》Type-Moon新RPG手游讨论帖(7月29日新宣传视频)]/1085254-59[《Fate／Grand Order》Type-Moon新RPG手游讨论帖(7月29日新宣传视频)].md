@@ -5344,3 +5344,12 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 建议wys开个强化本给个无敌贯通和无视防御，让老福彻底失业
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87471#       发表于 2022-3-29 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奖励太垃圾了啊 要是通一关给个呼符 最终奖励把结晶换成五个呼符我就去打 一堆垃圾材料和一个结晶有个屁用
+
