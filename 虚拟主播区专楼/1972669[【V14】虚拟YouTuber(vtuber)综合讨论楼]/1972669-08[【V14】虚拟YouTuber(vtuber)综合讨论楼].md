@@ -14465,3 +14465,34 @@ Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入�
 
 夜见还把博士拉来玩了，本来准备叫上社长，smc一起来的，不过换成豆猫，声音也没啥区别就是了()
 
+
+
+*****
+
+####  Junchoon  
+##### 11806#       发表于 2022-3-29 23:08
+
+唉......静凛和月灵的B站账号都好久不动了，谁能告诉我发生了啥......
+
+*****
+
+####  格林卡罗尔  
+##### 11807#       发表于 2022-3-29 23:12
+
+<img src="https://img.saraba1st.com/forum/202203/29/231158htttrpzyptmrm5o8.jpg" referrerpolicy="no-referrer">
+
+<strong>d826e49a187fcfb332dcea79a18d4387d19bb0fd.jpg</strong> (170 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-29 23:11 上传
+
+刷履历了
+
+*****
+
+####  ヒトニナル  
+##### 11808#       发表于 2022-3-29 23:12
+
+杏星有大物？优十？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
