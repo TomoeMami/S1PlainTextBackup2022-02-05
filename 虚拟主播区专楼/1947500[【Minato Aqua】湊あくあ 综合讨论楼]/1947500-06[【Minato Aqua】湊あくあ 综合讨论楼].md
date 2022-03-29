@@ -9917,3 +9917,28 @@ syl,右上角看到夸大狙秒了个人
 
 再拉比赛当天同接不要啦？米不收啦？
 
+
+
+*****
+
+####  新磕娘  
+##### 8620#       发表于 2022-3-30 01:42
+
+被葛皇队一波收了，舒服了
+
+*****
+
+####  面具13  
+##### 8621#       发表于 2022-3-30 02:01
+
+被四面夹击打出屎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新磕娘  
+##### 8622#       发表于 2022-3-30 04:07
+
+[https://www.youtube.com/watch?v=XE8fBX_d3tg](https://www.youtube.com/watch?v=XE8fBX_d3tg)
+
+两把吃鸡局的阿夸视角，坐标：04：05：10 和 04：40：30
+
