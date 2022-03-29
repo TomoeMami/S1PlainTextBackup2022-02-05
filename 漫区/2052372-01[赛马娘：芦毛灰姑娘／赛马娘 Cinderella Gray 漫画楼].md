@@ -1060,3 +1060,24 @@ image.png
 目前是没有的，漫画完全集中在跑步上……不过以后可能会有也说不定 ...</blockquote>
 好的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  isummon  
+##### 92#         楼主| 发表于 2022-3-29 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55238003&amp;ptid=2052372" target="_blank">UnhappyTails 发表于 2022-3-29 23:41</a>
+
+好的吧</blockquote>
+要说百合要素的话，漫画目前只有超级大海湾和性转武丰有些许这个感觉
+
+*****
+
+####  UnhappyTails  
+##### 93#       发表于 2022-3-30 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55238082&amp;ptid=2052372" target="_blank">isummon 发表于 2022-3-29 23:47</a>
+要说百合要素的话，漫画目前只有超级大海湾和性转武丰有些许这个感觉</blockquote>
+啊我完全不喜欢看百合，我单纯觉得皇栗互动很有梗想多看一些罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
