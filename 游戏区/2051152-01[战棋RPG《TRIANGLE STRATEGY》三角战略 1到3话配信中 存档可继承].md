@@ -13521,3 +13521,29 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 查看全部评分
 
+
+
+*****
+
+####  martinhe  
+##### 1200#       发表于 2022-3-29 13:47
+
+由于这游戏机动性高的角色伤害都捉急，刺客中期背刺法师连一换一都做不到，而且一掉队会被瞬间集火
+
+所以基本只有占据有利地形龟缩靠法师输出一种打法，能实现步步为营打法的关卡也不多
+
+好玩还是好玩的，对于我这种喜欢机动包抄的玩家来说战术选择太少了
+
+
+
+*****
+
+####  Vladimeow  
+##### 1201#       发表于 2022-3-29 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55229313&amp;ptid=2051152" target="_blank">martinhe 发表于 2022-3-29 13:47</a>
+由于这游戏机动性高的角色伤害都捉急，刺客中期背刺法师连一换一都做不到，而且一掉队会被瞬间集火
+
+所以基 ...</blockquote>
+普通难度安娜伤害还是可以的，困难就完全不够用了，大多数时候只能龟缩阵地战为主<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
