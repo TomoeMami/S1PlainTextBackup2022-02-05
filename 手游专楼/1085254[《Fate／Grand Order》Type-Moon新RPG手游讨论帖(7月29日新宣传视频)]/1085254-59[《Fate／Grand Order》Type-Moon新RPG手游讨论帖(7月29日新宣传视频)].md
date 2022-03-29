@@ -5236,3 +5236,12 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 正好高难一个都没打的，明天冲刺下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 87461#       发表于 2022-3-29 10:55
+
+终于转运了，继800抽满暗狐，巴姐吃保底，白情500来抽1太公1尼莫1大象之后，终于开始单抽起飞了。先是特斯拉池子每日单抽除了爱迪生（少数还没满宝的4星），然后伍佰池子手滑点成护符，结果歪了个拿皇（有一个常驻5宝），想想不过气还是把每日单抽点了，结果伍佰同志经过了2年多的时光终于从1宝变成2宝了（果然常驻等歪都是骗人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
