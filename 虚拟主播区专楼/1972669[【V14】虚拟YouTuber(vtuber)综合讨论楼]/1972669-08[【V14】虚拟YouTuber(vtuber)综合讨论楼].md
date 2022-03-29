@@ -14045,3 +14045,24 @@ lizean开幕交换定情信物，乐了
 年轻小姑娘一个</blockquote>
 那直播还那么多失误，现在玩瓦罗游戏声音也没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 11764#       发表于 2022-3-29 08:16
+
+<blockquote>さいね  @sainexxx
+
+新人VTuber星影ラピスさんのお身体のお手伝いをさせて頂いております！これから活動をしていくそうなので応援よろしくお願い致します！🪐🐏</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/29/081522nu01lqxa104yhqu1.jpg" referrerpolicy="no-referrer">
+
+<strong>20220329_081259.jpg</strong> (180.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-29 08:15 上传
+
+[https://youtube.com/channel/UCMyvP0GM_l4khRYDZ5eKvxA](https://youtube.com/channel/UCMyvP0GM_l4khRYDZ5eKvxA)
+
