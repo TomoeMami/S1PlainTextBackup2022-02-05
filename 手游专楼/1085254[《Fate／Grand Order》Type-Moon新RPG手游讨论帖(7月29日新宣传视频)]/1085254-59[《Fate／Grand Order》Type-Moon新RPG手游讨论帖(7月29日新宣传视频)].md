@@ -5353,3 +5353,15 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奖励太垃圾了啊 要是通一关给个呼符 最终奖励把结晶换成五个呼符我就去打 一堆垃圾材料和一个结晶有个屁用
 
+
+
+*****
+
+####  alucardcz  
+##### 87472#       发表于 2022-3-29 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55233463&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-29 18:49</a>
+
+奖励太垃圾了啊 要是通一关给个呼符 最终奖励把结晶换成五个呼符我就去打 一堆垃圾材料和一个结晶有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下面给护符的你打完了？
+
