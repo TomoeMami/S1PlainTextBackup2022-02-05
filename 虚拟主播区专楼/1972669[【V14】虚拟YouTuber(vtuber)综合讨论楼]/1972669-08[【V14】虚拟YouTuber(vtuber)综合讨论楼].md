@@ -14365,3 +14365,19 @@ RE:ACT是什么造型店吗，每一个转进去的都要换身衣服
 本オーディションは配信経験者を対象としているため、ボーカル、ダンスレッスン、および配信練習に関する講義は行いません。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看第二次选拔的内容，这vta有点黑的劝退了，什么时代还搞seeds模式
 
+
+
+*****
+
+####  Suzutsuki  
+##### 11794#       发表于 2022-3-29 21:46
+
+草，天帝单杀了noa<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 11795#       发表于 2022-3-29 21:46
+
+大概最后还是King会是King就是了估计。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
