@@ -5365,3 +5365,35 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 奖励太垃圾了啊 要是通一关给个呼符 最终奖励把结晶换成五个呼符我就去打 一堆垃圾材料和一个结晶有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下面给护符的你打完了？
 
+
+
+*****
+
+####  qixinno2  
+##### 87473#       发表于 2022-3-29 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55234140&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-29 19:39</a>
+
+下面给护符的你打完了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不锁角色的全打完了啊
+
+*****
+
+####  alucardcz  
+##### 87474#       发表于 2022-3-29 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55234663&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-29 20:16</a>
+
+不锁角色的全打完了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能打完了呢
+
+*****
+
+####  qixinno2  
+##### 87475#       发表于 2022-3-29 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55234671&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-29 20:17</a>
+
+你怎么能打完了呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">早就打完了啊 反正瞎JB打就完了
+
