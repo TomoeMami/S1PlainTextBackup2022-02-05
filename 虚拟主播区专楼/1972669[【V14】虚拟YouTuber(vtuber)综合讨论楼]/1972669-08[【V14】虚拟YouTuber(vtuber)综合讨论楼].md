@@ -14869,3 +14869,21 @@ edens车站广告赛艇工商咖啡厅都是拉满的<img src="https://static.sa
 
 你们要的虹男新衣
 
+
+
+*****
+
+####  rzrbtk  
+##### 11845#       发表于 2022-3-30 21:27
+
+当然是看待会的童田直播了，连郡都转了，很难不是...19第一组出道也是第一组全毕业，惹。
+
+顺便还可以看看虹有没有如所说那样加强会限内容保护，半小时后又是nico切片满天飞就好笑了
+
+*****
+
+####  Ketestrait  
+##### 11846#       发表于 2022-3-30 21:34
+
+<img src="https://tva1.sinaimg.cn/large/7c16af6bly1h0s8i23vxzj20yo0n0jtq.jpg" referrerpolicy="no-referrer">
+
