@@ -13627,3 +13627,14 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 最后那三条线制作组是不是压根就不希望玩家选粉毛和王子，一个短视愚蠢一个莫名其妙当了带路党，只有参谋的提议还算个正常人
 
+
+
+*****
+
+####  hellightning  
+##### 1209#       发表于 2022-3-30 20:04
+
+教皇的立绘也太渗人了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -6443,3 +6443,40 @@ C S G O
 
 路飞现在是三大漫主角里，我观感最差的一个。
 
+
+
+*****
+
+####  吃我大dio  
+##### 57532#       发表于 2022-3-30 20:05
+
+<blockquote>三点几，饮茶啦 发表于 2022-3-30 19:50
+路飞现在是三大漫主角里，我观感最差的一个。</blockquote>
+嘴遁确实观感好
+
+*****
+
+####  cdfjg  
+##### 57533#       发表于 2022-3-30 20:16
+
+看了下reddit，他们也因为路飞这话说的内容不爽；也有说凯多是老师的；调侃罗的体力的。全世界观感还是一样的
+
+*****
+
+####  仟音一心  
+##### 57534#       发表于 2022-3-30 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249613&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 20:16</a>
+看了下reddit，他们也因为路飞这话说的内容不爽；也有说凯多是老师的；调侃罗的体力的。全世界观感还是一样 ...</blockquote>
+日本那边这两话还是有抱怨的吧，只是不可能在公共平台说。
+
+*****
+
+####  7sevenseven  
+##### 57535#       发表于 2022-3-30 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249613&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 20:16</a>
+看了下reddit，他们也因为路飞这话说的内容不爽；也有说凯多是老师的；调侃罗的体力的。全世界观感还是一样 ...</blockquote>
+<img src="https://p.sda1.dev/5/b77a197ee873ac1b5c96a91ac3b05724/IMG_CMP_138592381.jpeg" referrerpolicy="no-referrer">
+只能说全球孝子太多
+
