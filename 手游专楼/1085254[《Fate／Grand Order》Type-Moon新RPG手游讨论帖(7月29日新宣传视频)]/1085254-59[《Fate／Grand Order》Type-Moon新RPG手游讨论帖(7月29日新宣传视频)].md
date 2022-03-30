@@ -5535,3 +5535,12 @@ ID Pocket
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">次数技能,好是不好?
 
+
+
+*****
+
+####  森兰丸  
+##### 87489#       发表于 2022-3-30 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉
+

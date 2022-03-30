@@ -6771,3 +6771,26 @@ C S G O
 
 只是和玉女团子**一样给人感觉怪怪的
 
+
+
+*****
+
+####  灌水机  
+##### 57563#       发表于 2022-3-30 23:14
+
+明明是神展开，和之国烂归烂，关尼卡什么事<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+霸气/觉醒哪个不是空降的，前有黑胡子变态吃两个果实，现在果实觉醒变态，天就塌了？不喜欢你可以放一放看看后续，不用急着把所有路人读者都打成敌人。
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灌水机  
+##### 57564#       发表于 2022-3-30 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55208679&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-27 20:44</a>
+4chan吐槽</blockquote>
+鼠鼠果实幻兽种杰瑞形态<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
