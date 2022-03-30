@@ -5438,3 +5438,14 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在酒吞面前螃蟹简直就是弱鸡
 
+
+
+*****
+
+####  khxooo  
+##### 87480#       发表于 2022-3-30 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246881&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-30 16:57</a>
+在酒吞面前螃蟹简直就是弱鸡</blockquote>
+不是有个更好的暗狐吗
+
