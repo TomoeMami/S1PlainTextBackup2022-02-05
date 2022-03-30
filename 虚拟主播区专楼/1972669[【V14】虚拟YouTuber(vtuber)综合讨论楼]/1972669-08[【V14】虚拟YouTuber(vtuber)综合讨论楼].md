@@ -14773,3 +14773,12 @@ oh……好吧
 这么说的话，虹男是自己赚钱自己花
 哪有杏星“吃软饭”爽<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11835#       发表于 2022-3-30 17:00
+
+不过确实，杏星有公司的固定批发新衣装还有大锅饭live开，3D不用排队质量也高，不像虹男只有头部待遇好一点甚至还可能遭丑3D和丑谷的罪
+

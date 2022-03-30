@@ -5417,3 +5417,24 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  alucardcz  
+##### 87478#       发表于 2022-3-30 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55242154&amp;ptid=1085254" target="_blank">白金口袋 发表于 2022-3-30 11:03</a>
+
+寻思结束前进去打一下高难，结果上来这个大螃蟹硬的令人发指
+
+直接退了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大螃蟹打异常的啊
+
+*****
+
+####  qixinno2  
+##### 87479#       发表于 2022-3-30 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在酒吞面前螃蟹简直就是弱鸡
+
