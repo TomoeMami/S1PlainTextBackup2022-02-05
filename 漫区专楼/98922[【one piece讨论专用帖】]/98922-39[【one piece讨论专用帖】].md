@@ -6096,3 +6096,69 @@ C S G O
 
 海贼后面的乐子应该能超越阿创的自由吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  7sevenseven  
+##### 57498#       发表于 2022-3-30 17:40
+
+路飞这人人果实一出来，这漫画其他的隐藏剧情没出场的故事全都没有意义了
+
+什么绿牛古代武器第十人阿金。我王路飞，人人果实幻兽种，无敌
+
+*****
+
+####  谁说法海不懂爱  
+##### 57499#       发表于 2022-3-30 17:41
+
+<blockquote>DGIL 发表于 2022-3-30 17:36
+其实按道理打败凯多已经可以算当世最强了吧
+
+不能又跳出一堆比凯多厉害的隐藏高手吧。。
+
+一路横扫过去也对 ...</blockquote>
+所以才有人说，和之国这盘下来，强力友军关系户越来越多，反而没什么已知的感觉上有威胁的对手。我前面提的，海军科学武器来个量产凯多应该不算过分。
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57500#       发表于 2022-3-30 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55247543&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-30 17:41</a>
+所以才有人说，和之国这盘下来，强力友军关系户越来越多，反而没什么已知的感觉上有威胁的对手。我前面提 ...</blockquote>
+再来一个两年后。
+两年前全团打凯多被打得仰卧起坐都做不过来，两年后尼卡神一拳打爆一个凯多。
+
+*****
+
+####  触手皇帝  
+##### 57501#       发表于 2022-3-30 17:54
+
+尾田真的觉得这一话能看得人很愉悦？我都心疼凯多了，这所谓带来欢笑的果实一点都不欢乐，我就看到个开挂选手在虐一个实力称霸海上数十年的老将，还笑，能不能尊重点？开挂好玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yario  
+##### 57502#       发表于 2022-3-30 17:57
+
+都忘记乔巴的万灵药梦想了？
+
+*****
+
+####  8aa8aa8aa  
+##### 57503#       发表于 2022-3-30 17:58
+
+大家都在为凯老师加油了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57504#       发表于 2022-3-30 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246198&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-30 16:07</a>
+毕竟是黑白漫画，
+
+涂黑是最简单的方法之一了。</blockquote>
+远不如超赛直接留白省事啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
