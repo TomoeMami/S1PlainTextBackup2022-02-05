@@ -14554,3 +14554,22 @@ Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入�
 
 看不懂，774有音乐资源可砸的话sugar lyric还能是现在这个全身入土只留鼻孔的样子吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 11814#       发表于 2022-3-30 12:30
+
+<img src="https://tvax3.sinaimg.cn/large/7c16af6bly1h0rssb3ovjj20xc1ao7hg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 11815#       发表于 2022-3-30 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55237582&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-3-29 23:12</a>
+
+刷履历了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新赛季排名分改版+上半赛季后期，结果从9400分开始耐久了10h才上大师，作为前猎杀selen这次有些丢脸的
+
