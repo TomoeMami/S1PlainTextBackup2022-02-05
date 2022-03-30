@@ -5682,3 +5682,27 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 幻兽种不是一共才8种吗？大口真神、九尾狐、不死鸟、青龙、八岐大蛇、大入道、大佛、尼卡，还有别的吗？
 
+
+
+*****
+
+####  cckuku  
+##### 57457#       发表于 2022-3-30 10:05
+
+你这b开了挂然后问人家好不好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">酱紫羞辱凯老师？
+凯多:好不好玩？我玩nm！
+
+*****
+
+####  谁说法海不懂爱  
+##### 57458#       发表于 2022-3-30 10:16
+
+记得wt开篇说想不出怎么赢凯老师，这就是答案。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 57459#       发表于 2022-3-30 10:18
+
+原来凯老师和五皇打的是BO7，0:3之后五皇的外挂终于到账了开始跳泉嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
