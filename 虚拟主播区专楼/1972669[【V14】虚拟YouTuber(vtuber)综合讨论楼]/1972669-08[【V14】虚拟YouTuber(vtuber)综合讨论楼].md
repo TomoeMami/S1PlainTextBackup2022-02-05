@@ -14496,3 +14496,17 @@ Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入�
 
 杏星有大物？优十？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sgssk  
+##### 11809#       发表于 2022-3-30 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55237526&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-3-29 23:08</a>
+
+唉......静凛和月灵的B站账号都好久不动了，谁能告诉我发生了啥......</blockquote>
+月灵本来有本职工作就低产，油管上存货已经投完了。前段时间就是在鼓捣Vtuber fes japan吧
+
+凛码猜测单纯是摸鱼
+
