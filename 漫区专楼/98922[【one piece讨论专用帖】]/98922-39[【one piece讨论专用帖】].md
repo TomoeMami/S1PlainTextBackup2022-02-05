@@ -5706,3 +5706,25 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 原来凯老师和五皇打的是BO7，0:3之后五皇的外挂终于到账了开始跳泉嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 57460#       发表于 2022-3-30 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">上一回我还在想
+
+虽然路飞现在爬起来了，但之前那种重的伤不可能一点影响没有
+
+结果这回就鼓声一响，体力回满
+
+太赖了吧
+
+*****
+
+####  柳柳昭陵  
+##### 57461#       发表于 2022-3-30 10:25
+
+被挂b殴打还不开心，一定是骗人的<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
