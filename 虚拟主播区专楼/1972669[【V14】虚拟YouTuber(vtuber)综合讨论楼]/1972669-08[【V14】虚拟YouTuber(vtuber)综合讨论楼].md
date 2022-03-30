@@ -14834,3 +14834,27 @@ oh……好吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">宗谷也要毕业了
 
+
+
+*****
+
+####  rzrbtk  
+##### 11842#       发表于 2022-3-30 19:46
+
+纯看人选，ATLAS赢定了嘛...？多井纯粹兴趣选人了，life还蛮遗憾的。至于c组，我郡被除了初心的Fra以外的人都暴打过，感觉又要再次泪洒赛场了...不过就我的角度能跟咲乃一队已经赚了。
+
+<img src="https://img.saraba1st.com/forum/202203/30/194412gvytytyvvm3y1g1b.jpg" referrerpolicy="no-referrer">
+
+<strong>FPGC4IxVkAYdaPS.jpg</strong> (181.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 19:44 上传
+
+*****
+
+####  winda  
+##### 11843#       发表于 2022-3-30 19:47
+
+edens车站广告赛艇工商咖啡厅都是拉满的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在轮到ranuculus了，不过开局就少个nijinoon，差点意思
+
