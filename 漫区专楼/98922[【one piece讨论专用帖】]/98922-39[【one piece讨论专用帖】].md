@@ -7210,3 +7210,14 @@ D101B5CA-C0E0-4DE1-A915-D6DAD1B1BE28.jpeg
 
 果实觉醒这个概念早就有了，也不算太离谱，被打死复活这个嘛，估计凯多也不认那一棒子吧
 
+
+
+*****
+
+####  赤魔法师  
+##### 57600#       发表于 2022-3-31 00:42
+
+画得离谱也没办法！
+
+还不是只能骂完接着看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
