@@ -6584,3 +6584,146 @@ C S G O
 <img src="https://p.sda1.dev/5/6543fc4920d13e2ee703e6f56dfd41ce/8C3FDA7BB21208AB30A9A4912D3DF8E2.jpg" referrerpolicy="no-referrer">
 好图，哈哈哈
 
+
+
+*****
+
+####  超紳士  
+##### 57547#       发表于 2022-3-30 21:40
+
+网上看到个评论，one piece改名为“世界最弱の海で生まれた俺が神になれる実を食べたら世界の王になれた件w”比较好吧
+
+*****
+
+####  吃我大dio  
+##### 57548#       发表于 2022-3-30 21:41
+
+<blockquote>7sevenseven 发表于 2022-3-30 20:19
+只能说全球孝子太多</blockquote>
+别人是孝子。你是啥？逆子？
+
+*****
+
+####  7sevenseven  
+##### 57549#       发表于 2022-3-30 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250635&amp;ptid=98922" target="_blank">吃我大dio 发表于 2022-3-30 21:41</a>
+别人是孝子。你是啥？逆子？</blockquote>
+我是正常看漫画的
+生硬的改掉自己1000多话的最基础最底层设定，毫不顾忌造成的剧情bug和人物崩坏，对这种剧情还叫好我是做不到的
+
+*****
+
+####  Algie  
+##### 57550#       发表于 2022-3-30 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249043&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-03-30 19:32:11</a>
+退一步说改果实就改果实，这嘻嘻哈哈的真的很难接受，以往的路飞会是这样的吗 ...</blockquote>看看刚出海的路飞，平时是个傻子，但面对认定的敌人时都是人狠话不多，上阵表情都是严肃的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  先手必胜  
+##### 57551#       发表于 2022-3-30 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250681&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-30 21:44</a>
+
+看看刚出海的路飞，平时是个傻子，但面对认定的敌人时都是人狠话不多，上阵表情都是严肃的
+
+  -- 来自 能搜 ...</blockquote>
+是的，以往欢笑都是留给胜利后的宴会，遇上认定的敌人时都是非常严肃的，现在的路飞让我觉得被夺舍了
+
+*****
+
+####  Algie  
+##### 57552#       发表于 2022-3-30 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249928&amp;ptid=98922" target="_blank">yario 发表于 2022-03-30 20:41:29</a>
+和之国很烂不等于one piece烂。少年漫主角开的挂 太多 太多 为了填平和弗利萨的巨大差距 弄出赛亚人濒死 ...</blockquote>现在的发展在腐蚀作品的根基，腐蚀多了op也就烂了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Algie  
+##### 57553#       发表于 2022-3-30 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250706&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-03-30 21:46:41</a>
+是的，以往欢笑都是留给胜利后的宴会，遇上认定的敌人时都是非常严肃的，现在的路飞让我觉得被夺舍了 ...</blockquote>哪怕是战斗中的笑点也是因为路飞有时清奇的脑回路导致迷惑行为，但他主观上没有与对手“玩”
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  吃我大dio  
+##### 57554#       发表于 2022-3-30 21:55
+
+<blockquote>7sevenseven 发表于 2022-3-30 21:43
+我是正常看漫画的
+
+生硬的改掉自己1000多话的最基础最底层设定，毫不顾忌造成的剧情bug和人物崩坏，对这种 ...</blockquote>
+大家都是正常看漫画 。你觉得这剧情稀烂喷尾田，喷编辑都可以。把其他觉得剧情可以的读者者抓过来一起喷我感觉没必要。 
+
+*****
+
+####  7sevenseven  
+##### 57555#       发表于 2022-3-30 21:57
+
+ 本帖最后由 7sevenseven 于 2022-3-30 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250802&amp;ptid=98922" target="_blank">吃我大dio 发表于 2022-3-30 21:55</a>
+大家都是正常看漫画 。你觉得这剧情稀烂喷尾田，喷编辑都可以。把其他觉得剧情可以的读者者抓过来一起喷 ...</blockquote>
+对，我就是把觉得这两话不错，op发展态势良好的人都喷了
+危害作品根基的剧情还叫好，称为“孝子”我觉得很正确
+
+*****
+
+####  八汰乌  
+##### 57556#       发表于 2022-3-30 21:59
+
+感觉眼球完全飞出来太惊悚了，不搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwdzcjsmxx  
+##### 57557#       发表于 2022-3-30 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215164&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-28 11:58</a>
+
+两年后的败笔是和之国，和之国就是一无是处</blockquote>
+之前漫画看到和之国开始一点。。。我现在是看好还是不看好。。。orz
+
+*****
+
+####  7sevenseven  
+##### 57558#       发表于 2022-3-30 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250882&amp;ptid=98922" target="_blank">wwdzcjsmxx 发表于 2022-3-30 22:04</a>
+之前漫画看到和之国开始一点。。。我现在是看好还是不看好。。。orz</blockquote>
+战斗的话看看索隆和山治战斗回，就差不多了
+唯二有亮点又不恶心的战斗
+
+*****
+
+####  银翼的维罗西  
+##### 57559#       发表于 2022-3-30 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250681&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-30 21:44</a>
+
+看看刚出海的路飞，平时是个傻子，但面对认定的敌人时都是人狠话不多，上阵表情都是严肃的
+
+  -- 来自 能搜 ...</blockquote>
+确实，五黄形象崩了，海贼王一大看点就是五黄独一档的成熟，两年后像个单纯的傻子
+
+*****
+
+####  先手必胜  
+##### 57560#       发表于 2022-3-30 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250742&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-30 21:50</a>
+
+哪怕是战斗中的笑点也是因为路飞有时清奇的脑回路导致迷惑行为，但他主观上没有与对手“玩”
+
+  -- 来自 能 ...</blockquote>
+感觉就是强行微笑男孩，按着头搞笑
+
