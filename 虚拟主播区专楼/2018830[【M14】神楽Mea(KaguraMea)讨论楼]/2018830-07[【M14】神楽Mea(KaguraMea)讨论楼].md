@@ -9173,3 +9173,23 @@ bsyl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天敢喝酒，明天敢干什么不敢想了
 
+
+
+*****
+
+####  往世雷书  
+##### 9968#       发表于 2022-3-30 19:35
+
+我愿意接盘，去哪领
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  璃絵和花瑠  
+##### 9969#       发表于 2022-3-30 19:39
+
+<img src="https://p.sda1.dev/5/99200a7fe3de60fe1fd98512ae9b2e35/4cd5f4bac440dd45.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
