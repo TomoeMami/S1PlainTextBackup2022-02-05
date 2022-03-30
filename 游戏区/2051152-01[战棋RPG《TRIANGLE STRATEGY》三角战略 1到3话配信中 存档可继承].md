@@ -13647,3 +13647,14 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 自己玩的时候不觉得，看别人直播（不跳语音）剧情部分真是太长了，非常debuff……
 
+
+
+*****
+
+####  Vladimeow  
+##### 1211#       发表于 2022-3-30 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252264&amp;ptid=2051152" target="_blank">allenz3 发表于 2022-3-30 23:37</a>
+自己玩的时候不觉得，看别人直播（不跳语音）剧情部分真是太长了，非常debuff…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜最绝望的是什么，就是你的异闻那边突然一下刷出10条角色剧情，我真想把制作组打一顿。
+

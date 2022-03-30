@@ -6840,3 +6840,272 @@ C S G O
 
 而且由于时间拖得太长，重心过于集中于某个角色身上，其他部分描写得有些零碎且不太吸引人，我其实有点想不起来凯多都干了点啥。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  7sevenseven  
+##### 57569#       发表于 2022-3-30 23:44
+
+ 本帖最后由 7sevenseven 于 2022-3-30 23:46 编辑 
+
+霸气首先路飞震牛，然后雷利打黄猿，然后女儿国，然后顶上，铺垫了多少次，而且自然系太厉害了加入读者也是支持，发展的怎么样两说
+觉醒，深海监狱老沙提，德岛明哥提，万国卡二提，和之国到了也是时候了
+人人果实，前几话福兹弗不追路飞表示小角色而已追大和要紧，后几话草帽路飞饶不了你。1000话后才提出尼卡，橡皮果实有问题。而且是不是这样改第一话第二话最基础设定没问题，下一话改性别好了。
+
+*****
+
+####  cdfjg  
+##### 57570#       发表于 2022-3-30 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252441&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:44</a>
+ 霸气首先路飞震牛，然后雷利打黄猿，然后女儿国，然后顶上，铺垫了多少次，而且自然系太厉害了加入读者也是 ...</blockquote>
+改什么基础设定了？橡胶特性没了？
+
+
+
+*****
+
+####  novem  
+##### 57571#       发表于 2022-3-30 23:48
+
+反正能看出海贼王快完结了，路飞现在的实力远超四皇级，对手都快打没了还能怎么编
+
+*****
+
+####  赤魔法师  
+##### 57572#       发表于 2022-3-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251949&amp;ptid=98922" target="_blank">轻尘有雨 发表于 2022-3-30 23:26</a>
+
+上一个满嘴喊着自由、穿越时间乱搞事儿的是谁来着记得坟头的大树都百米高了 ...</blockquote>
+拉夫德鲁最终之岛在历史上被隐藏的另一个名字
+
+帕拉〇岛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 57573#       发表于 2022-3-30 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251721&amp;ptid=98922" target="_blank">灌水机 发表于 2022-3-30 23:14</a>
+明明是神展开，和之国烂归烂，关尼卡什么事
+霸气/觉醒哪个不是空降的，前有黑胡子变态吃两个果实， ...</blockquote>
+是前后矛盾
+
+*****
+
+####  acejoe  
+##### 57574#       发表于 2022-3-30 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252540&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 23:48</a>
+改什么基础设定了？橡胶特性没了？</blockquote>
+尾田钦定超人系没看见吗
+
+*****
+
+####  7sevenseven  
+##### 57575#       发表于 2022-3-30 23:56
+
+ 本帖最后由 7sevenseven 于 2022-3-31 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252540&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 23:48</a>
+改什么基础设定了？橡胶特性没了？</blockquote>
+最基础设定
+蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定
+
+我找了篇豆瓣的图书介绍
+路飞所生长的小村庄里曾经是一群以「红发香克斯」为首的海盗们的暂居地，而幼年路飞一直希望可以成为他们的一员，可在一次意外的情况下，他吃了一种叫做「橡皮果实」的恶魔果实变成了橡胶人。恶魔果实给予了他这样奇特的本领，但是吃了恶魔果实的人是再也没有能力游泳的…这样还能成为海盗吗？「没有关系，我只要不掉到海里去就行了…」
+
+路飞所生长的小村庄里曾经是一群以「红发香克斯」为首的海盗们的暂居地，而幼年路飞一直希望可以成为他们的一员，可在一次意外的情况下，他吃了一种叫做「人人果实幻兽种尼卡形态」的恶魔果实变成了太阳神。恶魔果实给予了他这样奇特的本领，但是吃了恶魔果实的人是再也没有能力游泳的…这样还能成为海盗吗？「没有关系，我只要不掉到海里去就行了…」
+
+你说变没变
+
+介绍路飞离不开橡皮果实，就像介绍路飞离不开介绍他是男人一样。有橡皮特性和是橡皮人是两个事，我也希望尾田能把发展转回到橡皮果实那里。可是现在，莫名的恢复力，莫名的身体变化，快要把这条路堵死了。
+
+*****
+
+####  赤魔法师  
+##### 57576#       发表于 2022-3-30 23:56
+
+我是觉得尼卡肯定是以前想过的
+
+只是讲故事的节奏给人太奇怪了
+
+剑齿虎前面看主角毫无反应 后面又有旧仇给人的感觉就很奇怪
+
+如果说主角先把挂开了 打完旁白再给解释观感可能都要好一点
+
+哦 原来是这么开的挂啊！
+
+但现在这边开挂那边旁白同步解释这个果实又名什么什么
+
+能理解作者是想要气势和演出效果
+
+但给人的感觉就是不会有这么巧的事太都合了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cdfjg  
+##### 57577#       发表于 2022-3-30 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252616&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:56</a>
+ 最基础设定 蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定 </blockquote>
+改什么基础设定了？橡胶特性没了？
+
+*****
+
+####  cdfjg  
+##### 57578#       发表于 2022-3-30 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252595&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-30 23:54</a>
+ 尾田钦定超人系没看见吗</blockquote>
+改什么基础设定了？橡胶特性没了？
+
+*****
+
+####  和真克瓦尔  
+##### 57579#       发表于 2022-3-30 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250506&amp;ptid=98922" target="_blank">athena_1982 发表于 2022-3-30 21:31</a>
+
+咋这么多理中客啊？在这种情况下开搞笑挂才是神来之笔！
+
+嘻嘻哈哈就把四皇秒了，杀人？诛心才是最狠的。凯 ...</blockquote>
+我也考虑过如何限制这个形态，现在看来可以参考谁陷害了兔子罗杰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都说搞笑角色无敌，但兔子罗杰里设定了一种特殊溶液可以溶化猫和老鼠/兔八哥系角色，本来恶魔果实能力者就怕水，五黄以后掉水直接蒸发
+
+*****
+
+####  cdfjg  
+##### 57580#       发表于 2022-3-31 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252616&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:56</a>
+ 最基础设定 蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定 </blockquote>
+你是不是上一话看到情报之后就没看漫画啊
+
+*****
+
+####  7sevenseven  
+##### 57581#       发表于 2022-3-31 00:02
+
+ 本帖最后由 7sevenseven 于 2022-3-31 00:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252667&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:00</a>
+你是不是上一话看到情报之后就没看漫画啊</blockquote>
+你告诉我这强大的恢复力是怎么来的？这五档都燃气火出现祥云了是怎么回事？
+
+介绍路飞离不开橡皮果实，就像介绍路飞离不开介绍他是男人一样。有橡皮特性和是橡皮人是两个事，我也希望尾田能把发展转回到橡皮果实那里。可是现在，莫名的恢复力，莫名的身体变化，快要把这条路堵死了，没有一个超人系觉醒像路飞这样。
+
+*****
+
+####  cdfjg  
+##### 57582#       发表于 2022-3-31 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252687&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-31 00:02</a>
+ 你告诉我这强大的恢复力是怎么来的？这五档都燃气火出现祥云了是怎么回事？  介绍路飞离不开橡皮果实，就 ...</blockquote>
+你就说这个“太阳神”还是不是橡胶人
+
+*****
+
+####  7sevenseven  
+##### 57583#       发表于 2022-3-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252712&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:03</a>
+你就说这个“太阳神”还是不是橡胶人</blockquote>
+目前更像尼卡，就是你说的有橡皮特性
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57584#       发表于 2022-3-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252712&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:03</a>
+你就说这个“太阳神”还是不是橡胶人</blockquote>
+重点根本就不在还是不是橡胶人这块上
+再说了，太阳神跟橡胶有个屌毛关系
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  和真克瓦尔  
+##### 57585#       发表于 2022-3-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252616&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:56</a>
+
+最基础设定
+
+蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定</blockquote>
+主要是火焰头，尤其那个倒霉飘带太廉价了，抽卡手游玩烂的设计，他变个轮胎都比现在更好
+
+*****
+
+####  cdfjg  
+##### 57586#       发表于 2022-3-31 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252744&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 00:06</a>
+ 重点根本就不在还是不是橡胶人这块上 再说了，太阳神跟橡胶有个屌毛关系 </blockquote>
+阿波罗跟太阳有什么吊毛关系，照样被认为是太阳神
+
+*****
+
+####  Algie  
+##### 57587#       发表于 2022-3-31 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252712&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-03-31 00:03:47</a>
+你就说这个“太阳神”还是不是橡胶人</blockquote>那卡二算不算橡胶人？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| acejoe| + 1|绝杀|
+
+查看全部评分
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57588#       发表于 2022-3-31 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252788&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:12</a>
+阿波罗跟太阳有什么吊毛关系，照样被认为是太阳神</blockquote>
+好家伙，希腊神话里是橡胶人每天驮着太阳出来遛弯的？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TBM107  
+##### 57589#       发表于 2022-3-31 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222280&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-3-28 22:27</a>
+
+二档现在还是海贼潮指数的顶点</blockquote>
+求头像出处
+
+*****
+
+####  谁说法海不懂爱  
+##### 57590#       发表于 2022-3-31 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252750&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-31 00:06</a>
+
+主要是火焰头，尤其那个倒霉飘带太廉价了，抽卡手游玩烂的设计，他变个轮胎都比现在更好 ...</blockquote>
+相对于四档来说，其实造型或者说身材正常了，比起外表，其实变身后情绪豹变比较怪，估计是为了凸JOYBOY这个主题才这么搞的。搞穿越过去成为传说本身的套路可能性也不小，就是会变成现在这种状态的缘由就变成死循环。其他的就是剩下的篇章要怎么膨胀战力的问题了。
+
+*****
+
+####  acejoe  
+##### 57591#       发表于 2022-3-31 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252811&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-31 00:14</a>
+那卡二算不算橡胶人？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+绝杀了
+

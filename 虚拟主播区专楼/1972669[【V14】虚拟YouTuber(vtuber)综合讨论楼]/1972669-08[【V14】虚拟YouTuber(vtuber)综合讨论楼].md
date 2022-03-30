@@ -14961,3 +14961,78 @@ ff14新版本也给菜续了两个月的命吧<img src="https://static.saraba1st
 哎，果然
 顺便差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11856#       发表于 2022-3-30 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">啊…
+
+*****
+
+####  noHentai  
+##### 11857#       发表于 2022-3-30 23:53
+
+2019年的第一个季度，刚刚统合破冰的彩虹迎来第一批新人，无论是箱的人气还是氛围都可以用“蒸蒸日上”来形容，回头来看这批新人在当时可以说个个是块宝，性能和数字在当时都不可谓不强。
+
+3年后，终于都要过去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/baa8fb2bf3bf9aa186b9f2d4ae1fd94c/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 11858#       发表于 2022-3-30 23:57
+
+这个时候我还是要说，你虹这个工作氛围和liver的压力分配真的有问题吧。
+跑一个两个可能是因为个人原因。
+跑这么多还不乏发展的不错的。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  横寺阳人  
+##### 11859#       发表于 2022-3-30 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么说呢，作为半个乳菜乳出来的菜骑士大概也猜的差不多，虽然最后这个几乎国内通用借口玉玉看起来是有点不可信。不过阿菜虽然是业务水平不行，起码一直都几乎不吐黑泥努力rp，也算是v圈里难得的了。开始天崩式开局被背后被当玩具也没说什么一直坚持公开抱怨过什么，现在这么一想估计也是压力憋在心里不会外泄那种人心里压力确实会累积的，只能说祝她以后幸福快乐过得轻松点了。
+
+*****
+
+####  aisakahammer  
+##### 11860#       发表于 2022-3-30 23:59
+
+ 能这么坚持3年才隐退，也不容易了，一直没放弃RP了。
+
+*****
+
+####  rzrbtk  
+##### 11861#       发表于 2022-3-31 00:03
+
+ 本帖最后由 rzrbtk 于 2022-3-31 00:06 编辑 
+
+某画师突然发了四张郡fanart旧图，郡郡转了和天开/多井的，只赞不转和🌸的，直播连名字都不能提，我<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">...
+
+深深感觉到关系性消失的痛苦
+
+*****
+
+####  rzrbtk  
+##### 11862#       发表于 2022-3-31 00:10
+
+ 本帖最后由 rzrbtk 于 2022-3-31 00:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252625&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-3-30 23:57</a>
+
+这个时候我还是要说，你虹这个工作氛围和liver的压力分配真的有问题吧。
+
+跑一个两个可能是因为个人原因。
+
+ ...</blockquote>
+比如？说争取资源倒是理解，压力分配（？）这个，虹不是想摆就摆吗
+
+*****
+
+####  布莱士·西伯利  
+##### 11863#       发表于 2022-3-31 00:20
+
+可没可能是相反，觉得活分配的少比不过别人的压力呢？
+
