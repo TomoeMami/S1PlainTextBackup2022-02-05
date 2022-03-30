@@ -5578,3 +5578,98 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 看好了，艾斯，炎帝是这样用的！
 
+
+
+*****
+
+####  klzxs  
+##### 57449#       发表于 2022-3-30 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">有种想法
+
+路飞是真被打死了，所以身体也变成了环境的一部分
+
+才会被能力影响
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊，只是想想，没觉得可能这么搞
+
+*****
+
+####  希斯塔姆  
+##### 57450#       发表于 2022-3-30 09:22
+
+所以佛佛果实之前就是设定成幻兽种吗（佛祖：尼玛）
+
+我已经有点错乱了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 57451#       发表于 2022-3-30 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55240800&amp;ptid=98922" target="_blank">希斯塔姆 发表于 2022-3-30 09:22</a>
+所以佛佛果实之前就是设定成幻兽种吗（佛祖：尼玛）
+
+我已经有点错乱了 ...</blockquote>
+是的
+
+*****
+
+####  klzxs  
+##### 57452#       发表于 2022-3-30 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55240800&amp;ptid=98922" target="_blank">希斯塔姆 发表于 2022-3-30 09:22</a>
+
+所以佛佛果实之前就是设定成幻兽种吗（佛祖：尼玛）
+
+我已经有点错乱了 ...</blockquote>
+一直是
+
+变身就是动物系的特点
+
+不是某种动物大概就会被丢到人人果实去
+
+就是不知道幻兽啊 古代啊都是怎么分的
+
+*****
+
+####  少年包工头  
+##### 57453#       发表于 2022-3-30 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55240164&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 08:20</a>
+果实的变化不是只停留在名字
+
+实锤确实是复合能力了</blockquote>
+但一开始就是这么表现的吧
+
+*****
+
+####  仟音一心  
+##### 57454#       发表于 2022-3-30 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55240838&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 09:26</a>
+一直是
+
+变身就是动物系的特点
+
+不是某种动物大概就会被丢到人人果实去</blockquote>
+幻兽是幻想中的动物，古代是已经灭绝的动物，这两种都极度稀有和强大。
+其实幻兽种目前出现11个，已经比古代种(9个)还多了。
+
+*****
+
+####  klzxs  
+##### 57455#       发表于 2022-3-30 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55240886&amp;ptid=98922" target="_blank">少年包工头 发表于 2022-3-30 09:30</a>
+
+但一开始就是这么表现的吧</blockquote>
+单上一话内容还比较少
+
+没办法说死
+
+这一话虽然图还没看到
+
+但凯老师直接说出来了算是定性了
+
