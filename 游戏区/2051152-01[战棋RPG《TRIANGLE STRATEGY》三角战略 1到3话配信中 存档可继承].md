@@ -13638,3 +13638,12 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  allenz3  
+##### 1210#       发表于 2022-3-30 23:37
+
+自己玩的时候不觉得，看别人直播（不跳语音）剧情部分真是太长了，非常debuff……
+

@@ -6794,3 +6794,49 @@ C S G O
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  数独无双  
+##### 57565#       发表于 2022-3-30 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看了最新一话觉得尾田要么疯了要么就是要报复社会
+
+*****
+
+####  轻尘有雨  
+##### 57566#       发表于 2022-3-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251309&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-3-30 22:37</a>
+
+如果再给时时果实加个能力
+
+800年前的joyboy也能和路飞变成一个人了
+
+之前的那个大草帽的线也能收</blockquote>
+上一个满嘴喊着自由、穿越时间乱搞事儿的是谁来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轻尘有雨  
+##### 57567#       发表于 2022-3-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251309&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-3-30 22:37</a>
+
+如果再给时时果实加个能力
+
+800年前的joyboy也能和路飞变成一个人了
+
+之前的那个大草帽的线也能收</blockquote>
+上一个满嘴喊着自由、穿越时间乱搞事儿的是谁来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ef6270  
+##### 57568#       发表于 2022-3-30 23:36
+
+主要是和之国，尤其是某人描写得不行，导致虽然读者知道凯多是个无恶不作的设定，但仇恨值其实没有前几个BOSS拉得那么满……
+
+而且由于时间拖得太长，重心过于集中于某个角色身上，其他部分描写得有些零碎且不太吸引人，我其实有点想不起来凯多都干了点啥。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
