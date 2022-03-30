@@ -15036,3 +15036,58 @@ ff14新版本也给菜续了两个月的命吧<img src="https://static.saraba1st
 
 可没可能是相反，觉得活分配的少比不过别人的压力呢？
 
+
+
+*****
+
+####  rzrbtk  
+##### 11864#       发表于 2022-3-31 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252886&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-3-31 00:20</a>
+
+可没可能是相反，觉得活分配的少比不过别人的压力呢？</blockquote>
+可是虹配活/出谷，要不是看数字要不是看个人趣味，私下搞大活比如说dlsite那次就会被全社阴阳，老板娘自己出谷，琥珀宝唱周年曲，这回J1连成濑都拉上了，有哪个成员认真说过自己不遇吗（真的好奇）
+
+我个人觉得你虹的压力在粉丝文化上<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 11865#       发表于 2022-3-31 00:28
+
+rd都给你上了说没资源不分配活儿，你开玩笑吗
+
+*****
+
+####  布莱士·西伯利  
+##### 11866#       发表于 2022-3-31 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252972&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-3-31 00:27</a>
+可是虹配活/出谷，要不是看数字要不是看个人趣味，私下搞大活比如说dlsite那次就会被全社阴阳，老板娘自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">因为估计不是公司那在折磨人，而是明治自己感觉到自己劣势和不行。那也有可能是粉丝文化就是了…但肯定是明治自己那么觉得不该继续做主播，不然我感觉可以继续做下去的。
+
+*****
+
+####  横寺阳人  
+##### 11867#       发表于 2022-3-31 00:32
+
+ 本帖最后由 横寺阳人 于 2022-3-31 00:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">虽然她当v不说混的多好但是感觉也是比前世菜乃强太多，能力水平在那里。不过她这么一走反而感觉确实三年前那个时代已经完全过去，我也是由三字母口嗨她开始接触，被猴碾压数字民玩具，看着她在和她在一起的v慢慢都不见，确实是回不去了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然现在还看点国v还口嗨阿菜小嘉然，不过兴趣也算渐渐磨灭感觉什么时候就不看了。
+
+*****
+
+####  rzrbtk  
+##### 11868#       发表于 2022-3-31 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253019&amp;ptid=1972669" target="_blank">布莱士·西伯利 发表于 2022-3-31 00:30</a>
+
+因为估计不是公司那在折磨人，而是明治自己感觉到自己劣势和不行。那也有可能是粉丝文化就是了… ...</blockquote>
+童田这个就，相信本人说法吧。
+
+是说楼友讲“虹工作氛围和压力分配有问题”，有点没整明白是不是有什么说法，其实蛮好奇虹内部策略的，郡郡之前会限就有聊过出谷，然后自己列了一堆预想出谷顺序（依照组合和人气顺序），感觉还蛮有逻辑也不至于让人会玉玉。
+
+真的会有那种故意穿小鞋的行为吗，现在看来圭利3D那边是有点可疑
+

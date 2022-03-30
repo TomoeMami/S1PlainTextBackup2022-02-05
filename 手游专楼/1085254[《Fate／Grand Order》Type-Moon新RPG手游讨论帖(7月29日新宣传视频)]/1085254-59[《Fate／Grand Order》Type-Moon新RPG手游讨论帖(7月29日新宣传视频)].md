@@ -5544,3 +5544,14 @@ ID Pocket
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉
 
+
+
+*****
+
+####  rooarr  
+##### 87490#       发表于 2022-3-31 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251773&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-3-30 23:18</a>
+时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉</blockquote>
+fgo就是这么空虚的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

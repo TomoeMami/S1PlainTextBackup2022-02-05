@@ -7109,3 +7109,104 @@ C S G O
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 绝杀了
 
+
+
+*****
+
+####  cdfjg  
+##### 57592#       发表于 2022-3-31 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252811&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-31 00:14</a>
+ 那卡二算不算橡胶人？    -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+不算啊
+
+*****
+
+####  cdfjg  
+##### 57593#       发表于 2022-3-31 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252865&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-31 00:19</a>
+ 绝杀了</blockquote>
+绝杀<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cdfjg  
+##### 57594#       发表于 2022-3-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252830&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 00:16</a>
+ 好家伙，希腊神话里是橡胶人每天驮着太阳出来遛弯的？  —— 来自 HUAWEI NOP-AN00, Android 10上的 S1Ne ...</blockquote>
+阿波罗可不会驮太阳
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57595#       发表于 2022-3-31 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252900&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:21</a>
+阿波罗可不会驮太阳</blockquote>
+是是是，阿波罗的马车驮着，别抠字眼转移话题了，先说说太阳神和橡胶的关系吧
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  少年包工头  
+##### 57596#       发表于 2022-3-31 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252687&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-31 00:02</a>
+你告诉我这强大的恢复力是怎么来的？这五档都燃气火出现祥云了是怎么回事？
+
+介绍路飞离不开橡皮果实，就 ...</blockquote>
+就跟门牙掉了喝点牛奶就长回来一个原理啊
+
+*****
+
+####  赤魔法师  
+##### 57597#       发表于 2022-3-31 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252851&amp;ptid=98922" target="_blank">TBM107 发表于 2022-3-31 00:18</a>
+
+求头像出处</blockquote>
+[あざらしそふと (ピロ水)] アマカノ+ ビジュアルファンブック
+
+D101B5CA-C0E0-4DE1-A915-D6DAD1B1BE28.jpeg
+(165.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/002857z8riq7lvrzziccqy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TBM107| + 1||
+
+查看全部评分
+
+*****
+
+####  7sevenseven  
+##### 57598#       发表于 2022-3-31 00:30
+
+ 本帖最后由 7sevenseven 于 2022-3-31 00:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252973&amp;ptid=98922" target="_blank">少年包工头 发表于 2022-3-31 00:27</a>
+就跟门牙掉了喝点牛奶就长回来一个原理啊</blockquote>
+那是为了搞笑，而这是在战斗
+就算是第二锁血的万国篇，路飞也是边打边跑，打不动了立马撤，恢复体力再打。哪像现在被打死了原地满血复活，再打耗尽了能量开始变老又瞬间回复。从某种意义上说，确实很可笑。
+超人系果实没有这样的
+
+*****
+
+####  Yeaha123  
+##### 57599#       发表于 2022-3-31 00:38
+
+果实觉醒这个概念早就有了，也不算太离谱，被打死复活这个嘛，估计凯多也不认那一棒子吧
+
