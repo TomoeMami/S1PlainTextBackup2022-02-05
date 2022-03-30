@@ -5820,3 +5820,16 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 凯多至少还有10话吧
 
+
+
+*****
+
+####  少年包工头  
+##### 57472#       发表于 2022-3-30 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55244457&amp;ptid=98922" target="_blank">是这样 发表于 2022-3-30 13:57</a>
+对了有说凯多觉醒了没，我怎么好像没印象，，
+
+— from Google Pixel 6, Android 12 of S1 Next Goose v2.5 ...</blockquote>
+虽然没说，但感觉**型应该就是动物系觉醒
+
