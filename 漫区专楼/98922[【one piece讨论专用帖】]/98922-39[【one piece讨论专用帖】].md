@@ -5453,3 +5453,60 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 — from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  yario  
+##### 57436#       发表于 2022-3-30 07:46
+
+鼓声说不定就是命等于蓝
+
+*****
+
+####  和真克瓦尔  
+##### 57437#       发表于 2022-3-30 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55227398&amp;ptid=98922" target="_blank">太太 发表于 2022-3-29 11:34</a>
+
+以前动物系是变鸡鸭猫狗，现在动物系是请神上身，基本上一个天一个地了 ...</blockquote>
+乩童起乩！
+
+*****
+
+####  仟音一心  
+##### 57438#       发表于 2022-3-30 07:56
+
+1045话标题 NEXT LEVEL
+彩页是草帽一伙坐在一起，写着“解放之海”。
+一整话都是路飞和凯多战斗，超级搞笑。
+凯多提起路飞的果实的怪异之处，既可以像超人系一样改变环境，又可以像动物系一样改变自身。
+路飞用了新招“gomu gomu no gigant”, 完全变成一个巨人，看起来就像神一样。
+桃子和大和抵达屋顶，看见路飞的新形态。
+路飞体力不支，不过鼓声般的心跳恢复后体力也恢复了。
+本话结尾，路飞用力给了凯多一拳。
+路飞“太好玩了，对吧凯多”。
+下周不休刊。
+
+比双果实更强大的一个果实顶俩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  和真克瓦尔  
+##### 57439#       发表于 2022-3-30 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55230061&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-3-29 14:43</a>
+
+尾田已经在刻意回避霸气超模的问题了，和之国主力战只有甚平是靠武装色碾压击败对手的，就是把我的霸气比你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">难道不是霸气系统最终会导致全身包括脸部涂黑，然后被喷black face痛失北美市场么
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57440#       发表于 2022-3-30 07:59
+
+讲真我一直搞不懂为啥霸气要整成硬又黑的特效
+画个稍微不那么难看的特效出来有多难吗？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
