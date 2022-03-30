@@ -5544,3 +5544,26 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 本来幻兽种就是复合了超人系的能力吧
 
+
+
+*****
+
+####  gs2-d2up  
+##### 57445#       发表于 2022-3-30 08:45
+
+尾田之前公开过他的歌单，里面就有aespa的《next level》<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">bgm自动响了：I'm on the next level yeah～
+
+*****
+
+####  reficul  
+##### 57446#       发表于 2022-3-30 08:55
+
+凯多公然质疑gm
+
+*****
+
+####  朗姆酒hentai  
+##### 57447#       发表于 2022-3-30 08:55
+
+凯多老师真泪目了，一遍挨揍一边还要给学生分析问题。我高中班主任要是凯多不愁上不去清北啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
