@@ -9994,3 +9994,23 @@ syl,右上角看到夸大狙秒了个人
 <img src="https://p.sda1.dev/5/80c16bf3892860557bc75b4f29cf9bd5/1648635336539.png" referrerpolicy="no-referrer">
 给她装到了
 
+
+
+*****
+
+####  面具13  
+##### 8629#       发表于 2022-3-30 18:21
+
+ 本帖最后由 面具13 于 2022-3-30 18:23 编辑 
+
+因为电脑重装今晚歌回声卡没设置，原汁原味没echo音效<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+重装电脑花了4w？买的专业版啊
+
+*****
+
+####  面具13  
+##### 8630#       发表于 2022-3-30 18:36
+
+不是暗爽是明爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
