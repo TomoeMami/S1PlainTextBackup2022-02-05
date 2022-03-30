@@ -6727,3 +6727,47 @@ C S G O
   -- 来自 能 ...</blockquote>
 感觉就是强行微笑男孩，按着头搞笑
 
+
+
+*****
+
+####  SteinLee  
+##### 57561#       发表于 2022-3-30 22:26
+
+找到了尾田的伏笔
+
+<img src="https://img.saraba1st.com/forum/202203/30/222246p8j8zodoes5fzg1j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 22:22 上传
+
+微笑的卡尼
+
+<img src="https://img.saraba1st.com/forum/202203/30/222622mzzwwutdxt14gxam.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 22:26 上传
+
+微笑的尼卡
+
+*****
+
+####  赤魔法师  
+##### 57562#       发表于 2022-3-30 22:37
+
+如果再给时时果实加个能力
+
+800年前的joyboy也能和路飞变成一个人了
+
+之前的那个大草帽的线也能收
+
+这个带来欢笑的能力也能解决smile的副作用吧
+
+只是和玉女团子**一样给人感觉怪怪的
+

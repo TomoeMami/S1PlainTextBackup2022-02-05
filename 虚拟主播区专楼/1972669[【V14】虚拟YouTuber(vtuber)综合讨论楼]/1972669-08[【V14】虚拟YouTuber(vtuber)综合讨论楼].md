@@ -14887,3 +14887,19 @@ edens车站广告赛艇工商咖啡厅都是拉满的<img src="https://static.sa
 
 <img src="https://tva1.sinaimg.cn/large/7c16af6bly1h0s8i23vxzj20yo0n0jtq.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 11847#       发表于 2022-3-30 22:38
+
+所以主播这个职业确实高危，玉玉的概率太高了，害怕
+
+*****
+
+####  OldGlory  
+##### 11848#       发表于 2022-3-30 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">虹女要走的其实都可以尽快走了，看成绩的话以后主流出道不会有你虹女的份了，至于阿菜嘛，回顾一下这三年的管人生涯基本上就像一个小丑一样，出道就变成梗和玩具，3d回喜提一个最低同接，就这样还能挤进rd也算彩虹仁至义尽，最后搞个典中典玉玉症退网算是给这个滑稽剧画下完美句号了。
+
