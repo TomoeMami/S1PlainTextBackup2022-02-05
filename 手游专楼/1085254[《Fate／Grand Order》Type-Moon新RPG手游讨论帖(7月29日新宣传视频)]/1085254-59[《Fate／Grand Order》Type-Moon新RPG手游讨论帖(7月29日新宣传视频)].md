@@ -5449,3 +5449,37 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 在酒吞面前螃蟹简直就是弱鸡</blockquote>
 不是有个更好的暗狐吗
 
+
+
+*****
+
+####  qixinno2  
+##### 87481#       发表于 2022-3-30 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246968&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-30 17:02</a>
+
+不是有个更好的暗狐吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要是有暗狐就好了
+
+*****
+
+####  黑上シグマ  
+##### 87482#       发表于 2022-3-30 17:09
+
+神TM任务要求新加三个好友
+
+*****
+
+####  الطائر  
+##### 87483#       发表于 2022-3-30 17:21
+
+越南画师画得好快啊
+
+<img src="https://img.saraba1st.com/forum/202203/30/171702g0b00k3a2lnan47a.jpg" referrerpolicy="no-referrer">
+
+<strong>FPE3nx0aIAYLaag.jpg</strong> (776.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 17:17 上传
+
