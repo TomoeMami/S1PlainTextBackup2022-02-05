@@ -5567,3 +5567,39 @@ fgo就是这么空虚的游戏<img src="https://static.saraba1st.com/image/smile
 时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧　羡慕
 
+
+
+*****
+
+####  森兰丸  
+##### 87492#       发表于 2022-3-31 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253054&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-3-31 00:34</a>
+
+fgo就是这么空虚的游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是真就是个已经过气很久的ババア了......就算抽出来大部分时间也只能做仓管.....现在还去抽的唯一动力只有为了了却当年沉船的怨念了
+
+*****
+
+####  森兰丸  
+##### 87493#       发表于 2022-3-31 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253348&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-31 01:05</a>
+
+欧　羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又来嘲笑非洲人了
+
+真欧的话就不会沉船多次过了这么多年后才抽到
+
+*****
+
+####  alucardcz  
+##### 87494#       发表于 2022-3-31 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253476&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-3-31 01:24</a>
+
+萌新又来嘲笑非洲人了
+
+真欧的话就不会沉船多次过了这么多年后才抽到 ...</blockquote>
+5宝（
+
