@@ -14573,3 +14573,19 @@ Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入�
 刷履历了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新赛季排名分改版+上半赛季后期，结果从9400分开始耐久了10h才上大师，作为前猎杀selen这次有些丢脸的
 
+
+
+*****
+
+####  Junchoon  
+##### 11816#       发表于 2022-3-30 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55241974&amp;ptid=1972669" target="_blank">sgssk 发表于 2022-3-30 10:53</a>
+
+月灵本来有本职工作就低产，油管上存货已经投完了。前段时间就是在鼓捣Vtuber fes japan吧
+
+凛码猜测单纯 ...</blockquote>
+主要这两人以前即使不来，动态或者推特字幕组还是有帮忙转的，现在直接“沉默”......
+
+我相当怀疑是合同到期不能／不想来了......
+

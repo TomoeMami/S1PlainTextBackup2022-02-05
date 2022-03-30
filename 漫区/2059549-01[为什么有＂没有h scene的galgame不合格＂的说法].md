@@ -1531,3 +1531,17 @@ galgame这种东西优势就是小众和低自我审查，各种奇怪的xp，�
 
 —— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  barry.allen  
+##### 135#       发表于 2022-3-30 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55241849&amp;ptid=2059549" target="_blank">mustforver 发表于 2022-3-30 10:44</a>
+
+galgame这种东西优势就是小众和低自我审查，各种奇怪的xp，血腥，百无禁忌的neta，zz不正确和黑深残都可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">想法不错，但日本市场整体萎缩不上岸就是饿死的结局，能咋办。
+
+但话又说回去了，蒸汽现在能上18R了卖的最好的仍然不是galgame
+
