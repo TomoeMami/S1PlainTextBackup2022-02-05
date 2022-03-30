@@ -5903,3 +5903,21 @@ QUEEN 可以把头尾发射出去，我觉得这表现比啥都可怕。 <img sr
 
 C S G O
 
+
+
+*****
+
+####  触手皇帝  
+##### 57478#       发表于 2022-3-30 16:21
+
+终于看到全篇·····看着挂王一边狂笑一边虐凯多这心情真是恶心········笑nm啊笑，这恶心程度几乎能比肩御田跳舞了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 57479#       发表于 2022-3-30 16:35
+
+ 本帖最后由 逸yi 于 2022-3-30 16:37 编辑 
+
+真变美式搞笑漫画了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 尾田已经完全放飞了可以
+
