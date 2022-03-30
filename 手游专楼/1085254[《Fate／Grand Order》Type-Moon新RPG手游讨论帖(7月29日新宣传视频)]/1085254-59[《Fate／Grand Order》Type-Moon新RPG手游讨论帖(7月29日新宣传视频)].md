@@ -5397,3 +5397,23 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 你怎么能打完了呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">早就打完了啊 反正瞎JB打就完了
 
+
+
+*****
+
+####  白金口袋  
+##### 87476#       发表于 2022-3-30 11:03
+
+寻思结束前进去打一下高难，结果上来这个大螃蟹硬的令人发指
+
+直接退了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 87477#       发表于 2022-3-30 11:06
+
+昨天甚至在死亡冲刺搬商店<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
