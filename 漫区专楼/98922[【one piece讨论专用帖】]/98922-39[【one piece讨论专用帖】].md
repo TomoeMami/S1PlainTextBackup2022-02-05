@@ -6480,3 +6480,12 @@ C S G O
 <img src="https://p.sda1.dev/5/b77a197ee873ac1b5c96a91ac3b05724/IMG_CMP_138592381.jpeg" referrerpolicy="no-referrer">
 只能说全球孝子太多
 
+
+
+*****
+
+####  先手必胜  
+##### 57536#       发表于 2022-3-30 20:25
+
+有没有人翻译过日本匿名区对这两话的感想，感觉会很有乐子
+
