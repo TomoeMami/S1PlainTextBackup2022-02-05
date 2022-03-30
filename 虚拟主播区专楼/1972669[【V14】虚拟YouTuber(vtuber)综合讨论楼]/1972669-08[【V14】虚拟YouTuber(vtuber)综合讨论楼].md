@@ -14607,3 +14607,31 @@ Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入�
 
 不如说完全没怎么单排软壳过
 
+
+
+*****
+
+####  bluebaby  
+##### 11819#       发表于 2022-3-30 13:42
+
+是我心不诚还是这话确实很…
+
+<img src="https://img.saraba1st.com/forum/202203/30/134204fuccalp9g7bzc9gp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>616D5BE8-9F38-42F3-AD2F-D625DA7054FA.jpeg</strong> (221.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 13:42 上传
+
+*****
+
+####  alcoholic1000  
+##### 11820#       发表于 2022-3-30 14:00
+
+支持更新皮+1
+
+Syl，原来昨天selen打完apex排位，又打了接近3小时的ow排位（和vox，感觉她盯上500强了），加起来播了有15小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+vox的ow好像也还行，我自己很久没打甚至很久没关注ow了，看其它论坛评价是钻石选手，selen和vox算得上en ow1和3强的
+
