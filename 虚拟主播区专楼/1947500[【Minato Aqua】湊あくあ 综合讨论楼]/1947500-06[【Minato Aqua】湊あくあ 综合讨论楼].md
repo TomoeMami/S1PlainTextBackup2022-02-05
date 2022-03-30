@@ -10023,3 +10023,37 @@ syl,右上角看到夸大狙秒了个人
 
 不唱了还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 8632#       发表于 2022-3-30 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246659&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-3-30 16:40</a>
+
+嘴上说惊讶，其实被吹的切片已经不知道循环多少遍了吧</blockquote>
+躺在床上抱着手机滚来滚去发出海鸥叫，有画面了。别再把鼻梁骨砸了。
+
+*****
+
+####  新磕娘  
+##### 8633#       发表于 2022-3-30 19:09
+
+阿夸这经典半场开香槟，那正赛要烂完了
+
+*****
+
+####  面具13  
+##### 8634#       发表于 2022-3-30 19:11
+
+正赛烂了就烂了，爽过就是赚到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8635#       发表于 2022-3-30 19:12
+
+愿意指挥也算好事吧，毕竟是队里实力最强的，判断应该更准，队友也比较容易跟上
+起码比打的时候啥都不说输了怪队友不给力强
+
