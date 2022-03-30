@@ -5856,3 +5856,50 @@ N站梗可还行，说来也是因为和国，让顶上各种怼白胡子的话�
 
 我看到一个推测，是结合刚出的“动物系果实有自己意志”和“狱卒觉醒失去理性”推测，动物系觉醒搞不好是肉体被果实自己的意志占有了。
 
+
+
+*****
+
+####  C男人  
+##### 57475#       发表于 2022-3-30 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55240019&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-30 07:59</a>
+
+讲真我一直搞不懂为啥霸气要整成硬又黑的特效
+
+画个稍微不那么难看的特效出来有多难吗？</blockquote>
+毕竟是黑白漫画，
+
+涂黑是最简单的方法之一了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  C男人  
+##### 57476#       发表于 2022-3-30 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55242858&amp;ptid=98922" target="_blank"> 最萌贝波 发表于 2022-3-30 11:49</a>
+
+和之国干部站就难看在干部一个都没觉醒的表现，也没动物系仰卧起坐的表现，王路飞就算换果实也能接受，但只 ...</blockquote>
+QUEEN 可以把头尾发射出去，我觉得这表现比啥都可怕。 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风浦可符香(P.N)  
+##### 57477#       发表于 2022-3-30 16:14
+
+路飞：sb
+
+路飞：T了啊等你m呢
+
+路飞：你等着
+
+路飞：你先开的
+
+路飞：我不装了
+
+路飞：好玩不？
+
+C S G O
+
