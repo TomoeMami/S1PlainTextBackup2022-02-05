@@ -14589,3 +14589,21 @@ Syl，看样子明治也要预备毕业了，正好rdlive结束，有楼友入�
 
 我相当怀疑是合同到期不能／不想来了......
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 11817#       发表于 2022-3-30 13:25
+
+盲猜会换皮，毕竟你744箱火不起来不得不分一大波无名画师统一画风的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Longinus_  
+##### 11818#       发表于 2022-3-30 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">selen初期猎杀也是组排上的
+
+不如说完全没怎么单排软壳过
+
