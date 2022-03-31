@@ -5698,3 +5698,24 @@ fgo就是这么空虚的游戏</blockquote>
 
 2022-3-31 12:15 上传
 
+
+
+*****
+
+####  khxooo  
+##### 87500#       发表于 2022-3-31 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255440&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-3-31 09:58</a>
+这设定基本把旧剑之前的说法废案掉了吧</blockquote>
+爱歌就不能是第五兽吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 87501#       发表于 2022-3-31 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257731&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-31 12:45</a>
+
+爱歌就不能是第五兽吗</blockquote>
+我只是感慨一下Beast的细化设定应该只做了盖提亚和提妈的，别的都稀烂……
+
