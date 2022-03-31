@@ -15531,3 +15531,21 @@ kr那边原因更复杂，拉胯负责人/80/没资源/管理混乱这些不跑�
 
 比起虹运营太烂我个人比较倾向于其一是不想干可以退社这个底牌摆在这里，其二是，呃，立本社会真就这样，被教育得要天天在意别人眼光的人自搜一下大概真的难受 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">感觉小红帽还有家里人认为玉玉是撒娇这一层原因在，精神疾病得不到支持很难顶的
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11904#       发表于 2022-3-31 14:40
+
+<blockquote>ありがとうございました。幸せだった。</blockquote>
+虹KR的송미아/ Mia/ミア，将于5月01日毕业怎么还有二次统合后毕业的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202203/31/143820btnxo3nucd7ud091.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>송미아 🍡 Mia :ミア 【NIJISANJI KR】 .jpeg</strong> (976.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 14:38 上传
+
