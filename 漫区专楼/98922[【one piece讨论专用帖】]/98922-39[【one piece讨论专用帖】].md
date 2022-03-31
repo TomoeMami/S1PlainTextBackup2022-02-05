@@ -7271,3 +7271,43 @@ D101B5CA-C0E0-4DE1-A915-D6DAD1B1BE28.jpeg
 阿波罗跟太阳没关系，也能当太阳神，他是占了另一个希腊神的功能。当太阳神跟身体材质没关系。
 你也可以当小区里的太阳神啊
 
+
+
+*****
+
+####  黑岩泪香  
+##### 57606#       发表于 2022-3-31 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246229&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-30 16:09</a>
+QUEEN 可以把头尾发射出去，我觉得这表现比啥都可怕。</blockquote>
+queen是个改造人，弗兰奇那种。要觉得这可怕那弗兰奇打开肚子放可乐就该觉得可怕了。
+
+*****
+
+####  被子十三  
+##### 57607#       发表于 2022-3-31 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254263&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 08:07</a>
+queen是个改造人，弗兰奇那种。要觉得这可怕那弗兰奇打开肚子放可乐就该觉得可怕了。 ...</blockquote>
+King也有貂自尊皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑岩泪香  
+##### 57608#       发表于 2022-3-31 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55247543&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-30 17:41</a>
+所以才有人说，和之国这盘下来，强力友军关系户越来越多，反而没什么已知的感觉上有威胁的对手。我前面提 ...</blockquote>
+没屁用啊。
+量产熊是熊的肉体+黄猿的镭射，你觉得熊或者黄猿哪个会怕这玩意？
+现在路飞团包括友军主力这战斗力，来一堆假凯多丝毫构不成威胁。
+
+*****
+
+####  黑岩泪香  
+##### 57609#       发表于 2022-3-31 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254276&amp;ptid=98922" target="_blank">被子十三 发表于 2022-3-31 08:10</a>
+King也有貂自尊皇啊</blockquote>
+king这个不是射头出去吧…更像是剑气这种冲击波…
+
