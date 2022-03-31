@@ -13669,3 +13669,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 你猜最绝望的是什么，就是你的异闻那边突然一下刷出10条角色剧情，我真想把制作组打一顿。 ...</blockquote>
 而且一周目只打主线的话都见不到几个npc小剧场，到了二周目打完某一关就突然蹦出来一堆
 
+
+
+*****
+
+####  evagle  
+##### 1213#       发表于 2022-3-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252954&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-31 00:26</a>
+而且一周目只打主线的话都见不到几个npc小剧场，到了二周目打完某一关就突然蹦出来一堆 ...</blockquote>
+应该也是打完某一关解锁轶闻的，跟打完第六关还是第五关解锁入队一样。
+不过这二周目也是缩水得厉害，探索不给新东西也就算了，打完战役给一个小血瓶两根木头是几个意思？
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

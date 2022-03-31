@@ -5612,3 +5612,12 @@ fgo就是这么空虚的游戏</blockquote>
 
 这身材才对得起大银妇的名字啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 87496#       发表于 2022-3-31 09:58
+
+这设定基本把旧剑之前的说法废案掉了吧
+

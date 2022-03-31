@@ -7363,3 +7363,24 @@ king这个不是射头出去吧…更像是剑气这种冲击波…
 
 这是最大的问题，什么实力啊、果实啊，都是其次
 
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57614#       发表于 2022-3-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254192&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 07:52</a>
+阿波罗跟太阳没关系，也能当太阳神，他是占了另一个希腊神的功能。当太阳神跟身体材质没关系。
+你也可以 ...</blockquote>
+什么乱七八糟的？阿波罗好歹驾着马车驮太阳每天出来，橡胶又怎么跟太阳联系到一块？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Bojenkins  
+##### 57615#       发表于 2022-3-31 09:57
+
+我只能说op没救尾田比谁都清楚，现在是拔了化疗管子打了固醇作最后的狂欢，总好过狗尾续狗尾一直续下去
+
