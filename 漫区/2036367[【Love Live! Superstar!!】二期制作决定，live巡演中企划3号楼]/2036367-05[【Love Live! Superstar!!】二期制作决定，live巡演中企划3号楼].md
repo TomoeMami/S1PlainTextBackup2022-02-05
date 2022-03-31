@@ -9233,3 +9233,31 @@ nagi一下从新人动画声优跑去闹钟TV当常规也飞太快<img src="http
 
 流程大致是：普通的祝贺——作为声优搞这些合适吗——23岁怎么能叫ガールズ——虹信引战我星有你虹无（艺能界比深夜番格调高）——为什么不是打铁上？打铁P上更合适吧
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6681#       发表于 2022-3-31 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55261886&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-3-31 18:16</a>
+
+为啥不放到horipro呢，还是说这位以后也是和动画沾边的定位
+
+  -- 来自 能看大图的 Stage1官方 Android客户 ...</blockquote>这是HoriPro International艺人界面的介绍： <blockquote>PROFILE
+
+愛知県出身、17歳のシンガーソングライター。
+
+力強い歌声を武器に、独特の世界観の楽曲を展開する。
+
+幼少期に習ったピアノをきっかけに音楽に目覚め、ギター・トランペットも得意とする。
+
+音楽以外にも女優やタレントなど、多岐にわたって活動の幅を広げている。</blockquote>
+至于为什么放在International这边谁知道是什么原因。
+
+不过关于HoriPro International的定位之类的，我复制一个回帖：
+ <blockquote>关于HoriPro International，不知道你有没有看过这个系列的访谈(3个part)，好像是这个子公司刚成立不久就采访社长的
+[https://grapee.jp/en/103521](https://grapee.jp/en/103521)
+
+还有个日语的，内容好像是重新编辑的 [https://grapee.jp/620957](https://grapee.jp/620957)</blockquote>
+
