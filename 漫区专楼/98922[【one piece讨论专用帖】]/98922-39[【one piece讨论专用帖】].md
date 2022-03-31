@@ -8499,3 +8499,14 @@ YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成�
 动画化的时候田中公平加点油啊，我想在这里听到MGM风格的配乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 而且说实话以田中公平的曲风和录音编制来说日本里能做到这种风格的作曲家也就只有他了吧
 
+
+
+*****
+
+####  baizhi  
+##### 57708#       发表于 2022-4-1 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的，难道海贼王不是热血少年漫吗？最终决战搞笑有点无厘头，而且这一话真的好笑吗。。。
+
+猫和老鼠这种观众都带着下一集remake轻松心态，怎么可能和海贼王一样，上几话路飞还惦记着人民的饭与水呢。。。
+
