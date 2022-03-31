@@ -9446,3 +9446,12 @@ animare的蓝狗子宗谷貌似也要毕业了，只能说这一行就是这样
 
 这状态铁没喝，上次还有点喝的可能
 
+
+
+*****
+
+####  路人庚  
+##### 9999#       发表于 2022-3-31 23:02
+
+在结束时候说开幕词“ジェルバンは”的屑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

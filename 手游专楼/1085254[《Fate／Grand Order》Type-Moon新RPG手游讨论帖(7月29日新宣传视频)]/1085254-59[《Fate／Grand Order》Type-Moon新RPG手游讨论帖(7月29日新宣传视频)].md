@@ -5786,3 +5786,12 @@ fgo就是这么空虚的游戏</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是wada的怪物设计水平差山中虎铁也太多了，甚至不如redrop
 
+
+
+*****
+
+####  rooarr  
+##### 87507#       发表于 2022-3-31 23:07
+
+每年只有愚人节的小游戏让我觉得fgo还有救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

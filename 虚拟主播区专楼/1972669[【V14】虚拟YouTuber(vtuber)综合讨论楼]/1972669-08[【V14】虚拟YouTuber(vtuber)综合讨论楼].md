@@ -15852,3 +15852,12 @@ yugo这唱了几首英文歌……是不是白天说的搞定版权的原因？
 现在4月30号变成阿菜，chiho毕业，5月1日零点是mia毕业，变成毕业接力回了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 现在虹kr一期还剩suha，541剩gaon，二期剩nagi，牟阿琳时期的人就剩三个了
 
+
+
+*****
+
+####  IDIDIDID  
+##### 11930#       发表于 2022-3-31 23:17
+
+之前哪个人说anycolor Q1上市的，Q1都过完了人也裁得差不多了
+
