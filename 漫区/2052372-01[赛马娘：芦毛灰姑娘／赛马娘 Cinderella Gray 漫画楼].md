@@ -1165,3 +1165,45 @@ image.png
 
 新章会有什么剧情吗
 
+
+
+*****
+
+####  isummon  
+##### 103#         楼主| 发表于 2022-3-31 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55261735&amp;ptid=2052372" target="_blank">格雷殿下 发表于 2022-3-31 18:02</a>
+新章会有什么剧情吗</blockquote>
+小栗帽小海湾稻荷一互殴以及小栗帽在英里赛上殴打其他对手的故事
+
+*****
+
+####  DOACAON  
+##### 104#       发表于 2022-3-31 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55227993&amp;ptid=2052372" target="_blank">ardito 发表于 2022-3-29 12:25</a>
+
+这个永世有什么讲究吗</blockquote>
+平成 heisei
+
+永世 eisei
+
+*****
+
+####  nicholas30  
+##### 105#       发表于 2022-3-31 18:33
+
+<img src="https://img.saraba1st.com/forum/202203/31/182846tm9350j622k20c3c.png" referrerpolicy="no-referrer">
+
+<strong>oguri.png</strong> (54.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 18:28 上传
+
+新章主要就是講89年小栗帽的無雙魔鬼賽程
+
+2個月跑了5場比賽，連對率(前2名)100%，其中日本杯連續2年又敗給了大洋馬
+
+老實説這段劇情還真不好寫呢<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
