@@ -5438,3 +5438,337 @@ FGO挺喜欢出这种战败女王的，什么芝诺比阿，章西女王，布�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在酒吞面前螃蟹简直就是弱鸡
 
+
+
+*****
+
+####  khxooo  
+##### 87480#       发表于 2022-3-30 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246881&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-3-30 16:57</a>
+在酒吞面前螃蟹简直就是弱鸡</blockquote>
+不是有个更好的暗狐吗
+
+
+
+*****
+
+####  qixinno2  
+##### 87481#       发表于 2022-3-30 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246968&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-30 17:02</a>
+
+不是有个更好的暗狐吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要是有暗狐就好了
+
+*****
+
+####  黑上シグマ  
+##### 87482#       发表于 2022-3-30 17:09
+
+神TM任务要求新加三个好友
+
+*****
+
+####  الطائر  
+##### 87483#       发表于 2022-3-30 17:21
+
+越南画师画得好快啊
+
+<img src="https://img.saraba1st.com/forum/202203/30/171702g0b00k3a2lnan47a.jpg" referrerpolicy="no-referrer">
+
+<strong>FPE3nx0aIAYLaag.jpg</strong> (776.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 17:17 上传
+
+
+
+*****
+
+####  不垃圾屌丝  
+##### 87484#       发表于 2022-3-30 18:49
+
+有人看过了吗，这次还是十倍血量？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仰望神的括约肌  
+##### 87485#       发表于 2022-3-30 18:54
+
+460w的老苏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 87486#       发表于 2022-3-30 19:00
+
+求点新好友做任务<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+197，931，129
+
+ID Pocket
+
+多谢
+
+
+
+*****
+
+####  alucardcz  
+##### 87487#       发表于 2022-3-30 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248488&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-3-30 18:54</a>
+
+460w的老苏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你缺茶壶 ？ 我不缺.jpg
+
+
+
+*****
+
+####  zore  
+##### 87488#       发表于 2022-3-30 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">次数技能,好是不好?
+
+
+
+*****
+
+####  森兰丸  
+##### 87489#       发表于 2022-3-30 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉
+
+
+
+*****
+
+####  rooarr  
+##### 87490#       发表于 2022-3-31 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251773&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-3-30 23:18</a>
+时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉</blockquote>
+fgo就是这么空虚的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 87491#       发表于 2022-3-31 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251773&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-3-30 23:18</a>
+
+时隔多年终于抽到了CBA.....内心毫无感概.....只有一种解脱了的感觉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧　羡慕
+
+
+
+*****
+
+####  森兰丸  
+##### 87492#       发表于 2022-3-31 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253054&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-3-31 00:34</a>
+
+fgo就是这么空虚的游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是真就是个已经过气很久的ババア了......就算抽出来大部分时间也只能做仓管.....现在还去抽的唯一动力只有为了了却当年沉船的怨念了
+
+*****
+
+####  森兰丸  
+##### 87493#       发表于 2022-3-31 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253348&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-3-31 01:05</a>
+
+欧　羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又来嘲笑非洲人了
+
+真欧的话就不会沉船多次过了这么多年后才抽到
+
+*****
+
+####  alucardcz  
+##### 87494#       发表于 2022-3-31 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55253476&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-3-31 01:24</a>
+
+萌新又来嘲笑非洲人了
+
+真欧的话就不会沉船多次过了这么多年后才抽到 ...</blockquote>
+5宝（
+
+
+
+*****
+
+####  khxooo  
+##### 87495#       发表于 2022-3-31 09:33
+
+这身材才对得起大银妇的名字啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  UNISONIA  
+##### 87496#       发表于 2022-3-31 09:58
+
+这设定基本把旧剑之前的说法废案掉了吧
+
+
+
+*****
+
+####  eilot  
+##### 87497#       发表于 2022-3-31 12:06
+
+又沒有為第2章角色來幕間或強化...
+
+*****
+
+####  Jamaisvu  
+##### 87498#       发表于 2022-3-31 12:09
+
+ 本帖最后由 Jamaisvu 于 2022-3-31 12:18 编辑 
+
+兽六真身很顶啊，和提妈一样从萝莉变成御姐了。索多玛之兽，堕落之理。
+
+<img src="https://img.saraba1st.com/forum/202203/31/121745l9z62lgnz695n2y2.jpg" referrerpolicy="no-referrer">
+
+<strong>7407A286A65F48D78A6E18A78124590A.jpg</strong> (71.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121232rv6oiuodzhzlvxuv.png" referrerpolicy="no-referrer">
+
+<strong>1648699572001.png</strong> (237.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121050v2pz66llim2tt3bb.png" referrerpolicy="no-referrer">
+
+<strong>1648699569095.png</strong> (221.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:10 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121330v2zyjkdk1kkllnn2.jpg" referrerpolicy="no-referrer">
+
+<strong>893665A4A9A23737FB4111E20035D6E8.jpg</strong> (115.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:13 上传
+
+提妈作为1.7最终BOSS从手游跑到街机，那么街机尾王兽6是不是该礼尚往来一波？（吃桃）
+
+街机剧情好像说梅琳也有兽的潜质，是什么星之兽...怪不得梅林和芙芙长的这么像...
+
+*****
+
+####  Jamaisvu  
+##### 87499#       发表于 2022-3-31 12:15
+
+图转贴吧，兽六宝具是FE last encore第一话标题：
+
+<img src="https://img.saraba1st.com/forum/202203/31/121526l51bs6g5eufggten.jpg" referrerpolicy="no-referrer">
+
+<strong>A52FA1DC4F69104F3A2D6AD14649A303.jpg</strong> (85.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121526mvxzwxd88pzvxxao.jpg" referrerpolicy="no-referrer">
+
+<strong>02FE2626DC5B42D3A52D6ADA39AACF08.jpg</strong> (67.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:15 上传
+
+
+
+*****
+
+####  khxooo  
+##### 87500#       发表于 2022-3-31 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255440&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-3-31 09:58</a>
+这设定基本把旧剑之前的说法废案掉了吧</blockquote>
+爱歌就不能是第五兽吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 87501#       发表于 2022-3-31 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257731&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-3-31 12:45</a>
+
+爱歌就不能是第五兽吗</blockquote>
+我只是感慨一下Beast的细化设定应该只做了盖提亚和提妈的，别的都稀烂……
+
+
+
+*****
+
+####  xiongxingyu  
+##### 87502#       发表于 2022-3-31 13:19
+
+大卫磨了40多回合终于把苏尔特磨死了，不愧是冠位他爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  gpx234mqx  
+##### 87503#       发表于 2022-3-31 14:22
+
+666可以当五兽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Jamaisvu  
+##### 87504#       发表于 2022-3-31 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258870&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-31 14:22</a>
+
+666可以当五兽啊</blockquote>
+盲生，你发现了华点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87505#       发表于 2022-3-31 15:15
+
+<img src="https://img.saraba1st.com/forum/202203/31/151436h5x5ox2kfrlok5rp.png" referrerpolicy="no-referrer">
+
+<strong>1648708341401.png</strong> (60.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/151437rpeeeel5e6zo8wtt.png" referrerpolicy="no-referrer">
+
+<strong>1648708336238.png</strong> (439.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 15:14 上传
+
+据说B6这个兽耳造型可能暗指罗马建国传说中扶养神祖兄弟的母狼...看来wada无论是画兔子还是狼都是一副狐狸样...
+

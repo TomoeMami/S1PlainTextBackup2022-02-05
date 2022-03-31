@@ -9951,3 +9951,142 @@ syl,右上角看到夸大狙秒了个人
 
 嘴上说惊讶，其实被吹的切片已经不知道循环多少遍了吧
 
+
+
+*****
+
+####  面具13  
+##### 8624#       发表于 2022-3-30 17:59
+
+<blockquote>なんだかたくさんAPEX褒めてもらえてるみたいでとってもびっくり・ࡇ・</blockquote>
+暗爽ing<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  面具13  
+##### 8625#       发表于 2022-3-30 18:08
+
+怎么还突击直播
+
+*****
+
+####  面具13  
+##### 8626#       发表于 2022-3-30 18:10
+
+ 本帖最后由 面具13 于 2022-3-30 18:13 编辑 
+
+耳膜破裂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">鼓膜没了怎么听歌回
+
+*****
+
+####  zpy393  
+##### 8627#       发表于 2022-3-30 18:14
+
+被夸暗爽，按耐不住要直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ESAKA!!!!  
+##### 8628#       发表于 2022-3-30 18:16
+
+<img src="https://p.sda1.dev/5/80c16bf3892860557bc75b4f29cf9bd5/1648635336539.png" referrerpolicy="no-referrer">
+给她装到了
+
+
+
+*****
+
+####  面具13  
+##### 8629#       发表于 2022-3-30 18:21
+
+ 本帖最后由 面具13 于 2022-3-30 18:23 编辑 
+
+因为电脑重装今晚歌回声卡没设置，原汁原味没echo音效<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+重装电脑花了4w？买的专业版啊
+
+*****
+
+####  面具13  
+##### 8630#       发表于 2022-3-30 18:36
+
+不是暗爽是明爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  面具13  
+##### 8631#       发表于 2022-3-30 18:57
+
+不唱了还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  大厨麦当牛  
+##### 8632#       发表于 2022-3-30 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246659&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-3-30 16:40</a>
+
+嘴上说惊讶，其实被吹的切片已经不知道循环多少遍了吧</blockquote>
+躺在床上抱着手机滚来滚去发出海鸥叫，有画面了。别再把鼻梁骨砸了。
+
+*****
+
+####  新磕娘  
+##### 8633#       发表于 2022-3-30 19:09
+
+阿夸这经典半场开香槟，那正赛要烂完了
+
+*****
+
+####  面具13  
+##### 8634#       发表于 2022-3-30 19:11
+
+正赛烂了就烂了，爽过就是赚到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8635#       发表于 2022-3-30 19:12
+
+愿意指挥也算好事吧，毕竟是队里实力最强的，判断应该更准，队友也比较容易跟上
+起码比打的时候啥都不说输了怪队友不给力强
+
+
+
+*****
+
+####  大厨麦当牛  
+##### 8636#       发表于 2022-3-30 19:59
+
+歌回虚晃一枪的杂谈回秒过审，审核到底有多少crew?
+
+
+
+*****
+
+####  离魂仙  
+##### 8637#       发表于 2022-3-31 09:28
+
+一关注回来就给我推送训粉切片，真是晦气
+别人主播ob你的视角锐评两句，观众跟着说几句又怎么了？
+你要落地成盒就更没你P事了，还轮得到你训？
+
+虽然我没看到有没有刷“湊あくあ最强”的，不会是想打个提前量做切割吧
+那更蠢了，男加藤女兔田会理睬蝼蚁的装腔作势吗？（虽然我压根没看过）
+这是成为王该有的器量，所以没有资格啊你没有资格
+
+
+
+*****
+
+####  nian1538  
+##### 8638#       发表于 2022-3-31 09:44
+
+哪次出事不训，20年9月也训过，虽然都没用还是会做个表示呀
+

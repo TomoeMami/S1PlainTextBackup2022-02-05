@@ -5948,3 +5948,2227 @@ C S G O
 
 这种刻意的搞笑真的很low。。新情报图看得尴尬癌要犯了。短短两话把这作品的魂都打散了。
 
+
+
+*****
+
+####  巴尔干炮  
+##### 57483#       发表于 2022-3-30 17:06
+
+凯多头被打穿了还没事？
+
+*****
+
+####  Algie  
+##### 57484#       发表于 2022-3-30 17:07
+
+原教旨主义海贼最后的大师，海贼界的泰山北斗，凯多老师永垂不朽<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  7sevenseven  
+##### 57485#       发表于 2022-3-30 17:11
+
+ 本帖最后由 7sevenseven 于 2022-3-30 17:16 编辑 
+
+凯多老师太惨了。
+九侠超新星路飞女儿挨个刷时髦每次都破防也就算了。
+每棒锤下去对方都升级，好不容易锤完了，对方突然说我不是格斗游戏人物是搞笑游戏人物。体力瞬间回满，变成猫逗鱼。不放大招给个痛快一边逗弄一边说这可太好玩了你不觉得好玩吗。
+凯多老师赶紧失败吧，清明节给你拜拜，别挺到五一劳动节当劳模了。
+
+*****
+
+####  拉萨乌姆  
+##### 57486#       发表于 2022-3-30 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246296&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2022-3-30 16:14</a>
+路飞：sb
+
+路飞：T了啊等你m呢
+
+路飞：你等着</blockquote>
+扫码变强
+
+*****
+
+####  赤魔法师  
+##### 57487#       发表于 2022-3-30 17:15
+
+凯多老师打boss一个形态打完了还有一个形态
+
+血条打了一管又原地回满
+
+太惨了
+
+
+
+*****
+
+####  SteinLee  
+##### 57488#       发表于 2022-3-30 17:20
+
+ 本帖最后由 SteinLee 于 2022-3-30 17:25 编辑 
+
+真海贼过家家漫画，估计接下来要用罗的手术果实来给海贼王续命了，然后黑胡子登场想要偷袭路飞，给自己拿上第三个果实，结果奄奄一息的凯老师挺身而出制止小人行为，被黑胡子干掉？要不然路飞这赢得太不光彩了
+
+*****
+
+####  blckfyre  
+##### 57489#       发表于 2022-3-30 17:22
+
+开局哈姆雷特，结尾猫和老鼠，叙事上算是没救了
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57490#       发表于 2022-3-30 17:25
+
+凯多龙一个黄金治愈雷鸣八卦，帮MEGA进化的橡胶尼卡路飞回满血<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谁说法海不懂爱  
+##### 57491#       发表于 2022-3-30 17:26
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-30 17:28 编辑 
+<blockquote>SteinLee 发表于 2022-3-30 17:20
+真海贼过家家漫画，估计接下来要用罗的手术果实来给海贼王续命了</blockquote>
+本来罗这果实能力就挺flag的，看这话，感觉八九不离十要献祭给王路飞了。这话打的，该有个人帮凯多点投降了。
+
+*****
+
+####  银翼的维罗西  
+##### 57492#       发表于 2022-3-30 17:27
+
+罗估计活不成了，太可怜了，一见五黄误终生
+
+*****
+
+####  7sevenseven  
+##### 57493#       发表于 2022-3-30 17:31
+
+凯多老师清明节被打败呗，咱给你拜拜，不要撑到五一当劳模了
+
+人家都不要脸了咱就别挺了
+
+*****
+
+####  DGIL  
+##### 57494#       发表于 2022-3-30 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55243236&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 12:21</a>
+
+路飞这五档如果是主动技能以后boss就不用打了
+
+感觉打完凯多会被暂时没收 ...</blockquote>
+其实按道理打败凯多已经可以算当世最强了吧
+
+不能又跳出一堆比凯多厉害的隐藏高手吧。。
+
+一路横扫过去也对
+
+已知也就赤犬 黑胡子才能做对手，白胡子二世可能也算一个
+
+未知，伊姆和世界政府那边可能还有点高手
+
+或者科学部队有最新研究成果，来个人造人什么的？
+
+*****
+
+####  angelooo  
+##### 57495#       发表于 2022-3-30 17:37
+
+这真是内鬼透出来的情报？看到那个表情四连我就不想看下去了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  reficul  
+##### 57496#       发表于 2022-3-30 17:38
+
+跳绳的图透是真的还是假的？？凯老师付出的太多了
+
+*****
+
+####  逸yi  
+##### 57497#       发表于 2022-3-30 17:39
+
+海贼后面的乐子应该能超越阿创的自由吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  7sevenseven  
+##### 57498#       发表于 2022-3-30 17:40
+
+路飞这人人果实一出来，这漫画其他的隐藏剧情没出场的故事全都没有意义了
+
+什么绿牛古代武器第十人阿金。我王路飞，人人果实幻兽种，无敌
+
+*****
+
+####  谁说法海不懂爱  
+##### 57499#       发表于 2022-3-30 17:41
+
+<blockquote>DGIL 发表于 2022-3-30 17:36
+其实按道理打败凯多已经可以算当世最强了吧
+
+不能又跳出一堆比凯多厉害的隐藏高手吧。。
+
+一路横扫过去也对 ...</blockquote>
+所以才有人说，和之国这盘下来，强力友军关系户越来越多，反而没什么已知的感觉上有威胁的对手。我前面提的，海军科学武器来个量产凯多应该不算过分。
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57500#       发表于 2022-3-30 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55247543&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-30 17:41</a>
+所以才有人说，和之国这盘下来，强力友军关系户越来越多，反而没什么已知的感觉上有威胁的对手。我前面提 ...</blockquote>
+再来一个两年后。
+两年前全团打凯多被打得仰卧起坐都做不过来，两年后尼卡神一拳打爆一个凯多。
+
+*****
+
+####  触手皇帝  
+##### 57501#       发表于 2022-3-30 17:54
+
+尾田真的觉得这一话能看得人很愉悦？我都心疼凯多了，这所谓带来欢笑的果实一点都不欢乐，我就看到个开挂选手在虐一个实力称霸海上数十年的老将，还笑，能不能尊重点？开挂好玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yario  
+##### 57502#       发表于 2022-3-30 17:57
+
+都忘记乔巴的万灵药梦想了？
+
+*****
+
+####  8aa8aa8aa  
+##### 57503#       发表于 2022-3-30 17:58
+
+大家都在为凯老师加油了
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57504#       发表于 2022-3-30 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246198&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-30 16:07</a>
+毕竟是黑白漫画，
+
+涂黑是最简单的方法之一了。</blockquote>
+远不如超赛直接留白省事啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  陶矢  
+##### 57505#       发表于 2022-3-30 18:00
+
+ 本帖最后由 陶矢 于 2022-3-30 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55247702&amp;ptid=98922" target="_blank">触手皇帝 发表于 2022-3-30 17:54</a>
+
+尾田真的觉得这一话能看得人很愉悦？我都心疼凯多了，这所谓带来欢笑的果实一点都不欢乐，我就看到个开挂选 ...</blockquote>
+那还幸亏这个老将跟御田抱一起打滚沾了不少屎，要是保持着空岛跳下来寻死时候的B格，估计就是新手写的网文才敢这么消耗人气 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57506#       发表于 2022-3-30 18:02
+
+尼卡是稀有种族橡胶种族的人，因为其种族耐热耐电的特性被当成了神。
+尼卡的族人全部死光光了，尼卡利用恶魔果实黑科技把自己做成了动物系果实。
+尼卡被做成恶魔果实之后灵魂寄居在果实之中，尼卡果实的食用者既能变化成尼卡的样子，又能通过恶魔果实的觉醒让橡胶人的特性影响环境。
+恶魔果实是灵魂的储存器和能力的增幅器。
+
+编不下去了。
+
+*****
+
+####  klzxs  
+##### 57507#       发表于 2022-3-30 18:06
+
+我就希望眼珠子能安分一点
+
+
+
+*****
+
+####  触手皇帝  
+##### 57508#       发表于 2022-3-30 18:21
+
+同样是在战斗寻得快乐，WT能不看看FJ怎么处理幽助一炮打飞仙水之后的反应？能不能看看悟空后期享受是怎么描写？尊重对手，尊敬决斗，凯多虽然表现暴虐但刻画出来的内在还是一位武人，能不能别这乱飞眼珠子胡闹啊艹
+
+*****
+
+####  yario  
+##### 57509#       发表于 2022-3-30 18:28
+
+凯多鱼肉了和之国百姓这么多年，他们连哭的权力都没了，楼上某些人怎么突然站在凯多这边？？？？
+
+*****
+
+####  逸yi  
+##### 57510#       发表于 2022-3-30 18:31
+
+ 本帖最后由 逸yi 于 2022-3-30 18:34 编辑 
+
+因为和之国篇就是完全不行 基本完全没法共情啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  klzxs  
+##### 57511#       发表于 2022-3-30 18:32
+
+ 本帖最后由 klzxs 于 2022-3-30 18:34 编辑 
+
+倒不是站凯多，凯多是怎么揍都不过分
+
+甚至说就该让个挂逼来揍他一顿才是最合适的都可以
+
+也不谈论能不能跟和之国的人共情这种问题了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要还是路飞这挂开的……难看啊
+
+*****
+
+####  逸yi  
+##### 57512#       发表于 2022-3-30 18:33
+
+翻页
+
+*****
+
+####  仟音一心  
+##### 57513#       发表于 2022-3-30 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248129&amp;ptid=98922" target="_blank">yario 发表于 2022-3-30 18:28</a>
+凯多鱼肉了和之国百姓这么多年，他们连哭的权力都没了，楼上某些人怎么突然站在凯多这边？？？？ ...</blockquote>
+能让读者都不得不共情反派了你说这描写方式差到啥地步了。更不用说凯多闪光点真的不少。
+
+*****
+
+####  yario  
+##### 57514#       发表于 2022-3-30 18:36
+
+御田写得不好是肯定的，和之国本身写的就有欠缺，路飞这边不觉得开挂有问题，是个正常得读者都看出来，他不觉醒就没法打凯多。
+
+*****
+
+####  谁说法海不懂爱  
+##### 57515#       发表于 2022-3-30 18:38
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-30 18:40 编辑 
+<blockquote>yario 发表于 2022-3-30 18:36
+御田写得不好是肯定的，和之国本身写的就有欠缺，路飞这边不觉得开挂有问题，是个正常得读者都看出来，他不 ...</blockquote>
+现在的反馈就是问题，是尾田自己没控制住膨胀。包括仰卧起坐，开篇差距大，频繁仰卧起坐，现在这个降神搞得场面难看，这些问题都是在和之国才搞出来的，也都是有得补救的。
+
+*****
+
+####  7sevenseven  
+##### 57516#       发表于 2022-3-30 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248129&amp;ptid=98922" target="_blank">yario 发表于 2022-3-30 18:28</a>
+凯多鱼肉了和之国百姓这么多年，他们连哭的权力都没了，楼上某些人怎么突然站在凯多这边？？？？ ...</blockquote>
+因为对手不要脸啊
+凯多老师太惨了。九侠超新星路飞女儿挨个刷时髦每次都破防
+拿游戏来说，每次打倒对手对手都复活，还带着新招回来。最后一次对方突然开挂说我不是格斗游戏人物是搞笑游戏人物。体力瞬间回满，变成猫逗鱼。不放大招给个痛快一边逗弄一边说这可太好玩了你不觉得好玩吗，脸都不要了
+
+
+
+*****
+
+####  FBIwarning  
+##### 57517#       发表于 2022-3-30 18:41
+
+用决斗（战斗）...给大家带来笑容..
+
+— from motorola moto g power (2021), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  cdfjg  
+##### 57518#       发表于 2022-3-30 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248053&amp;ptid=98922" target="_blank">触手皇帝 发表于 2022-3-30 18:21</a>
+ 同样是在战斗寻得快乐，WT能不看看FJ怎么处理幽助一炮打飞仙水之后的反应？能不能看看悟空后期享受是怎么描 ...</blockquote>
+仙水的这个人格就没特别喜欢战斗。幽助被夺舍，这样处理是可以的。而且也形成反差
+尾田这样处理一方面是为了消解送挂的尴尬，另一方面凯多也不用为了cp0的事难受。
+你这种看法“水路飞”和“4档坦克人”的时候怎么说？
+获得了挂还苦大仇深，“我不想用没办法”，这是我很讨厌的恶心的装逼犯
+
+*****
+
+####  gg326  
+##### 57519#       发表于 2022-3-30 19:00
+
+我现在好好奇凯多的结局，被路飞打趴在地上，看路飞开宴会？被路飞揍上天变星星，眼不见为净？不和挂逼玩了，带着手下逃离和之国？说等了joyboy50年，发誓加入草帽大船团？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  24k纯帅  
+##### 57520#       发表于 2022-3-30 19:00
+
+这爆头还能活吗……
+
+
+
+*****
+
+####  7sevenseven  
+##### 57521#       发表于 2022-3-30 19:04
+
+ 本帖最后由 7sevenseven 于 2022-3-30 19:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248563&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 18:59</a>
+仙水的这个人格就没特别喜欢战斗。幽助被夺舍，这样处理是可以的。而且也形成反差
+尾田这样处理一方面是 ...</blockquote>
+但是水路飞和坦克人也不是把对手藐视一边打一边说好玩真好玩啊
+更不用说水路飞打的时候才是二次打斗开始，最终战根本没开始。坦克人只是万国篇和卡塔库栗打的前菜，整各部分一点也不紧张，紧张的是后来路飞被群殴那一块。
+这都到最终战整个这烂活。
+
+*****
+
+####  先手必胜  
+##### 57522#       发表于 2022-3-30 19:16
+
+尊不尊重对手无所谓，能不能尊重一下和之国受苦的百姓和被打趴的队友，还是那句话，战场不是给你嬉皮笑脸的地方，嘻嘻哈哈留着给胜利后的宴会不行吗，以前不都是这样吗
+
+*****
+
+####  先手必胜  
+##### 57523#       发表于 2022-3-30 19:17
+
+不少队友都还生死未卜呢，你在那真好玩真好玩的，这对劲吗
+
+
+
+*****
+
+####  klzxs  
+##### 57524#       发表于 2022-3-30 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248237&amp;ptid=98922" target="_blank">yario 发表于 2022-3-30 18:36</a>
+
+御田写得不好是肯定的，和之国本身写的就有欠缺，路飞这边不觉得开挂有问题，是个正常得读者都看出来，他不 ...</blockquote>
+事情不是独立的看的
+
+导致如今的风评的事不单单是一件路飞开挂的事
+
+路飞大概率打不过凯多，但凯多必然被赶出和之国，这一战路飞八成会觉醒
+
+这些事每个读者开战前就已心知肚明
+
+但长久以来的仰卧起坐，看了20年的果实的名字的变更，最终是一个尼卡这种莫名其妙的答案
+
+有问题的不是开挂这件事
+
+是这开挂的过程以及现在开挂后的表现不尽人意
+
+*****
+
+####  先手必胜  
+##### 57525#       发表于 2022-3-30 19:32
+
+退一步说改果实就改果实，这嘻嘻哈哈的真的很难接受，以往的路飞会是这样的吗
+
+*****
+
+####  朗姆酒hentai  
+##### 57526#       发表于 2022-3-30 19:32
+
+凯老师：路哥，我承认我之前手重了点，您行行好留个面子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cdfjg  
+##### 57527#       发表于 2022-3-30 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55248941&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 19:24</a>
+ 事情不是独立的看的 导致如今的风评的事不单单是一件路飞开挂的事 路飞大概率打不过凯多，但凯多必然被赶 ...</blockquote>
+所有战斗都设定成路飞主观上都没有不尊重啊（读者的感受上也许有）
+
+*****
+
+####  cdfjg  
+##### 57528#       发表于 2022-3-30 19:39
+
+引用错了……
+
+
+
+*****
+
+####  klzxs  
+##### 57529#       发表于 2022-3-30 19:41
+
+路飞这个开心我倒没觉得有什么
+
+很明显是果实影响
+
+而且凯多蹂躏了那么久和之国
+
+现在被人骑脸了 是该被问问你这样开心吗
+
+我比较受不了那些眼球乱飞 
+
+路飞本人还好
+
+几个围观的也这样好不搭啊 
+
+*****
+
+####  angelooo  
+##### 57530#       发表于 2022-3-30 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249149&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 19:41</a>
+
+路飞这个开心我倒没觉得有什么
+
+很明显是果实影响
+
+而且凯多蹂躏了那么久和之国</blockquote>
+这么多年来WT玩那个表情上瘾了，一次两次还好，这次直接给你四连发，我差点没吐了
+
+*****
+
+####  三点几，饮茶啦  
+##### 57531#       发表于 2022-3-30 19:50
+
+路飞现在是三大漫主角里，我观感最差的一个。
+
+
+
+*****
+
+####  吃我大dio  
+##### 57532#       发表于 2022-3-30 20:05
+
+<blockquote>三点几，饮茶啦 发表于 2022-3-30 19:50
+路飞现在是三大漫主角里，我观感最差的一个。</blockquote>
+嘴遁确实观感好
+
+*****
+
+####  cdfjg  
+##### 57533#       发表于 2022-3-30 20:16
+
+看了下reddit，他们也因为路飞这话说的内容不爽；也有说凯多是老师的；调侃罗的体力的。全世界观感还是一样的
+
+*****
+
+####  仟音一心  
+##### 57534#       发表于 2022-3-30 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249613&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 20:16</a>
+看了下reddit，他们也因为路飞这话说的内容不爽；也有说凯多是老师的；调侃罗的体力的。全世界观感还是一样 ...</blockquote>
+日本那边这两话还是有抱怨的吧，只是不可能在公共平台说。
+
+*****
+
+####  7sevenseven  
+##### 57535#       发表于 2022-3-30 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249613&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 20:16</a>
+看了下reddit，他们也因为路飞这话说的内容不爽；也有说凯多是老师的；调侃罗的体力的。全世界观感还是一样 ...</blockquote>
+<img src="https://p.sda1.dev/5/b77a197ee873ac1b5c96a91ac3b05724/IMG_CMP_138592381.jpeg" referrerpolicy="no-referrer">
+只能说全球孝子太多
+
+
+
+*****
+
+####  先手必胜  
+##### 57536#       发表于 2022-3-30 20:25
+
+有没有人翻译过日本匿名区对这两话的感想，感觉会很有乐子
+
+
+
+*****
+
+####  yario  
+##### 57537#       发表于 2022-3-30 20:41
+
+ 本帖最后由 yario 于 2022-3-30 20:45 编辑 
+
+和之国很烂不等于one piece烂。少年漫主角开的挂 太多 太多 为了填平和弗利萨的巨大差距 弄出赛亚人濒死复活战力翻倍挂，一副结局的样子  然后嘛。。。。。。
+
+*****
+
+####  Yeaha123  
+##### 57538#       发表于 2022-3-30 20:54
+
+开档的副作用这个设定坑死尾田了
+
+*****
+
+####  Supermangunv3  
+##### 57539#       发表于 2022-3-30 20:58
+
+尾田你就他妈的是个sb!sb阿！！！！！!
+
+
+
+*****
+
+####  少年包工头  
+##### 57540#       发表于 2022-3-30 21:05
+
+凯多有什么好可怜的？可怜他奴役和之国还是smile
+
+
+
+*****
+
+####  仟音一心  
+##### 57541#       发表于 2022-3-30 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250209&amp;ptid=98922" target="_blank">少年包工头 发表于 2022-3-30 21:05</a>
+凯多有什么好可怜的？可怜他奴役和之国还是smile</blockquote>
+大蛇真的替凯多分担了不少仇恨，不知道这么low的幻兽种意义何在。
+
+*****
+
+####  逸yi  
+##### 57542#       发表于 2022-3-30 21:24
+
+呃呃
+
+*****
+
+####  谁说法海不懂爱  
+##### 57543#       发表于 2022-3-30 21:26
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-30 21:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250082&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-3-30 20:54</a>
+
+开档的副作用这个设定坑死尾田了</blockquote>
+这个副作用就跟来打那边有副作用的过度形态一样，要么用几次退场，如果不能退场，长期用的话，要么忘了，要么改设定（锻炼）给规避掉。一般也不会给一个来打安排两个暴走副作用形态避免撞车，当年说会折寿的二档，两年后就是没有副作用的基础技能了，四档也只是耗体力，事到如今如果要在现在这个或许是最终形态新形态上再做副作用的文章，是不好说效果观感会怎么样了。
+
+*****
+
+####  athena_1982  
+##### 57544#       发表于 2022-3-30 21:31
+
+咋这么多理中客啊？在这种情况下开搞笑挂才是神来之笔！
+
+嘻嘻哈哈就把四皇秒了，杀人？诛心才是最狠的。凯多，奴役了和之国20年，连人民哭泣的权利都剥夺，值得被这样对待
+
+问题是后面怎么处理，路飞这个状态在OP世界里目前来看就是无敌的，就算把凯多换成赤犬黑胡子场面也不会好到哪去
+
+我不是啥尾田孝子，我就是单纯的觉得这个剧情很有趣，这就够了
+
+喜欢逻辑和推理的，高等数学欢迎您
+
+*****
+
+####  超紳士  
+##### 57545#       发表于 2022-3-30 21:33
+
+财富，名声，力量，获得了这世界上所有的男人，海贼王格尔D罗杰，他临死前的一句话让人们扬帆出海。
+
+“用果实………………带来笑容……”
+
+*****
+
+####  7sevenseven  
+##### 57546#       发表于 2022-3-30 21:35
+
+<img src="https://p.sda1.dev/5/6543fc4920d13e2ee703e6f56dfd41ce/8C3FDA7BB21208AB30A9A4912D3DF8E2.jpg" referrerpolicy="no-referrer">
+好图，哈哈哈
+
+
+
+*****
+
+####  超紳士  
+##### 57547#       发表于 2022-3-30 21:40
+
+网上看到个评论，one piece改名为“世界最弱の海で生まれた俺が神になれる実を食べたら世界の王になれた件w”比较好吧
+
+*****
+
+####  吃我大dio  
+##### 57548#       发表于 2022-3-30 21:41
+
+<blockquote>7sevenseven 发表于 2022-3-30 20:19
+只能说全球孝子太多</blockquote>
+别人是孝子。你是啥？逆子？
+
+*****
+
+####  7sevenseven  
+##### 57549#       发表于 2022-3-30 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250635&amp;ptid=98922" target="_blank">吃我大dio 发表于 2022-3-30 21:41</a>
+别人是孝子。你是啥？逆子？</blockquote>
+我是正常看漫画的
+生硬的改掉自己1000多话的最基础最底层设定，毫不顾忌造成的剧情bug和人物崩坏，对这种剧情还叫好我是做不到的
+
+*****
+
+####  Algie  
+##### 57550#       发表于 2022-3-30 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249043&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-03-30 19:32:11</a>
+退一步说改果实就改果实，这嘻嘻哈哈的真的很难接受，以往的路飞会是这样的吗 ...</blockquote>看看刚出海的路飞，平时是个傻子，但面对认定的敌人时都是人狠话不多，上阵表情都是严肃的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  先手必胜  
+##### 57551#       发表于 2022-3-30 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250681&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-30 21:44</a>
+
+看看刚出海的路飞，平时是个傻子，但面对认定的敌人时都是人狠话不多，上阵表情都是严肃的
+
+  -- 来自 能搜 ...</blockquote>
+是的，以往欢笑都是留给胜利后的宴会，遇上认定的敌人时都是非常严肃的，现在的路飞让我觉得被夺舍了
+
+*****
+
+####  Algie  
+##### 57552#       发表于 2022-3-30 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249928&amp;ptid=98922" target="_blank">yario 发表于 2022-03-30 20:41:29</a>
+和之国很烂不等于one piece烂。少年漫主角开的挂 太多 太多 为了填平和弗利萨的巨大差距 弄出赛亚人濒死 ...</blockquote>现在的发展在腐蚀作品的根基，腐蚀多了op也就烂了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Algie  
+##### 57553#       发表于 2022-3-30 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250706&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-03-30 21:46:41</a>
+是的，以往欢笑都是留给胜利后的宴会，遇上认定的敌人时都是非常严肃的，现在的路飞让我觉得被夺舍了 ...</blockquote>哪怕是战斗中的笑点也是因为路飞有时清奇的脑回路导致迷惑行为，但他主观上没有与对手“玩”
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  吃我大dio  
+##### 57554#       发表于 2022-3-30 21:55
+
+<blockquote>7sevenseven 发表于 2022-3-30 21:43
+我是正常看漫画的
+
+生硬的改掉自己1000多话的最基础最底层设定，毫不顾忌造成的剧情bug和人物崩坏，对这种 ...</blockquote>
+大家都是正常看漫画 。你觉得这剧情稀烂喷尾田，喷编辑都可以。把其他觉得剧情可以的读者者抓过来一起喷我感觉没必要。 
+
+*****
+
+####  7sevenseven  
+##### 57555#       发表于 2022-3-30 21:57
+
+ 本帖最后由 7sevenseven 于 2022-3-30 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250802&amp;ptid=98922" target="_blank">吃我大dio 发表于 2022-3-30 21:55</a>
+大家都是正常看漫画 。你觉得这剧情稀烂喷尾田，喷编辑都可以。把其他觉得剧情可以的读者者抓过来一起喷 ...</blockquote>
+对，我就是把觉得这两话不错，op发展态势良好的人都喷了
+危害作品根基的剧情还叫好，称为“孝子”我觉得很正确
+
+*****
+
+####  八汰乌  
+##### 57556#       发表于 2022-3-30 21:59
+
+感觉眼球完全飞出来太惊悚了，不搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wwdzcjsmxx  
+##### 57557#       发表于 2022-3-30 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55215164&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-28 11:58</a>
+
+两年后的败笔是和之国，和之国就是一无是处</blockquote>
+之前漫画看到和之国开始一点。。。我现在是看好还是不看好。。。orz
+
+*****
+
+####  7sevenseven  
+##### 57558#       发表于 2022-3-30 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250882&amp;ptid=98922" target="_blank">wwdzcjsmxx 发表于 2022-3-30 22:04</a>
+之前漫画看到和之国开始一点。。。我现在是看好还是不看好。。。orz</blockquote>
+战斗的话看看索隆和山治战斗回，就差不多了
+唯二有亮点又不恶心的战斗
+
+*****
+
+####  银翼的维罗西  
+##### 57559#       发表于 2022-3-30 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250681&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-30 21:44</a>
+
+看看刚出海的路飞，平时是个傻子，但面对认定的敌人时都是人狠话不多，上阵表情都是严肃的
+
+  -- 来自 能搜 ...</blockquote>
+确实，五黄形象崩了，海贼王一大看点就是五黄独一档的成熟，两年后像个单纯的傻子
+
+*****
+
+####  先手必胜  
+##### 57560#       发表于 2022-3-30 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250742&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-30 21:50</a>
+
+哪怕是战斗中的笑点也是因为路飞有时清奇的脑回路导致迷惑行为，但他主观上没有与对手“玩”
+
+  -- 来自 能 ...</blockquote>
+感觉就是强行微笑男孩，按着头搞笑
+
+
+
+*****
+
+####  SteinLee  
+##### 57561#       发表于 2022-3-30 22:26
+
+找到了尾田的伏笔
+
+<img src="https://img.saraba1st.com/forum/202203/30/222246p8j8zodoes5fzg1j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 22:22 上传
+
+微笑的卡尼
+
+<img src="https://img.saraba1st.com/forum/202203/30/222622mzzwwutdxt14gxam.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-30 22:26 上传
+
+微笑的尼卡
+
+*****
+
+####  赤魔法师  
+##### 57562#       发表于 2022-3-30 22:37
+
+如果再给时时果实加个能力
+
+800年前的joyboy也能和路飞变成一个人了
+
+之前的那个大草帽的线也能收
+
+这个带来欢笑的能力也能解决smile的副作用吧
+
+只是和玉女团子**一样给人感觉怪怪的
+
+
+
+*****
+
+####  灌水机  
+##### 57563#       发表于 2022-3-30 23:14
+
+明明是神展开，和之国烂归烂，关尼卡什么事<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+霸气/觉醒哪个不是空降的，前有黑胡子变态吃两个果实，现在果实觉醒变态，天就塌了？不喜欢你可以放一放看看后续，不用急着把所有路人读者都打成敌人。
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  灌水机  
+##### 57564#       发表于 2022-3-30 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55208679&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-27 20:44</a>
+4chan吐槽</blockquote>
+鼠鼠果实幻兽种杰瑞形态<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  数独无双  
+##### 57565#       发表于 2022-3-30 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看了最新一话觉得尾田要么疯了要么就是要报复社会
+
+*****
+
+####  轻尘有雨  
+##### 57566#       发表于 2022-3-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251309&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-3-30 22:37</a>
+
+如果再给时时果实加个能力
+
+800年前的joyboy也能和路飞变成一个人了
+
+之前的那个大草帽的线也能收</blockquote>
+上一个满嘴喊着自由、穿越时间乱搞事儿的是谁来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  轻尘有雨  
+##### 57567#       发表于 2022-3-30 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251309&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-3-30 22:37</a>
+
+如果再给时时果实加个能力
+
+800年前的joyboy也能和路飞变成一个人了
+
+之前的那个大草帽的线也能收</blockquote>
+上一个满嘴喊着自由、穿越时间乱搞事儿的是谁来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ef6270  
+##### 57568#       发表于 2022-3-30 23:36
+
+主要是和之国，尤其是某人描写得不行，导致虽然读者知道凯多是个无恶不作的设定，但仇恨值其实没有前几个BOSS拉得那么满……
+
+而且由于时间拖得太长，重心过于集中于某个角色身上，其他部分描写得有些零碎且不太吸引人，我其实有点想不起来凯多都干了点啥。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  7sevenseven  
+##### 57569#       发表于 2022-3-30 23:44
+
+ 本帖最后由 7sevenseven 于 2022-3-30 23:46 编辑 
+
+霸气首先路飞震牛，然后雷利打黄猿，然后女儿国，然后顶上，铺垫了多少次，而且自然系太厉害了加入读者也是支持，发展的怎么样两说
+觉醒，深海监狱老沙提，德岛明哥提，万国卡二提，和之国到了也是时候了
+人人果实，前几话福兹弗不追路飞表示小角色而已追大和要紧，后几话草帽路飞饶不了你。1000话后才提出尼卡，橡皮果实有问题。而且是不是这样改第一话第二话最基础设定没问题，下一话改性别好了。
+
+*****
+
+####  cdfjg  
+##### 57570#       发表于 2022-3-30 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252441&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:44</a>
+ 霸气首先路飞震牛，然后雷利打黄猿，然后女儿国，然后顶上，铺垫了多少次，而且自然系太厉害了加入读者也是 ...</blockquote>
+改什么基础设定了？橡胶特性没了？
+
+
+
+*****
+
+####  novem  
+##### 57571#       发表于 2022-3-30 23:48
+
+反正能看出海贼王快完结了，路飞现在的实力远超四皇级，对手都快打没了还能怎么编
+
+*****
+
+####  赤魔法师  
+##### 57572#       发表于 2022-3-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251949&amp;ptid=98922" target="_blank">轻尘有雨 发表于 2022-3-30 23:26</a>
+
+上一个满嘴喊着自由、穿越时间乱搞事儿的是谁来着记得坟头的大树都百米高了 ...</blockquote>
+拉夫德鲁最终之岛在历史上被隐藏的另一个名字
+
+帕拉〇岛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 57573#       发表于 2022-3-30 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55251721&amp;ptid=98922" target="_blank">灌水机 发表于 2022-3-30 23:14</a>
+明明是神展开，和之国烂归烂，关尼卡什么事
+霸气/觉醒哪个不是空降的，前有黑胡子变态吃两个果实， ...</blockquote>
+是前后矛盾
+
+*****
+
+####  acejoe  
+##### 57574#       发表于 2022-3-30 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252540&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 23:48</a>
+改什么基础设定了？橡胶特性没了？</blockquote>
+尾田钦定超人系没看见吗
+
+*****
+
+####  7sevenseven  
+##### 57575#       发表于 2022-3-30 23:56
+
+ 本帖最后由 7sevenseven 于 2022-3-31 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252540&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-30 23:48</a>
+改什么基础设定了？橡胶特性没了？</blockquote>
+最基础设定
+蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定
+
+我找了篇豆瓣的图书介绍
+路飞所生长的小村庄里曾经是一群以「红发香克斯」为首的海盗们的暂居地，而幼年路飞一直希望可以成为他们的一员，可在一次意外的情况下，他吃了一种叫做「橡皮果实」的恶魔果实变成了橡胶人。恶魔果实给予了他这样奇特的本领，但是吃了恶魔果实的人是再也没有能力游泳的…这样还能成为海盗吗？「没有关系，我只要不掉到海里去就行了…」
+
+路飞所生长的小村庄里曾经是一群以「红发香克斯」为首的海盗们的暂居地，而幼年路飞一直希望可以成为他们的一员，可在一次意外的情况下，他吃了一种叫做「人人果实幻兽种尼卡形态」的恶魔果实变成了太阳神。恶魔果实给予了他这样奇特的本领，但是吃了恶魔果实的人是再也没有能力游泳的…这样还能成为海盗吗？「没有关系，我只要不掉到海里去就行了…」
+
+你说变没变
+
+介绍路飞离不开橡皮果实，就像介绍路飞离不开介绍他是男人一样。有橡皮特性和是橡皮人是两个事，我也希望尾田能把发展转回到橡皮果实那里。可是现在，莫名的恢复力，莫名的身体变化，快要把这条路堵死了。
+
+*****
+
+####  赤魔法师  
+##### 57576#       发表于 2022-3-30 23:56
+
+我是觉得尼卡肯定是以前想过的
+
+只是讲故事的节奏给人太奇怪了
+
+剑齿虎前面看主角毫无反应 后面又有旧仇给人的感觉就很奇怪
+
+如果说主角先把挂开了 打完旁白再给解释观感可能都要好一点
+
+哦 原来是这么开的挂啊！
+
+但现在这边开挂那边旁白同步解释这个果实又名什么什么
+
+能理解作者是想要气势和演出效果
+
+但给人的感觉就是不会有这么巧的事太都合了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cdfjg  
+##### 57577#       发表于 2022-3-30 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252616&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:56</a>
+ 最基础设定 蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定 </blockquote>
+改什么基础设定了？橡胶特性没了？
+
+*****
+
+####  cdfjg  
+##### 57578#       发表于 2022-3-30 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252595&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-30 23:54</a>
+ 尾田钦定超人系没看见吗</blockquote>
+改什么基础设定了？橡胶特性没了？
+
+*****
+
+####  和真克瓦尔  
+##### 57579#       发表于 2022-3-30 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55250506&amp;ptid=98922" target="_blank">athena_1982 发表于 2022-3-30 21:31</a>
+
+咋这么多理中客啊？在这种情况下开搞笑挂才是神来之笔！
+
+嘻嘻哈哈就把四皇秒了，杀人？诛心才是最狠的。凯 ...</blockquote>
+我也考虑过如何限制这个形态，现在看来可以参考谁陷害了兔子罗杰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都说搞笑角色无敌，但兔子罗杰里设定了一种特殊溶液可以溶化猫和老鼠/兔八哥系角色，本来恶魔果实能力者就怕水，五黄以后掉水直接蒸发
+
+*****
+
+####  cdfjg  
+##### 57580#       发表于 2022-3-31 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252616&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:56</a>
+ 最基础设定 蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定 </blockquote>
+你是不是上一话看到情报之后就没看漫画啊
+
+*****
+
+####  7sevenseven  
+##### 57581#       发表于 2022-3-31 00:02
+
+ 本帖最后由 7sevenseven 于 2022-3-31 00:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252667&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:00</a>
+你是不是上一话看到情报之后就没看漫画啊</blockquote>
+你告诉我这强大的恢复力是怎么来的？这五档都燃气火出现祥云了是怎么回事？
+
+介绍路飞离不开橡皮果实，就像介绍路飞离不开介绍他是男人一样。有橡皮特性和是橡皮人是两个事，我也希望尾田能把发展转回到橡皮果实那里。可是现在，莫名的恢复力，莫名的身体变化，快要把这条路堵死了，没有一个超人系觉醒像路飞这样。
+
+*****
+
+####  cdfjg  
+##### 57582#       发表于 2022-3-31 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252687&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-31 00:02</a>
+ 你告诉我这强大的恢复力是怎么来的？这五档都燃气火出现祥云了是怎么回事？  介绍路飞离不开橡皮果实，就 ...</blockquote>
+你就说这个“太阳神”还是不是橡胶人
+
+*****
+
+####  7sevenseven  
+##### 57583#       发表于 2022-3-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252712&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:03</a>
+你就说这个“太阳神”还是不是橡胶人</blockquote>
+目前更像尼卡，就是你说的有橡皮特性
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57584#       发表于 2022-3-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252712&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:03</a>
+你就说这个“太阳神”还是不是橡胶人</blockquote>
+重点根本就不在还是不是橡胶人这块上
+再说了，太阳神跟橡胶有个屌毛关系
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  和真克瓦尔  
+##### 57585#       发表于 2022-3-31 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252616&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-30 23:56</a>
+
+最基础设定
+
+蒙奇·D·路飞，男性，恶魔果实，橡皮果实，吃了果实不能游泳。这是第一话就确立的设定</blockquote>
+主要是火焰头，尤其那个倒霉飘带太廉价了，抽卡手游玩烂的设计，他变个轮胎都比现在更好
+
+*****
+
+####  cdfjg  
+##### 57586#       发表于 2022-3-31 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252744&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 00:06</a>
+ 重点根本就不在还是不是橡胶人这块上 再说了，太阳神跟橡胶有个屌毛关系 </blockquote>
+阿波罗跟太阳有什么吊毛关系，照样被认为是太阳神
+
+*****
+
+####  Algie  
+##### 57587#       发表于 2022-3-31 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252712&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-03-31 00:03:47</a>
+你就说这个“太阳神”还是不是橡胶人</blockquote>那卡二算不算橡胶人？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| acejoe| + 1|绝杀|
+
+查看全部评分
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57588#       发表于 2022-3-31 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252788&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:12</a>
+阿波罗跟太阳有什么吊毛关系，照样被认为是太阳神</blockquote>
+好家伙，希腊神话里是橡胶人每天驮着太阳出来遛弯的？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TBM107  
+##### 57589#       发表于 2022-3-31 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55222280&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-3-28 22:27</a>
+
+二档现在还是海贼潮指数的顶点</blockquote>
+求头像出处
+
+*****
+
+####  谁说法海不懂爱  
+##### 57590#       发表于 2022-3-31 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252750&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-31 00:06</a>
+
+主要是火焰头，尤其那个倒霉飘带太廉价了，抽卡手游玩烂的设计，他变个轮胎都比现在更好 ...</blockquote>
+相对于四档来说，其实造型或者说身材正常了，比起外表，其实变身后情绪豹变比较怪，估计是为了凸JOYBOY这个主题才这么搞的。搞穿越过去成为传说本身的套路可能性也不小，就是会变成现在这种状态的缘由就变成死循环。其他的就是剩下的篇章要怎么膨胀战力的问题了。
+
+*****
+
+####  acejoe  
+##### 57591#       发表于 2022-3-31 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252811&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-31 00:14</a>
+那卡二算不算橡胶人？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+绝杀了
+
+
+
+*****
+
+####  cdfjg  
+##### 57592#       发表于 2022-3-31 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252811&amp;ptid=98922" target="_blank">Algie 发表于 2022-3-31 00:14</a>
+ 那卡二算不算橡胶人？    -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+不算啊
+
+*****
+
+####  cdfjg  
+##### 57593#       发表于 2022-3-31 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252865&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-31 00:19</a>
+ 绝杀了</blockquote>
+绝杀<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cdfjg  
+##### 57594#       发表于 2022-3-31 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252830&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 00:16</a>
+ 好家伙，希腊神话里是橡胶人每天驮着太阳出来遛弯的？  —— 来自 HUAWEI NOP-AN00, Android 10上的 S1Ne ...</blockquote>
+阿波罗可不会驮太阳
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57595#       发表于 2022-3-31 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252900&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:21</a>
+阿波罗可不会驮太阳</blockquote>
+是是是，阿波罗的马车驮着，别抠字眼转移话题了，先说说太阳神和橡胶的关系吧
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  少年包工头  
+##### 57596#       发表于 2022-3-31 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252687&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-3-31 00:02</a>
+你告诉我这强大的恢复力是怎么来的？这五档都燃气火出现祥云了是怎么回事？
+
+介绍路飞离不开橡皮果实，就 ...</blockquote>
+就跟门牙掉了喝点牛奶就长回来一个原理啊
+
+*****
+
+####  赤魔法师  
+##### 57597#       发表于 2022-3-31 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252851&amp;ptid=98922" target="_blank">TBM107 发表于 2022-3-31 00:18</a>
+
+求头像出处</blockquote>
+[あざらしそふと (ピロ水)] アマカノ+ ビジュアルファンブック
+
+D101B5CA-C0E0-4DE1-A915-D6DAD1B1BE28.jpeg
+(165.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/002857z8riq7lvrzziccqy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TBM107| + 1||
+
+查看全部评分
+
+*****
+
+####  7sevenseven  
+##### 57598#       发表于 2022-3-31 00:30
+
+ 本帖最后由 7sevenseven 于 2022-3-31 00:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252973&amp;ptid=98922" target="_blank">少年包工头 发表于 2022-3-31 00:27</a>
+就跟门牙掉了喝点牛奶就长回来一个原理啊</blockquote>
+那是为了搞笑，而这是在战斗
+就算是第二锁血的万国篇，路飞也是边打边跑，打不动了立马撤，恢复体力再打。哪像现在被打死了原地满血复活，再打耗尽了能量开始变老又瞬间回复。从某种意义上说，确实很可笑。
+超人系果实没有这样的
+
+*****
+
+####  Yeaha123  
+##### 57599#       发表于 2022-3-31 00:38
+
+果实觉醒这个概念早就有了，也不算太离谱，被打死复活这个嘛，估计凯多也不认那一棒子吧
+
+
+
+*****
+
+####  赤魔法师  
+##### 57600#       发表于 2022-3-31 00:42
+
+画得离谱也没办法！
+
+还不是只能骂完接着看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  七十七  
+##### 57601#       发表于 2022-3-31 00:43
+
+虽然还是蛮喜欢这样画法，很好玩，但是到这个剧情了，这么吊打boss其实已经没必要了
+
+如果这次boss战的氛围像路奇那次一样，那这个开挂那还可以，整个和之国，剧情就不说了，凯多团整个喽啰没看出四皇该有的强大，干部战更不行，凯多作为BOSS该有的压迫感和绝望感因为主角一方各种仰卧起坐，锁血，也立不起来，现在是跟路飞惺惺相惜，结果又来了开挂吊打凯多，结果读者纷纷同情凯多，和之国现在剧情到这地步，没什么压迫感，其实这个尼卡觉醒应该留到下一个篇章，真到非用不可时候再用更好，这个篇章这么吊打凯多其实确实没什么好的观感，虽然我觉得下一话大概率还是凯多跟路飞不分上下
+
+*****
+
+####  8aa8aa8aa  
+##### 57602#       发表于 2022-3-31 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252885&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 00:20</a>
+不算啊</blockquote>
+卡二亲口说的，橡皮果实能做到的他也能做到，蛇人这个模式卡二做不到，但凯多说，这怎么看都不是橡皮的特性
+
+怎么卡二作为橡皮果实的上位的特性被你说没了呢
+
+
+
+*****
+
+####  cdfjg  
+##### 57603#       发表于 2022-3-31 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254080&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2022-3-31 07:27</a>
+ 卡二亲口说的，橡皮果实能做到的他也能做到，蛇人这个模式卡二做不到，但凯多说，这怎么看都不是橡皮的特 ...</blockquote>
+还是年糕麻糬之类的东西啊
+
+*****
+
+####  暗杀翻看是  
+##### 57604#       发表于 2022-3-31 07:50
+
+这种战斗方式太烂了，关键是没有时髦值啊，反派没逼格，主角没逼格，把热血漫最重要都东西之一给丢了
+
+*****
+
+####  cdfjg  
+##### 57605#       发表于 2022-3-31 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252964&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 00:26</a>
+ 是是是，阿波罗的马车驮着，别抠字眼转移话题了，先说说太阳神和橡胶的关系吧  —— 来自 HUAWEI NOP-AN0 ...</blockquote>
+阿波罗跟太阳没关系，也能当太阳神，他是占了另一个希腊神的功能。当太阳神跟身体材质没关系。
+你也可以当小区里的太阳神啊
+
+
+
+*****
+
+####  黑岩泪香  
+##### 57606#       发表于 2022-3-31 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55246229&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-30 16:09</a>
+QUEEN 可以把头尾发射出去，我觉得这表现比啥都可怕。</blockquote>
+queen是个改造人，弗兰奇那种。要觉得这可怕那弗兰奇打开肚子放可乐就该觉得可怕了。
+
+*****
+
+####  被子十三  
+##### 57607#       发表于 2022-3-31 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254263&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 08:07</a>
+queen是个改造人，弗兰奇那种。要觉得这可怕那弗兰奇打开肚子放可乐就该觉得可怕了。 ...</blockquote>
+King也有貂自尊皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑岩泪香  
+##### 57608#       发表于 2022-3-31 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55247543&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-30 17:41</a>
+所以才有人说，和之国这盘下来，强力友军关系户越来越多，反而没什么已知的感觉上有威胁的对手。我前面提 ...</blockquote>
+没屁用啊。
+量产熊是熊的肉体+黄猿的镭射，你觉得熊或者黄猿哪个会怕这玩意？
+现在路飞团包括友军主力这战斗力，来一堆假凯多丝毫构不成威胁。
+
+*****
+
+####  黑岩泪香  
+##### 57609#       发表于 2022-3-31 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254276&amp;ptid=98922" target="_blank">被子十三 发表于 2022-3-31 08:10</a>
+King也有貂自尊皇啊</blockquote>
+king这个不是射头出去吧…更像是剑气这种冲击波…
+
+
+
+*****
+
+####  被子十三  
+##### 57610#       发表于 2022-3-31 08:26
+
+ 本帖最后由 被子十三 于 2022-3-31 08:27 编辑 
+
+为什么会共情凯多？因为和之国整个篇章下来，凯多这个角色没有体现出真正的压迫力，也没有让读者有危机感。
+
+无恶不作，SMILE和和之国的惨状这些，说实话读者1000话看下来已经看腻了。更不要说还有凯撒、大蛇这种丑角帮凯多吸引仇恨。凯多一开场一棒子把路飞打晕，或者之后把路飞打得反复仰卧起坐，这种操作也没法带来任何危机感——因为大家都知道路飞是主角，指不定睡一觉或者吃几顿饭就能恢复了。
+
+所谓的危机感，就是看看这个反派对剧情走向会不会有巨大的影响力。比如水之七岛一上来就把整个草帽团拆散，罗宾和乌索普几乎要离队，当时读者对后来的剧情走向是一脸懵的。香波地上的量产熊（和真熊）就更不用说了，直接把整个草帽团打得七零八落，要等到两年后才重新成团。就连打莫利亚的时候都把全团的影子剪了，全团要被迫在限制debuff下进行战斗。
+
+但是两年后的战斗没有任何一个敌人能给主角团带来这种危机。蛋糕岛上大妈除了一开始把山治拐走之外根本没有对主角团造成任何伤害，直到最后准备开溜逃跑的时候才有那么一点味道；凯多就更不用说了，下面的干部基本就是草帽团各个角色的经验包，除了索隆和山治之外甚至连苦战都没陷入。凯多唯一造成巨大伤害的成员是御田和赤鞘九侠，但御田就不说了，赤鞘九侠也是编外人员，读者根本没建立起身后的感情。
+
+假如一开场的时候凯多就出手把草帽团里的几个成员直接打得彻底失去战斗力，或者打飞到了别的岛上，读者可能会更有危机感些，情感上也会更支持五皇。但现状就是草帽团成员完全没减员，几乎一路唱着歌蹦着迪就把凯多放倒了，怎么能让读者有同仇敌忾的心情啊。
+
+
+
+*****
+
+####  天使的日曜日  
+##### 57611#       发表于 2022-3-31 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252851&amp;ptid=98922" target="_blank">TBM107 发表于 2022-3-31 00:18</a>
+
+求头像出处</blockquote>
+补张大图<img src="https://b2.kuibu.net/file/imgdisk/imgs/2022/03/b63f80c1a05182d6.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ⊙天上天下  
+##### 57612#       发表于 2022-3-31 09:05
+
+画到现在我已经无所谓了，就想早点结局，我想看后面的剧情，萨博，七武海，阿拉巴斯坦怎么样了，世界会议到底发生了什么，凯多路飞的战斗早就没人关心了，结束吧。
+
+*****
+
+####  猎户座  
+##### 57613#       发表于 2022-3-31 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254772&amp;ptid=98922" target="_blank">⊙天上天下 发表于 2022-3-31 09:05</a>
+
+画到现在我已经无所谓了，就想早点结局，我想看后面的剧情，萨博，七武海，阿拉巴斯坦怎么样了，世界会议到 ...</blockquote>
+说到点子上了，尾田有那么多坑，那么多有魅力的人物，篇幅拉得这么长，却尽搞些无关紧要得剧情和战斗和人物，从两年后鱼人岛开始就一直该画的不画，不该画的一直拖。。。
+
+这是最大的问题，什么实力啊、果实啊，都是其次
+
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 57614#       发表于 2022-3-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254192&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 07:52</a>
+阿波罗跟太阳没关系，也能当太阳神，他是占了另一个希腊神的功能。当太阳神跟身体材质没关系。
+你也可以 ...</blockquote>
+什么乱七八糟的？阿波罗好歹驾着马车驮太阳每天出来，橡胶又怎么跟太阳联系到一块？
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Bojenkins  
+##### 57615#       发表于 2022-3-31 09:57
+
+我只能说op没救尾田比谁都清楚，现在是拔了化疗管子打了固醇作最后的狂欢，总好过狗尾续狗尾一直续下去
+
+
+
+*****
+
+####  klzxs  
+##### 57616#       发表于 2022-3-31 10:03
+
+尼卡这个太阳肯定不是指那发光发热的天体啊
+
+黎明，自由，解放，欢乐
+
+是这种象征吧
+
+像是空岛打散乌云带来晴天，或有朝一日会让鱼人岛见到真正的阳光这类
+
+*****
+
+####  cdfjg  
+##### 57617#       发表于 2022-3-31 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255284&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 09:47</a>
+
+什么乱七八糟的？阿波罗好歹驾着马车驮太阳每天出来，橡胶又怎么跟太阳联系到一块？
+
+—— 来自 HUAWEI N ...</blockquote>
+赫利俄斯才驾太阳车，跟阿波罗没关系。所以说当太阳神不需要跟太阳有关系。更不用说身体是橡胶人就不能当太阳神了
+
+
+
+*****
+
+####  cdfjg  
+##### 57618#       发表于 2022-3-31 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255418&amp;ptid=98922" target="_blank">Bojenkins 发表于 2022-3-31 09:57</a>
+
+我只能说op没救尾田比谁都清楚，现在是拔了化疗管子打了固醇作最后的狂欢，总好过狗尾续狗尾一直续下去 ...</blockquote>
+那不是的，尾田特别自信，他没觉得烂了，自我感觉还挺良好。
+
+
+
+*****
+
+####  黑岩泪香  
+##### 57619#       发表于 2022-3-31 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254192&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-3-31 07:52</a>
+阿波罗跟太阳没关系，也能当太阳神，他是占了另一个希腊神的功能。当太阳神跟身体材质没关系。
+你也可以 ...</blockquote>
+阿波罗什么时候是太阳神了…别人不是光明之神吗？
+
+
+
+*****
+
+####  popchong  
+##### 57620#       发表于 2022-3-31 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255503&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-31 10:03</a>
+
+尼卡这个太阳肯定不是指那发光发热的天体啊
+
+黎明，自由，解放，欢乐
+
+是这种象征吧</blockquote>
+翻身的农奴献上洁白的哈达
+
+解放的牧民捧起鲜美的奶浆
+
+清香的山茶饱含着深情厚意
+
+彩色的壮锦绣出了心中的红太阳
+
+在您的领导下各族人民心花怒放
+
+在您的抚育下各族人民茁壮成长
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  和真克瓦尔  
+##### 57621#       发表于 2022-3-31 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252858&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-31 00:18</a>
+
+相对于四档来说，其实造型或者说身材正常了，比起外表，其实变身后情绪豹变比较怪，估计是为了凸JOYBOY这 ...</blockquote>
+哇，搞时间闭环极易引发宿命论设定然后和自由主题强烈排异，巨人虽然玩砸了但在黑暗虚无的风格中还能当作反讽，海贼一旦在这方面没玩好后果想都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  和真克瓦尔  
+##### 57622#       发表于 2022-3-31 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256576&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 11:18</a>
+
+阿波罗什么时候是太阳神了…别人不是光明之神吗？</blockquote>
+阿波罗当然是太阳神了，早期掌管比较偏抽象概念的理性与艺术（拿着赫尔墨斯送的琴），后来挤占了太阳神的神位，导致他孪生姐姐阿尔忒弥斯本来是狩猎和野兽之神，为了和他对称也挤了原来的月神。
+
+*****
+
+####  Supermangunv3  
+##### 57623#       发表于 2022-3-31 11:49
+
+<blockquote>和真克瓦尔 发表于 2022-3-31 11:44
+哇，搞时间闭环极易引发宿命论设定然后和自由主题强烈排异，巨人虽然玩砸了但在黑暗虚无的风格中还能当作 ...</blockquote>
+起码比没活整的作品强，这么以来本来想弃坑的都想以刃牙的态度看了，化身究极乐子人！
+
+*****
+
+####  黑岩泪香  
+##### 57624#       发表于 2022-3-31 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256982&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-31 11:48</a>
+阿波罗当然是太阳神了，早期掌管比较偏抽象概念的理性与艺术（拿着赫尔墨斯送的琴），后来挤占了太阳神的 ...</blockquote>
+阿波罗后来挤占赫利俄斯位置不是神话传播中出了偏差？
+一开始他就是掌管光明，然后传着传着因为古人又没灯泡，光明和太阳挂钩就…
+
+*****
+
+####  和真克瓦尔  
+##### 57625#       发表于 2022-3-31 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256992&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-3-31 11:49</a>
+
+起码比没活整的作品强，这么以来本来想弃坑的都想以刃牙的态度看了，化身究极乐子人！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刃牙吧吧友化属实是一条生路
+
+*****
+
+####  和真克瓦尔  
+##### 57626#       发表于 2022-3-31 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257013&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 11:50</a>
+
+阿波罗后来挤占赫利俄斯位置不是神话传播中出了偏差？
+
+一开始他就是掌管光明，然后传着传着因为古人又没 ...</blockquote>
+有可能啊，神不光会因为职能类似互相串二设/合体，因为实际内容八杆子打不着的谐音合体都经常发生。
+
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57627#       发表于 2022-3-31 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254278&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 08:11</a>
+
+没屁用啊。
+
+量产熊是熊的肉体+黄猿的镭射，你觉得熊或者黄猿哪个会怕这玩意？
+
+现在路飞团包括友军主力这 ...</blockquote>
+已经从凯多那里拿完学分的那几个当然不构成威胁，但对其他需要补课的同学还时比较棘手的。这玩意量产充当高级杂兵还是能拖些戏的。
+
+*****
+
+####  黑岩泪香  
+##### 57628#       发表于 2022-3-31 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257686&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-31 12:42</a>
+已经从凯多那里拿完学分的那几个当然不构成威胁，但对其他需要补课的同学还时比较棘手的。这玩意量产充当 ...</blockquote>
+后面还有没补完课的学生的戏份？复刻一遍顶上战争来一个革命军+海贼vs世界政府全军？
+
+*****
+
+####  谁说法海不懂爱  
+##### 57629#       发表于 2022-3-31 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256917&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-31 11:44</a>
+
+哇，搞时间闭环极易引发宿命论设定然后和自由主题强烈排异，巨人虽然玩砸了但在黑暗虚无的风格中还能当作 ...</blockquote>
+没整出操纵吃手臂杀哥这类情节，估计舆论上问题不大。不然现在尾田给加身份砝码，落实这个所谓JOYBOY已经是问题了，记得之前贴吧还是泥潭，都不希望是这么个身份，转嫁给不讨喜的桃之助，还有本身就存在的穿越时间的剧情，感觉提上议程也快了。那做个猜想，罗杰大笑来早了的原因可能就是惋惜生不逢时。
+
+*****
+
+####  Freemasons  
+##### 57630#       发表于 2022-3-31 12:50
+
+走猫和老鼠路线我倒不是完全反对，打起来也挺有表现力的，但搞笑类漫画有个问题，就是所有的伤害基本都是虚的，互相切成段烧成灰也不构成任何伤害。阿拉蕾就算能一拳打裂地球，地球也能在下一格恢复（全剧唯一真反派马西利特博士除外）。尾田怎么处理这个问题？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  proselyte  
+##### 57631#       发表于 2022-3-31 12:51
+
+说到底这觉醒是什么回事
+
+我以为下周会讲结果还是打打打
+
+*****
+
+####  isummon  
+##### 57632#       发表于 2022-3-31 12:56
+
+最大的问题是这个胡闹能力已经是五老星钦点牛逼了，所以后面的各种boss都要用这个能力打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谁说法海不懂爱  
+##### 57633#       发表于 2022-3-31 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257723&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 12:44</a>
+
+后面还有没补完课的学生的戏份？复刻一遍顶上战争来一个革命军+海贼vs世界政府全军？ ...</blockquote>
+几个船员不就是，而且画到现在，尾田喜欢搞一大堆配角的偏好是变本加厉的，不弄其他配角，接下来只搞主角团戏份，也不大可能。
+
+*****
+
+####  zdh  
+##### 57634#       发表于 2022-3-31 12:59
+
+最强单挑王凯多也被这么轻松压制解决，接下来也只有黑胡子的能力能克制路飞了吧
+
+
+
+*****
+
+####  仟音一心  
+##### 57635#       发表于 2022-3-31 13:04
+
+真的就是彻底《猫和老鼠》化
+
+23B5E7C5-22C5-4DB3-A907-931DF6F94E22.jpeg
+(422.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435g6zx50lrqwwx6be0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D4CD8386-3618-41B4-BAD8-AC34F3A1D352.jpeg
+(548.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435x55kfh99rzdj975l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4740DB0E-8DBA-41F1-812B-DB3E207B9026.jpeg
+(545.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435nss9v3f9zkdrq1qy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D9090387-7367-4FB2-AD3A-AC74C270F2B1.jpeg
+(496.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435nbjbpdn7djidnj45.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+ECC0938A-BE98-4525-99DF-94D7DEF07ABE.jpeg
+(560.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436qvo0lchpfwiwci09.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0B8BF7B2-ECFD-4E0C-9E2C-FCEF3DE112C5.jpeg
+(366.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436x077swx54ev5z34e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+06D38E79-8C8E-46E5-B07F-BA141E0B4679.jpeg
+(553.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436qyc267wr5p5665ke.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0DF3C034-0B30-4C55-A27B-EE1CEC430EDD.jpeg
+(587.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436py4u8clpbpv7jltj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BBD153F6-677F-4B1A-9199-3E37F785BE46.jpeg
+(533.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130437vntsm3n0tkz613wr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A2ACAD20-5DD1-4BF6-B63D-0315D5167B80.jpeg
+(519.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130437mkr4r2m21rqz9zg3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+701EEEC9-1B19-4960-82F1-19B3A7C62A10.jpeg
+(557.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130437zglxdrrgcs7cfssl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6DEC07C6-7163-4758-8F5E-3FD92117C184.jpeg
+(526.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438zvkb7pdtvxtz99di.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+77943430-CF87-4DB8-BDBF-3931123F0242.jpeg
+(533.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438j77cyvdtnyol7h7v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CD1CD309-EAEE-4AB5-B317-F1EA75E4664D.jpeg
+(550.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438hn60rv0kgdk1wv61.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10521EF5-811B-4936-867C-228AF0BFBA3C.jpeg
+(558.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438bdd6d5om96dd6v55.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5CD28A13-FB39-4AC0-B29A-C118DC6FCEAF.jpeg
+(589.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130439igun5fz5giqi5zmv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 57636#       发表于 2022-3-31 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257969&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-31 13:04</a>
+真的就是彻底《猫和老鼠》化</blockquote>
+是这样光看的话挺有意思的
+有人猜尾田是不是早想这么画了
+但是没解说我是越看越懵了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  topnice  
+##### 57637#       发表于 2022-3-31 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249149&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 19:41</a>
+
+路飞这个开心我倒没觉得有什么
+
+很明显是果实影响
+
+而且凯多蹂躏了那么久和之国</blockquote>
+周围人也眼球乱飞这个，我看了下情报图，罗好像嘴巴是严肃的样子，但是也眼球飞出来了。说不好是不是因为受到路飞这个果实的影响。我猜尼卡果实除了原本橡胶的能力以外，就是像振奋果实和幽灵果实可以改变人的心态，所谓带来欢笑的joyboy就是吃了这个果实的效果。
+
+*****
+
+####  赤魔法师  
+##### 57638#       发表于 2022-3-31 13:18
+
+陀螺那一招还是挺有意思的
+
+
+
+*****
+
+####  陶矢  
+##### 57639#       发表于 2022-3-31 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258031&amp;ptid=98922" target="_blank">topnice 发表于 2022-3-31 13:10</a>
+
+周围人也眼球乱飞这个，我看了下情报图，罗好像嘴巴是严肃的样子，但是也眼球飞出来了。说不好是不是因为 ...</blockquote>
+那不就是自然界版的smile吗，凯多让人合不住嘴，五皇让人闭不住眼<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天网  
+##### 57640#       发表于 2022-3-31 13:24
+
+ 本帖最后由 天网 于 2022-3-31 13:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257887&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-31 12:58</a>
+
+几个船员不就是，而且画到现在，尾田喜欢搞一大堆配角的偏好是变本加厉的，不弄其他配角，接下来只搞主角 ...</blockquote>
+这个苗条早有了。从泡泡岛拍飞后，wt就把王路飞可以单人重新创业，随时随地从空气中拉出一伙人组团的写法玩得上瘾了。草帽船员反而包袱重，反而天降奇兵的临时团队可以随时添加各种新设定新情景，让wt发挥起来更过瘾。女儿岛-大监狱-顶上的那段，要不是营救失败外被蓝胖破颜拳终于想起来还有伙伴了，我看直接让路飞带七武海与革命军团去刷剩下的新世界我看尾田都画得下去
+
+*****
+
+####  烈士鲮鱼  
+##### 57641#       发表于 2022-3-31 13:26
+
+确实很胡来，给我看傻了（褒义
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  zxzx7753  
+##### 57642#       发表于 2022-3-31 13:27
+
+看完图透后感官还行
+
+凯多20年前经历了胜之不武耿耿于怀到现在   然后难得遇上命中注定的对手却再次经历   心情可想而知   遇到这种搞笑风格能力的对手获得彻底的失败之后反而可能可以放下了
+
+新能力挺适合出现在和之国这个烂篇章的   wt也借角色之口说和之国的人物太一根筋难以变通 严肃甚至不惜命的程度   用这种搞笑能力带来改变和之国其实也挺必要的   和之后的开国应该密切相关
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  pk_man  
+##### 57643#       发表于 2022-3-31 13:29
+
+怎么还能在天上飞的啊，别和我说cp那一堆招式都是和橡胶人学来的，只要有心人人都能成为橡胶人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxzx7753  
+##### 57644#       发表于 2022-3-31 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258229&amp;ptid=98922" target="_blank">天网 发表于 2022-3-31 13:24</a>
+这个苗条早有了。从泡泡岛拍飞后，wt就把王路飞可以单人重新创业，随时随地从空气中拉出一伙人组团的写法 ...</blockquote>
+路飞算是混沌派的人吧  伙伴在他心里地位应该是一样的  没有特别重要或者不重要的存在  伙伴就是伙伴  
+区别顶多像索隆能打那他可以自保或者一起帮助保护其他伙伴   不能打的像奈美 自己就有义务去保护这类伙伴
+微微那种离开的道别完就没怎么提起了   但如果遇到困难向路飞求救他就一定会优先回去帮助伙伴
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  wooeason  
+##### 57645#       发表于 2022-3-31 13:31
+
+ 本帖最后由 wooeason 于 2022-3-31 13:36 编辑 
+
+好奇一件事，以后尾田还好不好意思让路飞出招＋橡胶橡胶前缀了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+顺便路飞现在凭什么用橡胶化，这是人家橡胶果实觉醒的能力，你动物系搁那橡胶锤子呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  klzxs  
+##### 57646#       发表于 2022-3-31 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">凯老师厉害啊
+
+这话其实还是占优的
+
+*****
+
+####  Supermangunv3  
+##### 57647#       发表于 2022-3-31 13:37
+
+尾田为了画这一话憋了多久啊，整活整的好！！！
+
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57648#       发表于 2022-3-31 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258163&amp;ptid=98922" target="_blank">陶矢 发表于 2022-3-31 13:20</a>
+
+那不就是自然界版的smile吗，凯多让人合不住嘴，五皇让人闭不住眼</blockquote>
+答案是场地魔法版微笑世界
+
+*****
+
+####  蔺无双  
+##### 57649#       发表于 2022-3-31 13:47
+
+其实看完感觉还可以，感觉可以理解为一切都橡胶或者卡通化了，包括被攻击的敌人以及围观的群众在内
+
+和之国这苦大仇深的到这里才算真的可以轻松一点了吧
+
+*****
+
+####  严厉的月亮  
+##### 57650#       发表于 2022-3-31 13:54
+
+已经从物理打击进化到精神攻击了
+
+逆风苦大仇深，顺风微笑世界，单说这几话确实非常有arcv那味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  topnice  
+##### 57651#       发表于 2022-3-31 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258322&amp;ptid=98922" target="_blank">wooeason 发表于 2022-3-31 13:31</a>
+
+好奇一件事，以后尾田还好不好意思让路飞出招＋橡胶橡胶前缀了
+
+顺便路飞现在凭什么用橡胶化，这是 ...</blockquote>
+这次变大好像就是gomu gomu no giant?
+
+*****
+
+####  wingzerocos  
+##### 57652#       发表于 2022-3-31 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258322&amp;ptid=98922" target="_blank">wooeason 发表于 2022-3-31 13:31</a>
+好奇一件事，以后尾田还好不好意思让路飞出招＋橡胶橡胶前缀了
+
+顺便路飞现在凭什么用橡胶化，这是 ...</blockquote>
+这话都喊了5次橡胶橡胶了。
+
+*****
+
+####  Yeaha123  
+##### 57653#       发表于 2022-3-31 14:00
+
+看完生肉，虽然可能是新鲜感的原因，这战斗是真有意思
+
+*****
+
+####  topnice  
+##### 57654#       发表于 2022-3-31 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258163&amp;ptid=98922" target="_blank">陶矢 发表于 2022-3-31 13:20</a>
+
+那不就是自然界版的smile吗，凯多让人合不住嘴，五皇让人闭不住眼</blockquote>
+hahaha，我猜除了让眼睛飞出来，应该还有让对手或者周围人都变类似橡胶的特性，你看中间有一幅画是路飞拳头打透凯多的脑袋，下一个画面回来又没有被打透（打穿这么血腥的镜头也不应该是少年热血漫中出现的），那么就是凯多的脑袋也有橡胶一样可以延申的特性才能吃路飞这么一拳。（中间吧凯多变气球，感觉也有展示这个能力的倾向，但是也说不好是不是尾田的搞笑画法还是真的果实特性，我不是很确定）
+
+
+
+*****
+
+####  wingzerocos  
+##### 57655#       发表于 2022-3-31 14:01
+
+解放之鼓=特殊心跳=5档
+但是看不懂发动条件和副作用。
+
+*****
+
+####  Supermangunv3  
+##### 57656#       发表于 2022-3-31 14:06
+
+这不比王八拳互殴有意思多啦！！
+
+*****
+
+####  Supermangunv3  
+##### 57657#       发表于 2022-3-31 14:06
+
+ 本帖最后由 Supermangunv3 于 2022-3-31 14:12 编辑 
+
+风怒
+
+*****
+
+####  Supermangunv3  
+##### 57658#       发表于 2022-3-31 14:06
+
+ 本帖最后由 Supermangunv3 于 2022-3-31 14:12 编辑 
+
+风怒
+
+*****
+
+####  Supermangunv3  
+##### 57659#       发表于 2022-3-31 14:06
+
+ 本帖最后由 Supermangunv3 于 2022-3-31 14:12 编辑 
+
+风怒
+
+*****
+
+####  Supermangunv3  
+##### 57660#       发表于 2022-3-31 14:07
+
+ 本帖最后由 Supermangunv3 于 2022-3-31 14:12 编辑 
+
+风怒
+
+
+
+*****
+
+####  Yeaha123  
+##### 57661#       发表于 2022-3-31 14:11
+
+变老那段没什么必要吧，只会让人喷仰卧起坐
+
+*****
+
+####  タマネギ  
+##### 57662#       发表于 2022-3-31 14:11
+
+很久沒看0p了，突然各论坛一片骂声。捡来了下最新话，竟然觉得还可以。
+
+*****
+
+####  SteinLee  
+##### 57663#       发表于 2022-3-31 14:15
+
+估计是要走用决斗给大家带来快乐的设定了，魔法陷阱卡，toon world
+
+*****
+
+####  klzxs  
+##### 57664#       发表于 2022-3-31 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前图透不也挺完整的
+
+怎么这就都香起来了
+
+*****
+
+####  逸yi  
+##### 57665#       发表于 2022-3-31 14:23
+
+翻页
+
+*****
+
+####  ⊙天上天下  
+##### 57666#       发表于 2022-3-31 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254846&amp;ptid=98922" target="_blank">猎户座 发表于 2022-3-31 09:10</a>
+
+说到点子上了，尾田有那么多坑，那么多有魅力的人物，篇幅拉得这么长，却尽搞些无关紧要得剧情和战斗和人 ...</blockquote>
+两年后最大的矛盾就是作者想画的和读者想看的更本就两码事。
+
+*****
+
+####  逸yi  
+##### 57667#       发表于 2022-3-31 14:30
+
+草 卡了这么多
+
+*****
+
+####  jxzeroga0  
+##### 57668#       发表于 2022-3-31 14:31
+
+至少总算不是黑又粗的招式了，换风格也好。
+
+中间凯老师真的打累了笑死，对面血条根本深不见底还能缓回的。
+
+*****
+
+####  ⊙天上天下  
+##### 57669#       发表于 2022-3-31 14:33
+
+其实这个五档搞笑的成分比较多，并没有看出来有多厉害，凯多和路飞打了一话也没看凯多被造成了多少伤害，和当初四档吊打明哥完全不一样的感觉。
+
+*****
+
+####  wingzerocos  
+##### 57670#       发表于 2022-3-31 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258742&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-3-31 14:11</a>
+变老那段没什么必要吧，只会让人喷仰卧起坐</blockquote>
+那段我觉得只是说路飞的5档不稳定，解除后是变回之前无力再战的状态。
+
+
+
+*****
+
+####  kirbykelin  
+##### 57671#       发表于 2022-3-31 14:46
+
+第四种霸气：《搞笑色》已经呼之欲出了
+
+凯老师恐怕就是这种新霸气的第一个受害者，赶紧仰卧起坐啊凯老师<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blueflames001  
+##### 57672#       发表于 2022-3-31 14:56
+
+原来御田卖傻跳舞是为了让自己变成搞笑角色，只有搞笑角色才能战胜凯多，然而，留给御田的时间不多，最终没能通过铁锅炖自己完成最后的蜕变，惜败了
+
+
+
+*****
+
+####  超紳士  
+##### 57673#       发表于 2022-3-31 15:03
+
+ 本帖最后由 超紳士 于 2022-3-31 15:05 编辑 
+
+红发太惨了，如果路飞吃完就觉醒，手就能再扯一条出来了。
+
+艾斯太惨了，如果路飞顶上就觉醒，打穿也不是事。
+
+白胡子太惨了（同理
+
+阿拉巴斯坦鸟人炸了也没死，应该也是幻兽种。
+
+*****
+
+####  赤魔法师  
+##### 57674#       发表于 2022-3-31 15:07
+
+那个橡胶气球被吞进肚子里可以从眼睛里出来
+
+然后后面拳穿脑袋感觉都是把敌人和自己一体化了才能做到的
+
+只是这样感觉并不能造成什么伤害不知道怎么圆
+
+搞笑色真的太好笑太贴切了 
+
+凯多不会幡然醒悟原来你才是真joyboy 最后被感化了吧
+
+明哥当时真的太拖了 两年前就打过的七武海级敌人硬拖两三年
+
+出了四档以为稳了结果还打了两个月中间还仰卧起坐一次
+
+五档对凯多也没感觉到有什么压制性伤害
+
+不知道凯多还要坚持多久
+
+*****
+
+####  SadNess  
+##### 57675#       发表于 2022-3-31 15:08
+
+这话说了两次，路飞的身体变成了白色，5档的外表是白色，看来是自在极意功了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤魔法师  
+##### 57676#       发表于 2022-3-31 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259269&amp;ptid=98922" target="_blank">blueflames001 发表于 2022-3-31 14:56</a>
+
+原来御田卖傻跳舞是为了让自己变成搞笑角色，只有搞笑角色才能战胜凯多，然而，留给御田的时间不多，最终没 ...</blockquote>
+凯多自杀不会也是为了完成这种只有在和之国才能发生的蜕变吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刹那の劍  
+##### 57677#       发表于 2022-3-31 15:15
+
+新一话的打斗一改四挡的灰暗啊，我觉得这样打斗比四挡好看多了，四挡是什么鬼啊……又丑
+
+但是五档的造型绝对是因为尾田偶像鸟叔吧，太像超级赛亚人了
+

@@ -13627,3 +13627,196 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 最后那三条线制作组是不是压根就不希望玩家选粉毛和王子，一个短视愚蠢一个莫名其妙当了带路党，只有参谋的提议还算个正常人
 
+
+
+*****
+
+####  hellightning  
+##### 1209#       发表于 2022-3-30 20:04
+
+教皇的立绘也太渗人了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  allenz3  
+##### 1210#       发表于 2022-3-30 23:37
+
+自己玩的时候不觉得，看别人直播（不跳语音）剧情部分真是太长了，非常debuff……
+
+
+
+*****
+
+####  Vladimeow  
+##### 1211#       发表于 2022-3-30 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252264&amp;ptid=2051152" target="_blank">allenz3 发表于 2022-3-30 23:37</a>
+自己玩的时候不觉得，看别人直播（不跳语音）剧情部分真是太长了，非常debuff…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜最绝望的是什么，就是你的异闻那边突然一下刷出10条角色剧情，我真想把制作组打一顿。
+
+
+
+*****
+
+####  听风不是雨  
+##### 1212#       发表于 2022-3-31 00:26
+
+<blockquote>Vladimeow 发表于 2022-3-30 23:57
+你猜最绝望的是什么，就是你的异闻那边突然一下刷出10条角色剧情，我真想把制作组打一顿。 ...</blockquote>
+而且一周目只打主线的话都见不到几个npc小剧场，到了二周目打完某一关就突然蹦出来一堆
+
+
+
+*****
+
+####  evagle  
+##### 1213#       发表于 2022-3-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252954&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-31 00:26</a>
+而且一周目只打主线的话都见不到几个npc小剧场，到了二周目打完某一关就突然蹦出来一堆 ...</blockquote>
+应该也是打完某一关解锁轶闻的，跟打完第六关还是第五关解锁入队一样。
+不过这二周目也是缩水得厉害，探索不给新东西也就算了，打完战役给一个小血瓶两根木头是几个意思？
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  Vladimeow  
+##### 1214#       发表于 2022-3-31 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王子结局完事了，可把我恶心坏了，所谓的大义也不过是伪善而已，大人这边请喔。
+
+
+
+*****
+
+####  听风不是雨  
+##### 1215#       发表于 2022-3-31 10:31
+
+<blockquote>Vladimeow 发表于 2022-3-31 10:08
+王子结局完事了，可把我恶心坏了，所谓的大义也不过是伪善而已，大人这边请喔。 ...</blockquote>
+罗兰就是经历了王城那堆破事之后和伊德一样觉得这帮刁民都是啥b，我没本事给你们开民智，直接请教国入关来愚民统治拉倒。三个ne都有旁白定性，功利线道德沦丧大批穷人没饭吃迟早要反，道德线宗教暴政屁民一辈子都是牛马，自由线烂摊子一丢直接跑路哪管身后洪水滔天，编剧特意把主角炸死了就是不想让你跑路了还能老婆孩子热炕头
+
+
+
+*****
+
+####  Vladimeow  
+##### 1216#       发表于 2022-3-31 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255898&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-31 10:31</a>
+罗兰就是经历了王城那堆破事之后和伊德一样觉得这帮刁民都是啥b，我没本事给你们开民智，直接请教国入关 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是服了这编剧了，强行喂屎。真结局都说都合，不过我要下周目才知道了。
+
+*****
+
+####  cy1988813  
+##### 1217#       发表于 2022-3-31 11:39
+
+困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？
+
+
+
+*****
+
+####  evagle  
+##### 1218#       发表于 2022-3-31 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256859&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 11:39</a>
+困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？</blockquote>
+<img src="https://p.sda1.dev/5/b31c9b3ffc56b4007d2692038a1d428e/IMG_CMP_113382390.jpeg" referrerpolicy="no-referrer">
+
+和堵门人物接触的小怪不要杀，远程上房子
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cy1988813  
+##### 1219#       发表于 2022-3-31 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256954&amp;ptid=2051152" target="_blank">evagle 发表于 2022-3-31 11:46</a>
+
+和堵门人物接触的小怪不要杀，远程上房子
+
+—— 来自 vivo V2118A, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我咋没你图上这个人？
+
+*****
+
+####  Vladimeow  
+##### 1220#       发表于 2022-3-31 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256859&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 11:39</a>
+困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">困难难度想不放火还是得梯子哥吧，普通难度还能正常打打
+
+*****
+
+####  cy1988813  
+##### 1221#       发表于 2022-3-31 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257098&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-3-31 11:56</a>
+
+困难难度想不放火还是得梯子哥吧，普通难度还能正常打打</blockquote>
+放火了对以后的剧情有没有影响啊，我把所有敌人都引到最上面的平台来，然后让一直隐身的刺客把机关打了，所有人都烧死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，不过我就放了这一个地方的火，另外感觉少了好多经验
+
+
+
+*****
+
+####  Vladimeow  
+##### 1222#       发表于 2022-3-31 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257146&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 12:00</a>
+放火了对以后的剧情有没有影响啊，我把所有敌人都引到最上面的平台来，然后让一直隐身的刺客把机关打了， ...</blockquote>
+有的，点了之后就不能真结局了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  治丧委  
+##### 1223#       发表于 2022-3-31 14:13
+
+天平系统比我预想得要无聊很多额，老是那么几个人参与选举。本来以为会影响角色的加入，这游戏的角色可以理解为都是送的吗，好像没有通过天平来判断让不让这个人加入的？
+
+*****
+
+####  Petilil  
+##### 1224#       发表于 2022-3-31 14:17
+
+<blockquote>治丧委 发表于 2022-3-31 14:13
+天平系统比我预想得要无聊很多额，老是那么几个人参与选举。本来以为会影响角色的加入，这游戏的角色可以理 ...</blockquote>
+3章和15章靠天平选路线，路线不同收的人不同
+
+
+
+*****
+
+####  kirainsky  
+##### 1225#       发表于 2022-3-31 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255898&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-31 10:31</a>
+罗兰就是经历了王城那堆破事之后和伊德一样觉得这帮刁民都是啥b，我没本事给你们开民智，直接请教国入关 ...</blockquote>
+女主线主角竟然挂了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得罗兰倒不是有意愚民，只是正义感太强自己有又没能力圆滑处理政务导致只能靠宗教。霸道线最后看着是要王子复仇记的样子。
+
+但是您正义感这么强救济贫民怎么就不想想救济下红毛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vladimeow  
+##### 1226#       发表于 2022-3-31 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259371&amp;ptid=2051152" target="_blank">kirainsky 发表于 2022-3-31 15:07</a>
+女主线主角竟然挂了吗我觉得罗兰倒不是有意愚民，只是正义感太强自己有又没能力圆滑处理政务导致 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到最后也不过伪善而已，还成了带路党，人设可以说跌到谷底了。中途那些头硬言论和举动就不说了，也难怪王宫贵族都不看好他，能力太差。
+
