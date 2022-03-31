@@ -15939,3 +15939,17 @@ yugo这唱了几首英文歌……是不是白天说的搞定版权的原因？
 
 2022-4-1 01:30 上传
 
+
+
+*****
+
+####  佛剑分说  
+##### 11936#       发表于 2022-4-1 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55261534&amp;ptid=1972669" target="_blank">free 发表于 2022-3-31 17:43</a>
+
+https://twitter.com/kasuga_nozomi/status/1509458782484832256</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我永远爱阿望，祝福她
+
