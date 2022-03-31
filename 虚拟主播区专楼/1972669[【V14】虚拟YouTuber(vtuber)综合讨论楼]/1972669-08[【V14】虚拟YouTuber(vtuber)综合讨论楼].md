@@ -15501,3 +15501,12 @@ kr那边原因更复杂，拉胯负责人/80/没资源/管理混乱这些不跑�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为业内人口第一大社，虹这横向对比带来的压力肯定是独一档的
 光一个平成统合后的成员数量就可以算一个小箱了
 
+
+
+*****
+
+####  poipanchao  
+##### 11901#       发表于 2022-3-31 13:08
+
+小箱？
+

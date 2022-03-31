@@ -7603,3 +7603,190 @@ king这个不是射头出去吧…更像是剑气这种冲击波…
 
 最强单挑王凯多也被这么轻松压制解决，接下来也只有黑胡子的能力能克制路飞了吧
 
+
+
+*****
+
+####  仟音一心  
+##### 57635#       发表于 2022-3-31 13:04
+
+真的就是彻底《猫和老鼠》化
+
+23B5E7C5-22C5-4DB3-A907-931DF6F94E22.jpeg
+(422.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435g6zx50lrqwwx6be0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D4CD8386-3618-41B4-BAD8-AC34F3A1D352.jpeg
+(548.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435x55kfh99rzdj975l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4740DB0E-8DBA-41F1-812B-DB3E207B9026.jpeg
+(545.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435nss9v3f9zkdrq1qy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D9090387-7367-4FB2-AD3A-AC74C270F2B1.jpeg
+(496.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130435nbjbpdn7djidnj45.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+ECC0938A-BE98-4525-99DF-94D7DEF07ABE.jpeg
+(560.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436qvo0lchpfwiwci09.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0B8BF7B2-ECFD-4E0C-9E2C-FCEF3DE112C5.jpeg
+(366.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436x077swx54ev5z34e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+06D38E79-8C8E-46E5-B07F-BA141E0B4679.jpeg
+(553.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436qyc267wr5p5665ke.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0DF3C034-0B30-4C55-A27B-EE1CEC430EDD.jpeg
+(587.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130436py4u8clpbpv7jltj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BBD153F6-677F-4B1A-9199-3E37F785BE46.jpeg
+(533.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130437vntsm3n0tkz613wr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A2ACAD20-5DD1-4BF6-B63D-0315D5167B80.jpeg
+(519.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130437mkr4r2m21rqz9zg3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+701EEEC9-1B19-4960-82F1-19B3A7C62A10.jpeg
+(557.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130437zglxdrrgcs7cfssl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6DEC07C6-7163-4758-8F5E-3FD92117C184.jpeg
+(526.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438zvkb7pdtvxtz99di.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+77943430-CF87-4DB8-BDBF-3931123F0242.jpeg
+(533.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438j77cyvdtnyol7h7v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CD1CD309-EAEE-4AB5-B317-F1EA75E4664D.jpeg
+(550.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438hn60rv0kgdk1wv61.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10521EF5-811B-4936-867C-228AF0BFBA3C.jpeg
+(558.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130438bdd6d5om96dd6v55.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5CD28A13-FB39-4AC0-B29A-C118DC6FCEAF.jpeg
+(589.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 13:04 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/130439igun5fz5giqi5zmv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 57636#       发表于 2022-3-31 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257969&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-3-31 13:04</a>
+真的就是彻底《猫和老鼠》化</blockquote>
+是这样光看的话挺有意思的
+有人猜尾田是不是早想这么画了
+但是没解说我是越看越懵了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  topnice  
+##### 57637#       发表于 2022-3-31 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55249149&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-30 19:41</a>
+
+路飞这个开心我倒没觉得有什么
+
+很明显是果实影响
+
+而且凯多蹂躏了那么久和之国</blockquote>
+周围人也眼球乱飞这个，我看了下情报图，罗好像嘴巴是严肃的样子，但是也眼球飞出来了。说不好是不是因为受到路飞这个果实的影响。我猜尼卡果实除了原本橡胶的能力以外，就是像振奋果实和幽灵果实可以改变人的心态，所谓带来欢笑的joyboy就是吃了这个果实的效果。
+
+*****
+
+####  赤魔法师  
+##### 57638#       发表于 2022-3-31 13:18
+
+陀螺那一招还是挺有意思的
+

@@ -5719,3 +5719,12 @@ fgo就是这么空虚的游戏</blockquote>
 爱歌就不能是第五兽吗</blockquote>
 我只是感慨一下Beast的细化设定应该只做了盖提亚和提妈的，别的都稀烂……
 
+
+
+*****
+
+####  xiongxingyu  
+##### 87502#       发表于 2022-3-31 13:19
+
+大卫磨了40多回合终于把苏尔特磨死了，不愧是冠位他爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
