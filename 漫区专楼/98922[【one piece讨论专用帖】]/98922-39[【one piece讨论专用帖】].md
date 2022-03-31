@@ -7330,3 +7330,15 @@ king这个不是射头出去吧…更像是剑气这种冲击波…
 
 假如一开场的时候凯多就出手把草帽团里的几个成员直接打得彻底失去战斗力，或者打飞到了别的岛上，读者可能会更有危机感些，情感上也会更支持五皇。但现状就是草帽团成员完全没减员，几乎一路唱着歌蹦着迪就把凯多放倒了，怎么能让读者有同仇敌忾的心情啊。
 
+
+
+*****
+
+####  天使的日曜日  
+##### 57611#       发表于 2022-3-31 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252851&amp;ptid=98922" target="_blank">TBM107 发表于 2022-3-31 00:18</a>
+
+求头像出处</blockquote>
+补张大图<img src="https://b2.kuibu.net/file/imgdisk/imgs/2022/03/b63f80c1a05182d6.png" referrerpolicy="no-referrer">
+
