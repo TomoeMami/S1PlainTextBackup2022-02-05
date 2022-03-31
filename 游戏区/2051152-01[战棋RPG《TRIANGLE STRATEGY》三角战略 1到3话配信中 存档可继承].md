@@ -13852,3 +13852,14 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 其实男主线是三条ne里普通非红毛老百姓生活最幸福的一条线，某种意义上确实是很切合功利这个主题了
 
+
+
+*****
+
+####  loley  
+##### 1230#       发表于 2022-3-31 20:10
+
+笑抽了，困难难度第七关奥萝拉一刀一个小朋友，把我全队杀了，然后只剩鹰弓手蹲屋顶，把对面全军给杀了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不追求无死人的话，清掉一些弓手和法师就可以脚打了还行。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

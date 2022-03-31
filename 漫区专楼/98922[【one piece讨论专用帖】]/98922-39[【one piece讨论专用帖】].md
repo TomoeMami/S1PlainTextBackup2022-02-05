@@ -8305,3 +8305,12 @@ YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成�
 
 其实之前山治和索隆对奎恩烬的时候，无厘头的招式不都挺多的，像什么恐龙炮塔、貂皇自尊之类的。这次是憋太久，终于有合适的设定画了个爽了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gofbayrf  
+##### 57690#       发表于 2022-3-31 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就這 有必要換種嗎...  橡膠果實做不到？
+
