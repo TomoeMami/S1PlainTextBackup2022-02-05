@@ -15870,3 +15870,15 @@ yugo这唱了几首英文歌……是不是白天说的搞定版权的原因？
 
 今年黛灰只发了一条普通的黛改推，搞得推上都在喊今年是平和的愚人节太好了………去年大家真的留下好深的心理阴影了啊
 
+
+
+*****
+
+####  OldGlory  
+##### 11932#       发表于 2022-4-1 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674823&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-2-14 01:16</a>
+
+副站长：彩虹两个月后上市，木口年底上市</blockquote>
+👆有什么问题请去找副站长。
+
