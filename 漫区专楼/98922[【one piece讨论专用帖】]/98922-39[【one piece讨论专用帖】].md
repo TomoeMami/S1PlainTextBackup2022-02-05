@@ -8404,3 +8404,26 @@ YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你说战斗中带点耍宝，以前是有乃至现在其实都有穿插，但现在这种状态迥异和搞怪的BOSS战说是以前的基调那就是岁月史书了啊。
 
+
+
+*****
+
+####  ef6270  
+##### 57700#       发表于 2022-3-31 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55260033&amp;ptid=98922" target="_blank">cckuku 发表于 2022-3-31 15:52</a>
+
+我已经在考虑他这个一秒衰老是真的消耗寿命，还是只是wt的一种表现路飞很疲惫的手法了。 ...</blockquote>
+我是直接想到了汤姆，它偶尔也会有这种突然苍老的表现，根本就是搞笑化了。
+
+*****
+
+####  klzxs  
+##### 57701#       发表于 2022-3-31 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么讲呢  我觉得现在虽然是以胡闹的方式在战斗
+
+但并不是真的在胡闹
+
+至少我觉得现在比前几次仰卧起坐的时候更加认真
+
