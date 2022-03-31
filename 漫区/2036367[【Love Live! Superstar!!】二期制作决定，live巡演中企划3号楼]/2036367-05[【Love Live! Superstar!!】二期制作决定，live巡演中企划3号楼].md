@@ -9191,3 +9191,17 @@ W6T20F6.jpg
 
 nagi一下从新人动画声优跑去闹钟TV当常规也飞太快<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6678#       发表于 2022-3-31 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259145&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-3-31 14:45</a>
+
+玩游戏GET食材，野营烧烤，篝火读信泪湿，好标准的偶像特典
+
+可以敲碗等绊强化合宿了吗</blockquote>
+其实同时宣布的好像还有个人叫 西原華音 ，是HoriPro International昨天宣布的所属艺人
+

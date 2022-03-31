@@ -5772,3 +5772,17 @@ fgo就是这么空虚的游戏</blockquote>
 
 据说B6这个兽耳造型可能暗指罗马建国传说中扶养神祖兄弟的母狼...看来wada无论是画兔子还是狼都是一副狐狸样...
 
+
+
+*****
+
+####  UNISONIA  
+##### 87506#       发表于 2022-3-31 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259495&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-3-31 15:15</a>
+
+据说B6这个兽耳造型可能暗指罗马建国传说中扶养神祖兄弟的母狼...看来wada无论是画兔子还是狼都是一副狐 ...</blockquote>
+其实上次用了draco这个狼首龙身旗概念的时候已经想到了会往狼靠了……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是wada的怪物设计水平差山中虎铁也太多了，甚至不如redrop
+
