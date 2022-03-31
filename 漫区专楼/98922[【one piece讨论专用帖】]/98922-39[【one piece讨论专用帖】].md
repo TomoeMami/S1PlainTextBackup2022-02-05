@@ -7463,3 +7463,66 @@ king这个不是射头出去吧…更像是剑气这种冲击波…
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 57621#       发表于 2022-3-31 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252858&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-31 00:18</a>
+
+相对于四档来说，其实造型或者说身材正常了，比起外表，其实变身后情绪豹变比较怪，估计是为了凸JOYBOY这 ...</blockquote>
+哇，搞时间闭环极易引发宿命论设定然后和自由主题强烈排异，巨人虽然玩砸了但在黑暗虚无的风格中还能当作反讽，海贼一旦在这方面没玩好后果想都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  和真克瓦尔  
+##### 57622#       发表于 2022-3-31 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256576&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 11:18</a>
+
+阿波罗什么时候是太阳神了…别人不是光明之神吗？</blockquote>
+阿波罗当然是太阳神了，早期掌管比较偏抽象概念的理性与艺术（拿着赫尔墨斯送的琴），后来挤占了太阳神的神位，导致他孪生姐姐阿尔忒弥斯本来是狩猎和野兽之神，为了和他对称也挤了原来的月神。
+
+*****
+
+####  Supermangunv3  
+##### 57623#       发表于 2022-3-31 11:49
+
+<blockquote>和真克瓦尔 发表于 2022-3-31 11:44
+哇，搞时间闭环极易引发宿命论设定然后和自由主题强烈排异，巨人虽然玩砸了但在黑暗虚无的风格中还能当作 ...</blockquote>
+起码比没活整的作品强，这么以来本来想弃坑的都想以刃牙的态度看了，化身究极乐子人！
+
+*****
+
+####  黑岩泪香  
+##### 57624#       发表于 2022-3-31 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256982&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-3-31 11:48</a>
+阿波罗当然是太阳神了，早期掌管比较偏抽象概念的理性与艺术（拿着赫尔墨斯送的琴），后来挤占了太阳神的 ...</blockquote>
+阿波罗后来挤占赫利俄斯位置不是神话传播中出了偏差？
+一开始他就是掌管光明，然后传着传着因为古人又没灯泡，光明和太阳挂钩就…
+
+*****
+
+####  和真克瓦尔  
+##### 57625#       发表于 2022-3-31 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256992&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-3-31 11:49</a>
+
+起码比没活整的作品强，这么以来本来想弃坑的都想以刃牙的态度看了，化身究极乐子人！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刃牙吧吧友化属实是一条生路
+
+*****
+
+####  和真克瓦尔  
+##### 57626#       发表于 2022-3-31 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257013&amp;ptid=98922" target="_blank">黑岩泪香 发表于 2022-3-31 11:50</a>
+
+阿波罗后来挤占赫利俄斯位置不是神话传播中出了偏差？
+
+一开始他就是掌管光明，然后传着传着因为古人又没 ...</blockquote>
+有可能啊，神不光会因为职能类似互相串二设/合体，因为实际内容八杆子打不着的谐音合体都经常发生。
+

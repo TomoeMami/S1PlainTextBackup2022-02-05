@@ -13721,3 +13721,49 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？
 
+
+
+*****
+
+####  evagle  
+##### 1218#       发表于 2022-3-31 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256859&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 11:39</a>
+困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？</blockquote>
+<img src="https://p.sda1.dev/5/b31c9b3ffc56b4007d2692038a1d428e/IMG_CMP_113382390.jpeg" referrerpolicy="no-referrer">
+
+和堵门人物接触的小怪不要杀，远程上房子
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cy1988813  
+##### 1219#       发表于 2022-3-31 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256954&amp;ptid=2051152" target="_blank">evagle 发表于 2022-3-31 11:46</a>
+
+和堵门人物接触的小怪不要杀，远程上房子
+
+—— 来自 vivo V2118A, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我咋没你图上这个人？
+
+*****
+
+####  Vladimeow  
+##### 1220#       发表于 2022-3-31 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256859&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 11:39</a>
+困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">困难难度想不放火还是得梯子哥吧，普通难度还能正常打打
+
+*****
+
+####  cy1988813  
+##### 1221#       发表于 2022-3-31 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257098&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-3-31 11:56</a>
+
+困难难度想不放火还是得梯子哥吧，普通难度还能正常打打</blockquote>
+放火了对以后的剧情有没有影响啊，我把所有敌人都引到最上面的平台来，然后让一直隐身的刺客把机关打了，所有人都烧死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，不过我就放了这一个地方的火，另外感觉少了好多经验
+
