@@ -7411,3 +7411,15 @@ king这个不是射头出去吧…更像是剑气这种冲击波…
 —— 来自 HUAWEI N ...</blockquote>
 赫利俄斯才驾太阳车，跟阿波罗没关系。所以说当太阳神不需要跟太阳有关系。更不用说身体是橡胶人就不能当太阳神了
 
+
+
+*****
+
+####  cdfjg  
+##### 57618#       发表于 2022-3-31 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255418&amp;ptid=98922" target="_blank">Bojenkins 发表于 2022-3-31 09:57</a>
+
+我只能说op没救尾田比谁都清楚，现在是拔了化疗管子打了固醇作最后的狂欢，总好过狗尾续狗尾一直续下去 ...</blockquote>
+那不是的，尾田特别自信，他没觉得烂了，自我感觉还挺良好。
+
