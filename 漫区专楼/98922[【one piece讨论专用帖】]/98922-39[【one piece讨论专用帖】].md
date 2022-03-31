@@ -7435,3 +7435,31 @@ king这个不是射头出去吧…更像是剑气这种冲击波…
 你也可以 ...</blockquote>
 阿波罗什么时候是太阳神了…别人不是光明之神吗？
 
+
+
+*****
+
+####  popchong  
+##### 57620#       发表于 2022-3-31 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255503&amp;ptid=98922" target="_blank">klzxs 发表于 2022-3-31 10:03</a>
+
+尼卡这个太阳肯定不是指那发光发热的天体啊
+
+黎明，自由，解放，欢乐
+
+是这种象征吧</blockquote>
+翻身的农奴献上洁白的哈达
+
+解放的牧民捧起鲜美的奶浆
+
+清香的山茶饱含着深情厚意
+
+彩色的壮锦绣出了心中的红太阳
+
+在您的领导下各族人民心花怒放
+
+在您的抚育下各族人民茁壮成长
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
