@@ -5834,3 +5834,18 @@ F5279E8A-EC6C-470B-BD2E-AB269CFCFF7E.png
 
 <img src="https://img.saraba1st.com/forum/202204/01/010216ptdcdd3zbbspf1lm.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 87510#       发表于 2022-4-1 01:28
+
+ 本帖最后由 保罗赫伯特 于 2022-4-1 01:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259495&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-3-31 15:15</a>
+
+据说B6这个兽耳造型可能暗指罗马建国传说中扶养神祖兄弟的母狼...看来wada无论是画兔子还是狼都是一副狐 ...</blockquote>
+看大图才发现，尼禄这个第六兽形态，胸罩下面连着的腰封，造型是在模仿哦派吧，三对副乳，可能也是狼的特征<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+说起来，狐狸的兽形态也有n对真奈子，大概是想用异变的第二性征来凸显出“兽”的特质吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

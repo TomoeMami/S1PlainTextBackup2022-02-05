@@ -15906,3 +15906,36 @@ yugo这唱了几首英文歌……是不是白天说的搞定版权的原因？
 
 咱gamers也有<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 11935#       发表于 2022-4-1 01:30
+
+这个 彗星のフロイライン，竟然不是动捕，是2D手绘的吗，这公主抱整挺好，明天等着看油管放出的正片了
+
+<img src="https://img.saraba1st.com/forum/202204/01/013047kzcaoc6xn5tc5x5a.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (46.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202204/01/013047lekqnnkkhovzehhk.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (115.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202204/01/013047vko1bw1izbo77kk7.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (248.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 01:30 上传
+

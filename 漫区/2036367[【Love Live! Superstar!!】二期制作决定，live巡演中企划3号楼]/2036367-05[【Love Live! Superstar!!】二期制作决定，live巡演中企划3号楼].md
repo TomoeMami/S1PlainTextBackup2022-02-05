@@ -9468,3 +9468,14 @@ pay酱推特头像<img src="https://static.saraba1st.com/image/smiley/face2017/0
 pay酱推特头像</blockquote>
 地雷系pay感觉还挺好看
 
+
+
+*****
+
+####  长日留痕  
+##### 6695#       发表于 2022-4-1 01:35
+
+地雷系（前）jk<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
