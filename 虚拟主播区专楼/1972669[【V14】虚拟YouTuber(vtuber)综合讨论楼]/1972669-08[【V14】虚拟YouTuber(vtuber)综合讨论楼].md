@@ -15805,3 +15805,22 @@ gaku为啥这么夸张的量…4年之力汇聚我身吗
 
 呜啊，手越和ib和虾要联动瓦啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11926#       发表于 2022-3-31 22:32
+
+<blockquote>언제 말을해야 좋을지 날짜를 선택하는 도중 확실히정하지 않고  시간을 오락가락했소 미안하오. 이런 편지는 꼭 손편지로 적고 싶었는데 계속 울음이 나와서 결국 컴퓨터로 적었소..아직 끝나지않았으니 즐거운 추억 잔뜩 만들어주시오. 남은 한달 즐거운 일만 가득채워서 가도록하겠소</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202203/31/222637okyk8jvkfwkf0uks.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>🌑한치호🦋: Han ChiHo【NIJISANJI-KR】 .jpeg</strong> (160.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 22:26 上传
+
+换皮也没救回来，541E&amp;C移籍的就剩下Gaon了吧
+
