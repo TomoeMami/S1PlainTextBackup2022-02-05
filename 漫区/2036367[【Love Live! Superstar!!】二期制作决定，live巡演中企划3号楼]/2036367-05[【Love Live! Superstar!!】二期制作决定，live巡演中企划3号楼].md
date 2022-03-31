@@ -9217,3 +9217,19 @@ nagi一下从新人动画声优跑去闹钟TV当常规也飞太快<img src="http
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cat1230  
+##### 6680#       发表于 2022-3-31 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259145&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-3-31 14:45</a>
+
+玩游戏GET食材，野营烧烤，篝火读信泪湿，好标准的偶像特典
+
+可以敲碗等绊强化合宿了吗</blockquote>
+青山这个事儿拉板还至少吵了2个串，挺热闹的。
+
+流程大致是：普通的祝贺——作为声优搞这些合适吗——23岁怎么能叫ガールズ——虹信引战我星有你虹无（艺能界比深夜番格调高）——为什么不是打铁上？打铁P上更合适吧
+
