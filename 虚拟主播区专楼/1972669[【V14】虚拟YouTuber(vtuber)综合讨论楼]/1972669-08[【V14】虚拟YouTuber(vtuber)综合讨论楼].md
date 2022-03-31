@@ -15750,3 +15750,17 @@ myst肯定不行吧，他都一周没播了（找房），btw这人也是个心�
 前五体感狐皇（彩虹-男-JP） ...</blockquote>
 狐皇是什么东西呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 伏见学的3d回呀2300万呀 holo的也有点忘了 不知道沙皇有没有超35 前面是nene和粉狼
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11921#       发表于 2022-3-31 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55261580&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-3-31 17:48</a>
+
+狐皇是什么东西呀 伏见学的3d回呀2300万呀 holo的也有点忘了 不知道沙皇有没有超35 前面是nene和 ...</blockquote>
+沙皇过1000w了啊，她歌回sc很高平时也不低；こより这个月生日会破1000w了；ねね月初有3dlive，她也接近1000w；vox不到2000w；然后就是狐皇（虹-男-jp版）3d的2300w
+
+35感觉还是差不少，数字估计和星街、虹en其它几个高sc男差不多
+

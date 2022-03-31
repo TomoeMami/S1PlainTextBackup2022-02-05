@@ -9205,3 +9205,15 @@ nagi一下从新人动画声优跑去闹钟TV当常规也飞太快<img src="http
 可以敲碗等绊强化合宿了吗</blockquote>
 其实同时宣布的好像还有个人叫 西原華音 ，是HoriPro International昨天宣布的所属艺人
 
+
+
+*****
+
+####  Enakina  
+##### 6679#       发表于 2022-3-31 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55260296&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-03-31 16:11:59</a>
+其实同时宣布的好像还有个人叫 西原華音 ，是HoriPro International昨天宣布的所属艺人 ...</blockquote>为啥不放到horipro呢，还是说这位以后也是和动画沾边的定位
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
