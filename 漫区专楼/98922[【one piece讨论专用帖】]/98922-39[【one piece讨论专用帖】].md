@@ -7243,3 +7243,31 @@ D101B5CA-C0E0-4DE1-A915-D6DAD1B1BE28.jpeg
 
 怎么卡二作为橡皮果实的上位的特性被你说没了呢
 
+
+
+*****
+
+####  cdfjg  
+##### 57603#       发表于 2022-3-31 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55254080&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2022-3-31 07:27</a>
+ 卡二亲口说的，橡皮果实能做到的他也能做到，蛇人这个模式卡二做不到，但凯多说，这怎么看都不是橡皮的特 ...</blockquote>
+还是年糕麻糬之类的东西啊
+
+*****
+
+####  暗杀翻看是  
+##### 57604#       发表于 2022-3-31 07:50
+
+这种战斗方式太烂了，关键是没有时髦值啊，反派没逼格，主角没逼格，把热血漫最重要都东西之一给丢了
+
+*****
+
+####  cdfjg  
+##### 57605#       发表于 2022-3-31 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55252964&amp;ptid=98922" target="_blank">半江瑟瑟半江红 发表于 2022-3-31 00:26</a>
+ 是是是，阿波罗的马车驮着，别抠字眼转移话题了，先说说太阳神和橡胶的关系吧  —— 来自 HUAWEI NOP-AN0 ...</blockquote>
+阿波罗跟太阳没关系，也能当太阳神，他是占了另一个希腊神的功能。当太阳神跟身体材质没关系。
+你也可以当小区里的太阳神啊
+
