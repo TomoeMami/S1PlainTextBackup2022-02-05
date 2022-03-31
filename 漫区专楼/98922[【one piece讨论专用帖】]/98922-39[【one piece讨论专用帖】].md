@@ -8285,3 +8285,14 @@ hahaha，我猜除了让眼睛飞出来，应该还有让对手或者周围人�
 
 YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成搞笑系吧，另外这话大和一直<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">了好几页是不是太重复了点
 
+
+
+*****
+
+####  wang752541922  
+##### 57688#       发表于 2022-3-31 19:28
+
+全员霸气后战斗基本就是硬碰硬，路飞的橡胶属性也是越来越没存在感<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打凯多强化了那么多次霸气屁用没有，结果还是回到橡胶果实能力上了，尾田真的有想好剧情走向吗
+
+不管怎么说，之前乱七八糟的打架画面就只能看个结果，这次至少会让人去好奇具体情况了
+
