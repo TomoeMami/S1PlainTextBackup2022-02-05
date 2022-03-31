@@ -13820,3 +13820,15 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 女主线主角竟然挂了吗我觉得罗兰倒不是有意愚民，只是正义感太强自己有又没能力圆滑处理政务导致 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到最后也不过伪善而已，还成了带路党，人设可以说跌到谷底了。中途那些头硬言论和举动就不说了，也难怪王宫贵族都不看好他，能力太差。
 
+
+
+*****
+
+####  月亮与五块钱  
+##### 1227#       发表于 2022-3-31 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55256859&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 11:39</a>
+
+困难模式第七话有可能在不放火的情况下干掉奥罗拉吗？</blockquote>
+前面拿命多换两个后排。鹰弓上房可以单刷剩下所有，都是活靶子。我失误了被女将军冲阵，就想着随便打打，结果这逼不会上房，鹰弓一个人射死十来个，好累。
+
