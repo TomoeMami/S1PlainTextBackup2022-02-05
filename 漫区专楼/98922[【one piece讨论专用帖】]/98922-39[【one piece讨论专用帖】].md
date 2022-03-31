@@ -7790,3 +7790,97 @@ CD1CD309-EAEE-4AB5-B317-F1EA75E4664D.jpeg
 
 陀螺那一招还是挺有意思的
 
+
+
+*****
+
+####  陶矢  
+##### 57639#       发表于 2022-3-31 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258031&amp;ptid=98922" target="_blank">topnice 发表于 2022-3-31 13:10</a>
+
+周围人也眼球乱飞这个，我看了下情报图，罗好像嘴巴是严肃的样子，但是也眼球飞出来了。说不好是不是因为 ...</blockquote>
+那不就是自然界版的smile吗，凯多让人合不住嘴，五皇让人闭不住眼<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天网  
+##### 57640#       发表于 2022-3-31 13:24
+
+ 本帖最后由 天网 于 2022-3-31 13:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257887&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-3-31 12:58</a>
+
+几个船员不就是，而且画到现在，尾田喜欢搞一大堆配角的偏好是变本加厉的，不弄其他配角，接下来只搞主角 ...</blockquote>
+这个苗条早有了。从泡泡岛拍飞后，wt就把王路飞可以单人重新创业，随时随地从空气中拉出一伙人组团的写法玩得上瘾了。草帽船员反而包袱重，反而天降奇兵的临时团队可以随时添加各种新设定新情景，让wt发挥起来更过瘾。女儿岛-大监狱-顶上的那段，要不是营救失败外被蓝胖破颜拳终于想起来还有伙伴了，我看直接让路飞带七武海与革命军团去刷剩下的新世界我看尾田都画得下去
+
+*****
+
+####  烈士鲮鱼  
+##### 57641#       发表于 2022-3-31 13:26
+
+确实很胡来，给我看傻了（褒义
+
+— from Google Pixel 6 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  zxzx7753  
+##### 57642#       发表于 2022-3-31 13:27
+
+看完图透后感官还行
+
+凯多20年前经历了胜之不武耿耿于怀到现在   然后难得遇上命中注定的对手却再次经历   心情可想而知   遇到这种搞笑风格能力的对手获得彻底的失败之后反而可能可以放下了
+
+新能力挺适合出现在和之国这个烂篇章的   wt也借角色之口说和之国的人物太一根筋难以变通 严肃甚至不惜命的程度   用这种搞笑能力带来改变和之国其实也挺必要的   和之后的开国应该密切相关
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  pk_man  
+##### 57643#       发表于 2022-3-31 13:29
+
+怎么还能在天上飞的啊，别和我说cp那一堆招式都是和橡胶人学来的，只要有心人人都能成为橡胶人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxzx7753  
+##### 57644#       发表于 2022-3-31 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258229&amp;ptid=98922" target="_blank">天网 发表于 2022-3-31 13:24</a>
+这个苗条早有了。从泡泡岛拍飞后，wt就把王路飞可以单人重新创业，随时随地从空气中拉出一伙人组团的写法 ...</blockquote>
+路飞算是混沌派的人吧  伙伴在他心里地位应该是一样的  没有特别重要或者不重要的存在  伙伴就是伙伴  
+区别顶多像索隆能打那他可以自保或者一起帮助保护其他伙伴   不能打的像奈美 自己就有义务去保护这类伙伴
+微微那种离开的道别完就没怎么提起了   但如果遇到困难向路飞求救他就一定会优先回去帮助伙伴
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  wooeason  
+##### 57645#       发表于 2022-3-31 13:31
+
+ 本帖最后由 wooeason 于 2022-3-31 13:36 编辑 
+
+好奇一件事，以后尾田还好不好意思让路飞出招＋橡胶橡胶前缀了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+顺便路飞现在凭什么用橡胶化，这是人家橡胶果实觉醒的能力，你动物系搁那橡胶锤子呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  klzxs  
+##### 57646#       发表于 2022-3-31 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">凯老师厉害啊
+
+这话其实还是占优的
+
+*****
+
+####  Supermangunv3  
+##### 57647#       发表于 2022-3-31 13:37
+
+尾田为了画这一话憋了多久啊，整活整的好！！！
+
