@@ -8314,3 +8314,93 @@ YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就這 有必要換種嗎...  橡膠果實做不到？
 
+
+
+*****
+
+####  C男人  
+##### 57691#       发表于 2022-3-31 20:23
+
+尼卡果实：最自由的恶魔果实。
+
+尾田荣一郎：我要成为最自由的漫画家！
+
+读者：不，你不能！
+
+编辑：我觉得还行。
+
+*****
+
+####  逸yi  
+##### 57692#       发表于 2022-3-31 20:55
+
+草 好像越卡越多了 换楼吧
+
+*****
+
+####  缺德猫  
+##### 57693#       发表于 2022-3-31 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55262929&amp;ptid=98922" target="_blank">带带阿苏卡 发表于 2022-3-31 19:41</a>
+
+其实之前山治和索隆对奎恩烬的时候，无厘头的招式不都挺多的，像什么恐龙炮塔、貂皇自尊之类的。这次是憋太 ...</blockquote>
+回想一下早期路飞还真是每场战斗都有无厘头招式啊，对阿龙脑瘫风车和假牙，空岛装傻，老沙水路飞什么的。
+
+开档后就是普普通通jump漫画了。
+
+*****
+
+####  tyauto  
+##### 57694#       发表于 2022-3-31 21:10
+
+四皇快成时代的眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202203/31/211033emc33fm3coh7ccaa.jpg" referrerpolicy="no-referrer">
+
+<strong>12312e23r23r23r2.jpg</strong> (109.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 21:10 上传
+
+*****
+
+####  宅之猴晒阴  
+##### 57695#       发表于 2022-3-31 21:23
+
+当锁血遇上锁血，只能以搞笑的方式继续进行了，参考汤姆与杰瑞
+
+*****
+
+####  klzxs  
+##### 57696#       发表于 2022-3-31 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">路飞说出佩德罗的名字时还真挺感慨的
+
+虽然楼里不少人觉得现在的路飞变了，或者说这样嘻嘻哈哈是在侮辱战斗
+
+但我觉得这时候的路飞才更像两年前的他
+
+*****
+
+####  klzxs  
+##### 57697#       发表于 2022-3-31 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">这楼现在卡页是不是有点严重
+
+*****
+
+####  暗影翔  
+##### 57698#       发表于 2022-3-31 21:36
+
+期待正式版，前面的贴图顺序有点乱了
+
+*****
+
+####  谁说法海不懂爱  
+##### 57699#       发表于 2022-3-31 21:36
+
+ 本帖最后由 谁说法海不懂爱 于 2022-3-31 21:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你说战斗中带点耍宝，以前是有乃至现在其实都有穿插，但现在这种状态迥异和搞怪的BOSS战说是以前的基调那就是岁月史书了啊。
+
