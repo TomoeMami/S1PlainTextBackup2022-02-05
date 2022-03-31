@@ -9292,3 +9292,21 @@ animare的蓝狗子宗谷貌似也要毕业了，只能说这一行就是这样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 9981#       发表于 2022-3-31 17:03
+
+嘻嘻嘻
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  时间在我手中  
+##### 9982#       发表于 2022-3-31 17:06
+
+呜呜，谢谢睿总没忘记三线主播的bd
+

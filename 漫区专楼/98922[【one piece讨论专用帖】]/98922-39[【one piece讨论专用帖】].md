@@ -8228,3 +8228,20 @@ hahaha，我猜除了让眼睛飞出来，应该还有让对手或者周围人�
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  inconolast  
+##### 57683#       发表于 2022-3-31 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">搞笑系是可以啊，但是下个版本怎么出新的蝙蝠皇呢
+
+还是说回归无敌流直接通关
+
+搞笑色霸气在读者层面基本是天然默认无敌了，之后的战斗设计要看尾田仔抓的住抓不住了
+
+另外司法岛以来走苦大仇深路线不走浪漫主义路线怕不是要有反噬了
+
+一百年、d、天龙人啥的最后都被胡闹的干掉也不是不行，但是这堆背景白铺垫的可能性就很高了
+
