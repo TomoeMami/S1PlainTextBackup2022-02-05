@@ -15824,3 +15824,31 @@ gaku为啥这么夸张的量…4年之力汇聚我身吗
 
 换皮也没救回来，541E&amp;C移籍的就剩下Gaon了吧
 
+
+
+*****
+
+####  poipanchao  
+##### 11927#       发表于 2022-3-31 22:51
+
+yugo这唱了几首英文歌……是不是白天说的搞定版权的原因？
+
+话说好久没斗虫了，yugo的歌力锐评是什么级别的
+
+*****
+
+####  IDIDIDID  
+##### 11928#       发表于 2022-3-31 22:52
+
+真正的htj应该像我一样听inui歌回，真的很顶。
+
+*****
+
+####  winda  
+##### 11929#       发表于 2022-3-31 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55265396&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-3-31 22:32</a>
+换皮也没救回来，541E&amp;C移籍的就剩下Gaon了吧</blockquote>
+现在4月30号变成阿菜，chiho毕业，5月1日零点是mia毕业，变成毕业接力回了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+现在虹kr一期还剩suha，541剩gaon，二期剩nagi，牟阿琳时期的人就剩三个了
+
