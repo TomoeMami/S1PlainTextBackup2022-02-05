@@ -9270,3 +9270,24 @@ nagi一下从新人动画声优跑去闹钟TV当常规也飞太快<img src="http
 
 不太了解，话说今天日本那边算是啥特别的日子吗，我刚去HoriPro International官网找资料的时候发现今天的公告上写了茅原実里和巴奎依都合同期满离开事务所了
 
+
+
+*****
+
+####  Enakina  
+##### 6683#       发表于 2022-3-31 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55262392&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-03-31 18:58:29</a>
+青山这个事儿拉板还至少吵了2个串，挺热闹的。
+
+流程大致是：普通的祝贺——作为声优搞这些合适吗——23岁 ...</blockquote>怎么吵的吵的又吵到打铁身上了，不愧是5ch
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zylwz  
+##### 6684#       发表于 2022-3-31 20:24
+
+11区企业财年是从4月开始的吧 今天刚好是一个财年结束
+
