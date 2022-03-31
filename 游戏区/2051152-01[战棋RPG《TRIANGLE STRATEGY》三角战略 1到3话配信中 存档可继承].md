@@ -13893,3 +13893,16 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 二周目还不能在行铺看信念数值？还是说要过点流程才行</blockquote>
 第5关开启
 
+
+
+*****
+
+####  kirainsky  
+##### 1234#       发表于 2022-4-1 06:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55262152&amp;ptid=2051152" target="_blank">Petilil 发表于 2022-3-31 18:39</a>
+假如按照附庸的附庸不是我的附庸的原则的话，跟王子有关系的唯一一个红毛是男主老婆，他对红毛无感可太正 ...</blockquote>
+然而罗兰线结局那些贫民生活在铁国，也跟你前国王没任何关系...
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
