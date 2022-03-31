@@ -8444,3 +8444,29 @@ YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成�
 
 ……话说，罗杰发笑的原因该不会是看了猫和老鼠吧
 
+
+
+*****
+
+####  isummon  
+##### 57703#       发表于 2022-3-31 23:25
+
+什么啊，肯定是已经爆头了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面这里：
+
+<img src="https://img.saraba1st.com/forum/202203/31/232440wk8f4f4ykkkq1r88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 23:24 上传
+
+很明显路飞的手是穿过了眼睛；至于咋恢复的就不知道了
+
+*****
+
+####  acejoe  
+##### 57704#       发表于 2022-3-31 23:40
+
+是神嘛，那用的肯定是神力，凡人不懂是很正常的。
+
