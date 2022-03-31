@@ -9261,3 +9261,34 @@ bsyl
 
 看隔壁说小红帽也毕业了,老一批的熟人确实是越来越少了
 
+
+
+*****
+
+####  Lotis  
+##### 9978#       发表于 2022-3-31 16:21
+
+animare的蓝狗子宗谷貌似也要毕业了，只能说这一行就是这样
+
+*****
+
+####  gongge666  
+##### 9979#       发表于 2022-3-31 16:23
+
+服了，B站但凡bls“少上点心”，都不至于搞出这么多破事
+
+*****
+
+####  T_Hb  
+##### 9980#       发表于 2022-3-31 16:23
+
+<img src="https://img.saraba1st.com/forum/202203/31/162338pdnv3ley8hjdhl3y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 16:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

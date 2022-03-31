@@ -15657,3 +15657,19 @@ syl…bora想唱永远没法唱的kpop
 
 家人们还是听歌吧，[【歌ってみた】センチメートル / the peggies (cover)【東堂コハク / にじさんじ】 - YouTube](https://www.youtube.com/watch?v=Wa2z1IQG8x8)
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11914#       发表于 2022-3-31 16:24
+
+心态调整我选花咲。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道为啥意内脆弱的花咲意外现在还硬挺。
+
+*****
+
+####  IDIDIDID  
+##### 11915#       发表于 2022-3-31 16:27
+
+黑屁安妮卡拉还不简单，要我说那几个大音乐厂牌可给你彩虹坑死了。江花和RD减员，月之和通风口越来越糊，葵皇更是连企划都没了。然后你虹运营用和大厂学来的本事推了张king的一砖直接秒杀业界，不基德嗷。
+
