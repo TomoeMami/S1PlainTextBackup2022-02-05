@@ -7884,3 +7884,73 @@ CD1CD309-EAEE-4AB5-B317-F1EA75E4664D.jpeg
 
 尾田为了画这一话憋了多久啊，整活整的好！！！
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57648#       发表于 2022-3-31 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258163&amp;ptid=98922" target="_blank">陶矢 发表于 2022-3-31 13:20</a>
+
+那不就是自然界版的smile吗，凯多让人合不住嘴，五皇让人闭不住眼</blockquote>
+答案是场地魔法版微笑世界
+
+*****
+
+####  蔺无双  
+##### 57649#       发表于 2022-3-31 13:47
+
+其实看完感觉还可以，感觉可以理解为一切都橡胶或者卡通化了，包括被攻击的敌人以及围观的群众在内
+
+和之国这苦大仇深的到这里才算真的可以轻松一点了吧
+
+*****
+
+####  严厉的月亮  
+##### 57650#       发表于 2022-3-31 13:54
+
+已经从物理打击进化到精神攻击了
+
+逆风苦大仇深，顺风微笑世界，单说这几话确实非常有arcv那味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  topnice  
+##### 57651#       发表于 2022-3-31 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258322&amp;ptid=98922" target="_blank">wooeason 发表于 2022-3-31 13:31</a>
+
+好奇一件事，以后尾田还好不好意思让路飞出招＋橡胶橡胶前缀了
+
+顺便路飞现在凭什么用橡胶化，这是 ...</blockquote>
+这次变大好像就是gomu gomu no giant?
+
+*****
+
+####  wingzerocos  
+##### 57652#       发表于 2022-3-31 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258322&amp;ptid=98922" target="_blank">wooeason 发表于 2022-3-31 13:31</a>
+好奇一件事，以后尾田还好不好意思让路飞出招＋橡胶橡胶前缀了
+
+顺便路飞现在凭什么用橡胶化，这是 ...</blockquote>
+这话都喊了5次橡胶橡胶了。
+
+*****
+
+####  Yeaha123  
+##### 57653#       发表于 2022-3-31 14:00
+
+看完生肉，虽然可能是新鲜感的原因，这战斗是真有意思
+
+*****
+
+####  topnice  
+##### 57654#       发表于 2022-3-31 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258163&amp;ptid=98922" target="_blank">陶矢 发表于 2022-3-31 13:20</a>
+
+那不就是自然界版的smile吗，凯多让人合不住嘴，五皇让人闭不住眼</blockquote>
+hahaha，我猜除了让眼睛飞出来，应该还有让对手或者周围人都变类似橡胶的特性，你看中间有一幅画是路飞拳头打透凯多的脑袋，下一个画面回来又没有被打透（打穿这么血腥的镜头也不应该是少年热血漫中出现的），那么就是凯多的脑袋也有橡胶一样可以延申的特性才能吃路飞这么一拳。（中间吧凯多变气球，感觉也有展示这个能力的倾向，但是也说不好是不是尾田的搞笑画法还是真的果实特性，我不是很确定）
+
