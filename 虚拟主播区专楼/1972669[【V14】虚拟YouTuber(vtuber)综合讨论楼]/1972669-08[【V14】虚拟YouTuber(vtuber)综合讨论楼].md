@@ -15279,3 +15279,32 @@ Syl，你虹今年（我估计隔壁也这样）人心动荡挺多的，能明�
 
 我现在就等着二哥什么时候跑路，真的折磨人
 
+
+
+*****
+
+####  fastary  
+##### 11887#       发表于 2022-3-31 10:04
+
+ 本帖最后由 fastary 于 2022-3-31 10:15 编辑 
+
+黑客和辣椒原来杂谈聊到过，新人v一般三个月左右会碰上一次挫折期，能找到倾诉或是陪伴的人的话就会容易克服很多。关系性不仅管人观众爱看，对管人本身也挺重要的吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">虹原本被戏说是问题儿童收治中心也是搞大家庭搞出来的…
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">所以黑客玉玉的时候真的很难接受是什么样无法解决的问题都能把一个朋友多的阳角巨魔给整玉玉了
+
+*****
+
+####  布莱士·西伯利  
+##### 11888#       发表于 2022-3-31 10:06
+
+我主要在跟的俩一个处在半摸鱼但还在努力做直播，一个处在很努力的做出成绩。俩人一个偏后一个偏中了。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">所以虹那里我估计是无型的压力和其本人的看法有关。
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不过我感觉童田还能做阿菜，我主要留意的俩人一旦没动力就不会再出现了。
+
+*****
+
+####  布莱士·西伯利  
+##### 11889#       发表于 2022-3-31 10:09
+
+关系性感觉可以看圭利，哪怕早期炎上不受待见了，后来还是努力的混进了团体。
+只要始终感觉团体需要自己的话，估计也不会退团，事业也会继续上升，现在也独当一面了。
+
