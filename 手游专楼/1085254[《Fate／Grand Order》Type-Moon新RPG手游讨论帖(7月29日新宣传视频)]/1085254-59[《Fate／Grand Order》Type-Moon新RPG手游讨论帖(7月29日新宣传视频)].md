@@ -5795,3 +5795,15 @@ fgo就是这么空虚的游戏</blockquote>
 
 每年只有愚人节的小游戏让我觉得fgo还有救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87508#       发表于 2022-4-1 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55266033&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-3-31 23:07</a>
+
+每年只有愚人节的小游戏让我觉得fgo还有救</blockquote>
+每年标准的，小游戏比本体好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
