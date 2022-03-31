@@ -13767,3 +13767,14 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 困难难度想不放火还是得梯子哥吧，普通难度还能正常打打</blockquote>
 放火了对以后的剧情有没有影响啊，我把所有敌人都引到最上面的平台来，然后让一直隐身的刺客把机关打了，所有人都烧死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，不过我就放了这一个地方的火，另外感觉少了好多经验
 
+
+
+*****
+
+####  Vladimeow  
+##### 1222#       发表于 2022-3-31 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55257146&amp;ptid=2051152" target="_blank">cy1988813 发表于 2022-3-31 12:00</a>
+放火了对以后的剧情有没有影响啊，我把所有敌人都引到最上面的平台来，然后让一直隐身的刺客把机关打了， ...</blockquote>
+有的，点了之后就不能真结局了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5621,3 +5621,80 @@ fgo就是这么空虚的游戏</blockquote>
 
 这设定基本把旧剑之前的说法废案掉了吧
 
+
+
+*****
+
+####  eilot  
+##### 87497#       发表于 2022-3-31 12:06
+
+又沒有為第2章角色來幕間或強化...
+
+*****
+
+####  Jamaisvu  
+##### 87498#       发表于 2022-3-31 12:09
+
+ 本帖最后由 Jamaisvu 于 2022-3-31 12:18 编辑 
+
+兽六真身很顶啊，和提妈一样从萝莉变成御姐了。索多玛之兽，堕落之理。
+
+<img src="https://img.saraba1st.com/forum/202203/31/121745l9z62lgnz695n2y2.jpg" referrerpolicy="no-referrer">
+
+<strong>7407A286A65F48D78A6E18A78124590A.jpg</strong> (71.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121232rv6oiuodzhzlvxuv.png" referrerpolicy="no-referrer">
+
+<strong>1648699572001.png</strong> (237.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121050v2pz66llim2tt3bb.png" referrerpolicy="no-referrer">
+
+<strong>1648699569095.png</strong> (221.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:10 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121330v2zyjkdk1kkllnn2.jpg" referrerpolicy="no-referrer">
+
+<strong>893665A4A9A23737FB4111E20035D6E8.jpg</strong> (115.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:13 上传
+
+提妈作为1.7最终BOSS从手游跑到街机，那么街机尾王兽6是不是该礼尚往来一波？（吃桃）
+
+街机剧情好像说梅琳也有兽的潜质，是什么星之兽...怪不得梅林和芙芙长的这么像...
+
+*****
+
+####  Jamaisvu  
+##### 87499#       发表于 2022-3-31 12:15
+
+图转贴吧，兽六宝具是FE last encore第一话标题：
+
+<img src="https://img.saraba1st.com/forum/202203/31/121526l51bs6g5eufggten.jpg" referrerpolicy="no-referrer">
+
+<strong>A52FA1DC4F69104F3A2D6AD14649A303.jpg</strong> (85.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/121526mvxzwxd88pzvxxao.jpg" referrerpolicy="no-referrer">
+
+<strong>02FE2626DC5B42D3A52D6ADA39AACF08.jpg</strong> (67.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 12:15 上传
+
