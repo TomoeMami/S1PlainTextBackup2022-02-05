@@ -5737,3 +5737,38 @@ fgo就是这么空虚的游戏</blockquote>
 
 666可以当五兽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87504#       发表于 2022-3-31 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55258870&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-3-31 14:22</a>
+
+666可以当五兽啊</blockquote>
+盲生，你发现了华点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87505#       发表于 2022-3-31 15:15
+
+<img src="https://img.saraba1st.com/forum/202203/31/151436h5x5ox2kfrlok5rp.png" referrerpolicy="no-referrer">
+
+<strong>1648708341401.png</strong> (60.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202203/31/151437rpeeeel5e6zo8wtt.png" referrerpolicy="no-referrer">
+
+<strong>1648708336238.png</strong> (439.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 15:14 上传
+
+据说B6这个兽耳造型可能暗指罗马建国传说中扶养神祖兄弟的母狼...看来wada无论是画兔子还是狼都是一副狐狸样...
+

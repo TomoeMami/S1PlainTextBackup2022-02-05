@@ -15562,3 +15562,45 @@ kr那边原因更复杂，拉胯负责人/80/没资源/管理混乱这些不跑�
 
 syl…bora想唱永远没法唱的kpop
 
+
+
+*****
+
+####  free  
+##### 11906#       发表于 2022-3-31 15:08
+
+[https://twitter.com/VirtualThruLens/status/1509424062652911619](https://twitter.com/VirtualThruLens/status/1509424062652911619)
+[https://www.zan-live.com/live/detail/10184](https://www.zan-live.com/live/detail/10184)
+
+【2022年4月16日（土）13:00開演！】
+
+総勢20名以上の人気Vtuber、アーティストによるライブイベント✨
+
+『#レンズ越しのVirtual』
+
+「Z-aN」にてチケット販売中！🎉
+
+サイン・インタビューの入ったパンフレット付き‼
+
+見に来てね～💗
+
+▼詳細はこちら▼
+[https://web-matsumoto.com/kpi/v/](https://web-matsumoto.com/kpi/v/)
+
+<img src="https://img.saraba1st.com/forum/202203/31/150812s2oo2nsmx6hpb9xg.jpg" referrerpolicy="no-referrer">
+
+<strong>拼盘.jpg</strong> (240.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-3-31 15:08 上传
+
+*****
+
+####  qq845629713  
+##### 11907#       发表于 2022-3-31 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 嗯打游戏摆烂狂混也没什么不好的，不就是自己想追求点什么，结果追求不到么？上不去下不来卡住了，
+
+维阿en明天会更好
+

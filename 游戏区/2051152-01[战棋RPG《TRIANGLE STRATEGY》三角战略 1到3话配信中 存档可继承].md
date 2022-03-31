@@ -13796,3 +13796,27 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 天平系统比我预想得要无聊很多额，老是那么几个人参与选举。本来以为会影响角色的加入，这游戏的角色可以理 ...</blockquote>
 3章和15章靠天平选路线，路线不同收的人不同
 
+
+
+*****
+
+####  kirainsky  
+##### 1225#       发表于 2022-3-31 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55255898&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-3-31 10:31</a>
+罗兰就是经历了王城那堆破事之后和伊德一样觉得这帮刁民都是啥b，我没本事给你们开民智，直接请教国入关 ...</blockquote>
+女主线主角竟然挂了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得罗兰倒不是有意愚民，只是正义感太强自己有又没能力圆滑处理政务导致只能靠宗教。霸道线最后看着是要王子复仇记的样子。
+
+但是您正义感这么强救济贫民怎么就不想想救济下红毛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Vladimeow  
+##### 1226#       发表于 2022-3-31 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55259371&amp;ptid=2051152" target="_blank">kirainsky 发表于 2022-3-31 15:07</a>
+女主线主角竟然挂了吗我觉得罗兰倒不是有意愚民，只是正义感太强自己有又没能力圆滑处理政务导致 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到最后也不过伪善而已，还成了带路党，人设可以说跌到谷底了。中途那些头硬言论和举动就不说了，也难怪王宫贵族都不看好他，能力太差。
+
