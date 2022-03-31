@@ -8269,3 +8269,19 @@ hahaha，我猜除了让眼睛飞出来，应该还有让对手或者周围人�
 
 直接改名叫卡通果实算了
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57686#       发表于 2022-3-31 19:05
+
+[http://tieba.baidu.com/p/7779286447?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=10.2.8.0&amp;st=1648723359&amp;unique=6007F64314C9E8735CB1BDF398883980](http://tieba.baidu.com/p/7779286447?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=10.2.8.0&amp;st=1648723359&amp;unique=6007F64314C9E8735CB1BDF398883980)关于前面谈到的副作用反馈，讲的东西不只适用海贼。
+
+*****
+
+####  hkguty  
+##### 57687#       发表于 2022-3-31 19:12
+
+YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成搞笑系吧，另外这话大和一直<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">了好几页是不是太重复了点
+
