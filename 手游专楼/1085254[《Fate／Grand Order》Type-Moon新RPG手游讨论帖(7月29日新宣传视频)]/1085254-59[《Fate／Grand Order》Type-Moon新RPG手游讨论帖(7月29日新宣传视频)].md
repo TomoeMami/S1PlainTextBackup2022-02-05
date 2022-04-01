@@ -5901,3 +5901,17 @@ F5279E8A-EC6C-470B-BD2E-AB269CFCFF7E.png
 
 第四兽幼体是指B4 Lost而非four么，说four设计的好我还可以理解，B4 Lost有点跟我期待中良好的Monster设计期望差距有点大……
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87515#       发表于 2022-4-1 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55272205&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-4-1 13:33</a>
+
+第四兽幼体是指B4 Lost而非four么，说four设计的好我还可以理解，B4 Lost有点跟我期待中良好的Monster设计 ...</blockquote>
+B4lost是非正常进化，因为被萝兰打断一条尾巴没法进化成九尾了
+
+正常的应该是九尾形态
+

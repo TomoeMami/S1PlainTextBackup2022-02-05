@@ -8633,3 +8633,75 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 他这能力把人装进一个密封容器里，然后再把容器橡胶化，对方是不是就能窒息死了
 
+
+
+*****
+
+####  oT3To  
+##### 57721#       发表于 2022-4-1 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">艾斯为什么会死？
+
+因为艾斯不是搞笑角色
+
+众所周知，搞笑角色是不会被烧死的，只会变黑然后满血复活
+
+*****
+
+####  逸yi  
+##### 57722#       发表于 2022-4-1 13:33
+
+卡六页啊
+
+*****
+
+####  逸yi  
+##### 57723#       发表于 2022-4-1 14:16
+
+版主能把楼修一下吗
+
+*****
+
+####  gg326  
+##### 57724#       发表于 2022-4-1 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55266235&amp;ptid=98922" target="_blank">isummon 发表于 2022-3-31 23:25</a>
+
+什么啊，肯定是已经爆头了啊前面这里：</blockquote>
+不是穿过了，而是眼球也橡胶化套着路飞的手拉伸了，最后一拳“打穿”脑袋那里也是这效果
+
+*****
+
+####  逸yi  
+##### 57725#       发表于 2022-4-1 14:37
+
+草 翻页
+
+*****
+
+####  yario  
+##### 57726#       发表于 2022-4-1 15:05
+
+看到熟肉了，100% 5档又是燃烧生命的招式。感觉没有不尊重凯多 路飞很认真的在打，用自己的生命在燃烧
+
+*****
+
+####  逸yi  
+##### 57727#       发表于 2022-4-1 15:07
+
+翻页
+
+*****
+
+####  逸yi  
+##### 57728#       发表于 2022-4-1 15:09
+
+所以把罗献祭了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nemo艇长  
+##### 57729#       发表于 2022-4-1 15:12
+
+问题来了，路飞还能活几年<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
