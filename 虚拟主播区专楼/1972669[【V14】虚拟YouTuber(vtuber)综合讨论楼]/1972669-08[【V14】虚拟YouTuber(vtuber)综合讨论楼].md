@@ -16218,3 +16218,17 @@ Syl，大监督今年好短小<img src="https://static.saraba1st.com/image/smile
 
 哈哈哈，hinano 妹妹 miyako二连鸡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 11958#       发表于 2022-4-1 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55277442&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-1 21:25</a>
+
+我印象中rei和DD很久之前就线下过，不过那时候在追魂音泉有记错人的可能，熟人大概也不会说什么？ ...</blockquote>
+calli私信理查：”画得很好下次别画了”的可能性蛮大的，吧w
+
+省一楼，好想听月之讲谜兔互动编程那段<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
