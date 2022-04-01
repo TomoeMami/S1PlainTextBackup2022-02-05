@@ -8547,3 +8547,14 @@ YYSY前面的伏笔就感觉尾田一早就是想把路飞的最终形态画成�
 
 前面打斗确实有搞笑内容啊，但那一般是路飞脑子清奇出来的，比如橡皮发呆，包住敌人用心网也没用。也没像打到最后还这样全程搞笑。
 
+
+
+*****
+
+####  灌水机  
+##### 57713#       发表于 2022-4-1 08:47
+
+这两话的热闹程度<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">算是回到了几十年前了吧
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
