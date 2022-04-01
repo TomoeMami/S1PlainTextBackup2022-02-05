@@ -8594,3 +8594,19 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我希望听到古典名曲。
 没错，就像猫和老鼠一样。
 
+
+
+*****
+
+####  莫吉  
+##### 57718#       发表于 2022-4-1 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55263540&amp;ptid=98922" target="_blank">C男人 发表于 2022-3-31 20:23</a>
+
+尼卡果实：最自由的恶魔果实。
+
+尾田荣一郎：我要成为最自由的漫画家！</blockquote>
+半圆：明明是我先，休刊也好，自由也好，都是我先
+
+腰斩众：这我也做的到啊
+
