@@ -16078,3 +16078,12 @@ https://twitter.com/kasuga_nozomi/status/1509458782484832256</blockquote>
 
 さらに現実世界でVtuberとして活躍している"AZKi" "MaiR" "朝ノ瑠璃" "倉持京子" "銀河アリス"がアニメの世界に出演する！！
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11945#       发表于 2022-4-1 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">阿秋也3D了，这下子一期生全员3D了。
+
