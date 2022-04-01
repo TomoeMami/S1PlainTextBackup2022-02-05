@@ -16039,3 +16039,23 @@ https://twitter.com/kasuga_nozomi/status/1509458782484832256</blockquote>
 
 信じてたのに<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11943#       发表于 2022-4-1 17:08
+
+<img src="https://img.saraba1st.com/forum/202204/01/163559wspfgspgz6g18fzl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Korean Twitch Vtubers.jpeg</strong> (246.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 16:35 上传
+
+（左起：虚拟主播排名，Twitch总排名，频道名，平均同接，历史最高同接，附属项目，公司）
+[韩国V企业/社团的同接变化趋势统计](https://gall.dcinside.com/mini/board/view/?id=virtual_streamer&amp;no=656770&amp;exception_mode=recommend&amp;page=1)VRECORD/V-Lup/VGG/일루젼라이브/플럼버스
+
+[DC论坛内各主播提名次数和词云](https://gall.dcinside.com/mini/board/view/?id=virtual_streamer&amp;no=656461&amp;exception_mode=recommend&amp;page=1)
+
