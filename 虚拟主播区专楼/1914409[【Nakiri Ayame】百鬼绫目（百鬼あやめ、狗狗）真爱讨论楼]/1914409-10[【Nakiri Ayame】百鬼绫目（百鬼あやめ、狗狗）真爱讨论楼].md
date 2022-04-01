@@ -5908,3 +5908,19 @@ Towa说明天晚上9点的Spla2比赛有绫总
 
 播了差不多两个钟就留了
 
+
+
+*****
+
+####  因为你不会  
+##### 14092#       发表于 2022-4-1 23:27
+
+4月才开始，等到中旬你们就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fami水  
+##### 14093#       发表于 2022-4-1 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5号还有联动  绫总已经失去了单独开台的能力
+
