@@ -8742,3 +8742,14 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">单看这话确实挺乐，不过和之国剧情到现在确实是个笑话，我愿称之为laugh tale
 
+
+
+*****
+
+####  baizhi  
+##### 57734#       发表于 2022-4-1 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话路飞的燃烧生命我是一点不怕的，反正有铺垫了这么久的50亿“神龙”。
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
