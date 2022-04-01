@@ -8581,3 +8581,16 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 目前的图透来看，是把括对手也变成橡胶，凯多看起来只是不知所措，打了这么久谁也伤不了谁，五皇没副作用的话能玩一辈子，不会真让凯多回忆起童年看猫和老鼠的快乐哈哈大笑服软认输吧
 
+
+
+*****
+
+####  黑岩泪香  
+##### 57717#       发表于 2022-4-1 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55266855&amp;ptid=98922" target="_blank">被子十三 发表于 2022-4-1 00:24</a>
+动画化的时候田中公平加点油啊，我想在这里听到MGM风格的配乐
+而且说实话以田中公平的曲风和录音编 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我希望听到古典名曲。
+没错，就像猫和老鼠一样。
+
