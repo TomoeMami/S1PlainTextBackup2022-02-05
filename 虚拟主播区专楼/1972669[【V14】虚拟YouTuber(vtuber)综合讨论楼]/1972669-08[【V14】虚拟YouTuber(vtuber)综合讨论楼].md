@@ -16117,3 +16117,30 @@ https://twitter.com/kasuga_nozomi/status/1509458782484832256</blockquote>
 
 IZUMO ?
 
+
+
+*****
+
+####  FCCHua  
+##### 11948#       发表于 2022-4-1 20:49
+
+第一局的hnn<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kokichi  
+##### 11949#       发表于 2022-4-1 20:50
+
+wm无双
+
+*****
+
+####  rzrbtk  
+##### 11950#       发表于 2022-4-1 21:00
+
+愚人节值得乐的东西太多了看不过来<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">。
+
+画了calli头像专辑图的大画师理查突然开始看vox，今天还突然在推上发了calli和vox的双人图，不知道calli看到是如何的一个心情。
+
+虽然不看vox哥哥但老是会被相关的事逗笑，之前kpop解禁立刻联想到前世的恨kpop黑料<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
