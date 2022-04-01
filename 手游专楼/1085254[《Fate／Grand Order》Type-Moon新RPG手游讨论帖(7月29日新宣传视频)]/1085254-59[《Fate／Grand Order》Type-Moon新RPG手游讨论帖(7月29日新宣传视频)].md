@@ -5849,3 +5849,55 @@ F5279E8A-EC6C-470B-BD2E-AB269CFCFF7E.png
 
 说起来，狐狸的兽形态也有n对真奈子，大概是想用异变的第二性征来凸显出“兽”的特质吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87511#       发表于 2022-4-1 02:21
+
+援军
+
+106CE27D-3486-46D8-817B-BB879C219F6A.jpeg
+(413.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 02:21 上传
+
+<img src="https://img.saraba1st.com/forum/202204/01/022106l5fkpkpuapkcohtt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87512#       发表于 2022-4-1 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55267395&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-4-1 01:28</a>
+
+看大图才发现，尼禄这个第六兽形态，胸罩下面连着的腰封，造型是在模仿哦派吧，三对副乳，可能也是狼的特 ...</blockquote>
+这个想法很对，罗马那个母狼雕像是四对**，第六兽的三对腰封凸起加上算上尼禄本身也正好是四对：
+
+<img src="https://img.saraba1st.com/forum/202204/01/081550an3ggddud5k5fku5.jpg" referrerpolicy="no-referrer">
+
+<strong>1-200219100950N4.jpg</strong> (34.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 08:15 上传
+
+设计思路还不错，但是有第四兽幼体珠玉在先，就没那么惊艳了...
+
+*****
+
+####  UNISONIA  
+##### 87513#       发表于 2022-4-1 13:29
+
+翻页
+
+*****
+
+####  UNISONIA  
+##### 87514#       发表于 2022-4-1 13:33
+
+第四兽幼体是指B4 Lost而非four么，说four设计的好我还可以理解，B4 Lost有点跟我期待中良好的Monster设计期望差距有点大……
+
