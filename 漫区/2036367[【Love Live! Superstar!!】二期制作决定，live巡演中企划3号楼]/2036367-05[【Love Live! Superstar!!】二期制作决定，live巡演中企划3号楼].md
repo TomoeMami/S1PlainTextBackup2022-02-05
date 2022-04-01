@@ -9589,3 +9589,12 @@ Cast Off
 
 <img src="https://img.saraba1st.com/forum/202204/01/120540y54g8zrzra3345aa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 6699#       发表于 2022-4-1 12:30
+
+草，在隔壁派对浪客的帖子看到了一个中国人在涩谷认识了唱歌好听的日本人。想了一下还真是
+
