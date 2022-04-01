@@ -16193,3 +16193,28 @@ wm无双
 
 省一楼，月之的愚人节不能没有谜兔<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！
 
+
+
+*****
+
+####  alcoholic1000  
+##### 11956#       发表于 2022-4-1 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55277150&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-1 21:00</a>
+
+愚人节值得乐的东西太多了看不过来。
+
+画了calli头像专辑图的大画师理查突然开始看vox，今天还突然在 ...</blockquote>
+我印象中rei和DD很久之前就线下过，不过那时候在追魂音泉有记错人的可能，熟人大概也不会说什么？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">多画点，我也很好奇vox和mori双方的反应
+
+Syl，大监督今年好短小<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suzutsuki  
+##### 11957#       发表于 2022-4-1 21:34
+
+ 本帖最后由 Suzutsuki 于 2022-4-1 21:36 编辑 
+
+哈哈哈，hinano 妹妹 miyako二连鸡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
