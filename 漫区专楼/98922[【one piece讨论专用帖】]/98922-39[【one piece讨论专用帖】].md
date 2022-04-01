@@ -8723,3 +8723,22 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 卡页是什么意思
 
+
+
+*****
+
+####  klzxs  
+##### 57732#       发表于 2022-4-1 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55274668&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-4-1 16:57</a>
+
+卡页是什么意思</blockquote>
+论坛楼太高时回复进入新一页会不显示，多回复几楼才能看到最后的回复
+
+*****
+
+####  游蜓  
+##### 57733#       发表于 2022-4-1 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">单看这话确实挺乐，不过和之国剧情到现在确实是个笑话，我愿称之为laugh tale
+

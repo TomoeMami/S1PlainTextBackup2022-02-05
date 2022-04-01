@@ -5915,3 +5915,21 @@ B4lost是非正常进化，因为被萝兰打断一条尾巴没法进化成九�
 
 正常的应该是九尾形态
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87516#       发表于 2022-4-1 17:21
+
+哈哈，今年是Doman
+
+EF73E357-B916-44A3-9AD7-057050CF557C.png
+(742.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-1 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202204/01/172115j2x9ioqb0l31z3g1.png" referrerpolicy="no-referrer">
+

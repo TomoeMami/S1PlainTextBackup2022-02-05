@@ -16059,3 +16059,22 @@ https://twitter.com/kasuga_nozomi/status/1509458782484832256</blockquote>
 
 [DC论坛内各主播提名次数和词云](https://gall.dcinside.com/mini/board/view/?id=virtual_streamer&amp;no=656461&amp;exception_mode=recommend&amp;page=1)
 
+
+
+*****
+
+####  free  
+##### 11944#       发表于 2022-4-1 17:40
+
+[https://www.youtube.com/watch?v=ZhGLIh6_Das](https://www.youtube.com/watch?v=ZhGLIh6_Das)
+
+アニメ「彗星のフロイライン〜プロローグ〜」
+
+目が覚めるといつもと違った世界にいた森田。
+
+異世界に光を取り戻すため、彼が挑戦することになったのは妖精や亜人を起用したアイドルプロデュースだった。
+
+アイドルがもたらす音楽やダンスで異世界を救うことができるのか・・・・。
+
+さらに現実世界でVtuberとして活躍している"AZKi" "MaiR" "朝ノ瑠璃" "倉持京子" "銀河アリス"がアニメの世界に出演する！！
+
