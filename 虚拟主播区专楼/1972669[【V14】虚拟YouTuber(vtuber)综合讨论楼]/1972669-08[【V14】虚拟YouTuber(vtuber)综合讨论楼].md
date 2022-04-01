@@ -15971,3 +15971,14 @@ https://twitter.com/kasuga_nozomi/status/1509458782484832256</blockquote>
 
 绿仙吗，简介里有项羽和弦月，可能是要发新歌了
 
+
+
+*****
+
+####  fastary  
+##### 11939#       发表于 2022-4-1 13:43
+
+ 本帖最后由 fastary 于 2022-4-1 13:57 编辑 
+
+怎么黑客玩下推特新功能相羽也要去插一脚啊，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">(←不是说这次，单纯回想起了以前的不满所以发散一下
+
