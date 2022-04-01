@@ -9663,3 +9663,12 @@ DAB38308-946F-4666-8869-9F70CCF687E4.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/01/190551aegjr0zg2jjme22f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 6702#       发表于 2022-4-2 03:36
+
+第一张图的构图和姿势，让我有种90年代到2000年代初的很多年轻人会在墙上贴的流行歌曲女子组合海报的即视感，图再加上点青春文学的大字就更像了
+

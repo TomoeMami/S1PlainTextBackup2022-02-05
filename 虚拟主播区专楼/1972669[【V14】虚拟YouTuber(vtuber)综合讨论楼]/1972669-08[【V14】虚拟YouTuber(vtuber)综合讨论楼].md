@@ -16232,3 +16232,22 @@ calli私信理查：”画得很好下次别画了”的可能性蛮大的，吧
 
 省一楼，好想听月之讲谜兔互动编程那段<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 11959#       发表于 2022-4-2 03:27
+
+死神理她一下算我输好吧
+
+*****
+
+####  wuzhengkai  
+##### 11960#       发表于 2022-4-2 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55277272&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-1 21:10</a>
+
+在discord言论暴露、取关又关注的事情之后的心情，跟什么事都没发生的互动时的心情，多少会有不同吧？ ...</blockquote>
+kiara: it's a nothingburger
+
