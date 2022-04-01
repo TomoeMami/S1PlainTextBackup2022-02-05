@@ -16144,3 +16144,52 @@ wm无双
 
 虽然不看vox哥哥但老是会被相关的事逗笑，之前kpop解禁立刻联想到前世的恨kpop黑料<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 11951#       发表于 2022-4-1 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55277150&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-1 21:00</a>
+愚人节值得乐的东西太多了看不过来。
+
+画了calli头像专辑图的大画师理查突然开始看vox，今天还突然在 ...</blockquote>
+她本人都和vox推特互动过来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 11952#       发表于 2022-4-1 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55277218&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-4-1 21:07</a>
+
+她本人都和vox推特互动过来着</blockquote>
+在discord言论暴露、取关又关注的事情之后的心情，跟什么事都没发生的互动时的心情，多少会有不同吧？
+
+*****
+
+####  ヒトニナル  
+##### 11953#       发表于 2022-4-1 21:12
+
+骰子姐又不是那么小心眼的人，郡gachi有点杞憂了
+
+*****
+
+####  NBXX  
+##### 11954#       发表于 2022-4-1 21:13
+
+编辑
+
+*****
+
+####  rzrbtk  
+##### 11955#       发表于 2022-4-1 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55277291&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-4-1 21:12</a>
+
+骰子姐又不是那么小心眼的人，郡gachi有点杞憂了</blockquote>
+不是忧是乐啦<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">，又不是配婚
+
+省一楼，月之的愚人节不能没有谜兔<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！
+
