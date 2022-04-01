@@ -8753,3 +8753,14 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 —— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  sullen  
+##### 57735#       发表于 2022-4-1 22:46
+
+消耗寿命，能不能用生命归还补回来啊？
+
+另外估计罗杰早死也跟这种消耗生命的战斗方式有关系。
+
