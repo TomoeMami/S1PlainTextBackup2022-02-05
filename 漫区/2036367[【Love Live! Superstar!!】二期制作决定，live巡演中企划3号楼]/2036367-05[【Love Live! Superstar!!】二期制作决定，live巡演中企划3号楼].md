@@ -9976,3 +9976,23 @@ A84449CF-3F0A-482C-B2FF-8F8B5271FDF3.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/02/195935tgovguo3xuw5w553.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 6718#       发表于 2022-4-2 20:02
+
+今天全员的状态都绝佳，桑尼趴的表现进步非常大，sayu今天的续航也没问题，小星星开口第一句也好了不少，pay唱nonfiction的最后一句比跨年时还要震撼<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 6719#       发表于 2022-4-2 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55289087&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2022-4-2 19:38</a>
+不出意外明天改成星光序曲了，yura这些特典曲大概要留到追加场了</blockquote>
+始空还有可能，星光序曲开头就放了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
