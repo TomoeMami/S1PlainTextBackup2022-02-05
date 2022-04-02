@@ -10157,3 +10157,15 @@ EB141225-04CF-4C57-9F81-F69CCE9402D0.jpeg
 其实鲤鱼有说像VRgame，真要圆其实也圆得过去。</blockquote>
 那个串之前看到过，没几个人，离炎上差远了。
 
+
+
+*****
+
+####  Enakina  
+##### 6727#       发表于 2022-4-3 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55292980&amp;ptid=2036367" target="_blank">we89623 发表于 2022-04-02 23:26:35</a>
+话说鲤鱼在外景节目说 “男友视角” 真的很危险啊，如果鲤鱼不是有外国人盾牌+不读空气人设真的可能会被 ...</blockquote>官方能把这句放出来，证明官方自己也没觉得有啥大问题。话说不是好多声优都爱玩自己是谁谁谁的男朋友的梗之类的吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
