@@ -8898,3 +8898,16 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 看现在五皇用卡通之力笑着痛打明面上世界最强的可爱多，感觉不是没可能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  24k纯帅  
+##### 57749#       发表于 2022-4-2 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55291317&amp;ptid=98922" target="_blank">evangelina 发表于 2022-4-2 21:47</a>
+你们说大秘宝会不会和卡通搞笑之类的有关系吧？
+
+罗杰看到初代乔伊波伊留下的财宝，里边有卡通壁画比如杰 ...</blockquote>
+弹眼球预定<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
