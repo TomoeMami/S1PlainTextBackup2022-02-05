@@ -8822,3 +8822,16 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 能不能被手术果实用两次是解除永生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 57742#       发表于 2022-4-2 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55275001&amp;ptid=98922" target="_blank">klzxs 发表于 2022-4-1 17:22</a>
+论坛楼太高时回复进入新一页会不显示，多回复几楼才能看到最后的回复</blockquote>
+一直用的手机APP倒是从没有出现这种问题。
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
