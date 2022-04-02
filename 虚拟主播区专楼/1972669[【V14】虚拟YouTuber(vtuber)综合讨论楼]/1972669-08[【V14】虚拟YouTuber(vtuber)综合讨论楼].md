@@ -16289,3 +16289,13 @@ kiara: it's a nothingburger
 
 yhm永远都是那句my pace<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuperCK  
+##### 11965#       发表于 2022-4-2 16:40
+
+r/place 2022
+<img src="https://p.sda1.dev/5/48d18720319a26096296274380f12830/Snipaste_2022-04-02_16-36-47.png" referrerpolicy="no-referrer">
+
