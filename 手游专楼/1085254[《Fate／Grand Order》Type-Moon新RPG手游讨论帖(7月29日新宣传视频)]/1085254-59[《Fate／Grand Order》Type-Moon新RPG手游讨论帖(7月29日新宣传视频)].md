@@ -5933,3 +5933,19 @@ EF73E357-B916-44A3-9AD7-057050CF557C.png
 
 <img src="https://img.saraba1st.com/forum/202204/01/172115j2x9ioqb0l31z3g1.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 87517#       发表于 2022-4-2 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55273330&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-4-1 15:15</a>
+
+B4lost是非正常进化，因为被萝兰打断一条尾巴没法进化成九尾了
+
+正常的应该是九尾形态 ...</blockquote>
+其实看B4L描述应该是正常的也不会进化成金色白面，秘书剧情里自己坦白的也是并非是想成为过去的九尾
+
+虽然暗狐的卡面和羁绊内容看起来可能是想进化成六耳天狐什么的东西（这东西在传说里确实有），但是这部分内容跟通古斯只能说完全对不上
+
