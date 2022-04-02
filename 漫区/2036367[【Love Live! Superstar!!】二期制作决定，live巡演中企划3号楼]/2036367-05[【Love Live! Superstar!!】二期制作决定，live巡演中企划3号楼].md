@@ -9890,3 +9890,19 @@ FCD7008D-4382-4F38-B122-95A69994B195.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/02/190808dcdot9p6btlp9pad.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 6714#       发表于 2022-4-2 19:27
+
+小百合这嗓子赶紧调调吧，唱未来预报的时候青山一开口就把她的声音盖过去了。
+
+*****
+
+####  蜜梨柑  
+##### 6715#       发表于 2022-4-2 19:38
+
+不出意外明天改成星光序曲了，yura这些特典曲大概要留到追加场了
+
