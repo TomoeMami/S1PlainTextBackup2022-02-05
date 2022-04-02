@@ -8911,3 +8911,14 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 罗杰看到初代乔伊波伊留下的财宝，里边有卡通壁画比如杰 ...</blockquote>
 弹眼球预定<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猎户座  
+##### 57750#       发表于 2022-4-3 00:46
+
+瞎几把乱编，又打了一画，看看还能打几话才能拿下凯多。。。
+
+明明直接塑造一个大家车轮战干掉多好，非要路飞这么耗着，好烦躁
+
