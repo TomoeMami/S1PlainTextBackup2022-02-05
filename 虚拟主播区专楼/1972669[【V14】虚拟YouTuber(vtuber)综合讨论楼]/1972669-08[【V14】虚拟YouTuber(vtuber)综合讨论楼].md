@@ -16330,3 +16330,12 @@ r/place 2022
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 11969#       发表于 2022-4-2 20:32
+
+只能说在日本什么时候阳了都不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
