@@ -10295,3 +10295,14 @@ apex能治好玉玉也挺好，总比失踪强
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白给战犯
 
+
+
+*****
+
+####  egged5  
+##### 8662#       发表于 2022-4-2 22:20
+
+东山再起<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
