@@ -9758,3 +9758,21 @@ DAB38308-946F-4666-8869-9F70CCF687E4.jpeg
 pay酱推特头像</blockquote>
 绝美<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 6706#       发表于 2022-4-2 17:25
+
+会有新歌吗？还是不变
+
+*****
+
+####  仟音一心  
+##### 6707#       发表于 2022-4-2 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55287549&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-4-2 17:25</a>
+会有新歌吗？还是不变</blockquote>
+目前为止和横滨没太大变化
+
