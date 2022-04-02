@@ -9776,3 +9776,54 @@ pay酱推特头像</blockquote>
 会有新歌吗？还是不变</blockquote>
 目前为止和横滨没太大变化
 
+
+
+*****
+
+####  仟音一心  
+##### 6708#       发表于 2022-4-2 17:55
+
+整发
+
+<img src="https://img.saraba1st.com/forum/202204/02/175544jpsmwxn91qny8181.png" referrerpolicy="no-referrer">
+
+<strong>8A2CB4FC-8ECE-4B53-8599-59B9689FF392.png</strong> (167.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-2 17:55 上传
+
+1E34741D-2FE3-4EE3-9E49-DFA83FF1C637.jpeg
+(254.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-2 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202204/02/175544zwdthmbt4bb46sb7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8C13097D-C89C-44A0-B90E-F8C16748157C.jpeg
+(97.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-2 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202204/02/175550ehsafh0kx6wxk1wh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10279B1F-544A-43C3-B384-CDD693C909B8.jpeg
+(78.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-2 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202204/02/175550b0gp5gqhhyp5e51s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6709#       发表于 2022-4-2 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">隔壁灰姑娘的live在b站还有字幕，阿b你行不行啊
+
