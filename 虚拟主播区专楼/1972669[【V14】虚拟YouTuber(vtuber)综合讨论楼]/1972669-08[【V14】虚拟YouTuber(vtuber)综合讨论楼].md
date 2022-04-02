@@ -16369,3 +16369,12 @@ SC等收益跟774的分成比例跟现在一样不变
 
 兔组也想脱土制服（现在不确定但总有一天也会离开anmr，774不确定）
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 11972#       发表于 2022-4-2 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">佩服阿胜，至今还在努力B限...可爱。
+
