@@ -10126,3 +10126,19 @@ syl,右上角看到夸大狙秒了个人
 
 今日份的apex已经在梦里打完了，不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 8643#       发表于 2022-4-2 11:41
+
+急什么 今天是towa队的合练<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 晚上就降临
+
+*****
+
+####  面具13  
+##### 8644#       发表于 2022-4-2 11:53
+
+说不定是和队友每天训练10小时导致做梦都在apex（传说中的睡眠学习）
+

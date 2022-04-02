@@ -8791,3 +8791,34 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 橡皮管动画也是橡胶一部分么
 
+
+
+*****
+
+####  神隐の馒头  
+##### 57739#       发表于 2022-4-2 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55280697&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-4-2 07:49</a>
+四档已经能躲狼牙棒了，为什么五档反而被打中/咬住。是不是皇级战力都没有闪避了 ...</blockquote>
+当然是为了尽量突出五档的橡胶特性
+
+*****
+
+####  klzxs  
+##### 57740#       发表于 2022-4-2 11:55
+
+不太觉得罗会用永生手术
+
+设定虽然出来肯定会有用的一天
+
+也可以是古代篇用 解释一下依姆大人
+
+不一定要罗来用
+
+*****
+
+####  千叶铁矢  
+##### 57741#       发表于 2022-4-2 12:00
+
+能不能被手术果实用两次是解除永生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

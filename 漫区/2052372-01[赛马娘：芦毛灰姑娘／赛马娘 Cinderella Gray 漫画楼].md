@@ -1250,3 +1250,33 @@ image.png
 
 2022-4-1 09:39 上传
 
+
+
+*****
+
+####  三合一出现  
+##### 109#       发表于 2022-4-1 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">快点溜冰
+
+*****
+
+####  klzxs  
+##### 110#       发表于 2022-4-1 13:51
+
+桂冠能早点宣布什么时候连载就好了
+
+应该还能带一批马出来吧
+
+*****
+
+####  你当我是浮夸吧  
+##### 111#       发表于 2022-4-1 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54672732&amp;ptid=2052372" target="_blank">我是小卯 发表于 2022-2-13 22:28</a>
+
+没记错的话，对漫画风格影响最大的应该是企划——伊藤隼之介
+
+《轻羽飞扬》和《少女与战车缎带武士》都是他 ...</blockquote>
+画风和分镜确实都挺像缎带武士的
+
