@@ -5982,3 +5982,17 @@ four我一开始没啥感觉，后来发现是灵长目杀手，就突然来了�
 看大图才发现，尼禄这个第六兽形态，胸罩下面连着的腰封，造型是在模仿哦派吧，三对副乳，可能也是狼的特 ...</blockquote>
 是的，而且B6是狼尾巴
 
+
+
+*****
+
+####  gpx234mqx  
+##### 87520#       发表于 2022-4-2 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55282192&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-4-2 10:27</a>
+
+four我一开始没啥感觉，后来发现是灵长目杀手，就突然来了兴致，设定中的完全体造型也很美观，可惜白狗大 ...</blockquote>
+P梅林就是星之兽<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+芙芙正常进化是P梅林那样也说不准
+
