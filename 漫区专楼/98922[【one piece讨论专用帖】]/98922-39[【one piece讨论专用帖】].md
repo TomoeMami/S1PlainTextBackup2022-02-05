@@ -8835,3 +8835,12 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 —— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Yinacona  
+##### 57743#       发表于 2022-4-2 13:13
+
+看了看这话，和部分情报差得有点多的感觉？心跳鼓动这段看起来又是预支生命而不是满血复活啊
+
