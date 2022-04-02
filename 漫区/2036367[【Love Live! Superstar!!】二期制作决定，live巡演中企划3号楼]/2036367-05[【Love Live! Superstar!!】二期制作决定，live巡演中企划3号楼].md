@@ -10095,3 +10095,65 @@ EB141225-04CF-4C57-9F81-F69CCE9402D0.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/02/231702q8lcp46g9t94bq46.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 6723#       发表于 2022-4-2 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55292867&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-2 23:17</a>
+
+同发色</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202204/02/232345fohoo2ui2h8o8bop.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20220402232255.png</strong> (22.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-2 23:23 上传
+
+还补了一句头发是掉色了
+
+结果现在这发色真的快成可可cos了啊
+
+<img src="https://img.saraba1st.com/forum/202204/02/232344mpibawczcoipiu4k.jpg" referrerpolicy="no-referrer">
+
+<strong>006bQVXNgy1h0vscn9301j30t10t14eq.jpg</strong> (97.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-2 23:23 上传
+
+*****
+
+####  we89623  
+##### 6724#       发表于 2022-4-2 23:26
+
+ 本帖最后由 we89623 于 2022-4-2 23:28 编辑 
+
+话说鲤鱼在外景节目说 “男友视角” 真的很危险啊，如果鲤鱼不是有外国人盾牌+不读空气人设真的可能会被炎上的，换成日本人说这话估计就是大事件了吧。
+
+*****
+
+####  player3960  
+##### 6725#       发表于 2022-4-2 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55292980&amp;ptid=2036367" target="_blank">we89623 发表于 2022-04-02 23:26:35</a>
+话说鲤鱼在外景节目说 “男友视角” 真的很危险啊，如果鲤鱼不是有外国人盾牌+不读空气人设真的可能会被 ...</blockquote>不是已经被5厕炎上过了吗？虽然那楼也没几层。
+其实鲤鱼有说像VRgame，真要圆其实也圆得过去。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  we89623  
+##### 6726#       发表于 2022-4-2 23:38
+
+ 本帖最后由 we89623 于 2022-4-2 23:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55293054&amp;ptid=2036367" target="_blank">player3960 发表于 2022-4-2 23:32</a>
+不是已经被5厕炎上过了吗？虽然那楼也没几层。
+其实鲤鱼有说像VRgame，真要圆其实也圆得过去。</blockquote>
+那个串之前看到过，没几个人，离炎上差远了。
+
