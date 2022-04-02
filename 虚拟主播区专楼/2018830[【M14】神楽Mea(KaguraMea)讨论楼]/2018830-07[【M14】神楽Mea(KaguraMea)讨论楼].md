@@ -9609,3 +9609,12 @@ mea不是说不会有任何纪念活动的吗（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不看不就完事儿了，睡觉
 
+
+
+*****
+
+####  Klience  
+##### 10016#       发表于 2022-4-2 23:05
+
+突击lol排位可还行 一看上单波比0/8 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
