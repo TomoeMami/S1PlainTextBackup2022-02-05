@@ -13926,3 +13926,28 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  llysander  
+##### 1237#       发表于 2022-4-2 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55229313&amp;ptid=2051152" target="_blank">martinhe 发表于 2022-3-29 13:47</a>
+
+由于这游戏机动性高的角色伤害都捉急，刺客中期背刺法师连一换一都做不到，而且一掉队会被瞬间集火
+
+所以基 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">安娜的正确用法是捡包裹和空气墙，舞娘更是包裹王，谁说过刺客允许上正面战场了
+
+*****
+
+####  llysander  
+##### 1238#       发表于 2022-4-2 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">吐点黑水，这小剧场插话空洞平淡还演出掉渣，就这角色塑造还不如八方。
+
+连看十几个插话后愤怒得去通了一遍TO命运之轮 C线又通了一遍L线，TO台本写的真是不错。
+
+三角战略超值，一份钱玩了两个游戏，要不是三角战略不知道哪年才会想到把TO掏出来再玩一遍
+
