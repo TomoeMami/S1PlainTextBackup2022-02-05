@@ -8873,3 +8873,15 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 酷拉皮卡和路飞谁会先死
 
+
+
+*****
+
+####  7sevenseven  
+##### 57747#       发表于 2022-4-2 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55285769&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-4-2 14:53</a>
+酷拉皮卡和路飞谁会先死</blockquote>
+路飞
+海贼王目测还剩一个篇章，3年或者4年。这期间猎人能连载十话那就是勤劳的富坚。
+
