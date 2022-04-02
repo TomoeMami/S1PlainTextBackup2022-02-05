@@ -5996,3 +5996,17 @@ P梅林就是星之兽<img src="https://static.saraba1st.com/image/smiley/face20
 
 芙芙正常进化是P梅林那样也说不准
 
+
+
+*****
+
+####  真红眼教授  
+##### 87521#       发表于 2022-4-3 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55286612&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-4-2 16:01</a>
+
+P梅林就是星之兽
+
+芙芙正常进化是P梅林那样也说不准</blockquote>
+昨天还看到这个猜想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> P梅林还有个动作模组是芙芙飞踢
+
