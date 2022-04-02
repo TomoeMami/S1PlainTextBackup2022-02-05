@@ -5924,3 +5924,12 @@ Towa说明天晚上9点的Spla2比赛有绫总
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5号还有联动  绫总已经失去了单独开台的能力
 
+
+
+*****
+
+####  stedckk  
+##### 14094#       发表于 2022-4-2 11:33
+
+5号啥联动啊
+
