@@ -8855,3 +8855,12 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ZyLintheMax  
+##### 57745#       发表于 2022-4-2 14:39
+
+龙珠天津饭气功炮都用多少次了，压制沙鲁时还连发呢，没什么比漫画人物使出某种绝招要折寿更cjb的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
