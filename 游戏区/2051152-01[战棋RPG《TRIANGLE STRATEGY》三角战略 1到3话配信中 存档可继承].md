@@ -14060,3 +14060,14 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 这种可以 用绝技复活好像不行</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被二周目困难第一关折磨得死去活来，王子上周目离队了，然后二周目才27级，无限死人绝望
 
+
+
+*****
+
+####  Aresu  
+##### 1249#       发表于 2022-4-3 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55297628&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-4-3 12:29</a>
+被二周目困难第一关折磨得死去活来，王子上周目离队了，然后二周目才27级，无限死人绝望 ...</blockquote>
+带个冲锋领巾传送回来呗
+
