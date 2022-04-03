@@ -10462,3 +10462,21 @@ fmt是不是以谈话为主，演出强度不会太高吧？</blockquote>一般t
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天各种事故
 
+
+
+*****
+
+####  lj205  
+##### 6746#       发表于 2022-4-3 16:42
+
+就怕场面突然安静
+
+*****
+
+####  player3960  
+##### 6747#       发表于 2022-4-3 16:51
+
+吓出一身冷汗，下次别再搞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
