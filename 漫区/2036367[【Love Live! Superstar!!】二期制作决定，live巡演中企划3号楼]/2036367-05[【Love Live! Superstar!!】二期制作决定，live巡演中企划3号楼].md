@@ -10782,3 +10782,22 @@ EB2ECEAB-3217-4CC4-AF8B-1D04A063E160.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虹星双推表示已经追不起了，虹cd啥的就够吃一壶了，星那堆fmt 啥的只能白piao 了
 
+
+
+*****
+
+####  Enakina  
+##### 6767#       发表于 2022-4-3 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55304312&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-04-03 22:25:01</a>
+虹星双推表示已经追不起了，虹cd啥的就够吃一壶了，星那堆fmt 啥的只能白piao 了 ...</blockquote>现在官方演都不演了，多团推的处境只会越发艰难了吧，我之前还觉得虹2期星团能放个长假，鲤鱼她们能多忙一下个人活动之类的，我可能更愿意给个人活动掏钱吧，现在看来都是打工人，休息是不存在的，以后可能这种撞车才是常态
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  甘蓝巧克力  
+##### 6768#       发表于 2022-4-3 22:51
+
+单推人表示活动多钱包顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">随机挑选一场来付钱吧
+
