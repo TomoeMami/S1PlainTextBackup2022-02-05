@@ -10391,3 +10391,35 @@ fmt是不是以谈话为主，演出强度不会太高吧？</blockquote>一般t
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  寒风夜  
+##### 6739#       发表于 2022-4-3 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55298882&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-4-3 14:39</a>
+
+一般talk和live五五开吧，主要是名古屋和水东蛋撞大车了啊，我不理解
+
+  -- 来自 能搜索的 Stage1官方 Andr ...</blockquote>
+出大事咯
+
+*****
+
+####  寒风夜  
+##### 6740#       发表于 2022-4-3 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55298882&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-4-3 14:39</a>
+
+一般talk和live五五开吧，主要是名古屋和水东蛋撞大车了啊，我不理解
+
+  -- 来自 能搜索的 Stage1官方 Andr ...</blockquote>
+
+*****
+
+####  离心  
+##### 6741#       发表于 2022-4-3 14:47
+
+我只能评价逆天运营
+

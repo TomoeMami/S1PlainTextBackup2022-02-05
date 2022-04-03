@@ -8922,3 +8922,75 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 明明直接塑造一个大家车轮战干掉多好，非要路飞这么耗着，好烦躁
 
+
+
+*****
+
+####  萝卜roto  
+##### 57751#       发表于 2022-4-3 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55226327&amp;ptid=98922" target="_blank">acejoe 发表于 2022-3-29 10:18</a>
+什么时候说的？
+尾田靠乱加新设定增强削弱，你在新设定前吹自然被嘲。</blockquote>
+他是黄婆卖瓜2333
+
+—— 来自 realme RMX3370, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  mrlunzer  
+##### 57752#       发表于 2022-4-3 08:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">燃烧生命小意思，你看隔壁燃烧专业户圣斗士不也有活了几百年的童虎老师
+
+*****
+
+####  GreenBird  
+##### 57753#       发表于 2022-4-3 11:42
+
+胡闹的表现方式可以在战斗的初期，或者小boss体现就行。作为最核心的皇级战斗的最后阶段来这个一出，我看不懂了。虽然有趣，但是突兀。
+
+*****
+
+####  逸yi  
+##### 57754#       发表于 2022-4-3 11:57
+
+卡了六页呢.
+
+*****
+
+####  7sevenseven  
+##### 57755#       发表于 2022-4-3 12:09
+
+又卡页了
+
+*****
+
+####  超紳士  
+##### 57756#       发表于 2022-4-3 13:27
+
+下次漫区谁再笑创孝子，外野谁再笑粉圈，我就把这楼里不肯承认沉没成本的人给他们看。
+
+*****
+
+####  reficul  
+##### 57757#       发表于 2022-4-3 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55278466&amp;ptid=98922" target="_blank">sullen 发表于 2022-4-1 22:46</a>
+
+消耗寿命，能不能用生命归还补回来啊？
+
+另外估计罗杰早死也跟这种消耗生命的战斗方式有关系。 ...</blockquote>
+生命归还只是这么个名字而已吧，表现出来的不都是用气控制头发的
+
+倒不如说罗的手术果实有没有用
+
+*****
+
+####  Supermangunv3  
+##### 57758#       发表于 2022-4-3 14:45
+
+<blockquote>超紳士 发表于 2022-4-3 13:27
+下次漫区谁再笑创孝子，外野谁再笑粉圈，我就把这楼里不肯承认沉没成本的人给他们看。 ...</blockquote>
+同意，尾田孝子实在太sb了
+
