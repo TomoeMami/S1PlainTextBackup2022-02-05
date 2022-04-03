@@ -10684,3 +10684,19 @@ ttk
 
 <img src="https://img.saraba1st.com/forum/202204/03/183314axddi6l9wlfixozz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  we89623  
+##### 6760#       发表于 2022-4-3 20:55
+
+到底搞不搞二单了，我发现不管是虹还是星都只发行出道曲一单之后就没有数字单曲了？我要想看数字单曲的PV啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 6761#       发表于 2022-4-3 21:00
+
+虹星连着动画，日升大概是没人手给你做pv单了
+
