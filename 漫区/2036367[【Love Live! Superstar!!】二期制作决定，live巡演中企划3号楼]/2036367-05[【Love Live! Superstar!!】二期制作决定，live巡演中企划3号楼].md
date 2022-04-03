@@ -10748,3 +10748,16 @@ EB2ECEAB-3217-4CC4-AF8B-1D04A063E160.jpeg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  player3960  
+##### 6764#       发表于 2022-4-3 22:06
+
+是不是每个团队有自己的KPI啊，然后星团要完不成指标了，只好狂的开live，大干快上…[
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（我瞎说的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
