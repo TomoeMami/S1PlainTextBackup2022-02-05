@@ -14012,3 +14012,22 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 靠，第十四章再打奥罗拉的时候把分兵两路，缩小巷，直接奇袭试图一回合秒杀都失败了。最后还是靠全员站在原 ...</blockquote>
 那关游戏内推荐就是两俩会放电的，基本是官方认证战术了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ryj  
+##### 1244#       发表于 2022-4-3 11:23
+
+桶的技能伤害是看力量还是魔力？还是都无关？
+
+*****
+
+####  loley  
+##### 1245#       发表于 2022-4-3 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55295710&amp;ptid=2051152" target="_blank">历史厨 发表于 2022-04-03 09:33:35</a>
+那关游戏内推荐就是两俩会放电的，基本是官方认证战术了吧</blockquote>这游戏困难难度确实都是靠官方推荐的偷鸡摸狗战术才比较容易。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
