@@ -10761,3 +10761,24 @@ EB2ECEAB-3217-4CC4-AF8B-1D04A063E160.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 6765#       发表于 2022-4-3 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55303939&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-04-03 21:54:36</a>
+一股运营内斗，对赌的味道冒出来了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的  v2.5.3 ...</blockquote>三个团的负责人勾心斗角，互相算计，是不。这不比拉拉好看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 6766#       发表于 2022-4-3 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虹星双推表示已经追不起了，虹cd啥的就够吃一壶了，星那堆fmt 啥的只能白piao 了
+
