@@ -10169,3 +10169,91 @@ EB141225-04CF-4C57-9F81-F69CCE9402D0.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  仟音一心  
+##### 6728#       发表于 2022-4-3 09:13
+
+<blockquote>Liella_2nd_名古屋Day1
+
+名古屋公演Day1🌷
+
+谢谢大家！！！🌸
+
+果然，像香音酱那样全力演出的时候是最开心的...！💪
+
+每一瞬间都是宝物💫
+
+发色稍微暗了一些☺️
+
+明天也要热烈起来哦！！
+
+#lovelive #Liella! #SunnyPassion </blockquote>
+
+07C8F2B9-4AF6-4C89-BEA7-3C33D17C66E6.jpeg
+(310.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 09:13 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/091342yy0q0v8itol0iiz8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C9C97DF2-9473-449E-91AD-B78351876D11.jpeg
+(205.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 09:13 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/091342fxanxm3xssfksyll.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6729#       发表于 2022-4-3 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55292980&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-2 23:26</a>
+
+话说鲤鱼在外景节目说 “男友视角” 真的很危险啊，如果鲤鱼不是有外国人盾牌+不读空气人设真的可能会被炎 ...</blockquote>
+也就这样了
+
+8AAFECF7-B24F-4CE2-8EC7-656B3617136C.jpeg
+(935.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 09:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/092257qw9sswgisw14tb4k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 6730#       发表于 2022-4-3 09:25
+
+<img src="https://p.sda1.dev/5/3e5e19e039707382dbabf87a07320ac4/yande.re 949058 love_live!_super_star!!.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6731#       发表于 2022-4-3 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55293054&amp;ptid=2036367" target="_blank">player3960 发表于 2022-4-2 23:32</a>
+
+不是已经被5厕炎上过了吗？虽然那楼也没几层。
+
+其实鲤鱼有说像VRgame，真要圆其实也圆得过去。</blockquote>
+男友视角这个梗日本也玩的
+
+803AEC13-A19F-40BF-B199-CDBC0CAE3745.jpeg
+(122.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 09:25 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/092549s2w29zw7bt2789wa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

@@ -13991,3 +13991,24 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 不想玩二周目的话一周目直接走真结局吧
 
+
+
+*****
+
+####  loley  
+##### 1242#       发表于 2022-4-3 09:27
+
+靠，第十四章再打奥罗拉的时候把分兵两路，缩小巷，直接奇袭试图一回合秒杀都失败了。最后还是靠全员站在原地楼梯上往水池扔石头削血量无死亡过的，上次也是呆在屋顶射箭，感觉没一次是正大光明和她打的。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  历史厨  
+##### 1243#       发表于 2022-4-3 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55295669&amp;ptid=2051152" target="_blank">loley 发表于 2022-4-3 09:27</a>
+
+靠，第十四章再打奥罗拉的时候把分兵两路，缩小巷，直接奇袭试图一回合秒杀都失败了。最后还是靠全员站在原 ...</blockquote>
+那关游戏内推荐就是两俩会放电的，基本是官方认证战术了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
