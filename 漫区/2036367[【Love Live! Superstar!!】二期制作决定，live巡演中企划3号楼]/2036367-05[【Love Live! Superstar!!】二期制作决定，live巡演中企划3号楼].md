@@ -10801,3 +10801,12 @@ EB2ECEAB-3217-4CC4-AF8B-1D04A063E160.jpeg
 
 单推人表示活动多钱包顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">随机挑选一场来付钱吧
 
+
+
+*****
+
+####  lj205  
+##### 6769#       发表于 2022-4-3 23:09
+
+虽然面临装修但是该支持还是会掏钱，单推人稍微压力不大吧……大不了几个非必要电器以后再买……
+
