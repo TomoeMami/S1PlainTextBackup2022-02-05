@@ -14031,3 +14031,12 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Vladimeow  
+##### 1246#       发表于 2022-4-3 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想问下，套了复活的人死了再活这种在最后会算无死人过关然后给那个复活饰品吗？
+
