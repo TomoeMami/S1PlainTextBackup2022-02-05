@@ -10735,3 +10735,16 @@ EB2ECEAB-3217-4CC4-AF8B-1D04A063E160.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/03/212555kz4edzpv0zwwajuj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6763#       发表于 2022-4-3 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55301060&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-4-3 18:15</a>
+冷知识:水东蛋，虹二期最终话，星fmt都在同一天</blockquote>
+一股运营内斗，对赌的味道冒出来了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

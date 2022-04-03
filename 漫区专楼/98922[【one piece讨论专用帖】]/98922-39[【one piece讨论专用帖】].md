@@ -8994,3 +8994,15 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 下次漫区谁再笑创孝子，外野谁再笑粉圈，我就把这楼里不肯承认沉没成本的人给他们看。 ...</blockquote>
 同意，尾田孝子实在太sb了
 
+
+
+*****
+
+####  拉鲁拉丝  
+##### 57759#       发表于 2022-4-3 21:57
+
+<img src="https://p.sda1.dev/5/daf84296bccfc98e972ca4b71c02ab24/IMG_CMP_150245415.jpeg" referrerpolicy="no-referrer">
+世界政府抓住你卡果实的重要时刻。
+
+—— 来自 samsung SM-T865N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
