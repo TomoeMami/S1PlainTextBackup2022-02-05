@@ -10570,3 +10570,22 @@ FDA39405-8446-4572-8292-D17F88530D3F.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/03/171313ymnyegmh4gxmogyy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6749#       发表于 2022-4-3 17:25
+
+其实我隐约有种鲤鱼今天状态有点怪怪的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6750#       发表于 2022-4-3 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55300490&amp;ptid=2036367" target="_blank">lj205 发表于 2022-04-03 17:25:32</a>
+其实我隐约有种鲤鱼今天状态有点怪怪的错觉</blockquote>在为接下来的大战头疼（x），谁都有状态不好的时候，看开吧，而且总体也还好吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
