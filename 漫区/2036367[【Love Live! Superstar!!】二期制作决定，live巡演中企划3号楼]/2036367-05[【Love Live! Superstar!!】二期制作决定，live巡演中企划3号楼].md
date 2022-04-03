@@ -10281,3 +10281,66 @@ C9C97DF2-9473-449E-91AD-B78351876D11.jpeg
 昨天没看 小百合嗓子如何了？</blockquote>
 从我这个外行人的角度看，一巡后期那种外行也看（听）得出来的疲态明显减弱（我的参照对象主要是solo、常夏、小星星和未来预报，今天如果有星光序曲也可以多加注意）。当然今天day2我觉得大概率会比昨天差，所以有条件的话还是推荐听听day1的（昨天因为虹团二期开播分走了些人力，之后应该会像之前那样有大佬把整场live放出来）。我昨天是在B站看的，弹幕评论也是一次比一次好这种，而没有了担心嗓子之类的。
 
+
+
+*****
+
+####  仟音一心  
+##### 6734#       发表于 2022-4-3 12:23
+
+合照
+
+BFB08878-09C2-4DD2-8429-A27610D01341.jpeg
+(424.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/122241mltx6t991gglgxhz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BEC2B579-7BD4-4D31-9BBC-C5A4B60B628E.jpeg
+(425.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/122241aytfk5oza8yyfhto.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CF21606E-0FD2-423D-9597-26BCB2435FE4.jpeg
+(357.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/122241h8a8iai480l7j2sj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+47005DC0-C9F7-4038-8AEE-EC0DAFDFFF96.jpeg
+(417.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/122240layi6ojooyoyo644.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+63EBB883-78E9-4AA0-BA95-7C18E7D62217.jpeg
+(408.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/122240r39z4ku73bbv5c3h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AA44ABB5-2A6D-4F9D-AC19-3C2DEB468507.jpeg
+(382.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-3 12:22 上传
+
+<img src="https://img.saraba1st.com/forum/202204/03/122240gttzk8y61037nv1m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

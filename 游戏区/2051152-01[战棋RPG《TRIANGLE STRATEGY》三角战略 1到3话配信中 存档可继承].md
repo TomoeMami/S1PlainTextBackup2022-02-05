@@ -14040,3 +14040,23 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想问下，套了复活的人死了再活这种在最后会算无死人过关然后给那个复活饰品吗？
 
+
+
+*****
+
+####  Aresu  
+##### 1247#       发表于 2022-4-3 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55297097&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-4-3 11:42</a>
+想问下，套了复活的人死了再活这种在最后会算无死人过关然后给那个复活饰品吗？ ...</blockquote>
+这种可以 用绝技复活好像不行
+
+*****
+
+####  Vladimeow  
+##### 1248#       发表于 2022-4-3 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55297335&amp;ptid=2051152" target="_blank">Aresu 发表于 2022-4-3 12:03</a>
+这种可以 用绝技复活好像不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被二周目困难第一关折磨得死去活来，王子上周目离队了，然后二周目才27级，无限死人绝望
+
