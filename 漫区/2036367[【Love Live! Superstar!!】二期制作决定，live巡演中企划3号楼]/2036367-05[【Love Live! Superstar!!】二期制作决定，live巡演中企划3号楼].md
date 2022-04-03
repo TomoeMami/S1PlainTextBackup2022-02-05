@@ -10432,3 +10432,15 @@ fmt是不是以谈话为主，演出强度不会太高吧？</blockquote>一般t
 
 今天买了破站的看，原画真是太爽了，慢的这10分钟我完全可以接受，关键是原画也完全不卡顿
 
+
+
+*****
+
+####  megapikachu  
+##### 6743#       发表于 2022-4-3 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55299648&amp;ptid=2036367" target="_blank">lj205 发表于 2022-4-3 15:58</a>
+
+今天买了破站的看，原画真是太爽了，慢的这10分钟我完全可以接受，关键是原画也完全不卡顿 ...</blockquote>
+今天毕竟day2，感觉跟昨天比还是差一些，有条件的话推荐补一下昨天的。
+
