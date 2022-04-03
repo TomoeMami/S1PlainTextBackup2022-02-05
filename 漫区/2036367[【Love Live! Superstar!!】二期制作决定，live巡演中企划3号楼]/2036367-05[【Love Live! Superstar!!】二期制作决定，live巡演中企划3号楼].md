@@ -10444,3 +10444,21 @@ fmt是不是以谈话为主，演出强度不会太高吧？</blockquote>一般t
 今天买了破站的看，原画真是太爽了，慢的这10分钟我完全可以接受，关键是原画也完全不卡顿 ...</blockquote>
 今天毕竟day2，感觉跟昨天比还是差一些，有条件的话推荐补一下昨天的。
 
+
+
+*****
+
+####  cat1230  
+##### 6744#       发表于 2022-4-3 16:36
+
+星团的运营一定天天听小星星这首歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  csolfans  
+##### 6745#       发表于 2022-4-3 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天各种事故
+

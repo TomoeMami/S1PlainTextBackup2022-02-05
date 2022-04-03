@@ -16405,3 +16405,12 @@ SC等收益跟774的分成比例跟现在一样不变
 
 这次大概也有只有自定义才能练世界边缘的原因吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 11976#       发表于 2022-4-3 16:25
+
+加班到今天才有时间抽空听了一耳朵杏星新人初配信，幽灵像女魂、怪盗有点男大姐的味儿，漫画家还成就是rp那パリピ语气真没必要用那么频繁，道明寺……对道明寺印象只有当年看马盯你时候的那点没想到本音其实高很多，带着旧时代大物(?)的滤镜看好像也没有什么特别的……<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
