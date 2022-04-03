@@ -10257,3 +10257,15 @@ C9C97DF2-9473-449E-91AD-B78351876D11.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/03/092549s2w29zw7bt2789wa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 6732#       发表于 2022-4-3 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55290068&amp;ptid=2036367" target="_blank">megapikachu 发表于 2022-4-2 20:38</a>
+
+今天可以说是除跨年以外的最佳表现了，但是跨年是一人9曲，今天是一人15曲上下。 ...</blockquote>
+昨天没看 小百合嗓子如何了？
+
