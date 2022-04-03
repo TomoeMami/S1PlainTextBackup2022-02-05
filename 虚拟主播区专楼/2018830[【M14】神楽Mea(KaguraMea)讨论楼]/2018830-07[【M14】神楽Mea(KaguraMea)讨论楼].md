@@ -9742,3 +9742,21 @@ mea不是说不会有任何纪念活动的吗（
 
 说实话我还以为你麻又在什么我不知道的群里面被anti冲击了，结果看下来发现是事业民的日常狗嘴吐勾八<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  freeze_雪风  
+##### 10031#       发表于 2022-4-4 00:03
+
+发生什么了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 10032#       发表于 2022-4-4 00:18
+
+还是各位太闲了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
