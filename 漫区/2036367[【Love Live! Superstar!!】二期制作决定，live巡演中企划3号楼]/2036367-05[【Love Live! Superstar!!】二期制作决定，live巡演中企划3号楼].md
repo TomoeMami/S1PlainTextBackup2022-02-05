@@ -10372,3 +10372,22 @@ AA44ABB5-2A6D-4F9D-AC19-3C2DEB468507.jpeg
 
 fmt是不是以谈话为主，演出强度不会太高吧？
 
+
+
+*****
+
+####  寒风夜  
+##### 6737#       发表于 2022-4-3 14:35
+
+这。。。
+
+*****
+
+####  Enakina  
+##### 6738#       发表于 2022-4-3 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55298569&amp;ptid=2036367" target="_blank">starring 发表于 2022-04-03 14:03:13</a>
+fmt是不是以谈话为主，演出强度不会太高吧？</blockquote>一般talk和live五五开吧，主要是名古屋和水东蛋撞大车了啊，我不理解
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

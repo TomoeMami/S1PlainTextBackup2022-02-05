@@ -12205,3 +12205,16 @@ zsyl 艾白还带美瞳/隐形眼镜啊<img src="https://static.saraba1st.com/im
 
 大晚上投票钓了1700多人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  suzumiya123  
+##### 5795#       发表于 2022-4-3 14:32
+
+整了几个切片，第一次用pr剪视频，求一些建议
+
+【文静直播-最佳神回篇章合集-哔哩哔哩】 [https://b23.tv/zB2CV3C](https://b23.tv/zB2CV3C)
+
+【文静直播-最佳神回篇章合集02-哔哩哔哩】 [https://b23.tv/dcPoWAs](https://b23.tv/dcPoWAs)
+
