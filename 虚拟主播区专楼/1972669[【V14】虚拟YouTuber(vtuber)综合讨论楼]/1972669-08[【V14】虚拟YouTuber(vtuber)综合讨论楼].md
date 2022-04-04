@@ -16523,3 +16523,21 @@ vox这种4位数涨幅的不要来碰瓷
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  IDIDIDID  
+##### 11987#       发表于 2022-4-4 09:50
+
+JP king负责主流出道方面的数字，EN KING负责直播间相关的数字，不矛盾。
+
+至于杏奴站着挨打就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 11988#       发表于 2022-4-4 09:51
+
+还是那句话二哥你嗯打游戏不唱跳的样子和隔壁嗯打游戏的三姐一个样。
+
