@@ -9073,3 +9073,15 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 海贼龙球辱基督的传统可能来自日漫鼻祖之一恶魔人，事实上带着恶魔人血统的ACG对基督教都不友好，剑风，女神转生系列，还有直接把基督当敌人的作品，比如漂流者和百亿之昼千亿之夜。
 
+
+
+*****
+
+####  希斯塔姆  
+##### 57766#       发表于 2022-4-4 17:55
+
+这1045话我全程就是<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">的表情
+怎么都好，你赶紧把凯多锤飞吧，累了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
