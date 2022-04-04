@@ -16566,3 +16566,23 @@ JP king负责主流出道方面的数字，EN KING负责直播间相关的数字
 
 二哥跟king唱的半斤八两，但是跳的比king好多了
 
+
+
+*****
+
+####  毛头小希  
+##### 11992#       发表于 2022-4-4 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55306232&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-4-4 02:32</a>
+
+所以狐皇gaku的2000Wsc怎么出来的
+
+四年之力聚集我身？</blockquote>
+铜仁钕体感
+
+肯定不是只有Gaku单推富婆
+
+应该也有一部分刀粉和⑨人CP粉
+
+这部分人也是憋很久了
+
