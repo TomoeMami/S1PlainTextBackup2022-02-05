@@ -6010,3 +6010,12 @@ P梅林就是星之兽
 芙芙正常进化是P梅林那样也说不准</blockquote>
 昨天还看到这个猜想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> P梅林还有个动作模组是芙芙飞踢
 
+
+
+*****
+
+####  cckuku  
+##### 87522#       发表于 2022-4-4 21:38
+
+这新情报是不是把泳装艾蕾写脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
