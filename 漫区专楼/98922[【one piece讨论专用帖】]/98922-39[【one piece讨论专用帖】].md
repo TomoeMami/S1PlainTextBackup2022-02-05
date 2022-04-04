@@ -9085,3 +9085,15 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  教皇  
+##### 57767#       发表于 2022-4-4 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55306922&amp;ptid=98922" target="_blank">和真克瓦尔 发表于 2022-4-4 08:30</a>
+
+恶魔果实，神的天敌，这些早就是明示海贼王和基督教叙事不对付，没卵红脖不必在海贼烂掉的现在才 ...</blockquote>
+教皇：日本ACG都是异端！
+
