@@ -10810,3 +10810,12 @@ EB2ECEAB-3217-4CC4-AF8B-1D04A063E160.jpeg
 
 虽然面临装修但是该支持还是会掏钱，单推人稍微压力不大吧……大不了几个非必要电器以后再买……
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 6770#       发表于 2022-4-4 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
