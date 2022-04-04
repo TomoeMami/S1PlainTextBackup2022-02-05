@@ -16512,3 +16512,14 @@ vox这种4位数涨幅的不要来碰瓷
 
 四年之力聚集我身？
 
+
+
+*****
+
+####  真飞鸟i  
+##### 11986#       发表于 2022-4-4 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道vox不是已经带着虹mga了吗，上月sc前十五个虹男，虹sc在俩强确定后第一次超木口，vox50w纪念同接3w8，死神生日凸待才2w8。虹en男最强！
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
