@@ -9175,3 +9175,15 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 基督教：恶魔果实，天龙人名字里面加的圣，方舟诺亚， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来佛教元素目前只有战国的果实，和一些招式名
 
+
+
+*****
+
+####  klzxs  
+##### 57774#       发表于 2022-4-4 23:00
+
+并不想讨论是否是伏笔云云
+
+不过知道了现在的情报再回去看以前的一些情节是会有些不一样的体会和乐趣
+<img src="https://p.sda1.dev/5/834a715acf0d848f72d66cd5ad02ab6f/太阳s.jpg" referrerpolicy="no-referrer">
+
