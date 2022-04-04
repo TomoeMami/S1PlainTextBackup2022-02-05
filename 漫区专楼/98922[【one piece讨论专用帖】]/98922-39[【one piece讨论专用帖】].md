@@ -9097,3 +9097,34 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 恶魔果实，神的天敌，这些早就是明示海贼王和基督教叙事不对付，没卵红脖不必在海贼烂掉的现在才 ...</blockquote>
 教皇：日本ACG都是异端！
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 57768#       发表于 2022-4-4 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55312331&amp;ptid=98922" target="_blank">教皇 发表于 2022-4-4 19:47</a>
+
+教皇：日本ACG都是异端！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">亚文化影响力还是小啊，假如有HP的规模怕是真变禁书。这届教皇是个魔鬼附身的白左还好点，换上届的西斯大帝，连HP这等处处致敬推崇基督教精神的小说都打成撒旦魔书（罗琳大妈都让巫师们过圣诞节，已经是一百八十度全方面跪舔咯，然而也不行）
+
+*****
+
+####  Supermangunv3  
+##### 57769#       发表于 2022-4-4 20:22
+
+<blockquote>和真克瓦尔 发表于 2022-4-4 20:20
+亚文化影响力还是小啊，假如有HP的规模怕是真变禁书。这届教皇是个魔鬼附身的白左还好点，换上届 ...</blockquote>
+虽然海贼现在篇章算是烂的，不过直球乳白人还是很爽的。
+
+*****
+
+####  和真克瓦尔  
+##### 57770#       发表于 2022-4-4 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55312704&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-4-4 20:22</a>
+
+虽然海贼现在篇章算是烂的，不过直球乳白人还是很爽的。</blockquote>
+没错，单说这方面在我这里是加分项
+
