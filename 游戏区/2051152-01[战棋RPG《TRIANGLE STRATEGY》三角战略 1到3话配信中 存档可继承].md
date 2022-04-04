@@ -14119,3 +14119,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  llysander  
+##### 1255#       发表于 2022-4-4 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55308801&amp;ptid=2051152" target="_blank">loley 发表于 2022-4-4 12:37</a>
+
+有问题想问下，现在在十五章三选一之前，想用读档术把留王城和保护粉毛村玩一下，再把十七章三个NE玩一下。 ...</blockquote>
+十六就是共同的，也就是被说各路线衔接不太对劲的那种。
+
+十五后有一点点不同，因为交换三路情报的时候，是由没有选的两路的来单独汇报
+
