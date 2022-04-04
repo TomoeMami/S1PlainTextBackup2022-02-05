@@ -9161,3 +9161,17 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 以及乡土爱的和之国，这就不提了
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 57773#       发表于 2022-4-4 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55313168&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-4-4 21:01</a>
+
+现在也可以整理一下海贼用的各种明显的神话用典了
+
+基督教：恶魔果实，天龙人名字里面加的圣，方舟诺亚， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看来佛教元素目前只有战国的果实，和一些招式名
+
