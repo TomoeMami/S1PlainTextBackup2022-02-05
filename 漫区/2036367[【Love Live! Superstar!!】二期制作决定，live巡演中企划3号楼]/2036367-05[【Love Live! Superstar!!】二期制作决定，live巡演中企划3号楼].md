@@ -11025,3 +11025,25 @@ Live上没聊食物，今天的广播全是聊吃<img src="https://static.saraba
 live是类似于初音live那种虚拟live？那样的话声优不是完全为企划打工，一点露脸的机会都没有吗emmm ...</blockquote>
 搞live的成本可比打游戏聊天高多了  没3D模型蹭都没法蹭 所以一般只有大会社愿意搞 能上的一般也不愁吃饭  有自信且合同没问题的话直接一转女主播超美丽3D直播就是了 至于没曝光度的底边那确实是死了也没人在意
 
+
+
+*****
+
+####  cat1230  
+##### 6790#       发表于 2022-4-5 20:45
+
+ 本帖最后由 cat1230 于 2022-4-5 20:47 编辑 
+
+看了B站2个UP（贝比，伽黎）LIVE返视频，都拿到了鲤鱼的res还被认出来了，感觉这样门票就花的很值了啊，在一想线上票和现地一个价就感觉很微妙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现地是不是要抽选？抽不中钱就打水漂了，线上确保百分百能看，或许这是优势吧。
+
+还是穷闹的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6791#       发表于 2022-4-5 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324668&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-04-05 20:45:10</a></blockquote>抽选是抽中了在付票钱的，然后需要碟里塞的抽选码去抽，一般可以在煤炉上便宜的去收，价格也取决于这场live看的人数。需要叠多上张抽选也是取决于场地，人数等。座位是全随机的，可能是前排，也可能是山顶洞人。最后，如果当天有空位，也会直接出售器材票，但位置一般都是最烂的那种了。至于res这种只能看缘分和运气了，好多做前排的也拿不到鲤鱼的res，不过名古屋鲤鱼估计自搜看见了，名古屋很努力的去互动了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
