@@ -14234,3 +14234,16 @@ P.S 给教国当狗打铁国，有种梁山好汉招安后讨方腊的感觉，�
 
 剧情上除了对线路走向不满外，还有一点不满就是参与主线的人物太少了，从头到尾就七个人投票，枪圣、冰法、参谋、王女、欧若拉这种和主线关系强的明明可以做进投票圈，在主线发挥更多戏份，现在队友入队就成了空气了。
 
+
+
+*****
+
+####  Vladimeow  
+##### 1264#       发表于 2022-4-5 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55320771&amp;ptid=2051152" target="_blank">martinhe 发表于 2022-4-5 14:48</a>
+一周目通了王子线，真是我以为王子你是孙策，搞了半天是个阿斗
+
+讲真，现在王子线就应该改改作为一个共通NE ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底还是罗兰这人眼高手低和王国积累下来的烂根子，以及被铁国搅了屎。其实细水长流说估计还能让玩家接受，问题是15话之后转折太突兀了，搞得他像双面人一样。
+
