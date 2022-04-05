@@ -9354,3 +9354,27 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 2022-4-5 18:36 上传
 
+
+
+*****
+
+####  Supermangunv3  
+##### 57788#       发表于 2022-4-5 18:49
+
+<blockquote>肩上的乌鸦 发表于 2022-4-5 18:17
+有人猜测结局可能是薇薇变成天龙人。
+
+尾田的思路一直是打跑坏国王，换个好国王就解决问题了。
+</blockquote>
+薇薇变成天龙人不如猜巴基真的变成神…
+
+*****
+
+####  uponutopia  
+##### 57789#       发表于 2022-4-5 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55323035&amp;ptid=98922" target="_blank">584520184 发表于 2022-4-5 18:35</a>
+
+除了老沙篇和镜像德岛篇，其他的还有么？</blockquote>
+几乎所有啊，磁鼓国空岛鱼人岛和国哪个不是
+
