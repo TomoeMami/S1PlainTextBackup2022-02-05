@@ -831,3 +831,27 @@ https://www.bilibili.com/v ...</blockquote>
 
 还是说我应该把“我不针对你的‘日本鬼子’部分”写在前面？
 
+
+
+*****
+
+####  绿茶与猫  
+##### 76#       发表于 2022-4-5 17:05
+
+ 本帖最后由 绿茶与猫 于 2022-4-5 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55310762&amp;ptid=2062438" target="_blank">ayanamilin 发表于 2022-4-4 16:50</a>
+inm民曾自诩圈子小门槛高，排斥一切小鬼。不过以现在的解构速度，留给正黄旗inm民的梗恐怕不多了罢。 ...</blockquote>
+正黄旗，那种东西存在吗？淫梦自己就是不停结构其他梗“偷”到自己身上的，而且国内早期的圈子就是基本是帮搬运工和吃三手屎的，还会esu系有很大重合，当年模仿日本人搞人肉网爆，这两年官方对esu人肉打击非常猛，不夹着尾巴做人，被翻出旧账可就乐了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  anicorn  
+##### 77#       发表于 2022-4-5 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55319869&amp;ptid=2062438" target="_blank">金钱与民主 发表于 2022-4-5 13:24</a>
+
+问题是国内很多人（比如精日）只会把这电影当洗地素材来用啊...</blockquote>
+你的逻辑不就和白左一样，因为4chan把ok手势作成了Racism的手势，就要反掉ok。
+
+那下次精日把末代皇帝拿来做洗地素材，末代皇帝也开始名不符实了？
+
