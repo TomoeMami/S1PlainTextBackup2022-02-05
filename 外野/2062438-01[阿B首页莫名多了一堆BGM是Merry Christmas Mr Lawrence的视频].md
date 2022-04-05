@@ -734,3 +734,21 @@ https://www.bilibili.com/v ...</blockquote>
 
 小约翰讲的那个是安吉丽娜朱莉拍的坚不可摧啊，这片子的艺术性和思想性和快乐圣诞差很远吧
 
+
+
+*****
+
+####  anicorn  
+##### 67#       发表于 2022-4-5 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55310362&amp;ptid=2062438" target="_blank">PENTAX-DA 发表于 2022-4-4 15:57</a>
+对版本龙一没什么意见
+
+但是谁要吹这片及日本鬼子都建议直接把可汗这期拍他脸上
+
+https://www.bilibili.com/v ...</blockquote>
+这片主要讲的是爱和武士道的斗争以及在这个过程中，信奉武士道的人内心的撕裂。我觉得就作品来说其实没什么可以太多挑剔的地方，除非你认为拍日本就是反战败<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+北野武最后那一幕已经讲的很清楚了
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -9806,3 +9806,28 @@ nga里版停止使用了吗，我想发帖发现没权限
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  路人庚  
+##### 10037#       发表于 2022-4-5 11:28
+
+ 本帖最后由 路人庚 于 2022-4-5 11:33 编辑 
+
+你咩姐怕不是熬通宵把脑子熬出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，nga里版还能用吧，建议艾特486<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 10038#       发表于 2022-4-5 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55315666&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-5 01:02</a>
+
+nga里版停止使用了吗，我想发帖发现没权限
+
+—— 来自 S1Fun</blockquote>
+ 几乎没什么人用，就没维护了，我刷新了下发帖机制，你再试试？
+
