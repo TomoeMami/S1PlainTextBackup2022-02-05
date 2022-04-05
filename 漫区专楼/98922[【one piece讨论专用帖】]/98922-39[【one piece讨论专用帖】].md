@@ -9282,3 +9282,75 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 2022-4-5 17:59 上传
 
+
+
+*****
+
+####  逸yi  
+##### 57781#       发表于 2022-4-5 18:13
+
+卡了七页了 换新楼吧
+
+*****
+
+####  肩上的乌鸦  
+##### 57782#       发表于 2022-4-5 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55321424&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2022-4-5 15:57</a>
+
+海贼里所有的革命内容都是本地贵族是好人，被外来人窃取权力，最后在主角的帮助下夺取权力的故事。就这君 ...</blockquote>
+有人猜测结局可能是薇薇变成天龙人。
+
+尾田的思路一直是打跑坏国王，换个好国王就解决问题了。
+
+所以把坏的天龙人打飞，换好的天龙人领袖，就是革命了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 57783#       发表于 2022-4-5 18:20
+
+又卡页了
+
+*****
+
+####  Supermangunv3  
+##### 57784#       发表于 2022-4-5 18:20
+
+又卡页了
+
+*****
+
+####  逸yi  
+##### 57785#       发表于 2022-4-5 18:21
+
+呃呃
+
+*****
+
+####  584520184  
+##### 57786#       发表于 2022-4-5 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55321424&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2022-4-5 15:57</a>
+
+海贼里所有的革命内容都是本地贵族是好人，被外来人窃取权力，最后在主角的帮助下夺取权力的故事。就这君 ...</blockquote>
+除了老沙篇和镜像德岛篇，其他的还有么？
+
+*****
+
+####  tyauto  
+##### 57787#       发表于 2022-4-5 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55322657&amp;ptid=98922" target="_blank">SteinLee 发表于 2022-4-5 17:59</a>
+
+本身巨大王国的logo就是十字，906话伊姆登场，被掩埋在玛丽乔亚的巨大王国遗址上就刻着十字花纹，看形制上 ...</blockquote>
+伊姆和鹰眼眼睛都是两个圈，而且前天龙人明哥对待鹰眼的态度有点玩味，难道鹰眼以前也是天龙人，说不定还是上三旗的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/05/183626edzu64wqakachq48.jpg" referrerpolicy="no-referrer">
+
+<strong>564645y45uj45u.jpg</strong> (21.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 18:36 上传
+

@@ -10935,3 +10935,22 @@ CE48A462-9020-4685-AAA9-99CDF5A1E426.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6781#       发表于 2022-4-5 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55322475&amp;ptid=2036367" target="_blank">llllife 发表于 2022-4-5 17:44</a>
+
+不是很懂v，但是让现有的声优穿上角色皮不是一样的效果吗，还是v圈不能解密皮下？(没混过v圈，只是有这样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你就当成只要愿意几乎每天都能跟粉丝实时互动的偶像吧 成本还低
+
+*****
+
+####  stygian  
+##### 6782#       发表于 2022-4-5 18:33
+
+不吹不黑，葛皇新专质量其实还挺不错的
+
