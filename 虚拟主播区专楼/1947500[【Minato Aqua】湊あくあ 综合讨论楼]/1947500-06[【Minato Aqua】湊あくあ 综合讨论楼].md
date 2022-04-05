@@ -10468,3 +10468,27 @@ Towa那个时候和余二人世界呢
 
 算了一下，那个1320带贴纸的套餐，贴纸比寿司加起来还贵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  colodes  
+##### 8681#       发表于 2022-4-5 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55323590&amp;ptid=1947500" target="_blank">离魂仙 发表于 2022-4-5 19:19</a>
+
+点进来一看2000踩，一脸茫然怎么还有反寿司党吗
+
+再一翻是合练开始暴涨的，更乐了
+
+2022年了还有阴湿虹人看切 ...</blockquote>
+今天的bug
+
+<img src="https://img.saraba1st.com/forum/202204/05/194654hb1bg1o2f2if1g1h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 19:46 上传
+
