@@ -14306,3 +14306,36 @@ P.S 给教国当狗打铁国，有种梁山好汉招安后讨方腊的感觉，�
 
 至于真结局非要找个解释就是男主育婴成功，强行把自己好兄弟扶起来了（可能背后还有py交易），至于后面会不会复刻奈德史塔克和劳勃拜拉席恩那就看浅野组做不做续作了
 
+
+
+*****
+
+####  TAQ  
+##### 1270#       发表于 2022-4-5 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55321478&amp;ptid=2051152" target="_blank">Vladimeow 发表于 2022-4-5 16:06</a>
+
+军师能力行，后面为了体现三人的冲突也给他强行塑造了过于功利的形象，比如在女主面前说 粉毛族这 ...</blockquote>
+军师这人物也有局限性，他对罗洁尔族的言辞可以看作是强行塑造戏剧冲突的一种手段，逼迫玩家站队，也可以看作他眼中只有鹰家人
+
+选了老婆线之后他和主人那段烈度极高的对手戏，表现出的那种寸步不让的立场确实挺打动我。毕竟老婆线和皇子线太整活了，是我我也急<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后面总帅对他的评价也符合这人的设定，满脑子保住鹰家，有能力，没野心
+
+*****
+
+####  hhgjf  
+##### 1271#       发表于 2022-4-5 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55321466&amp;ptid=2051152" target="_blank">听风不是雨 发表于 2022-4-5 16:04</a>
+
+我觉得罗兰还有一点很神必就是管家线想和公国合作好说歹说他死活不同意，宁愿卖国也不向杀父仇人低头，但真 ...</blockquote>
+真结局“两三句说服”道理上倒还好。毕竟进真结局需要见过总帅叔叔，亮明身份，商定合作。这个铺垫了真结局王子愿意向红国借炮这点。
+
+*****
+
+####  Vladimeow  
+##### 1272#       发表于 2022-4-5 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55321851&amp;ptid=2051152" target="_blank">TAQ 发表于 2022-4-5 16:50</a>
+军师这人物也有局限性，他对罗洁尔族的言辞可以看作是强行塑造戏剧冲突的一种手段，逼迫玩家站队，也可以 ...</blockquote>
+和主人公对手戏那段演出确实非常在线，也点出了他是活在过去的人，总体来说除了那句话有失偏颇我觉得军师塑造的还是不错的，总体剧情线上他也是表里如一了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
