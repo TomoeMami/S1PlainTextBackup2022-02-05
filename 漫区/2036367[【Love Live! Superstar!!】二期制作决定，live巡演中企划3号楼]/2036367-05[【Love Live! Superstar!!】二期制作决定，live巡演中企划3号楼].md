@@ -11112,3 +11112,22 @@ BD75AF0E-BB46-4C68-A76A-5CC6DBF6F566.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/05/224649b788l6lut8nq5rnu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wwyyw  
+##### 6797#       发表于 2022-4-6 01:02
+
+发现一个做弦乐演奏视频的油管主最近把视频也搬到 b 站了，比如
+
+[What a Wonderful Dream](https://www.bilibili.com/video/BV1oa411v7en)
+
+[Tiny Stars](https://www.bilibili.com/video/BV1xa411i7kH)
+
+有好几首 liella 和 liyuu 的曲子，不过可能有人已经在油管看过了的
+
+[油管账号](https://www.youtube.com/channel/UC3y3ZLe46d3tdTgAFgnFeBg)
+
+—— 来自 Xiaomi Redmi K30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
