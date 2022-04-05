@@ -9239,3 +9239,46 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 如果以反基督，辱白人的角度来看，那尼卡果实可能是早早就想好的，所以尾田肯定是左，不过还没有到马列（ ...</blockquote>
 海贼里所有的革命内容都是本地贵族是好人，被外来人窃取权力，最后在主角的帮助下夺取权力的故事。就这君君臣臣的故事内核还左？宁得右到什么程度啊
 
+
+
+*****
+
+####  SteinLee  
+##### 57780#       发表于 2022-4-5 17:59
+
+本身巨大王国的logo就是十字架，形制上和卡里布身上的logo还有鹰眼的剑相同，都是双尾浪花十字
+
+<img src="https://img.saraba1st.com/forum/202204/05/174533kwcccm1crmtc1a8t.png" referrerpolicy="no-referrer">
+
+<strong>1649151925(1).png</strong> (98.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202204/05/174908oy83yzdumjyerx38.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 17:49 上传
+
+有意思的是卡里布身上衣服本来是三尾浪花十字，但是后面修改成了双尾
+
+<img src="https://img.saraba1st.com/forum/202204/05/175217oy86trtdfyttbrfb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 17:52 上传
+
+<img src="https://img.saraba1st.com/forum/202204/05/175917ihdrdemwgd9sg0ry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 17:59 上传
+

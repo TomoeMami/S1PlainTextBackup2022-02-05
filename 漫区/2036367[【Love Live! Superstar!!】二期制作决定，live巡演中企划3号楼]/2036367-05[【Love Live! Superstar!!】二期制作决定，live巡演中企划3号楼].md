@@ -10905,3 +10905,21 @@ CE48A462-9020-4685-AAA9-99CDF5A1E426.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无聊跑去翻了翻V综发现某基本不会唱歌的顶流男v一专一天卖了3万9 也难怪运营非得想吃一口这碗饭了
 
+
+
+*****
+
+####  llllife  
+##### 6778#       发表于 2022-4-5 17:44
+
+<blockquote>稀勢のささ 发表于 2022-4-5 01:52
+无聊跑去翻了翻V综发现某基本不会唱歌的顶流男v一专一天卖了3万9 也难怪运营非得想吃一口这碗饭了 ...</blockquote>
+不是很懂v，但是让现有的声优穿上角色皮不是一样的效果吗，还是v圈不能解密皮下？(没混过v圈，只是有这样的印象)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 6779#       发表于 2022-4-5 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">裂拉几的照片怎么感觉鲤鱼又胖了？！脸怎么这么大
+

@@ -6030,3 +6030,12 @@ P梅林就是星之兽
 这新情报是不是把泳装艾蕾写脸上了</blockquote>
 没有期望过没有失望<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87524#       发表于 2022-4-5 17:44
+
+樱井光+三轮士郎，fate小说新系列启动
+
