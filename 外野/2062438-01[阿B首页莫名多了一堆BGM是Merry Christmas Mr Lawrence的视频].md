@@ -933,3 +933,16 @@ inm民曾自诩圈子小门槛高，排斥一切小鬼。不过以现在的解�
 一起A了，而且不想组织了，就罗列一下观点。</blockquote>
 你有病吧 
 
+
+
+*****
+
+####  gigbt  
+##### 84#       发表于 2022-4-6 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324150&amp;ptid=2062438" target="_blank">PENTAX-DA 发表于 2022-4-5 20:10</a>
+@ypossible   @anicorn  @左凉川 
+
+一起A了，而且不想组织了，就罗列一下观点。</blockquote>
+至少你的发言偏题了，想讨论电影建议单独发贴，此贴主题是inm
+
