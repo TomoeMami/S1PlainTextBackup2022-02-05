@@ -913,3 +913,23 @@ inm民曾自诩圈子小门槛高，排斥一切小鬼。不过以现在的解�
 
 8、真要说反战电影，我会说不如是《横空出世》，知识分子也好军人也好，上到决策层下到小兵，影片里的所有人才都是在努力促成和平的局面。
 
+
+
+*****
+
+####  timeforce  
+##### 82#       发表于 2022-4-6 03:14
+
+宇多田光改编的那个版本也很好听<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  糖然君  
+##### 83#       发表于 2022-4-6 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324150&amp;ptid=2062438" target="_blank">PENTAX-DA 发表于 2022-4-5 20:10</a>
+@ypossible   @anicorn  @左凉川 
+
+一起A了，而且不想组织了，就罗列一下观点。</blockquote>
+你有病吧 
+

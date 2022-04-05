@@ -12285,3 +12285,21 @@ zsyl 艾白还带美瞳/隐形眼镜啊<img src="https://static.saraba1st.com/im
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rayaxu  
+##### 5803#       发表于 2022-4-6 01:53
+
+404为啥对艾瑞斯攻击性这么强<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 5804#       发表于 2022-4-6 05:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55328027&amp;ptid=2013779" target="_blank">rayaxu 发表于 2022-4-6 01:53</a>
+404为啥对艾瑞斯攻击性这么强</blockquote>
+好欺负，克里斯p“警告”文静被调侃尸体后就不作声了。
+
