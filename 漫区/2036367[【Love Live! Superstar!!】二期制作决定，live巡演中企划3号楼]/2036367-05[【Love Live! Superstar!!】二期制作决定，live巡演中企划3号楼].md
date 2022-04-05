@@ -11007,3 +11007,21 @@ live是类似于初音live那种虚拟live？那样的话声优不是完全为�
 裂拉几的照片怎么感觉鲤鱼又胖了？！脸怎么这么大</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">胖点也没啥 后面这么多live
 
+
+
+*****
+
+####  starring  
+##### 6788#       发表于 2022-4-5 19:22
+
+Live上没聊食物，今天的广播全是聊吃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 6789#       发表于 2022-4-5 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55323580&amp;ptid=2036367" target="_blank">llllife 发表于 2022-4-5 19:19</a>
+live是类似于初音live那种虚拟live？那样的话声优不是完全为企划打工，一点露脸的机会都没有吗emmm ...</blockquote>
+搞live的成本可比打游戏聊天高多了  没3D模型蹭都没法蹭 所以一般只有大会社愿意搞 能上的一般也不愁吃饭  有自信且合同没问题的话直接一转女主播超美丽3D直播就是了 至于没曝光度的底边那确实是死了也没人在意
+
