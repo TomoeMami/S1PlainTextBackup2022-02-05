@@ -10923,3 +10923,15 @@ CE48A462-9020-4685-AAA9-99CDF5A1E426.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">裂拉几的照片怎么感觉鲤鱼又胖了？！脸怎么这么大
 
+
+
+*****
+
+####  player3960  
+##### 6780#       发表于 2022-4-5 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55322507&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-04-05 17:46:34</a>
+裂拉几的照片怎么感觉鲤鱼又胖了？！脸怎么这么大</blockquote>淡定，裂垃圾可能是之前录的，请以3号的live为准<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
