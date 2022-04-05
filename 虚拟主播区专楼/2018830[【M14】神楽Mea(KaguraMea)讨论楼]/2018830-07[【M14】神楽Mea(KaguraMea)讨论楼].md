@@ -9831,3 +9831,29 @@ nga里版停止使用了吗，我想发帖发现没权限
 —— 来自 S1Fun</blockquote>
  几乎没什么人用，就没维护了，我刷新了下发帖机制，你再试试？
 
+
+
+*****
+
+####  往世雷书  
+##### 10039#       发表于 2022-4-5 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55318627&amp;ptid=2018830" target="_blank">aisakahammer 发表于 2022-4-5 11:40</a>
+几乎没什么人用，就没维护了，我刷新了下发帖机制，你再试试？你ID和S1一样么？我设置了没声望的新用户不 ...</blockquote>
+发了，以前申请过权限，还以为能继续用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aisakahammer  
+##### 10040#       发表于 2022-4-5 12:16
+
+ 本帖最后由 aisakahammer 于 2022-4-5 12:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55318974&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-5 12:10</a>
+
+发了，以前申请过权限，还以为能继续用
+
+—— 来自 S1Fun</blockquote>
+应该处理好了，主要NGA很多东西发出去都要审核半天，修改下自己的发言也是，挺麻烦的。专楼修改下标题更新信息都要重新排序审核，会导致楼忽然消失，功能太弱智。
+
