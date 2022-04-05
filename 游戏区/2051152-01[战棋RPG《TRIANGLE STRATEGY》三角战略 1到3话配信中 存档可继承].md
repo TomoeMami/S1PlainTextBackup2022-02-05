@@ -14348,3 +14348,22 @@ P.S 给教国当狗打铁国，有种梁山好汉招安后讨方腊的感觉，�
 
 打了6关 综合水平奇高 出了恶心的转视角。
 
+
+
+*****
+
+####  martinhe  
+##### 1274#       发表于 2022-4-5 20:38
+
+刚又想起了一个槽点，我一周目王子线但是没送私盐，主角一行人其实到终战前和施瓦洛格没啥交集，但最后决战时一个个和施瓦洛格很熟的样子，只有我在想你们只见过他儿子吧，怎么和老爹那么熟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leachiman  
+##### 1275#         楼主| 发表于 2022-4-5 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324576&amp;ptid=2051152" target="_blank">martinhe 发表于 2022-4-5 20:38</a>
+
+刚又想起了一个槽点，我一周目王子线但是没送私盐，主角一行人其实到终战前和施瓦洛格没啥交集，但最后决战 ...</blockquote>
+7人组里至少有3个人本来就认识他吧
+
