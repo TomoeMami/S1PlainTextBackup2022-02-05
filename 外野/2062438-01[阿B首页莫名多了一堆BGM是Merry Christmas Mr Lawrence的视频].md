@@ -688,3 +688,14 @@ inm的本质就是欺负死基佬没人权 尽情玩梗尽情羞辱没人会斥�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  dclara1  
+##### 63#       发表于 2022-4-5 09:45
+
+这歌最早听的是押尾的指弹版，心目中编曲最强的一版
+
+— from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
