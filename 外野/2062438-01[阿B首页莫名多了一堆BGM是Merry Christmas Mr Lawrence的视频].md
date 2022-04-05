@@ -804,3 +804,30 @@ https://www.bilibili.com/v ...</blockquote>
 
 要不咋说inm是如此的讨厌呢？哦对了牠们还挺洋洋自得的，毕竟“淫梦梗的曲子怎么都这么好听呀”。
 
+
+
+*****
+
+####  森林巨魔  
+##### 74#       发表于 2022-4-5 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55320171&amp;ptid=2062438" target="_blank">金钱与民主 发表于 2022-4-5 13:51</a>
+要不咋说inm是如此的讨厌呢？哦对了牠们还挺洋洋自得的，毕竟“淫梦梗的曲子怎么都这么好听呀”。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这种属于脑子长在了屁股下面，恶臭得很
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  埃拉尼  
+##### 75#       发表于 2022-4-5 14:10
+
+ 本帖最后由 埃拉尼 于 2022-4-5 14:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55316848&amp;ptid=2062438" target="_blank">PENTAX-DA 发表于 2022-4-5 08:17</a>
+你看，你都不敢把我的话复述完
+
+你神气尼玛呢，二狗子</blockquote>
+短短两行字还需要复述？引用里面都能看完了好吧，具体的，你说了“吹这片”以及“日本鬼子”，要拿视频拍这些人脸上，我只针对“吹这片”的部分，请问我哪里说的不对吗？
+
+还是说我应该把“我不针对你的‘日本鬼子’部分”写在前面？
+

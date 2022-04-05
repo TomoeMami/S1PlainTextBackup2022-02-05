@@ -14178,3 +14178,17 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 对了 有人知道在收了奥罗拉和强盗父女后，第七章保护罗兰和第九章贩卖私盐这样的战斗上本人会有什么 ...</blockquote>
 上不了。战场上只能一个角色，对面上人了我方就不能选同一个人上阵
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 1260#       发表于 2022-4-5 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55319160&amp;ptid=2051152" target="_blank">dren_zheng 发表于 2022-04-05 12:26:03</a>
+据说不能选炸水库，其他两个路线都行
+
+因为按剧情，炸水库后女将军直接被水冲走，不是被罗兰他们打服的， ...</blockquote>我就是炸大坝进的真结局，冲走的女将军自己来加入了，没有影响。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

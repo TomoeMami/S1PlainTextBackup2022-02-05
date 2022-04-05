@@ -596,3 +596,14 @@ ps2赢了ns sfc
 
 DS5的R2键下边握把边缘会磨我的右手食指第二指节，很明显
 
+
+
+*****
+
+####  ZZonFire  
+##### 65#       发表于 2022-4-5 14:12
+
+xbox one和switch pro用的很舒服，其他的多少拉了不少
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
