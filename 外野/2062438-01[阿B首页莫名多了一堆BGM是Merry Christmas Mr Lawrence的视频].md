@@ -699,3 +699,19 @@ inm的本质就是欺负死基佬没人权 尽情玩梗尽情羞辱没人会斥�
 
 — from Google Pixel 4a (5G), Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  ypossible  
+##### 64#       发表于 2022-4-5 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55310362&amp;ptid=2062438" target="_blank">PENTAX-DA 发表于 2022-4-4 15:57</a>
+
+对版本龙一没什么意见
+
+但是谁要吹这片及日本鬼子都建议直接把可汗这期拍他脸上
+
+https://www.bilibili.com/v ...</blockquote>
+我对这个片子的理解一直是日本人自己对于武士道精神的跳脸嘲讽，也就是这个片子的主题是“日本人自以为傲的武士道精神在爱和人性面前啥都不是”，而不是在给日本**洗地“即使是**也有人性”。所以我一直觉得这片算为数不多的日本的真反思片了。。。
+
