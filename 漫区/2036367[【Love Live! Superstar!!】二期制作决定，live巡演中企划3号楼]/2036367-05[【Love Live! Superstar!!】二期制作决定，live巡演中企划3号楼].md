@@ -11047,3 +11047,37 @@ live是类似于初音live那种虚拟live？那样的话声优不是完全为�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6792#       发表于 2022-4-5 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324668&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-5 20:45</a>
+
+看了B站2个UP（贝比，伽黎）LIVE返视频，都拿到了鲤鱼的res还被认出来了，感觉这样门票就花的很值了啊，在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种运气爆表的东西除了羡慕还能说啥呢
+
+*****
+
+####  cat1230  
+##### 6793#       发表于 2022-4-5 21:06
+
+最近因为台漫那点儿事儿倒是手头宽裕了点，才有余力追追liella。想想都是泪。
+
+*****
+
+####  秋月艾莉  
+##### 6794#       发表于 2022-4-5 21:19
+
+<img src="https://img.saraba1st.com/forum/202204/05/211816x0ig0ses9t023gtg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2879F373-6018-41B0-83E6-2E62F326A864.jpeg</strong> (917.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-5 21:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">双N广播趋势关键词一览
+
