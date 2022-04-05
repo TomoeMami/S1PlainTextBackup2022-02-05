@@ -873,3 +873,16 @@ inm民曾自诩圈子小门槛高，排斥一切小鬼。不过以现在的解�
 
 没想到inm都这么多年了还能火，总感觉十年前就过气了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  last_regret  
+##### 80#       发表于 2022-4-5 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55322915&amp;ptid=2062438" target="_blank">acgcn 发表于 2022-4-5 18:25</a>
+没想到inm都这么多年了还能火，总感觉十年前就过气了</blockquote>
+现在时不时被拉出来鬼畜的那些片(不是inm类)也不是啥新作品啊
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

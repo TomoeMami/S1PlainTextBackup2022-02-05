@@ -10965,3 +10965,45 @@ CE48A462-9020-4685-AAA9-99CDF5A1E426.jpeg
 你就当成只要愿意几乎每天都能跟粉丝实时互动的偶像吧 成本还低</blockquote>
 如果v的优势是全天候陪伴的话那确实比不了，可是那样的话不是更加完全捆绑在企划上了吗，如果声优想往别的企划/方向发展该怎么办，不是很清楚
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6784#       发表于 2022-4-5 19:11
+
+ 本帖最后由 稀勢のささ 于 2022-4-5 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55323332&amp;ptid=2036367" target="_blank">llllife 发表于 2022-4-5 19:00</a>
+
+如果v的优势是全天候陪伴的话那确实比不了，可是那样的话不是更加完全捆绑在企划上了吗，如果声优想往别 ...</blockquote>
+直接用皮套上就行了 配音广播live都能搞 
+
+*****
+
+####  稀勢のささ  
+##### 6785#       发表于 2022-4-5 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55323332&amp;ptid=2036367" target="_blank">llllife 发表于 2022-4-5 19:00</a>
+
+如果v的优势是全天候陪伴的话那确实比不了，可是那样的话不是更加完全捆绑在企划上了吗，如果声优想往别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然了我说的这些是基于打游戏搞杂谈的直播势  LL运营选择的是早就被创死的视频势 只能说希望别对虹星有太大影响吧
+
+*****
+
+####  llllife  
+##### 6786#       发表于 2022-4-5 19:19
+
+<blockquote>稀勢のささ 发表于 2022-4-5 19:11
+直接用皮套上就行了 声优广播live都能搞</blockquote>
+live是类似于初音live那种虚拟live？那样的话声优不是完全为企划打工，一点露脸的机会都没有吗emmm
+
+*****
+
+####  cybernetics31  
+##### 6787#       发表于 2022-4-5 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55322507&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-4-5 17:46</a>
+
+裂拉几的照片怎么感觉鲤鱼又胖了？！脸怎么这么大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">胖点也没啥 后面这么多live
+
