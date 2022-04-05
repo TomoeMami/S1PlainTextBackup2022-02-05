@@ -14142,3 +14142,39 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对了 有人知道在收了奥罗拉和强盗父女后，第七章保护罗兰和第九章贩卖私盐这样的战斗上本人会有什么特殊剧情吗
 
+
+
+*****
+
+####  yangchunsiyue  
+##### 1257#       发表于 2022-4-5 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55307694&amp;ptid=2051152" target="_blank">陈玉礼 发表于 2022-4-4 10:25</a>
+
+王宫夺还那里选择路线影响真结局吗，我一周目选的潜入，二周目想试试别的，我看有的说影响，有的说不影响 ...</blockquote>
+我选炸大坝一样能进真结局。
+
+之前看这个帖里有朋友说炸大坝就不能进真结局，弄得我还做好了不能进真结局的打算，结果是不影响的。
+
+*****
+
+####  dren_zheng  
+##### 1258#       发表于 2022-4-5 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55307694&amp;ptid=2051152" target="_blank">陈玉礼 发表于 2022-4-4 10:25</a>
+
+王宫夺还那里选择路线影响真结局吗，我一周目选的潜入，二周目想试试别的，我看有的说影响，有的说不影响 ...</blockquote>
+据说不能选炸水库，其他两个路线都行
+
+因为按剧情，炸水库后女将军直接被水冲走，不是被罗兰他们打服的，所以应该没动力加入我军，跟真结局里的剧情冲突
+
+*****
+
+####  dren_zheng  
+##### 1259#       发表于 2022-4-5 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55318264&amp;ptid=2051152" target="_blank">ryj 发表于 2022-4-5 11:10</a>
+
+对了 有人知道在收了奥罗拉和强盗父女后，第七章保护罗兰和第九章贩卖私盐这样的战斗上本人会有什么 ...</blockquote>
+上不了。战场上只能一个角色，对面上人了我方就不能选同一个人上阵
+
