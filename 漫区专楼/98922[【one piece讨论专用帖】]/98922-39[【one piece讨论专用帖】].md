@@ -9198,3 +9198,22 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 看来佛教元素目前只有战国的果实，和一些招式名</blockquote>
 不行，你一说反基督，世界政府的旗子不就是十字架吗？鱼人(黑人)和路娜利亚族（印第安人）这更是超直球。
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 57776#       发表于 2022-4-5 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55319312&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-4-5 12:39</a>
+
+不行，你一说反基督，世界政府的旗子不就是十字架吗？鱼人(黑人)和路娜利亚族（印第安人）这更是超直球。 ...</blockquote>
+发现了盲点诶……世界政府logo确实像是某种基教流派的变体十字军
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57777#       发表于 2022-4-5 14:55
+
+有没有海狗大将开个推进城啊，卡页卡得难受<img src="https://static.saraba1st.com/image/smiley/carton2017/366.png" referrerpolicy="no-referrer">
+
