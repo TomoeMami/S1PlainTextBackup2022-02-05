@@ -752,3 +752,25 @@ https://www.bilibili.com/v ...</blockquote>
 
 —— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  金钱与民主  
+##### 68#       发表于 2022-4-5 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55318620&amp;ptid=2062438" target="_blank">anicorn 发表于 2022-4-5 11:40</a>
+
+这片主要讲的是爱和武士道的斗争以及在这个过程中，信奉武士道的人内心的撕裂。我觉得就作品来说其实没什 ...</blockquote>
+问题是国内很多人（比如精日）只会把这电影当洗地素材来用啊...
+
+*****
+
+####  左凉川  
+##### 69#       发表于 2022-4-5 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55319869&amp;ptid=2062438" target="_blank">金钱与民主 发表于 2022-4-5 13:24</a>
+
+问题是国内很多人（比如精日）只会把这电影当洗地素材来用啊...</blockquote>
+这和电影本身是部好电影之间有什么关系呢。。。它表达的东西跟洗地者的观点截然相反啊，莫非因为有人扛着红旗反红旗，红旗就该受指摘么
+
