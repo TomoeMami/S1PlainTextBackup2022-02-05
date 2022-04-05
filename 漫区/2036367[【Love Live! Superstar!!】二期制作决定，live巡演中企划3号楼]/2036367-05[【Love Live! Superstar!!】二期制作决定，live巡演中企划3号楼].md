@@ -11081,3 +11081,16 @@ live是类似于初音live那种虚拟live？那样的话声优不是完全为�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">双N广播趋势关键词一览
 
+
+
+*****
+
+####  仟音一心  
+##### 6795#       发表于 2022-4-5 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324668&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-5 20:45</a>
+
+看了B站2个UP（贝比，伽黎）LIVE返视频，都拿到了鲤鱼的res还被认出来了，感觉这样门票就花的很值了啊，在 ...</blockquote>
+
+贝比已经被🐟本人点赞好几次了
+
