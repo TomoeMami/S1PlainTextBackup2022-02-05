@@ -14192,3 +14192,19 @@ Frederica这个我是真的觉得还好，从头到尾的塑造都是圣母，�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  dren_zheng  
+##### 1261#       发表于 2022-4-5 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55320272&amp;ptid=2051152" target="_blank">yangchunsiyue 发表于 2022-4-5 14:02</a>
+
+我就是炸大坝进的真结局，冲走的女将军自己来加入了，没有影响。
+
+  -- 来自 有消息提醒的 Stage1官方 Andr ...</blockquote>
+哦，原来如此
+
+我也是看贴吧和攻略网站说的，不能选炸大坝。原来是错的
+
