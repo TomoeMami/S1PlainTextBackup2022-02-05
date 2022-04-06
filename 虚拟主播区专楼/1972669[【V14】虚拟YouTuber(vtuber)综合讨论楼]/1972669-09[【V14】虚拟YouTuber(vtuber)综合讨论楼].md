@@ -77,3 +77,20 @@
 
 原来如此，虹en有生日谷了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 12009#       发表于 2022-4-6 16:34
+
+全世界都这样吧，xqc不也是电竞出身
+男的卖技术女的卖“福利”，如果在本职工作之上还能炒热气氛、说话有趣，就有机会当顶流
+
+*****
+
+####  asdhai  
+##### 12010#       发表于 2022-4-6 16:41
+
+泥集差不多得了，三位数的人不是人啊？整个v圈能有三位数的占比多少啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
