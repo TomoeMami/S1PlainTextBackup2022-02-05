@@ -9622,3 +9622,14 @@ wt的自我感动已经趋于极致，现在处于fever dream的状态，梦里�
 
 之前看他说有准备时还以为又是御田相关，结果就是个灭火？那御田最后那点秘密还想藏到什么时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  戏言学者  
+##### 57809#       发表于 2022-4-6 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55323072&amp;ptid=98922" target="_blank">tyauto 发表于 2022-4-5 18:38</a>
+伊姆和鹰眼眼睛都是两个圈，而且前天龙人明哥对待鹰眼的态度有点玩味，难道鹰眼以前也是天龙人，说不定还 ...</blockquote>
+海贼不能像火影一样看眼睛啊，它眼睛一共就那么几种<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
