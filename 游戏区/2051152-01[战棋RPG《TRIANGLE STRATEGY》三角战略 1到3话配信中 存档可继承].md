@@ -14379,3 +14379,19 @@ P.S 给教国当狗打铁国，有种梁山好汉招安后讨方腊的感觉，�
 打了6关 综合水平奇高 出了恶心的转视角。</blockquote>
 被视角搞得生活不能自理的（我开头就是），拉高视角，甚至先用鸟瞰视角有奇效。熟悉了地势和视角的逻辑后再随意就好。
 
+
+
+*****
+
+####  ryj  
+##### 1277#       发表于 2022-4-6 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">二周目开始必须都刷钱 主线和rpg给的奖励都还是按一周目来的
+
+*****
+
+####  suzakushi  
+##### 1278#       发表于 2022-4-6 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王子这人太过离谱，导致打完真结局我还是觉得把王子踹掉自己当国王才是最圆满的结局。
+
