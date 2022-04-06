@@ -6039,3 +6039,33 @@ P梅林就是星之兽
 
 樱井光+三轮士郎，fate小说新系列启动
 
+
+
+*****
+
+####  exiaexa  
+##### 87525#       发表于 2022-4-6 17:15
+
+这二征
+
+怎么看都是被双子暴打，你非要加点群功能你给双子开个技能本不就行了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 87526#       发表于 2022-4-6 17:16
+
+五星不出也就算了，怎么出的三个四星也全是歪的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">又到人品低潮期了
+
+*****
+
+####  白金口袋  
+##### 87527#       发表于 2022-4-6 17:18
+
+看卡图又是一股外神活动的味道
+
+以及
+
+这卡图真是偷懒到了新高度<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
