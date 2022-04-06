@@ -478,3 +478,29 @@ https://youtu.be/1qLpioZ-a7g
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 维阿JP的末日到了
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 12040#       发表于 2022-4-7 02:07
+
+之前我还不信&amp;不关心，
+
+惊闻郡gachi都准备转移目光了，
+
+现在我开始有些怀疑了。
+
+*****
+
+####  CarlSteve  
+##### 12041#       发表于 2022-4-7 02:10
+
+<img src="https://img.saraba1st.com/forum/202204/07/021047c8h63338ja5rah2m.png" referrerpolicy="no-referrer">
+
+<strong>1649265306895.png</strong> (363.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 02:10 上传
+

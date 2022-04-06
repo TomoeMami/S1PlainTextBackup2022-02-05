@@ -9941,3 +9941,12 @@ VCP要出3个新人了
 必没有新衣服，新衣服肯定是只有3D，明显是和MV一起出，所以明天估计只有新成员披露
 这么一看，其实明天与我无关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10050#       发表于 2022-4-7 03:29
+
+逆天是吧，早上4点多起来打游戏是吧。
+
