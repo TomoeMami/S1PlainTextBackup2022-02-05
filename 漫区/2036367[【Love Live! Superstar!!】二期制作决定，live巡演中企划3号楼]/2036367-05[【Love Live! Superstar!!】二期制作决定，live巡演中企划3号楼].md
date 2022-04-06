@@ -11131,3 +11131,21 @@ BD75AF0E-BB46-4C68-A76A-5CC6DBF6F566.jpeg
 
 —— 来自 Xiaomi Redmi K30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  chichengjerry  
+##### 6798#       发表于 2022-4-6 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55324668&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-5 20:45</a>
+
+看了B站2个UP（贝比，伽黎）LIVE返视频，都拿到了鲤鱼的res还被认出来了，感觉这样门票就花的很值了啊，在 ...</blockquote>
+票价线上5000现地10000，还是不一样的
+
+拿res这个东西也是主观感觉了
+
+名古屋day2我就在中央舞台第一圈左边的部分（鲤鱼的站位），unison的时候拿很多res
+
+只是一介社畜没有多少时间发rep罢了
+
