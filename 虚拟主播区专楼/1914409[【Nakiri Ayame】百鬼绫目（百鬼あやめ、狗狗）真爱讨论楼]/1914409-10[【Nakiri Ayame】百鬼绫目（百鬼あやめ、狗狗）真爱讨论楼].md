@@ -5963,3 +5963,22 @@ Towa说明天晚上9点的Spla2比赛有绫总
 
 错过了 这是和towa一起打了啥游戏
 
+
+
+*****
+
+####  cctvyt1  
+##### 14098#       发表于 2022-4-6 13:14
+
+KeyWe 送信版的胡闹厨房吧
+
+7号官台还有节目 差不多吉祥物定型了
+
+<img src="https://img.saraba1st.com/forum/202204/06/131429yv5rie1v11puxvre.jpg" referrerpolicy="no-referrer">
+
+<strong>ayamiko.JPG</strong> (207.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-6 13:14 上传
+
