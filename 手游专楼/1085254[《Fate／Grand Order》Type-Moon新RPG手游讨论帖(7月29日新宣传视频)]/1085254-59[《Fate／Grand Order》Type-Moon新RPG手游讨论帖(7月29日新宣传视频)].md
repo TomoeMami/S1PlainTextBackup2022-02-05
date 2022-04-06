@@ -6236,3 +6236,24 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然艾蕾礼装很好看 不过完全不想抽 池子太烂了
 
+
+
+*****
+
+####  シャル  
+##### 87546#       发表于 2022-4-6 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55337622&amp;ptid=1085254" target="_blank">qb0079 发表于 2022-4-6 19:46</a>
+
+金光 狂兰，我要lls</blockquote>
+护符 金光 金剑 剑兰<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 87547#       发表于 2022-4-6 21:52
+
+征侧的审美有点怪...
+
+雷帝很可爱吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
