@@ -11317,3 +11317,13 @@ live果然还是线下好啊。突然想到，电影和电视不管啥类型，�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  megapikachu  
+##### 6812#       发表于 2022-4-6 20:34
+
+黒色のSunday ~中国学生的真实写照啊~ （改编自水色のSunday）
+[https://b23.tv/oMGVbJw](https://b23.tv/oMGVbJw)
+
