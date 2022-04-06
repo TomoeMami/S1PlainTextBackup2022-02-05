@@ -203,3 +203,27 @@
 
 5月1号二哥有个大事なお知らせ，主流出道吧
 
+
+
+*****
+
+####  cckuku  
+##### 12020#       发表于 2022-4-6 21:27
+
+经常上微博乱看，感觉没怎么在简中互联网看过火畜和叶队，反倒觉得是刀也的粉丝好多啊，而且好多女粉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 12021#       发表于 2022-4-6 21:30
+
+ 本帖最后由 alcoholic1000 于 2022-4-6 21:40 编辑 
+
+爱抖露了，不能嗯打游戏搓键盘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+Syl，虹en mysta这个歌回有嘎嘎，梦龙，bts，布兰妮，姆爷，这些人的歌都是可以开着收益唱的吗
+
+姆爷我记得mori唱过好几次但不记得开没开收益<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+Zsyl，油男开台跳脸劈运营，好开！
+
