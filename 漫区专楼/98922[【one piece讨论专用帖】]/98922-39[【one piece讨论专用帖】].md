@@ -9789,3 +9789,24 @@ A：没有台词所以名字未知
 
 行了，这下金狮子的确是被5皇打败的
 
+
+
+*****
+
+####  klzxs  
+##### 57826#       发表于 2022-4-6 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55339696&amp;ptid=98922" target="_blank">C男人 发表于 2022-4-6 22:26</a>
+
+这么下本钱？
+
+这是到了哪一段剧情，这么受重视？</blockquote>
+按进度应该是4超新星对两四皇的战斗吧
+
+*****
+
+####  neverlands  
+##### 57827#       发表于 2022-4-6 22:55
+
+路飞是去黑魂找葛温学了阳光枪吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

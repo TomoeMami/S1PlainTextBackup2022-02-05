@@ -6257,3 +6257,17 @@ P梅林就是星之兽
 
 雷帝很可爱吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 87548#       发表于 2022-4-6 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55339257&amp;ptid=1085254" target="_blank">シャル 发表于 2022-4-6 21:52</a>
+
+征侧的审美有点怪...
+
+雷帝很可爱吗？</blockquote>
+这游戏出的几个大象都挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
