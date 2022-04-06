@@ -14395,3 +14395,28 @@ P.S 给教国当狗打铁国，有种梁山好汉招安后讨方腊的感觉，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王子这人太过离谱，导致打完真结局我还是觉得把王子踹掉自己当国王才是最圆满的结局。
 
+
+
+*****
+
+####  听风不是雨  
+##### 1279#       发表于 2022-4-7 00:20
+
+<img src="https://img.saraba1st.com/forum/202204/07/001858l2rqwd7er5zh5tz7.jpg" referrerpolicy="no-referrer">
+
+<strong>DA5692444991D7C56273E5E9950CAD8A.jpg</strong> (73.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/001903mkkwjrczjr6nj2j4.jpg" referrerpolicy="no-referrer">
+
+<strong>1189D5F7EC0E9BF16D7DD39543A288D9.jpg</strong> (181.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 00:19 上传
+
+贴吧偷的图，结合时事有点没绷住
+

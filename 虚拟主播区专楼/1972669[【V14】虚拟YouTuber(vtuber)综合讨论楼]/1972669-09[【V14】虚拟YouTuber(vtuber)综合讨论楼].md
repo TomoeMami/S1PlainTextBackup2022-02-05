@@ -398,3 +398,34 @@ en男(目前指vox)都目指葛皇了，二三哥还不是铁超
 
 两个都有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这组合等于明着说是把能干活和想被enkr剥削的挑出来恰钱了，节目尬的一批，3d也不修修
 
+
+
+*****
+
+####  winda  
+##### 12034#       发表于 2022-4-7 00:21
+
+<img src="https://img.saraba1st.com/forum/202204/07/002101f8rbk85ka18ho82r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220407_001911.jpg</strong> (117.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-4-7 00:21 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/002106p2akeg7l2c37bakx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220407_001916.jpg</strong> (114.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-4-7 00:21 上传
+
+タモリ「『動画編集って運営にお願いできないの？』ってよく言われるんですけど、登録者数が必要なんです」
+
+「ありがたいことに現在38万人も登録してくださっているんですが、これだとまだ足りないみたいです」
+
+https://youtu.be/1qLpioZ-a7g
+
