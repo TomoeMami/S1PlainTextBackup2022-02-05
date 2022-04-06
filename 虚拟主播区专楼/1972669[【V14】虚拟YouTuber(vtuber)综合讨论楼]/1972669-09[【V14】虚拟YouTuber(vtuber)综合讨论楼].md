@@ -31,3 +31,13 @@
 
 鉴于nayuta和めろちん同时出现了所以中之人说证伪，十年老粉这都能认错的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 12004#       发表于 2022-4-6 08:49
+
+めろちん好像第二天就证伪了，说是有一批人在带节奏
+哈弟箱好像就剩个卷羊的孩子还凑合，别的同接都掉到三位数
+
