@@ -11379,3 +11379,49 @@ live果然还是线下好啊。突然想到，电影和电视不管啥类型，�
 
 七千多円比一些动画BD便宜了
 
+
+
+*****
+
+####  仟音一心  
+##### 6819#       发表于 2022-4-7 00:30
+
+#Liyuu[超话]# Liella!「始まりは君の空」一周年啦💫
+
+让我们一起度过接下来的好多好多年吧☺️☺️☺️
+
+「始まりはみんなの空」的照片…！ 
+
+3ED23A68-7560-4ACF-83BF-681C16A83A7B.jpeg
+(232.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 00:30 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/003041yyezrarjsfj9wswe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6820#       发表于 2022-4-7 00:31
+
+出道单曲「开始是你的天空」发行已经过去1年了💫
+
+对Liella !的大家还有支持着我的大家充满了感谢的心情。
+
+堇一直在背后推着我。
+
+今后也想一直在一起唱喜欢的歌🌸
+
+#lovelive##Liella# 
+
+8C079664-29CC-41A1-8A24-642BF5C895C3.jpeg
+(236.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/003123zumeyhcuzkzhayyk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

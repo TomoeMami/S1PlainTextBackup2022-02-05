@@ -429,3 +429,31 @@ en男(目前指vox)都目指葛皇了，二三哥还不是铁超
 
 https://youtu.be/1qLpioZ-a7g
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 12035#       发表于 2022-4-7 00:25
+
+油男这是合同快到期了？<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2L模仿47哥  
+##### 12036#       发表于 2022-4-7 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55340337&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-6 23:20</a>
+
+刀也订阅已经超过社筑成三哥了，但不知是否会被en的超车
+
+不得不承认ROF-MAO砸钱硬灌数字还是有点用，免费 ...</blockquote>
+免费都40w了？同接呢
+
+*****
+
+####  2L模仿47哥  
+##### 12037#       发表于 2022-4-7 00:36
+
+围观了一下管厕，还是挺萌萌人的
+
