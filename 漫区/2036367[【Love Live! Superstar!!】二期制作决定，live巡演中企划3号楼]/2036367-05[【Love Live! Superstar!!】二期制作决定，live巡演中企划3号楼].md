@@ -11149,3 +11149,38 @@ BD75AF0E-BB46-4C68-A76A-5CC6DBF6F566.jpeg
 
 只是一介社畜没有多少时间发rep罢了
 
+
+
+*****
+
+####  cat1230  
+##### 6799#       发表于 2022-4-6 10:32
+
+live果然还是线下好啊。突然想到，电影和电视不管啥类型，我都喜欢1个人看，用VR看更好就事带久了脑袋脖子疼。live这种反倒不喜欢1个人看，至少也得带个弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 6800#       发表于 2022-4-6 10:34
+
+<blockquote>事到如今，我将会发表今年内想做的事情。
+
+1想被公主抱
+
+2想一个人去买汉堡
+
+3想去商业超市
+
+大家在今年内有想做的事情吗? ? </blockquote>
+
+3FC085F7-1FF7-43B0-8121-C22A8411245F.jpeg
+(145.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-6 10:34 上传
+
+<img src="https://img.saraba1st.com/forum/202204/06/103448krnkfmk557cro5mm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
