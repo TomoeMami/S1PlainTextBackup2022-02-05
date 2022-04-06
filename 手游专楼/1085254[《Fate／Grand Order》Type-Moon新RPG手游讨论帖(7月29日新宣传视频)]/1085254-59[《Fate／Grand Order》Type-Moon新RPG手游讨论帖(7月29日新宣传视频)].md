@@ -6271,3 +6271,12 @@ P梅林就是星之兽
 雷帝很可爱吗？</blockquote>
 这游戏出的几个大象都挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87549#       发表于 2022-4-6 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹艹艹 就不该手贱的啊 真的抽礼装结果把角色抽出来了
+

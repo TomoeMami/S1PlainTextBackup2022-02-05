@@ -378,3 +378,14 @@ ib好喷！最近ankr出谷又是图出错又是价格标错频率高却常见�
 
 vox离下巴射程不超过一个月，铁超了
 
+
+
+*****
+
+####  fastary  
+##### 12032#       发表于 2022-4-6 23:34
+
+en男(目前指vox)都目指葛皇了，二三哥还不是铁超
+
+我倒是懒得看才没看过，也不知道管厕天天批rfm节目难看不如解散是真的光有数字没有内容还是单纯单推看不惯想解绑<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
