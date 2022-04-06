@@ -9736,3 +9736,15 @@ A：没有台词所以名字未知
 
 四档捏他风神，五档捏他雷神？
 
+
+
+*****
+
+####  和真克瓦尔  
+##### 57821#       发表于 2022-4-6 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55321007&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-4-5 15:12</a>
+
+如果以反基督，辱白人的角度来看，那尼卡果实可能是早早就想好的，所以尾田肯定是左，不过还没有到马列（ ...</blockquote>
+同意尾田是左，他和老一代漫画家鸟山 永井 三浦这些，都有朴素的左派情结，虽然不成体系但比贱山这类能处。翻永井老爷子进来画的恶魔人saga，男主对军用机器人表达明显的厌恶，惊觉不但这个时代，连我自己都已经不太能理解男主这种情绪，这下no country for old men了。
+
