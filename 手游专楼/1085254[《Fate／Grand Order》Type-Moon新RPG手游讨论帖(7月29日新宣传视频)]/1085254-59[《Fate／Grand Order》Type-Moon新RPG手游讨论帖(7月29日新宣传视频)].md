@@ -6220,3 +6220,19 @@ P梅林就是星之兽
 
 20连各一个全到手了
 
+
+
+*****
+
+####  sosgame67  
+##### 87544#       发表于 2022-4-6 20:45
+
+40张呼符无事发生，继续攒石头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87545#       发表于 2022-4-6 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然艾蕾礼装很好看 不过完全不想抽 池子太烂了
+
