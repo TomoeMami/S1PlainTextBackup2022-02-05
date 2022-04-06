@@ -9922,3 +9922,22 @@ VCP要出3个新人了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  时间在我手中  
+##### 10048#       发表于 2022-4-6 17:55
+
+大胆猜测明天会发所谓团歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定还有什么新衣服呢，笑
+
+*****
+
+####  T_Hb  
+##### 10049#       发表于 2022-4-6 17:56
+
+ 本帖最后由 T_Hb 于 2022-4-6 18:09 编辑 
+
+必没有新衣服，新衣服肯定是只有3D，明显是和MV一起出，所以明天估计只有新成员披露
+这么一看，其实明天与我无关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

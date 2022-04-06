@@ -6069,3 +6069,122 @@ P梅林就是星之兽
 
 这卡图真是偷懒到了新高度<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 87528#       发表于 2022-4-6 17:42
+
+<blockquote>白金口袋 发表于 2022-4-6 17:18
+看卡图又是一股外神活动的味道
+
+以及
+
+这卡图真是偷懒到了新高度</blockquote>
+这卡图叫偷懒的话那些要玩大家来找茬的卡就别混了23333
+
+看文本妹妹是个神经病姐控的感觉，这俩还是玩骨科百合比较安全
+
+*****
+
+####  天王寺凯伊姆  
+##### 87529#       发表于 2022-4-6 17:45
+
+卡面挺有意思的，可抽。但这技能是什么三星组配置.....又扣又简单
+
+*****
+
+####  シャル  
+##### 87530#       发表于 2022-4-6 17:45
+
+2张新五星礼装拿到，护符<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+萝兰礼装就是个狂阶限黑杯
+
+*****
+
+####  黑上シグマ  
+##### 87531#       发表于 2022-4-6 17:47
+
+送的四星还藏着呢
+
+*****
+
+####  承尘  
+##### 87532#       发表于 2022-4-6 17:48
+
+彩光剑，呆毛宝具+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+四星藏的可真深啊，希望最后别就这就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  gpx234mqx  
+##### 87533#       发表于 2022-4-6 17:49
+
+好看
+
+91ABB64F-B1B9-4202-A1D2-4AE6E223B991.jpeg
+(546.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-6 17:49 上传
+
+<img src="https://img.saraba1st.com/forum/202204/06/174946ksiovfougi6gvz1g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+266A9133-D087-4EB0-BB43-D977F37C887D.jpeg
+(649.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-6 17:49 上传
+
+<img src="https://img.saraba1st.com/forum/202204/06/174946ucouc8kv1lh7avvv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87534#       发表于 2022-4-6 17:50
+
+征氏姐妹这个技能增幅太低了吧，才15%，感觉不如双子...强度。
+
+*****
+
+####  angelooo  
+##### 87535#       发表于 2022-4-6 17:55
+
+<blockquote>天王寺凯伊姆 发表于 2022-4-6 17:45
+卡面挺有意思的，可抽。但这技能是什么三星组配置.....又扣又简单</blockquote>
+这卡面就是拉我这种竹小姐狂热爱好者下水的无耻行径，强度什么能吃吗
+
+*****
+
+####  黑上シグマ  
+##### 87536#       发表于 2022-4-6 17:56
+
+包工头女帝哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  里村紅葉  
+##### 87537#       发表于 2022-4-6 18:07
+
+这个打灰女帝看得我一口水喷出来
+
+*****
+
+####  黑上シグマ  
+##### 87538#       发表于 2022-4-6 18:09
+
+天草：破壳，我推荐打桩机
+
+*****
+
+####  xiongxingyu  
+##### 87539#       发表于 2022-4-6 18:14
+
+靠，被卡池读心了，70连出了2个征氏姐妹，愣是一个5星礼装都没出，我要旗袍艾蕾啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
