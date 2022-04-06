@@ -11203,3 +11203,37 @@ live果然还是线下好啊。突然想到，电影和电视不管啥类型，�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55330472&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-6 10:34</a></blockquote>
 看了声R的访谈，强烈怀疑pay因为今年Q娃出现粉公主抱蓝而羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6803#       发表于 2022-4-6 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55331185&amp;ptid=2036367" target="_blank">starring 发表于 2022-4-6 11:25</a>
+看了声R的访谈，强烈怀疑pay因为今年Q娃出现粉公主抱蓝而羡慕</blockquote>
+应该是的。
+不知道为什么这条一出来大家都@鱼，明明团里有这个臂力的只有能徒手抓门框做引体向上的nagi了。
+
+*****
+
+####  名津流  
+##### 6804#       发表于 2022-4-6 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55322866&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-4-5 18:21</a>
+
+你就当成只要愿意几乎每天都能跟粉丝实时互动的偶像吧 成本还低</blockquote>
+我之前还在LL群里讨论说VTB的流行分走了一部分潜在的偶像宅，很多人还觉得二者不相干
+
+*****
+
+####  名津流  
+##### 6805#       发表于 2022-4-6 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55331721&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-6 12:03</a>
+
+应该是的。
+
+不知道为什么这条一出来大家都@鱼，明明团里有这个臂力的只有能徒手抓门框做引体向上的nagi了 ...</blockquote>
+毕竟如果不找男朋友的话，身高上能对pay做公主抱的只有鲤鱼了吧
+
