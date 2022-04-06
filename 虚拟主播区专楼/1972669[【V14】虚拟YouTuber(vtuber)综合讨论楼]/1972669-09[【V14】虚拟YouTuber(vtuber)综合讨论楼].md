@@ -346,3 +346,35 @@ syl
 
 ib好喷！最近ankr出谷又是图出错又是价格标错频率高却常见丑图实属离谱，也不知道是不是live延后又要投资主流出道缺钱到眼红了，有心思想赚钱企划没心思管完成质量<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 12029#       发表于 2022-4-6 23:01
+
+感觉你虹还要砍一批人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 12030#       发表于 2022-4-6 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55340084&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-6 23:00</a>
+
+↑简中互联网队畜无论是规模还是关系都已经是离不开伏字的程度了，哪是随便乱看就能观测到的
+
+刀订阅快三哥 ...</blockquote>
+刀也订阅已经超过社筑成三哥了，但不知是否会被en的超车
+
+不得不承认ROF-MAO砸钱硬灌数字还是有点用，免费都快喂到40w了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  IDIDIDID  
+##### 12031#       发表于 2022-4-6 23:22
+
+vox离下巴射程不超过一个月，铁超了
+
