@@ -9766,3 +9766,26 @@ A：没有台词所以名字未知
 
 黑胡子，看好了，速度即重量！
 
+
+
+*****
+
+####  C男人  
+##### 57824#       发表于 2022-4-6 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55331003&amp;ptid=98922" target="_blank">Tomorrow_D 发表于 2022-4-6 11:12</a>
+
+跑个题，近期动画会有两集剧场质量的集数，某集作画张数超过火影的最高记录了。大家可以期待一下。 ...</blockquote>
+这么下本钱？
+
+这是到了哪一段剧情，这么受重视？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 57825#       发表于 2022-4-6 22:26
+
+行了，这下金狮子的确是被5皇打败的
+
