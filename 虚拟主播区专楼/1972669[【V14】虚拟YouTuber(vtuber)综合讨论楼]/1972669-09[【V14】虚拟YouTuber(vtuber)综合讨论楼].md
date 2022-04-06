@@ -457,3 +457,15 @@ https://youtu.be/1qLpioZ-a7g
 
 围观了一下管厕，还是挺萌萌人的
 
+
+
+*****
+
+####  rzrbtk  
+##### 12038#       发表于 2022-4-7 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55341083&amp;ptid=1972669" target="_blank">winda 发表于 2022-4-7 00:21</a>
+
+タモリ「『動画編集って運営にお願いできないの？』ってよく言われるんですけど、登録者数が必要なんです ...</blockquote>
+郡说有蛮多人问她编辑师哪里找的，应该也有很多liver想着自费了吧，反正郡郡一直自费<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
