@@ -11237,3 +11237,14 @@ live果然还是线下好啊。突然想到，电影和电视不管啥类型，�
 不知道为什么这条一出来大家都@鱼，明明团里有这个臂力的只有能徒手抓门框做引体向上的nagi了 ...</blockquote>
 毕竟如果不找男朋友的话，身高上能对pay做公主抱的只有鲤鱼了吧
 
+
+
+*****
+
+####  仟音一心  
+##### 6806#       发表于 2022-4-6 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55331910&amp;ptid=2036367" target="_blank">名津流 发表于 2022-4-6 12:17</a>
+毕竟如果不找男朋友的话，身高上能对pay做公主抱的只有鲤鱼了吧</blockquote>
+鱼肯定八达岭，没戏
+
