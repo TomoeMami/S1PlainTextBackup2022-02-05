@@ -112,3 +112,42 @@
 
 彩虹官号转播停了啊
 
+
+
+*****
+
+####  free  
+##### 12013#       发表于 2022-4-6 18:22
+
+音乐方向性不同......是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+[https://twitter.com/Re_AcT_/status/1511644895135469571](https://twitter.com/Re_AcT_/status/1511644895135469571)
+
+<img src="https://img.saraba1st.com/forum/202204/06/182215c1fg4uffeqgggc13.jpg" referrerpolicy="no-referrer">
+
+<strong>？.jpg</strong> (57.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-6 18:22 上传
+
+*****
+
+####  lor  
+##### 12014#       发表于 2022-4-6 18:23
+
+现在四人联动两个700两个370，杏星来说算怎么样
+大舅子这个皮播的看不太下去，看点像从游戏力变成卖萌了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">喷3再回来看看吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  poipanchao  
+##### 12015#       发表于 2022-4-6 18:24
+
+回来瞄了一眼nayuta还是能破k的
+
+关键问题是哈弟找来的根本不是枪势吧，目标客群歪了
+
+我是觉着就算不想太同质化，也得找一男一女枪势撑场面
+
