@@ -11266,3 +11266,18 @@ live果然还是线下好啊。突然想到，电影和电视不管啥类型，�
 
 <img src="https://img.saraba1st.com/forum/202204/06/175447d7zokvkv59wk75f5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无聊的我  
+##### 6808#       发表于 2022-4-6 18:49
+
+题外话一则：今天又在阿B看到 有勇士上传的缪斯梅奔FMT了
+
+3月31日上传的 估计快被和谐了。 
+
+可惜FMT始终在B站活不长。 弹幕都养不肥。 如果有大量弹幕 配弹幕看就更好了。
+
+不知道有上古的养肥弹幕没、
+
