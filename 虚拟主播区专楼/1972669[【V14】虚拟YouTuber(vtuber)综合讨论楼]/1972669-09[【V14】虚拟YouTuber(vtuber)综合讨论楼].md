@@ -681,3 +681,20 @@ rfm新节目叫人企划，检测到有akn没有my，输出不破枝嫌弃黑客
 
 以这两人台前的不熟程度如果真叫了我要怀疑官方是不是有cp残党带私货了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 12058#       发表于 2022-4-8 00:01
+
+<img src="https://img.saraba1st.com/forum/202204/08/000054h8wtci62ti66w8wc.png" referrerpolicy="no-referrer">
+
+<strong>20220408010037.png</strong> (39.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-8 00:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
