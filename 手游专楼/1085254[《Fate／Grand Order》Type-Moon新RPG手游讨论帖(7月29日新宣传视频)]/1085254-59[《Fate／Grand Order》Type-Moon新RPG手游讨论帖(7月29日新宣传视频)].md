@@ -6387,3 +6387,34 @@ P梅林就是星之兽
 你怎么这么喜欢打自己耳光 刚说出了new</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四个多月才出一个渣渣 你这几个月出来几个五星了
 
+
+
+*****
+
+####  alucardcz  
+##### 87560#       发表于 2022-4-7 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55346096&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-7 12:28</a>
+
+四个多月才出一个渣渣 你这几个月出来几个五星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像0new哦
+
+*****
+
+####  alucardcz  
+##### 87561#       发表于 2022-4-7 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55346096&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-7 12:28</a>
+
+四个多月才出一个渣渣 你这几个月出来几个五星了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202204/07/123609xqdawp4vzno2zbn2.jpg" referrerpolicy="no-referrer">
+
+<strong>22222222222222.jpg</strong> (462.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 12:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上图为证 还真是0 new  包括福袋 非出天际了好吗 最后一个new还是12月8号的活动从者
+
