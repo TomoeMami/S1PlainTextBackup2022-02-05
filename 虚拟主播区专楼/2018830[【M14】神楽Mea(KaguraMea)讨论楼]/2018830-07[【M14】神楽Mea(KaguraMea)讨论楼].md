@@ -10302,3 +10302,56 @@ mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
 独唱 我的心染上纯洁的颜色   我绷不住 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌词确实难蚌
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10090#       发表于 2022-4-7 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354422&amp;ptid=2018830" target="_blank">-MUON- 发表于 2022-4-7 21:42</a>
+
+歌词确实难蚌</blockquote>
+问题是其他两位人设也和 我的心染上纯洁的颜色  不搭。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10091#       发表于 2022-4-7 21:46
+
+这些歌不都这几个词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 10092#       发表于 2022-4-7 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才是王道系的偶像曲啊（真的很王道），也怪不得你咩姐会做噩梦
+
+*****
+
+####  -MUON-  
+##### 10093#       发表于 2022-4-7 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354449&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-4-7 21:44</a>
+
+问题是其他两位人设也和 我的心染上纯洁的颜色  不搭。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">王道偶像系女团歌不都这样，你一想这几个忍着难受害羞唱这种歌词是不是非常带感
+
+*****
+
+####  やト  
+##### 10094#       发表于 2022-4-7 21:48
+
+ 你这话说的就像她以前是走邪道一样！
+
+*****
+
+####  -MUON-  
+##### 10095#       发表于 2022-4-7 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354485&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-4-7 21:47</a>
+
+所以才是王道系的偶像曲啊（真的很王道），也怪不得你咩姐会做噩梦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做什么噩梦，被熟人抓到脚趾抠出五室一厅那种感觉么
+

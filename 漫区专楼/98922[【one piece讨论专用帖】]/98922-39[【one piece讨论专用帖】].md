@@ -10341,3 +10341,51 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 什么joyboy，不过是欺骗吃下恶魔果实的人成为初火的薪柴罢了
 
+
+
+*****
+
+####  C男人  
+##### 57864#       发表于 2022-4-7 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55351332&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-4-7 18:27</a>
+
+七武海剪影刚出现的时候是七个剑客</blockquote>
+这么一说还真是，
+
+无论四皇还是七武海，最终的定稿形象都有很大变化。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202204/07/214126usrrd19dhrkkvm9r.jpg" referrerpolicy="no-referrer">
+
+<strong>8a244b36acaf2edd8d544ba09a1001e9380193fb.jpg</strong> (55.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/214143itt7f7yqosvtt9vh.jpg" referrerpolicy="no-referrer">
+
+<strong>002_14434.jpg</strong> (324.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/214127oz8z542kt75k842a.jpg" referrerpolicy="no-referrer">
+
+<strong>294f8535e5dde711d07741bfb0efce1b9c1661fb.jpg</strong> (80.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/214127uknglg3a09ka3999.jpg" referrerpolicy="no-referrer">
+
+<strong>src=http___pic1.zhimg.com_v2-19d0909e538ca4437bcf95d5b55077cd_1440w - 副本.jpg</strong> (123.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 21:41 上传
+
