@@ -10275,3 +10275,29 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 有意思的考证，我去补补相关神话去，我还以为是单纯玩历史上私掠许可证的梗然后致敬一下七武士之类的。 ...</blockquote>
 历史正文的原型就是从苏美尔神话出来的。
 
+
+
+*****
+
+####  黑岩泪香  
+##### 57858#       发表于 2022-4-7 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55350927&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-4-7 17:56</a>
+
+不不早期海军除了三大将之外加战国和卡普之外全是废物，到和平主义者出来之后加海军扩兵出来之后才敢把总 ...</blockquote>
+海军的问题是实力断层。
+
+*****
+
+####  天下至贱  
+##### 57859#       发表于 2022-4-7 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55350927&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-4-7 17:56</a>
+
+不不早期海军除了三大将之外加战国和卡普之外全是废物，到和平主义者出来之后加海军扩兵出来之后才敢把总 ...</blockquote>
+我的意思是用本朝的剑斩前朝的官啦，由于四皇过于离谱的升格，回头来看三大将+战国卡普早就可以立足新世界不用理七武海了，也是个玩笑。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外你说的浪漫沙加2相关我搜到了，确实挺有意思的，我从来没想到尾田还喜欢致敬游戏的。
+
+<img src="https://p.sda1.dev/5/dc1e11e1356dbbcd8bfb1d1210a6875d/QQ截图20220407175919.png" referrerpolicy="no-referrer">
+
