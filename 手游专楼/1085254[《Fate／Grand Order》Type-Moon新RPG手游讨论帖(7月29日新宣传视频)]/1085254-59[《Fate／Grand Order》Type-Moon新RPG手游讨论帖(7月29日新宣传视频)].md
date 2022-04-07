@@ -6313,3 +6313,45 @@ P梅林就是星之兽
 太欧了 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">四个多月唯一一个抽到的五星竟然是这种弱鸡角色 之前的芭娜娜为什么不出
 
+
+
+*****
+
+####  alucardcz  
+##### 87553#       发表于 2022-4-7 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345763&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-7 12:09</a>
+
+四个多月唯一一个抽到的五星竟然是这种弱鸡角色 之前的芭娜娜为什么不出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新刚刚去抽了10护符  印度阿三宝具3变4 合理吗
+
+*****
+
+####  黑上シグマ  
+##### 87554#       发表于 2022-4-7 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345801&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-7 12:11</a>
+
+萌新刚刚去抽了10护符  印度阿三宝具3变4 合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，羡慕
+
+*****
+
+####  qixinno2  
+##### 87555#       发表于 2022-4-7 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345801&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-7 12:11</a>
+
+萌新刚刚去抽了10护符  印度阿三宝具3变4 合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗
+
+*****
+
+####  alucardcz  
+##### 87556#       发表于 2022-4-7 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345899&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-7 12:17</a>
+
+狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歪常驻又个鸡儿用
+

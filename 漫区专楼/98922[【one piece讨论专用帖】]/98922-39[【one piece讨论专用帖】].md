@@ -9842,3 +9842,36 @@ A：没有台词所以名字未知
 
 艾尼路!是你!!!!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cdfjg  
+##### 57831#       发表于 2022-4-7 12:16
+
+ 本帖最后由 cdfjg 于 2022-4-7 12:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345550&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-4-7 11:59</a>
+
+还有人说橡胶本质没改吗？
+
+这都手拿闪电了还没改？</blockquote>
+真的是一根筋转不过来
+
+不正因为是橡胶所以才能拿闪电吗
+
+橡胶人能打到艾尼路→橡胶人能拿住闪电
+
+*****
+
+####  7sevenseven  
+##### 57832#       发表于 2022-4-7 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345876&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-4-7 12:16</a>
+真的是一根筋转不过来
+
+不正因为是橡胶所以才能拿闪电吗
+
+橡胶人能打到艾尼路→橡胶人能拿住闪电 ...</blockquote>
+离大谱
+橡胶人不导电就能拿闪电吗？缠绕闪电和直接掌控闪电完全是两个概念。
+
