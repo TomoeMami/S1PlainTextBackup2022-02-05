@@ -9810,3 +9810,18 @@ A：没有台词所以名字未知
 
 路飞是去黑魂找葛温学了阳光枪吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 57828#       发表于 2022-4-7 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">全图出了，还行吧
+
+还确认了不存在夺舍之类的问题
+
+凯老师特意问了路飞你是谁
+
+不知道他究竟知道多少
+
