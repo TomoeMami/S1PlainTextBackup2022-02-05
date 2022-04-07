@@ -6468,3 +6468,12 @@ P梅林就是星之兽
 
 <img src="https://img.saraba1st.com/forum/202204/07/165413m3zuhh5hchu4quq3.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 87566#       发表于 2022-4-7 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">目前的三种路线分别是太刀+源氏铠甲，长枪+罗马兵套装，打桩机+黑科技装甲，不敢想后面会什么魔改造了
+
