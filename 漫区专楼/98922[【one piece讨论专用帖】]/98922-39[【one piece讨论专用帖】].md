@@ -10168,3 +10168,16 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 但不管怎么说新世界七武海实力满地走的场面真是让我…有点惆怅。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Supermangunv3  
+##### 57849#       发表于 2022-4-7 17:31
+
+<blockquote>天下至贱 发表于 2022-4-7 17:25
+事到如今，探讨op战力已经像搞笑漫画一般…但我还是很俗地想讨论一下所谓的贴吧海贼王战力问题……
+
+回头 ...</blockquote>
+除了鹰眼之外，七武海真的不行
+
