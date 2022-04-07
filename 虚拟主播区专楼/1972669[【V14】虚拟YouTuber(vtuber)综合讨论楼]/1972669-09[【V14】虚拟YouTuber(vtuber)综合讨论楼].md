@@ -581,3 +581,30 @@ selen正在打派，看来大概是手柄<img src="https://static.saraba1st.com/
 
 话说联动那位听起来像是Qu酱……有兴趣可以看看
 
+
+
+*****
+
+####  Suzutsuki  
+##### 12050#       发表于 2022-4-7 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55347088&amp;ptid=1972669" target="_blank">tt13 发表于 2022-4-7 13:29</a>
+
+selen正在打派，看来大概是手柄
+
+话说联动那位听起来像是Qu酱……有兴趣可以看看 ...</blockquote>
+不是像，就是qu酱啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 12051#       发表于 2022-4-7 13:47
+
+<blockquote>SuntoryNomu 发表于 2022-4-7 02:07
+之前我还不信&amp;不关心，
+
+惊闻郡gachi都准备转移目光了，
+
+现在我开始有些怀疑了。 ...</blockquote>
+最近想看看别的是因为郡要麻将赛惹，在必输的情况下看她一直练只是煎熬，五月比完就好了。
+
