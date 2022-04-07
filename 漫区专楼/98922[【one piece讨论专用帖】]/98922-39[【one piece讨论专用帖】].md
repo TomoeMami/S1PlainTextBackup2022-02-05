@@ -10080,3 +10080,14 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 我还觉得打的挺爽的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 57839#       发表于 2022-4-7 15:15
+
+都叫幻兽种，元素能力肯定是必备的，等一个盖亚能量炮
+
+看好了，艾斯，炎帝是这么发的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
