@@ -6477,3 +6477,15 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">目前的三种路线分别是太刀+源氏铠甲，长枪+罗马兵套装，打桩机+黑科技装甲，不敢想后面会什么魔改造了
 
+
+
+*****
+
+####  里村紅葉  
+##### 87567#       发表于 2022-4-7 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55352161&amp;ptid=1085254" target="_blank">J-002 发表于 2022-4-7 19:24</a>
+
+目前的三种路线分别是太刀+源氏铠甲，长枪+罗马兵套装，打桩机+黑科技装甲，不敢想后面会什么魔改造 ...</blockquote>
+这不装把光束步枪很难收场啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
