@@ -10004,3 +10004,115 @@ VCP要出3个新人了
 
 放三个新成员的消息呗，估计顺便还有新曲
 
+
+
+*****
+
+####  onlv星骸  
+##### 10057#       发表于 2022-4-7 20:03
+
+怎么笑的这么收敛
+
+*****
+
+####  clvan_  
+##### 10058#       发表于 2022-4-7 20:06
+
+这生放，这企划还是一股药丸的气息扑面而来
+
+*****
+
+####  onlv星骸  
+##### 10059#       发表于 2022-4-7 20:06
+
+ 草 居然才开始吗
+
+*****
+
+####  甘栗No.007  
+##### 10060#       发表于 2022-4-7 20:07
+
+ 本帖最后由 甘栗No.007 于 2022-4-7 20:08 编辑 
+
+NB团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总算有曲子了
+
+*****
+
+####  T_Hb  
+##### 10061#       发表于 2022-4-7 20:07
+
+<img src="https://img.saraba1st.com/forum/202204/07/200747ixyotidedosxacts.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 20:07 上传
+
+<img src="https://img.saraba1st.com/forum/202204/07/200757l5kkguhsuueezuja.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 20:07 上传
+
+5月3
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 10062#       发表于 2022-4-7 20:09
+
+草虽然帧率有点问题不过看着真不错啊这个计划是不是终于有点价值了
+
+*****
+
+####  Mikumiku831  
+##### 10063#       发表于 2022-4-7 20:09
+
+这下NB了
+
+*****
+
+####  clvan_  
+##### 10064#       发表于 2022-4-7 20:09
+
+ 本帖最后由 clvan_ 于 2022-4-7 20:11 编辑 
+
+渲染光影有点怪.......
+
+*****
+
+####  onlv星骸  
+##### 10065#       发表于 2022-4-7 20:10
+
+mea这脸好婴儿肥
+
+*****
+
+####  璃絵和花瑠  
+##### 10066#       发表于 2022-4-7 20:11
+
+一言难尽了属于是。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  Mikumiku831  
+##### 10067#       发表于 2022-4-7 20:12
+
+做成这样反正我是不挑的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 10068#       发表于 2022-4-7 20:12
+
+暂且当一天索尼孝子
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
