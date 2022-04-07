@@ -10355,3 +10355,115 @@ mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
 所以才是王道系的偶像曲啊（真的很王道），也怪不得你咩姐会做噩梦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做什么噩梦，被熟人抓到脚趾抠出五室一厅那种感觉么
 
+
+
+*****
+
+####  やト  
+##### 10096#       发表于 2022-4-7 21:50
+
+<img src="https://img.saraba1st.com/forum/202204/07/215040z5jk77t1dd77d64x.jpg" referrerpolicy="no-referrer">
+
+<strong>9J~WF)H}]_WA9NF)40@E[{3.jpg</strong> (213.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 21:50 上传
+
+ 给没看直播的水友补个图
+
+*****
+
+####  -MUON-  
+##### 10097#       发表于 2022-4-7 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354550&amp;ptid=2018830" target="_blank">やト 发表于 2022-4-7 21:50</a>
+
+给没看直播的水友补个图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">什么时候有卖（
+
+*****
+
+####  やト  
+##### 10098#       发表于 2022-4-7 21:54
+
+  只存在于设定图吧
+
+*****
+
+####  往世雷书  
+##### 10099#       发表于 2022-4-7 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354089&amp;ptid=2018830" target="_blank">iuhehc 发表于 2022-4-7 21:20</a>
+这是她站c吗</blockquote>
+有内味了嗷，快进到数秒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  路人庚  
+##### 10100#       发表于 2022-4-7 21:58
+
+ 本帖最后由 路人庚 于 2022-4-7 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354530&amp;ptid=2018830" target="_blank">-MUON- 发表于 2022-4-7 21:49</a>
+
+做什么噩梦，被熟人抓到脚趾抠出五室一厅那种感觉么</blockquote>
+指这个“噩梦”（无端联想）
+
+<img src="https://img.saraba1st.com/forum/202204/07/215826tzsijs4lyqilnuyu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EB9BF7F3-2323-47B9-AFAA-332F491417B8.jpeg</strong> (137.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 21:58 上传
+
+当然这个歌词结合这个腊肉看起来就更喜感了（这腊肉怕不是翻译了歌词之后特地翻出来烤的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/07/220141lfebehdti4litgzf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1FF55D5C-B7E0-4144-8116-ECEB700E229B.jpeg</strong> (360.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 22:01 上传
+
+*****
+
+####  rosevalley46  
+##### 10101#       发表于 2022-4-7 21:58
+
+谁还不是个偶像出道呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说我看那个mv的模型是有点接受不了....有点劣质kg娃娃的感觉
+
+*****
+
+####  Mr.shelter  
+##### 10102#       发表于 2022-4-7 22:00
+
+宣传图很漂亮，建模就.....<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -MUON-  
+##### 10103#       发表于 2022-4-7 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354703&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-4-7 21:58</a>
+
+指这个“噩梦”（无端联想）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后唱出来了
+
+*****
+
+####  iuhehc  
+##### 10104#       发表于 2022-4-7 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354636&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-7 21:55</a>
+
+有内味了嗷，快进到数秒
+
+—— 来自 S1Fun</blockquote>
+已经在偷偷数了
+
