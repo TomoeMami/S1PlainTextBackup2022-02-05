@@ -10239,3 +10239,23 @@ youtube发售，叔叔应该没有这么脑瘫吧
 
 等的时候不小心睡着了，补了一部分油管回放，这3d挺迷的，而且mea这一身白的像个反光板一样。
 
+
+
+*****
+
+####  ashero  
+##### 10084#       发表于 2022-4-7 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55353528&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-4-7 20:46</a>
+等的时候不小心睡着了，补了一部分油管回放，这3d挺迷的，而且mea这一身白的像个反光板一样。 ...</blockquote>
+模型就是她之前的模型 渲染的问题 她这个模型不合适这种渲染 
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  路人庚  
+##### 10085#       发表于 2022-4-7 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">头是旧模型，身子是新模型，就突出一个接头霸王（）
+
