@@ -656,3 +656,14 @@ towa要不给个内推名额去杏en？
 
 rfm新节目叫人企划，检测到有akn没有my，输出不破枝嫌弃黑客打派拖后腿不破叫人都不叫他（x
 
+
+
+*****
+
+####  rzrbtk  
+##### 12056#       发表于 2022-4-7 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55349824&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-7 16:30</a>
+rfm新节目叫人企划，检测到有akn没有my，输出不破枝嫌弃黑客打派拖后腿不破叫人都不叫他（x ...</blockquote>
+检测到有kgm，输出kgmy又避嫌
+
