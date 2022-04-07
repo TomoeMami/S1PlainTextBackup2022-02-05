@@ -6301,3 +6301,15 @@ P梅林就是星之兽
 
 莉莉丝喜迎6宝，提前120了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87552#       发表于 2022-4-7 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55344397&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-7 10:57</a>
+
+太欧了 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">四个多月唯一一个抽到的五星竟然是这种弱鸡角色 之前的芭娜娜为什么不出
+
