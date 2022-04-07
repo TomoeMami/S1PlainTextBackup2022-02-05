@@ -10153,3 +10153,18 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 橡胶，很神奇吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天下至贱  
+##### 57848#       发表于 2022-4-7 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55217370&amp;ptid=98922" target="_blank">thomaszyj 发表于 2022-3-28 15:02</a>
+凯多前期刻画的太厉害了。9侠中，猫狗常态持平甚平肯定没问题，月狮直接能打赢杰克，然后阿修罗是9侠中最 ...</blockquote>
+事到如今，探讨op战力已经像搞笑漫画一般…但我还是很俗地想讨论一下所谓的贴吧海贼王战力问题……
+
+回头来看七武海们早没了鹰眼第一次出场时的压迫感，如果真是贴吧海贼王所谓的四皇实力约等于三大将，那么前期设定的海军七武海四皇三大势力的平衡，也只不过是七武海半依附于海军后，填补了海军大将和中将们之间这档巨大的实力差，抵消了四皇手下类似杰克六子这档战力，使得海军整体实力恰好维持在能和四皇抗衡但又无法彻底消灭？
+
+但不管怎么说新世界七武海实力满地走的场面真是让我…有点惆怅。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
