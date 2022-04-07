@@ -10409,3 +10409,14 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 继“火焰果实，狗都不吃”后，雷电能力烂大街也是很正常的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  reficul  
+##### 57867#       发表于 2022-4-8 01:03
+
+别尬黑，这是橡胶橡胶·摩擦
+
+从五老星这评价来看，御田都要能把海军砍翻了吧，所以你们就这点实力还一直摆pose很拽的样子干嘛
+
