@@ -10467,3 +10467,46 @@ mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
 —— 来自 S1Fun</blockquote>
 已经在偷偷数了
 
+
+
+*****
+
+####  T_Hb  
+##### 10105#       发表于 2022-4-7 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得是手K的
+
+*****
+
+####  thisisaspider  
+##### 10106#       发表于 2022-4-7 22:09
+
+什么时候卖娃娃<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 10107#       发表于 2022-4-7 22:10
+
+ 本帖最后由 路人庚 于 2022-4-7 22:13 编辑 
+
+来个MV封面大图（还没发现无字版本）
+
+好像被压图了，发个原图链接好了：
+[https://i0.hdslb.com/bfs/activit ... gmv_w1920_h1080.png](https://i0.hdslb.com/bfs/activity-plat/static/75b264943efa8c4a366d53fef124bfe8/bdFKNQNgmv_w1920_h1080.png)
+
+<img src="https://img.saraba1st.com/forum/202204/07/220946qlpilplzw6wi2alt.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (451.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-7 22:09 上传
+
+*****
+
+####  T_Hb  
+##### 10108#       发表于 2022-4-7 22:12
+
+这封面完爆mv，还不如不放mv就让我看这张图畅想一下mv
+
