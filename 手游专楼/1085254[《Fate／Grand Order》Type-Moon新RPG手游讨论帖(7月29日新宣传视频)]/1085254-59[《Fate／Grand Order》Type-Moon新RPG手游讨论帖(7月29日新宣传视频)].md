@@ -6280,3 +6280,15 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹艹艹 就不该手贱的啊 真的抽礼装结果把角色抽出来了
 
+
+
+*****
+
+####  alucardcz  
+##### 87550#       发表于 2022-4-7 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55340387&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-6 23:23</a>
+
+艹艹艹 就不该手贱的啊 真的抽礼装结果把角色抽出来了</blockquote>
+太欧了 羡慕
+
