@@ -667,3 +667,17 @@ rfm新节目叫人企划，检测到有akn没有my，输出不破枝嫌弃黑客
 rfm新节目叫人企划，检测到有akn没有my，输出不破枝嫌弃黑客打派拖后腿不破叫人都不叫他（x ...</blockquote>
 检测到有kgm，输出kgmy又避嫌
 
+
+
+*****
+
+####  fastary  
+##### 12057#       发表于 2022-4-7 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55349941&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-7 16:38</a>
+
+检测到有kgm，输出kgmy又避嫌</blockquote>
+草，说得好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+以这两人台前的不熟程度如果真叫了我要怀疑官方是不是有cp残党带私货了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
