@@ -10549,3 +10549,60 @@ mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
 
 这NOT BOT是组合名吧
 
+
+
+*****
+
+####  clvan_  
+##### 10114#       发表于 2022-4-7 22:24
+
+直接改名nhotbot，怕不是之后新出道的也全都归这名字底下了。哦，已经说了啊，那没事了
+
+*****
+
+####  璃絵和花瑠  
+##### 10115#       发表于 2022-4-7 22:25
+
+现创新人号还行。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  时间在我手中  
+##### 10116#       发表于 2022-4-7 22:26
+
+新名字啊，NB明显是所谓团名，懂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 10117#       发表于 2022-4-7 22:27
+
+也不知道招的这三位是真新人还是有前世的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是有之前毕业的v转生就乐了
+
+*****
+
+####  iuhehc  
+##### 10118#       发表于 2022-4-7 22:28
+
+或许 大概 应该 是素人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10119#       发表于 2022-4-7 22:28
+
+ 本帖最后由 T_Hb 于 2022-4-7 22:30 编辑 
+
+说实话不太关心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过转生到这感觉就是死路一条
+
+*****
+
+####  clvan_  
+##### 10120#       发表于 2022-4-7 22:30
+
+反正和你麻没啥关系，年底人就润了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然真能凑出点化学反应也算好事
+
