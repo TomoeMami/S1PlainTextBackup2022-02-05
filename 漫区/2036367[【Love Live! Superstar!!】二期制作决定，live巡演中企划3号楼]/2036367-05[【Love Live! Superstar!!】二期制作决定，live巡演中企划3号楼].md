@@ -11655,3 +11655,12 @@ bd是群马宫城东京追加场啊~
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很懂，群马day1，宫城day2
 
+
+
+*****
+
+####  kata魂  
+##### 6833#       发表于 2022-4-7 20:42
+
+也没啥新奇东西…
+
