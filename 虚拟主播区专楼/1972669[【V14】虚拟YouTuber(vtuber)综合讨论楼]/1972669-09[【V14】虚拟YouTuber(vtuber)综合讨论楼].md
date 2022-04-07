@@ -560,3 +560,13 @@ https://youtu.be/1qLpioZ-a7g
 缺少一个独立的小团体认同感，最多外衍到同期范围，剩下的都是虹同事
 en，vspo目前来说还是全打乱的，整体感比较明显
 
+
+
+*****
+
+####  poipanchao  
+##### 12048#       发表于 2022-4-7 12:49
+
+怎么事到如今才挖出来…my bora今年可能没了
+有也是明年的事儿<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还不一定有
+
