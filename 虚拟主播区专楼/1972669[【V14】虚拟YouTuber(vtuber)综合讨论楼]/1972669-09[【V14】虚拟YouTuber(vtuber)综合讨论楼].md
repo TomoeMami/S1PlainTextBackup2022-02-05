@@ -524,3 +524,20 @@ https://youtu.be/1qLpioZ-a7g
 人不多，随意联动串门，比如现在的虹en、vspo
 曾经的虹杏也有过这样的时期…
 
+
+
+*****
+
+####  lorgret  
+##### 12044#       发表于 2022-4-7 10:05
+
+洛夫猫内容看企划，在谜和抓得住话题里波动。现在订阅37w，再生播放平均超四五十万，成绩还说得过去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">只能说警惕偶像化商业化。但是虹en应该不像jp那么容易受粉丝影响还能继续下去
+
+*****
+
+####  布莱士·西伯利  
+##### 12045#       发表于 2022-4-7 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我对en的未来不乐观…从主播能动性来说反而en没有发挥出来个人感觉。
+
