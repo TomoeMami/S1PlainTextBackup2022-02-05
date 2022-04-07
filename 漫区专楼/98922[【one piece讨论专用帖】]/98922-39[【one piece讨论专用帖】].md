@@ -9875,3 +9875,19 @@ A：没有台词所以名字未知
 离大谱
 橡胶人不导电就能拿闪电吗？缠绕闪电和直接掌控闪电完全是两个概念。
 
+
+
+*****
+
+####  cdfjg  
+##### 57833#       发表于 2022-4-7 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345964&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-4-7 12:20</a>
+
+离大谱
+
+橡胶人不导电就能拿闪电吗？缠绕闪电和直接掌控闪电完全是两个概念。
+
+照这么说，干沙子也不导电， ...</blockquote>
+远古时期橡胶人就是这样狩猎的
+

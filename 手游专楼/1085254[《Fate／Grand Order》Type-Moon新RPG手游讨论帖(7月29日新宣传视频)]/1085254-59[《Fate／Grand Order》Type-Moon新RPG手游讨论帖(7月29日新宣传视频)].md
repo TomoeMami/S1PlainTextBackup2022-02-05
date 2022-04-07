@@ -6418,3 +6418,35 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上图为证 还真是0 new  包括福袋 非出天际了好吗 最后一个new还是12月8号的活动从者
 
+
+
+*****
+
+####  qixinno2  
+##### 87562#       发表于 2022-4-7 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55346224&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-7 12:36</a>
+
+上图为证 还真是0 new  包括福袋 非出天际了好吗 最后一个new还是12月8号的活动从者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">就冲你之前芭娜娜+1就比我欧一百倍
+
+*****
+
+####  rooarr  
+##### 87563#       发表于 2022-4-7 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55346224&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-7 12:36</a>
+
+上图为证 还真是0 new  包括福袋 非出天际了好吗 最后一个new还是12月8号的活动从者</blockquote>
+萌新好多我没有的限定，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87564#       发表于 2022-4-7 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55346588&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-4-7 12:58</a>
+
+萌新好多我没有的限定，羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你又说笑了
+
