@@ -10062,3 +10062,12 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 闪电是电流呀，路飞如果能抓到实体化变成长矛的话，不就跟艾尼路一样了么，这下是不光是烧烧果实狗都不吃，连响雷果实也是要丢进垃圾堆了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 57837#       发表于 2022-4-7 14:37
+
+能抓闪电的话火焰什么可能也能抓起来了
+
