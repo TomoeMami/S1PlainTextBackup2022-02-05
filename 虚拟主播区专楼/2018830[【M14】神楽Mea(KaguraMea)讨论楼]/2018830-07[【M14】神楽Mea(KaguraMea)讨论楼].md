@@ -10268,3 +10268,37 @@ youtube发售，叔叔应该没有这么脑瘫吧
 
 这是她站c吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  -MUON-  
+##### 10087#       发表于 2022-4-7 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这渲染跟建模直接全麻，歌还不错
+
+*****
+
+####  古战场亡魂  
+##### 10088#       发表于 2022-4-7 21:37
+
+歌词什么的有点草。
+
+mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
+
+独唱 我的心染上纯洁的颜色   我绷不住了。
+
+*****
+
+####  -MUON-  
+##### 10089#       发表于 2022-4-7 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55354327&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-4-7 21:37</a>
+
+歌词什么的有点草。
+
+mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
+
+独唱 我的心染上纯洁的颜色   我绷不住 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌词确实难蚌
+
