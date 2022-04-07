@@ -10716,3 +10716,35 @@ mv那个舞蹈强度我觉得就算mea跟得上另外两个也绝对没那个体
 
 syl 下次发宣传图的时候能不能屏蔽一下其他人，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时雨rain  
+##### 10133#       发表于 2022-4-7 23:28
+
+桀桀，毒唯太多<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 10134#       发表于 2022-4-7 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叫了4年了，这次是真的勒（啊？我也是？那没事了
+
+*****
+
+####  病態極端  
+##### 10135#       发表于 2022-4-7 23:30
+
+為什麼愛小姐是center？
+
+*****
+
+####  往世雷书  
+##### 10136#       发表于 2022-4-7 23:32
+
+有人拿c位说事看得我浑身难受，希望下次换人气气你们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

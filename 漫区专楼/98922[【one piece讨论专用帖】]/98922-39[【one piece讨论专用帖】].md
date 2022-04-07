@@ -10400,3 +10400,12 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 四皇这边，基本上高级干部都是中将之上的战力，海军召集七武海就是希望能够补充四皇干部级别的战力。
 
+
+
+*****
+
+####  今天不守尸  
+##### 57866#       发表于 2022-4-7 23:24
+
+继“火焰果实，狗都不吃”后，雷电能力烂大街也是很正常的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
