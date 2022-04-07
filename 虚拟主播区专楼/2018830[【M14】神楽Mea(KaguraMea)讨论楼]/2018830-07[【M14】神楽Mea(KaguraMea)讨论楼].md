@@ -10629,3 +10629,44 @@ mea独唱 我把屏幕弄坏了   我觉得这歌词好啊。
 
 多摸几套衣服，多蹭几首歌就算胜利
 
+
+
+*****
+
+####  T_Hb  
+##### 10124#       发表于 2022-4-7 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一套是不是就是新衣服了
+
+*****
+
+####  clvan_  
+##### 10125#       发表于 2022-4-7 22:44
+
+这能算吗，我不是很认可，以后用到的次数大概一只手能数过来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10126#       发表于 2022-4-7 22:45
+
+无非是在MV里用用 然后上活动用用
+
+*****
+
+####  路人庚  
+##### 10127#       发表于 2022-4-7 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道新人有没有3D，也许可以等一个3D团综（）
+
+（不过新冠太哈人了还是希望算了
+
+*****
+
+####  往世雷书  
+##### 10128#       发表于 2022-4-7 22:51
+
+五年前还是地下偶像，想想时间过得真是又快又慢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
