@@ -6489,3 +6489,12 @@ P梅林就是星之兽
 目前的三种路线分别是太刀+源氏铠甲，长枪+罗马兵套装，打桩机+黑科技装甲，不敢想后面会什么魔改造 ...</blockquote>
 这不装把光束步枪很难收场啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 87568#       发表于 2022-4-8 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">比萨斜塔，五重塔，金字塔，你们玩的真嗨啊
+

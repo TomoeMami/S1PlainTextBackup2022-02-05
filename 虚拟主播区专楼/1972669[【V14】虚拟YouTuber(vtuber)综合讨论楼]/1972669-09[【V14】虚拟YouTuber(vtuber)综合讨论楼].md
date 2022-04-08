@@ -854,3 +854,16 @@ Syl，总感觉タラチオ和やみえん似乎也没特别熟，タラチオ�
 
 因为やみえん是另外一派的（フルコン那批），实况者之间的派系也很复杂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12070#       发表于 2022-4-8 18:45
+
+说熟吧两个人在的小团体不同魂后来也没交流了，说不熟吧以前确实也一起搞过talk live和企划やみえん还给タラチオ的衣服当过模特，只能说某种意义上两个人确实符合(现在没啥交流了的)“旧识”的关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+至于背景故事这设定后面走剧情其实就没用过一次，原因除了当事人谁也不知道……我是倾向于黑客刚出道时还很积极想跟社长营个业的，结果没多久就发现两人根本不是一个路线也不想硬凑就和平分手了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+顺带一提按推测是去年十二月收录的话那时候黑客刚开始抑郁休养中，不管熟不熟都不会想叫他的（当然他这种看着就跟综艺无缘的家伙一般也没人敢叫吧
+
