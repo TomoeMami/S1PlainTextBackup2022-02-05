@@ -931,3 +931,19 @@ FEELS LIKE FAMILY<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 EN武德，jp费拉
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12074#       发表于 2022-4-8 19:16
+
+叶难道是被ib那事的傻逼度震撼到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 12075#       发表于 2022-4-8 19:16
+
+后面看pomu推感觉已经私下说清楚了，也说了是玩笑，不过她这个玻璃心之后哪次直播现场炸了也不是完全没可能
+
