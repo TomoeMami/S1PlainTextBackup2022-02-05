@@ -10699,3 +10699,23 @@ Towa那个时候和余二人世界呢
 
 盗号可还行，只不过这俩关注也太搞了，感觉像是在说“我就是凑阿夸本夸”，反倒不真实了
 
+
+
+*****
+
+####  越动天下  
+##### 8705#       发表于 2022-4-8 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55363292&amp;ptid=1947500" target="_blank">越动天下 发表于 2022-4-8 15:22</a>
+苹果死了吗 不过也好 接着干下去吧</blockquote>
+以为是死了 没想到活了 真的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真把我整乐了
+
+*****
+
+####  BigLittle1999  
+##### 8706#       发表于 2022-4-8 16:59
+
+我超
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
