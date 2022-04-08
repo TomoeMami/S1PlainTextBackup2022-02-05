@@ -845,3 +845,12 @@ v螃蟹这次两家老大分领一天mc啊<img src="https://static.saraba1st.com
 
 Syl，总感觉タラチオ和やみえん似乎也没特别熟，タラチオ、カフェイン、九血鬼、先端、MKR更像一派，甚至mega、鳴海和利香看起来都更熟悉一些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 12069#       发表于 2022-4-8 18:27
+
+因为やみえん是另外一派的（フルコン那批），实况者之间的派系也很复杂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
