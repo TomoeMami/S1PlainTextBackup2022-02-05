@@ -11904,3 +11904,17 @@ FE732E9F-B8CB-4496-A855-EE6415DCF3B0.jpeg
 
 衣服完全就跟本人是同一套吧？
 
+
+
+*****
+
+####  player3960  
+##### 6843#       发表于 2022-4-8 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55357038&amp;ptid=2036367" target="_blank">名津流 发表于 2022-04-08 01:12:03</a>
+今天的新图
+
+衣服完全就跟本人是同一套吧？</blockquote>这次生日谷子确定都是一巡裂啦之歌的服装啊，第一弹香音也是
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
