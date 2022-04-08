@@ -1000,3 +1000,17 @@ ib那多大点事儿还能吓到老主播，我感觉这人纯粹是在巨魔钓
 叶难道是被ib那事的傻逼度震撼到了</blockquote>
 怎么可能，ib那屁大点事
 
+
+
+*****
+
+####  lorgret  
+##### 12081#       发表于 2022-4-8 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55365753&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-4-8 18:02</a>
+我好奇他俩要是真那么不熟，当初加贺美是怎么会同意把自己写到黛灰的roleplay背景故事里去还跟来问的粉丝 ...</blockquote>
+回来一看没想到2022了还有解释这些老话题的一天，能不能把业界也倒带回去
+这俩不算熟，黑客写的背景故事没有没经过社长同意<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">在粉丝追问的直播里他给的解释很圆滑导致模凌两可，“不知道这件事但是会支持他的做法的”。从那之后表面上彻底开始准备划清界线了
+设定的营业问题，只能说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">串里一直骂タラチオ同窗会拉人进虹，所以台前加贺美一开始避嫌不和前世熟人沟通，和黑客回推的设定是表面上给这点一个解释，拿去展开发挥就是另外回事了
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看看到现在的情况还不如再拐点同窗会来，然而暗示过被虹邀请的几个自己拒绝了，令人感叹
+
