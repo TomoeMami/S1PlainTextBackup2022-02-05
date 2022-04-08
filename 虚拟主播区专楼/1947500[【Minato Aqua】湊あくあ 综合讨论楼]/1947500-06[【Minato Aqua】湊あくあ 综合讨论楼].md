@@ -10728,3 +10728,26 @@ Towa那个时候和余二人世界呢
 
 盗不盗号另说，那个号是真号，我一直关注着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 8708#       发表于 2022-4-8 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对魂号提不起兴趣。为什么这么摸还要把精力分到魂号上呢
+凑阿夸是凑阿夸，凛是凛，不熟
+我只希望这个皮能一直存在下去
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 越动天下| + 1|是这样的 我一开始还以为死了|
+
+查看全部评分
+
