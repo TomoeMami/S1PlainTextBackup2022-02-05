@@ -834,3 +834,14 @@ v螃蟹这次两家老大分领一天mc啊<img src="https://static.saraba1st.com
 这企划倒不是官方整的人选，四个人自己选的，黑客就是，单纯没人想找他[f:068 ...</blockquote>
 我好奇他俩要是真那么不熟，当初加贺美是怎么会同意把自己写到黛灰的roleplay背景故事里去还跟来问的粉丝承认“确有其事”的
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12068#       发表于 2022-4-8 18:22
+
+你们复活的也是最初嗯打游戏，后被公司诓了偶像梦整天练舞没时间直播，在温暖大家庭里看起来格格不入的那个吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+Syl，总感觉タラチオ和やみえん似乎也没特别熟，タラチオ、カフェイン、九血鬼、先端、MKR更像一派，甚至mega、鳴海和利香看起来都更熟悉一些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
