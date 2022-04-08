@@ -12232,3 +12232,12 @@ C.按键区斜后方
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55368715&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-8 21:11</a></blockquote>
 我总觉得给25岁的鱼安排这种职场新人礼仪问答有点别扭，有些真不是在规训么
 
+
+
+*****
+
+####  lj205  
+##### 6861#       发表于 2022-4-8 23:40
+
+希望明天的talk不会又像上次那样断片，至少也要告诉她我叫啥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
