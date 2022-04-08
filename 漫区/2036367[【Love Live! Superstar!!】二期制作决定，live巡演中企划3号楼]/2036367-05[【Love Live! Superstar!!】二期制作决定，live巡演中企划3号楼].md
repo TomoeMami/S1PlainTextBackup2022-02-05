@@ -12241,3 +12241,15 @@ C.按键区斜后方
 
 希望明天的talk不会又像上次那样断片，至少也要告诉她我叫啥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 6862#       发表于 2022-4-9 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55370833&amp;ptid=2036367" target="_blank">welcom 发表于 2022-4-8 23:39</a>
+
+我总觉得给25岁的鱼安排这种职场新人礼仪问答有点别扭，有些真不是在规训么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">日本这老牌资本家肯定是比国内这些老板更多花头。
+
