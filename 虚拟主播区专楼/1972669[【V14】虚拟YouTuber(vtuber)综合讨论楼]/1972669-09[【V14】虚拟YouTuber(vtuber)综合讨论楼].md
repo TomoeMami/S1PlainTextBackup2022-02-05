@@ -867,3 +867,67 @@ Syl，总感觉タラチオ和やみえん似乎也没特别熟，タラチオ�
 
 顺带一提按推测是去年十二月收录的话那时候黑客刚开始抑郁休养中，不管熟不熟都不会想叫他的（当然他这种看着就跟综艺无缘的家伙一般也没人敢叫吧
 
+
+
+*****
+
+####  winda  
+##### 12071#       发表于 2022-4-8 19:04
+
+<img src="https://img.saraba1st.com/forum/202204/08/190147var9vvqiozrqqr41.png" referrerpolicy="no-referrer">
+
+<strong>1649393436956.png</strong> (20.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-8 19:01 上传
+
+ <blockquote>[size=13.3333px]&gt;NijiEN has a Minecraft Collab
+[size=13.3333px]&gt;Pomu does a seperate Minecraft stream named Spitecraft
+[size=13.3333px]&gt;Pomu and Nina fight each other and joke around
+[size=13.3333px]&gt;Pomu advertises her Spitecraft in Nina's channel
+[size=13.3333px]&gt;Nina is a bit drunk and gets mad
+[size=13.3333px]&gt;Nina then kills Pomu and says "Honestly Pomu, you really crossed me when you advertised your DYING DEAD CHANNEL"
+[size=13.3333px]&gt;Things get awkward fast
+[size=13.3333px]&gt;Pomu decides to travel solo away from the group
+[size=13.3333px]&gt;Chat seems concerned
+[size=13.3333px]&gt;Pomu decides to end the stream but then says "Nina kosaka is a deceitful, distrustful fox and that's why she's poor"
+[size=13.3333px]&gt;Stream ends
+[size=13.3333px]&gt;The Spitecraft stream then becomes private
+[size=13.3333px]https://www.[size=13.3333px]youtube.com/watch?v=JPMMc1uN3Wc&amp;ab_channel=PomuRainpuff%E3%80%90NIJISANJIEN%E3%80%91[size=13.3333px] [[size=13.3333px][url=]Embed[/url][size=13.3333px]]
+
+[size=13.3333px]It feels like an all out war now</blockquote>
+a war declared between pomu and nina
+
+以及4chan最缺德的一张：
+
+<img src="https://img.saraba1st.com/forum/202204/08/190321yq20zqpu6pz6s22g.png" referrerpolicy="no-referrer">
+
+<strong>1649399172425.png</strong> (195.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-8 19:03 上传
+
+FEELS LIKE FAMILY<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 12072#       发表于 2022-4-8 19:07
+
+ 本帖最后由 poipanchao 于 2022-4-8 19:09 编辑 
+
+不仲吗，是不仲吗
+
+有没有大概翻译，感觉自己英文全还掉了
+
+有几个词是不是没用原意？
+
+*****
+
+####  IDIDIDID  
+##### 12073#       发表于 2022-4-8 19:10
+
+EN武德，jp费拉
+
