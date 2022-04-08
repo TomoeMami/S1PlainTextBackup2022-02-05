@@ -803,3 +803,20 @@ v螃蟹这次两家老大分领一天mc啊<img src="https://static.saraba1st.com
 
 2022-4-8 17:11 上传
 
+
+
+*****
+
+####  lorgret  
+##### 12066#       发表于 2022-4-8 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55350014&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-7 16:45</a>
+草，说得好虽然我都不敢做这种梦
+
+以这两人台前的不熟程度如果真叫了我要怀疑官方是不是有c ...</blockquote>
+自信点，把台前去掉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+这企划倒不是官方整的人选，四个人自己选的，黑客就是，单纯没人想找他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不破第一个想喊的是akn，还在睡没起，然后直接找了星川。
+四位被叫醒还愿意百忙之中抽空来一趟的liver真是不容易
+
+虽然是回复 syl 洛夫猫蹭完同社联动热度赶紧把质量比较好的口水歌投了，第二季就像运营终于开窍了一样<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
