@@ -10904,3 +10904,19 @@ syl 下次发宣传图的时候能不能屏蔽一下其他人，受不了<img sr
 这还不简单，粉丝数最多的站中间</blockquote>
 你可真ky啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dualist彩  
+##### 10153#       发表于 2022-4-8 11:44
+
+原来是她们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 10154#       发表于 2022-4-8 11:50
+
+印象中之前宣传的似乎是会增加一个新人，结果这一下子冒出来三个，只能说这半死不活的企划在一般从业者眼里还是挺有价值的（换句话说就是虚拟人界也是蛮卷的
+
