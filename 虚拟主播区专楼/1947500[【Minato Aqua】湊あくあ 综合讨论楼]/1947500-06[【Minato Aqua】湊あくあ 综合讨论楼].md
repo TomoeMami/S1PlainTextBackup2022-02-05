@@ -11002,3 +11002,26 @@ SOLO看的也很爽~
 
 solo确实不错 
 
+
+
+*****
+
+####  Maonpuyo  
+##### 8736#       发表于 2022-4-9 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">获得今晚免喷权
+
+*****
+
+####  乌鸦绅士  
+##### 8737#       发表于 2022-4-9 00:10
+
+该考虑把副武器改成专注了，至少用专注是真有机会1打3<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 8738#       发表于 2022-4-9 00:16
+
+专注太吃子弹了，而且还得找得到涡轮，队友有罗芭的话还能玩玩
+
