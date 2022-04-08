@@ -956,3 +956,23 @@ EN武德，jp费拉
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12077#       发表于 2022-4-8 20:36
+
+ib那多大点事儿还能吓到老主播，我感觉这人纯粹是在巨魔钓鱼（←5/1大事なお知らせがあります）
+
+要么就是真的太想发vlog<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+Syl，EN打起来，我要看到血流成河
+
+*****
+
+####  ヒトニナル  
+##### 12078#       发表于 2022-4-8 20:40
+
+上次二哥整个大的好像是在2434公式频道卖loto抱枕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
