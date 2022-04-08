@@ -10470,3 +10470,63 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 搞笑角色是吧，我觉得下一秒把对话框举起来砸人都不奇怪</blockquote>
 如果真来那我愿给尼卡10分
 
+
+
+*****
+
+####  仟音一心  
+##### 57871#       发表于 2022-4-8 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55349320&amp;ptid=98922" target="_blank">屌丶哲 发表于 2022-4-7 15:58</a>
+搞笑角色是吧，我觉得下一秒把对话框举起来砸人都不奇怪</blockquote>
+对话框砸人第一次是在十冷看到的，还有「分镜斩」，用分镜边框的斩人。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 57872#       发表于 2022-4-8 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55358135&amp;ptid=98922" target="_blank">evangelina 发表于 2022-4-8 08:32</a>
+
+跟King的回忆和五皇被打下去那里能看出可爱多以前也想成为joyboy，不过现在应该是把期望放在别人特别是 ...</blockquote>
+记得是king希望凯多是joyboy
+
+应该是那个神一族流传的什么传说 
+
+凯多怎么想就不太清楚了
+
+*****
+
+####  逸yi  
+##### 57873#       发表于 2022-4-8 10:42
+
+又翻页
+
+*****
+
+####  仟音一心  
+##### 57874#       发表于 2022-4-8 11:51
+
+卡页
+
+*****
+
+####  仟音一心  
+##### 57875#       发表于 2022-4-8 11:52
+
+卡二
+
+*****
+
+####  仟音一心  
+##### 57876#       发表于 2022-4-8 11:52
+
+卡三
+
+*****
+
+####  仟音一心  
+##### 57877#       发表于 2022-4-8 11:52
+
+卡四
+
