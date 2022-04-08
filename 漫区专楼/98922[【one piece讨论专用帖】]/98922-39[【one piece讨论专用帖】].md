@@ -10439,3 +10439,23 @@ E99BA69B-2870-4CA1-8351-F515B6AFB7CC.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  evangelina  
+##### 57869#       发表于 2022-4-8 08:32
+
+ 本帖最后由 evangelina 于 2022-4-8 08:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55345069&amp;ptid=98922" target="_blank">klzxs 发表于 2022-4-7 11:39</a>
+
+全图出了，还行吧
+
+还确认了不存在夺舍之类的问题
+
+凯老师特意问了路飞你是谁</blockquote>
+
+跟King的回忆和五皇被打下去那里能看出可爱多以前也想成为joyboy，不过现在应该是把期望放在别人特别是五皇身上了
+
+就是不清楚可爱多所知的joyboy的信息和果实觉醒有什么关系
+
