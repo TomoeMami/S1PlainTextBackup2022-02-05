@@ -947,3 +947,12 @@ EN武德，jp费拉
 
 后面看pomu推感觉已经私下说清楚了，也说了是玩笑，不过她这个玻璃心之后哪次直播现场炸了也不是完全没可能
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 12076#       发表于 2022-4-8 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
