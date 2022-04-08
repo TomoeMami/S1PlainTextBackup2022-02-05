@@ -12008,3 +12008,40 @@ FE732E9F-B8CB-4496-A855-EE6415DCF3B0.jpeg
 
 [https://b23.tv/7aPoWEh](https://b23.tv/7aPoWEh)
 
+
+
+*****
+
+####  仟音一心  
+##### 6852#       发表于 2022-4-8 17:54
+
+<blockquote>#Liyuu[超话]# 大家好！
+
+为了庆祝我的1st Concert Blu-ray
+
+6月29日的发售☺️
+
+还有很多别的庆祝✨
+
+4月10日星期天晚北京时间19:00
+
+久违的直播唠嗑一下吧！ </blockquote>
+
+[https://live.bilibili.com/h5/526 ... mp;unique_k=30BtZkl](https://live.bilibili.com/h5/5265?broadcast_type=0&amp;is_room_feed=1&amp;share_medium=iphone&amp;share_plat=ios&amp;share_session_id=DE5BFCC4-FE02-4561-BC7C-571DB7FE0137&amp;share_source=COPY&amp;share_tag=s_i&amp;timestamp=1649411414&amp;unique_k=30BtZkl)
+
+33AEE1BD-1FE4-48AF-83EF-E8EE586CB5CF.jpeg
+(277.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-8 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202204/08/175437dluwpnskkagannbg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 6853#       发表于 2022-4-8 17:58
+
+钓鱼现场了
+

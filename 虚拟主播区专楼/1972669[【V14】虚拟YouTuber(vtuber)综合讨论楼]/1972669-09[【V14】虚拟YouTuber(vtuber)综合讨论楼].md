@@ -820,3 +820,17 @@ v螃蟹这次两家老大分领一天mc啊<img src="https://static.saraba1st.com
 
 虽然是回复 syl 洛夫猫蹭完同社联动热度赶紧把质量比较好的口水歌投了，第二季就像运营终于开窍了一样<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 12067#       发表于 2022-4-8 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55365401&amp;ptid=1972669" target="_blank">lorgret 发表于 2022-4-8 17:37</a>
+
+自信点，把台前去掉
+
+这企划倒不是官方整的人选，四个人自己选的，黑客就是，单纯没人想找他[f:068 ...</blockquote>
+我好奇他俩要是真那么不熟，当初加贺美是怎么会同意把自己写到黛灰的roleplay背景故事里去还跟来问的粉丝承认“确有其事”的
+
