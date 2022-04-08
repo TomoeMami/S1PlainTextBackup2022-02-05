@@ -10903,3 +10903,24 @@ haha
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我最期待的事情出现了!.jpg
 
+
+
+*****
+
+####  Yuririn  
+##### 8725#       发表于 2022-4-8 22:22
+
+holo本来也不禁魂的活动。rinco这是心态发生了怎样的变化有懂哥脑补一下吗，好久没看了。
+
+— from vivo V1922A, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+*****
+
+####  离魂仙  
+##### 8726#       发表于 2022-4-8 22:23
+
+事后诸葛亮分析得头头是道，进圈决策和对枪细节都反省一遍
+不过我怎么觉得就是因为夸分出过多线程去尝试指挥和沟通 反而显得在散步梦游反应慢
+承担索敌任务的1号位就又变成团灭发动机了
+狂犬的角色定位还得是打手
+
