@@ -976,3 +976,27 @@ Syl，EN打起来，我要看到血流成河
 
 上次二哥整个大的好像是在2434公式频道卖loto抱枕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 12079#       发表于 2022-4-8 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55368152&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-8 20:36</a>
+
+ib那多大点事儿还能吓到老主播，我感觉这人纯粹是在巨魔钓鱼（←5/1大事なお知らせがあります）
+
+要么就是 ...</blockquote>
+老叶回去跟cooky一块卖18x乙女音声算了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2L模仿47哥  
+##### 12080#       发表于 2022-4-8 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55366836&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-4-8 19:16</a>
+
+叶难道是被ib那事的傻逼度震撼到了</blockquote>
+怎么可能，ib那屁大点事
+
