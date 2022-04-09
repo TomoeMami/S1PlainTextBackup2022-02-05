@@ -1238,3 +1238,12 @@ Ritaka也是tiktok比twitch订阅高
 为什么vox这款这么受欢迎啊，嘴上说着不喜欢爹味男实际上还是对低音炮年 ...</blockquote>
 输在听不懂日语
 
+
+
+*****
+
+####  dybang  
+##### 12102#       发表于 2022-4-9 21:39
+
+从皮上看大概是麦麸和真gay的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
