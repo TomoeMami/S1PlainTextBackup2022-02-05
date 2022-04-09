@@ -1286,3 +1286,24 @@ Ritaka也是tiktok比twitch订阅高
 
 二次元都是管loli叫妈的，很正常
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 12106#       发表于 2022-4-10 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55382800&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-9 22:26</a>
+
+低音炮就是有市场啦，你看国配不是就流行肾虚低音炮
+
+而且vox低音也没到听着像大叔的程度，也就当年 ...</blockquote>
+什么时候才能有一个真正的妈系男v<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  只会干饭李二狗  
+##### 12107#       发表于 2022-4-10 04:40
+
+king新衣装观后感：反转了，原来我不是白毛控
+

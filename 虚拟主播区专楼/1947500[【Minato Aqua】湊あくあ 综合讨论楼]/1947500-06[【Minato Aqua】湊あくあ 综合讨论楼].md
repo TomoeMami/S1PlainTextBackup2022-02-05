@@ -11218,3 +11218,58 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 支持奶油面包拳路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然皮也可以有，不冲突
 
+
+
+*****
+
+####  17119854  
+##### 8761#       发表于 2022-4-10 02:19
+
+大半夜不睡觉发的什么玩意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8762#       发表于 2022-4-10 02:20
+
+别整你那鼠绘了行不，给个痛快吧，几时官宣
+
+*****
+
+####  Scardy  
+##### 8763#       发表于 2022-4-10 02:30
+
+这画工本人实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8764#       发表于 2022-4-10 02:47
+
+ 本帖最后由 面具13 于 2022-4-10 02:57 编辑 
+
+灵魂画师，是本人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来几小时前还在会限发文求助火狐浏览器的问题来着
+
+*****
+
+####  Maonpuyo  
+##### 8765#       发表于 2022-4-10 03:03
+
+怎么饭盒都出来了，诈骗可能性up
+
+*****
+
+####  面具13  
+##### 8766#       发表于 2022-4-10 03:08
+
+等出声验货再考虑掏钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lightsuger  
+##### 8767#       发表于 2022-4-10 03:58
+
+呃呃，还真出了fanbox，太像盗号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是大号新推的颜文字ฅ- ·̫ - ̳^感觉又像是暗示<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
