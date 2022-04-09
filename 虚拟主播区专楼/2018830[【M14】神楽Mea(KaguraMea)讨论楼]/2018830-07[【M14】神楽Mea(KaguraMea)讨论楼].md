@@ -11312,3 +11312,33 @@ syl，fafa切片只能说猫皇能处，我收回一半之前对猫皇的攻击�
 
 艹我还以为是和疯婆子，结果是翻唱她的歌阿∑(￣□￣)
 
+
+
+*****
+
+####  clvan_  
+##### 10191#       发表于 2022-4-9 20:14
+
+真和p丸合唱你楼肯定不是这个反应，事业民早就把棺材板掀起来了
+
+*****
+
+####  古战场亡魂  
+##### 10192#       发表于 2022-4-9 20:14
+
+这不是能发出萌音吗？
+
+*****
+
+####  T_Hb  
+##### 10193#       发表于 2022-4-9 20:16
+
+别尬黑，调的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 10194#       发表于 2022-4-9 20:21
+
+我人已经麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
