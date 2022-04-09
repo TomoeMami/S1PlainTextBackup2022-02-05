@@ -11452,3 +11452,21 @@ s b了，忘了像神一样了
 
 唱的好休闲，我高音呢<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pei23333  
+##### 10207#       发表于 2022-4-9 23:14
+
+这人好记仇啊，被人说可怜的事气到现在了，所以最近一直没有播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  古战场亡魂  
+##### 10208#       发表于 2022-4-9 23:20
+
+今天很明显的感受到很累啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
