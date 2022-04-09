@@ -564,3 +564,15 @@ se上一个名字里有reborn的是ff14 2.0，虽然玩法做了比较大的变�
 
 怕不是PSP版高清移植啦
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 65#       发表于 2022-4-9 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55363351&amp;ptid=2063018" target="_blank">minysun 发表于 2022-4-8 15:27</a>
+
+三角虽然剧本不咋地但是全语音的演出效果确实比2D哑巴小人强太多，如果能做到主线全语音+买断还是要支持的 ...</blockquote>
+SS版TO不就有语音吗
+
