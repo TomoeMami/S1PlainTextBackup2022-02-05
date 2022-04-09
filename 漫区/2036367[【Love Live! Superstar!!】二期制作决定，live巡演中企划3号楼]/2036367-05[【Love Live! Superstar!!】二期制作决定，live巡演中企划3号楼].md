@@ -12262,3 +12262,15 @@ C.按键区斜后方
 
 今天talk还是顺利，总算能正常说话了。顺便中间还传来打铁的上品笑声<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 6864#       发表于 2022-4-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55376925&amp;ptid=2036367" target="_blank">lj205 发表于 2022-04-09 14:29:52</a>
+今天talk还是顺利，总算能正常说话了。顺便中间还传来打铁的上品笑声</blockquote>一份talk还听到了上品笑声？这波血赚。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
