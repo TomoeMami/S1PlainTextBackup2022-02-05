@@ -11273,3 +11273,12 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 但是大号新推的颜文字ฅ- ·̫ - ̳^感觉又像是暗示<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shiroslime  
+##### 8768#       发表于 2022-4-10 07:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一上来就开饭盒
+
