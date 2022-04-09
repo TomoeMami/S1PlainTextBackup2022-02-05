@@ -11209,3 +11209,12 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象不算的话</blockquote>
 好像没，kson没毕业前倒是有个3d模型皮直播的搞个人直播的
 
+
+
+*****
+
+####  星の守  
+##### 8760#       发表于 2022-4-10 01:40
+
+支持奶油面包拳路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然皮也可以有，不冲突
+
