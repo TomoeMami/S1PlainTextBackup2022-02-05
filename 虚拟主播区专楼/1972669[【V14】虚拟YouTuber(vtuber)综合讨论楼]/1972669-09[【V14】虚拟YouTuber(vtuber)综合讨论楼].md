@@ -1247,3 +1247,18 @@ Ritaka也是tiktok比twitch订阅高
 
 从皮上看大概是麦麸和真gay的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12103#       发表于 2022-4-9 22:26
+
+低音炮就是有市场啦，你看国配不是就流行肾虚低音炮<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+而且vox低音也没到听着像大叔的程度，也就当年很火的卷福那种感觉（魂也不是大叔的年龄
+
+英语听得懂+皮好+播得勤+大力媚粉+卖cp够敬业，小妹妹被蛊不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">上头之后爹味一点都不是什么事
+
+我也被蛊过啊，就是看他媚粉太用力没几天就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
