@@ -11342,3 +11342,26 @@ syl，fafa切片只能说猫皇能处，我收回一半之前对猫皇的攻击�
 
 我人已经麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 10195#       发表于 2022-4-9 20:28
+
+pv中间好像有一段的画面特写与声音错开了
+
+*****
+
+####  T_Hb  
+##### 10196#       发表于 2022-4-9 20:29
+
+重投了，再来一遍
+
+*****
+
+####  Dualist彩  
+##### 10197#       发表于 2022-4-9 20:31
+
+呵呵，你麻自己投的歌从来都是萌萌音，明明自己也能唱很帅的高音，只能说是16岁的麻麻已经回不来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
