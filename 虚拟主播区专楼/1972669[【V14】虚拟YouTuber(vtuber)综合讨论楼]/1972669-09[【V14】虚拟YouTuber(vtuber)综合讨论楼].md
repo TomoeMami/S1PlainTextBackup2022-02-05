@@ -1213,3 +1213,28 @@ Ritaka也是tiktok比twitch订阅高
 
 还是又bug了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 12100#       发表于 2022-4-9 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55381314&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-9 20:55</a>
+Ritaka也是tiktok比twitch订阅高
+
+为什么vox这款这么受欢迎啊，嘴上说着不喜欢爹味男实际上还是对低音炮年 ...</blockquote>
+因为是不卖男色的萝莉控啦
+
+*****
+
+####  2L模仿47哥  
+##### 12101#       发表于 2022-4-9 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55381314&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-9 20:55</a>
+
+Ritaka也是tiktok比twitch订阅高
+
+为什么vox这款这么受欢迎啊，嘴上说着不喜欢爹味男实际上还是对低音炮年 ...</blockquote>
+输在听不懂日语
+
