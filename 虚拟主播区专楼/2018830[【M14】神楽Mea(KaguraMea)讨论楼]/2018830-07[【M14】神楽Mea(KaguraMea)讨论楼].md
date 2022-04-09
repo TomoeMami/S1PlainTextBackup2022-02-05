@@ -11205,3 +11205,15 @@ syl，s1的手机端是坏了吗？不管用哪个浏览器都打不开了
 
 翻了下那个yhm的频道感觉是个vlog博主，不知道怎么勾搭上的
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10182#       发表于 2022-4-9 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55378510&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2022-4-9 16:59</a>
+
+翻了下那个yhm的频道感觉是个vlog博主，不知道怎么勾搭上的</blockquote>
+16年甚至更早就认识的呗，你日本网络直播圈子也没多大。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
