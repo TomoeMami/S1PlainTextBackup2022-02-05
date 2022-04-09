@@ -11184,3 +11184,17 @@ solo确实不错
 
 不过做个好点的皮要的时间不少，能不能来个奶油面包拳路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8758#       发表于 2022-4-10 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55384530&amp;ptid=1947500" target="_blank">バーチャルS1er 发表于 2022-4-10 01:05</a>
+
+参考多开和毕业的同事们，应该没竟业协议的
+
+不过做个好点的皮要的时间不少，能不能来个奶油面包拳路线[f:0 ...</blockquote>
+holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象不算的话
+
