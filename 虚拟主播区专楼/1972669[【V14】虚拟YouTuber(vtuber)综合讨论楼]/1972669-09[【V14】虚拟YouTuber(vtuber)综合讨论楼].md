@@ -1160,3 +1160,32 @@ QQ截图20220409192617.jpg
 
 king你怎么了king<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 12095#       发表于 2022-4-9 20:45
+
+king（已黑化）
+
+省一楼，今天突发奇想去搜了一哈，小红薯一堆高热度en男内容我惊了，再次感受到受众差别
+
+*****
+
+####  NBXX  
+##### 12096#       发表于 2022-4-9 20:47
+
+不只是小红书，抖音上#vox 也有八千万播放的。
+
+最近沉迷在除B站外的其他平台找V浓度，感觉还是集美擅长扩散和安利，渗透的好广。
+
+*****
+
+####  黑之和  
+##### 12097#       发表于 2022-4-9 20:47
+
+头发这么长可是进不了学生会的啊<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+对小红书全是破防vox的世界绝望了
+
