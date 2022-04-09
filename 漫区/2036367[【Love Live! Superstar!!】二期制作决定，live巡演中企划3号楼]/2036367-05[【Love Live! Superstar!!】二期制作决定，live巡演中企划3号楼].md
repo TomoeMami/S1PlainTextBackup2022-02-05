@@ -12253,3 +12253,12 @@ C.按键区斜后方
 我总觉得给25岁的鱼安排这种职场新人礼仪问答有点别扭，有些真不是在规训么 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">日本这老牌资本家肯定是比国内这些老板更多花头。
 
+
+
+*****
+
+####  lj205  
+##### 6863#       发表于 2022-4-9 14:29
+
+今天talk还是顺利，总算能正常说话了。顺便中间还传来打铁的上品笑声<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
