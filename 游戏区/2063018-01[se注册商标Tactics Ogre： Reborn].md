@@ -596,3 +596,17 @@ SS版也只有关键事件有配音
 
 看**径，有可能某个加强版是外包的，后续再做移植时候外包版本没法利用只能回头去搬原版。
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 68#       发表于 2022-4-9 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55374812&amp;ptid=2063018" target="_blank">JimmyJoker 发表于 2022-4-9 11:36</a>
+
+SS版也只有关键事件有配音
+
+话说回来要做全语音化的话肯定要换批人，要是小野贤章又要换掉佐佐木望的话也怪 ...</blockquote>
+佐佐木不是都东大法学部卒业了吗，可以去混更高级的圈子了。
+
