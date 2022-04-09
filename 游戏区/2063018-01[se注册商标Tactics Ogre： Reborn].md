@@ -537,3 +537,12 @@ se上一个名字里有reborn的是ff14 2.0，虽然玩法做了比较大的变�
 
 你们和hd2d有多大仇<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  华理傻宅  
+##### 62#       发表于 2022-4-9 10:53
+
+应该是和三角有仇，八方的hd2d颜色我觉得挺好的，三角的颜色的确有点过分。。。千万别复刻命运之轮系统就行了，命运之轮系统简直是傻逼中的傻逼
+
