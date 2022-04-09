@@ -11279,3 +11279,36 @@ syl，fafa切片只能说猫皇能处，我收回一半之前对猫皇的攻击�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  T_Hb  
+##### 10188#       发表于 2022-4-9 20:03
+
+ 本帖最后由 T_Hb 于 2022-4-9 20:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次人声感觉还可以，就是歌词这颜色和人脸融合了
+
+<img src="https://img.saraba1st.com/forum/202204/09/200734p5s0zf09s60szq5c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-9 20:07 上传
+
+*****
+
+####  黒長直姫  
+##### 10189#       发表于 2022-4-9 20:06
+
+被伴奏的低音击沉
+
+*****
+
+####  yywzjsw  
+##### 10190#       发表于 2022-4-9 20:07
+
+艹我还以为是和疯婆子，结果是翻唱她的歌阿∑(￣□￣)
+
