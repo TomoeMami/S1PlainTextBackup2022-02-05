@@ -11265,3 +11265,17 @@ syl，fafa切片只能说猫皇能处，我收回一半之前对猫皇的攻击�
 
 2022-4-9 19:06 上传
 
+
+
+*****
+
+####  往世雷书  
+##### 10187#       发表于 2022-4-9 19:48
+
+ 本帖最后由 往世雷书 于 2022-4-9 19:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55379809&amp;ptid=2018830" target="_blank">clvan_ 发表于 2022-4-9 19:03</a>
+你麻可是网络社交花，不认识的人直接喊来打撸的，不需要思考是怎么勾搭上的，只有早就勾搭上了和最近才勾搭 ...</blockquote>
+和犬山的对谈里提到，收益化通过的时候直接就找了没互动过几次的犬山要一起玩游戏，非常突兀的那种，犬山当时还心想vtuber业界环境真是险恶，当前辈的对后辈这么强势<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
