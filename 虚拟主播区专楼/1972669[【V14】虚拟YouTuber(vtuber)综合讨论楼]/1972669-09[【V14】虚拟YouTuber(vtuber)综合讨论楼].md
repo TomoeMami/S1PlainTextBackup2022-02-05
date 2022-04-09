@@ -1189,3 +1189,16 @@ king（已黑化）
 
 对小红书全是破防vox的世界绝望了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12098#       发表于 2022-4-9 20:55
+
+Ritaka也是tiktok比twitch订阅高
+
+为什么vox这款这么受欢迎啊，嘴上说着不喜欢爹味男实际上还是对低音炮年上大叔这款欲罢不能吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ベルモンド输在皮不行？
+
