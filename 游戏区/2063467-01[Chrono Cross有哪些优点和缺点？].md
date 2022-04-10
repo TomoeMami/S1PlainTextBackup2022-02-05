@@ -782,3 +782,38 @@ epsxe支持的。
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  大神一狼  
+##### 75#       发表于 2022-4-10 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55389052&amp;ptid=2063467" target="_blank">处男鉴黄师 发表于 2022-4-10 13:46</a>
+
+我记得他不是灵魂啊，只是失忆了</blockquote>
+土龙岛的BOSS可以卡BUG打死，满足条件它会一直提问不反击<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  终将不惑  
+##### 76#       发表于 2022-4-10 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55389052&amp;ptid=2063467" target="_blank">处男鉴黄师 发表于 2022-4-10 13:46</a>
+我记得他不是灵魂啊，只是失忆了</blockquote>
+没找到图片，看这个攻略：
+前往亡者の島/Isle of the Damned，从骨头的中央通过，在冰壁前使用“ガライ思い出の品/Garai Keepsake”即可穿过→到最深处调查墓碑→与Garai战斗，胜利后获得圣剑“イルランザー/Einlanzer”→回到死の門/Death's Door，解除魔剑封印，进入死海/Dead Sea
+我记得是要调查garai的墓碑。。。
+
+*****
+
+####  处男鉴黄师  
+##### 77#       发表于 2022-4-10 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55390077&amp;ptid=2063467" target="_blank">终将不惑 发表于 2022-4-10 15:05</a>
+
+没找到图片，看这个攻略：
+
+前往亡者の島/Isle of the Damned，从骨头的中央通过，在冰壁前使用“ガライ思 ...</blockquote>
+这个和我说的不是同一个（可能同一个人在不同平行世界一个死了一个活着但失忆了）
+
