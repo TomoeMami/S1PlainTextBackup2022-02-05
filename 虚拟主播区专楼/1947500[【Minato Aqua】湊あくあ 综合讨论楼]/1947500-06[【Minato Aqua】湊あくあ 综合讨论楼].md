@@ -11587,3 +11587,12 @@ syl冒菜STOP！
 
 新暴言：直播员是不是基本都是躁郁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 8796#       发表于 2022-4-10 16:53
+
+你现在算个锤子直播员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
