@@ -690,3 +690,17 @@ epsxe支持的。
 
 感谢各位！
 
+
+
+*****
+
+####  nightrap  
+##### 67#       发表于 2022-4-10 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388048&amp;ptid=2063467" target="_blank">yangchunsiyue 发表于 2022-4-10 12:22</a>
+
+个人感觉老作品可能还是要看以前有没有接触过吧，不然以后面的眼光去看，期待值提到很高，玩起来总会感觉不 ...</blockquote>
+ePSXe对CC的支持没有问题，我当年用这个模拟器通关过两次。不过我玩的是美版，只是存档因为是存在那台XP的笔记本上随着机子一起浮云了。
+
+现在复刻版发行，我却才开始用手机尝试汉化版，说实在的这个游戏不适合用手机来玩，因为经常看不清楚。
+
