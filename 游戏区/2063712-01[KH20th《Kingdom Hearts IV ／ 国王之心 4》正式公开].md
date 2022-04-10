@@ -578,3 +578,35 @@ V13甚至能在KH1的隐藏动画里找到一些概念的雏形
 看完播片，我觉得下代ff要不还是野村来吧
 连pv都剪不出个所以然的话真的很难让人期待游戏成品啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LT_Harry  
+##### 66#       发表于 2022-4-10 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55393256&amp;ptid=2063712" target="_blank">qiyu1234 发表于 2022-4-10 19:34</a>
+不是，楼主一定要叫国王之心是什么偏执症患者吗
+
+这游戏原名怎么也跟国王没关系，国王是米奇啊 ...</blockquote>
+戳辣，普天之下莫非王土嘛，王国就是国王，国王就是王国<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+*****
+
+####  squa11  
+##### 67#       发表于 2022-4-10 21:00
+
+这播片水平好垃啊，跟13年e3 v13变身播片完全不在一个档次
+
+*****
+
+####  Luminous脑壳痛  
+##### 68#       发表于 2022-4-10 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55394503&amp;ptid=2063712" target="_blank">JOHNCHCHAN 发表于 2022-4-10 20:43</a>
+
+V13甚至能在KH1的隐藏动画里找到一些概念的雏形
+
+野村似乎很喜欢让人物在大厦外墙垂直垂直奔跑，KH4这段P ...</blockquote>
+他说过做在高楼大厦之间穿梭战斗的游戏是他的梦想
+
