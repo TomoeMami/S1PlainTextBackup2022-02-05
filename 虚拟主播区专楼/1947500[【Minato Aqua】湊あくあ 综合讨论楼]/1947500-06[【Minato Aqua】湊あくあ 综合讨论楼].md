@@ -11450,3 +11450,12 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 syl冒菜STOP！
 
+
+
+*****
+
+####  本间日阳  
+##### 8784#       发表于 2022-4-10 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">哪可能会有这么高调的盗号啊，不知道怎么想的。
+
