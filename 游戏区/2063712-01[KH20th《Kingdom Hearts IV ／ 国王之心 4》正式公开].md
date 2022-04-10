@@ -715,3 +715,27 @@ ff起源也是epic独占，估计签了长期合作
 这次会到疯狂动物城及以后了吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 希望别再来奥林匹斯了
 
+
+
+*****
+
+####  JudgmentEye  
+##### 76#       发表于 2022-4-10 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55396629&amp;ptid=2063712" target="_blank">自行车1993 发表于 2022-4-10 22:49</a>
+
+这次会到疯狂动物城及以后了吧
+
+希望别再来奥林匹斯了</blockquote>
+答案是星战
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7#pid55396372
+
+*****
+
+####  SorroFrost  
+##### 77#       发表于 2022-4-10 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55394174&amp;ptid=2063712" target="_blank">星海坊主 发表于 2022-4-10 20:23</a>
+我不是说王国之心是普通游戏，我的意思是王国之心4本身标题和游戏的存在都比较好猜，太大路了，没法让gef ...</blockquote>
+马里奥疯兔本质是任天堂给授权，育碧做的，也不知道为啥一群人觉着这事稀奇，老黄那消息刚出来时我一点也不觉着奇怪
+
