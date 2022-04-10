@@ -6587,3 +6587,16 @@ P梅林就是星之兽
 
 看这周常任务，发的四星会是个枪兵？
 
+
+
+*****
+
+####  khxooo  
+##### 87577#       发表于 2022-4-11 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55397326&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-4-10 23:48</a>
+看这周常任务，发的四星会是个枪兵？</blockquote>
+卡池的莉莉丝：？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
