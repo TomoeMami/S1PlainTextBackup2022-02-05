@@ -11328,3 +11328,12 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 感觉越来越真了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pliee  
+##### 8774#       发表于 2022-4-10 11:00
+
+先关注再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -12309,3 +12309,13 @@ Ni老师
 
 <img src="https://img.saraba1st.com/forum/202204/10/095234chwkl2xfekktnlkf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 6867#       发表于 2022-4-10 11:03
+
+<blockquote>仟音一心 发表于 2022-4-8 21:11</blockquote>
+这问答是为了节目效果，还是日本人平时真就这么事儿逼？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
