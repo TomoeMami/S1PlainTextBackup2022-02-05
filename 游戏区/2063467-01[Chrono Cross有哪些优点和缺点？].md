@@ -734,3 +734,17 @@ CC不知是不是正方形社第一次尝试“平行时空”概念的游戏，
 土龙岛（忘了home还是another）有个隐藏boss很强力。还有哪个小岛上蛇骨女儿恋人的失忆团长也很厉害，当 ...</blockquote>
 你说的团长就是我说的那个团长<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  终将不惑  
+##### 71#       发表于 2022-4-10 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388790&amp;ptid=2063467" target="_blank">nightrap 发表于 2022-4-10 13:25</a>
+CC不知是不是正方形社第一次尝试“平行时空”概念的游戏，观看不同时空的同一个人之间的交流和对比是游戏的 ...</blockquote>
+这也是我非常喜欢cc的地方之一了。
+同一个人，在不同的世界里，不同的选择带来了完全不同的人生。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+那个饭店的女招待，这个世界里还在偷偷写诗，做着成为诗人的梦；另一个世界里却早早放弃，把写诗看做无聊。
+类似的情节还有一些。但我觉得也许还能做得更好，特别是在两个世界人们的互动方面。例如带着另一个世界的丽娜见这个世界的丽娜。。。看到自己的青梅竹马带了另一个自己过来，也就吓了一跳说了几句，怎么也得多点互动吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
