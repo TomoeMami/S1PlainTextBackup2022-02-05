@@ -647,3 +647,15 @@ cc的战斗系统弄懂了会非常有意思，前提是你愿意懂脑子
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  oskneo  
+##### 63#       发表于 2022-4-10 12:48
+
+虽然ct很赞，节奏很好，但始终是sfc游戏，所有的剧情段落的和世界观逻辑都很简单，对白也少。
+而cc是补充了这一切，以复杂度来说应该是仅次于cg的游戏
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
