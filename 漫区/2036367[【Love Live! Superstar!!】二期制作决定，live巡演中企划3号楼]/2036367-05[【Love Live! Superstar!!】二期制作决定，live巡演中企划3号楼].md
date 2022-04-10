@@ -12558,3 +12558,12 @@ B68630C7-8E26-42A0-98CE-0DD8CBC033F5.jpeg
 
 感觉一开始还有点偶像包袱，从讨论鲜芋仙开始就恢复到以前的鲤鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 6892#       发表于 2022-4-10 22:21
+
+感觉更多其实是自我规制，经纪人也不懂中文也没法跟着，干脆就一棒子打死相关都不谈
+
