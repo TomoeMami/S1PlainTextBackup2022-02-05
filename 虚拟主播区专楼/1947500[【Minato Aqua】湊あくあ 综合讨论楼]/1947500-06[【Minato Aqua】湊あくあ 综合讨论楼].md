@@ -11636,3 +11636,14 @@ syl冒菜STOP！
 
 这有什么不是实锤的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 8801#       发表于 2022-4-10 17:26
+
+想玩的游戏：有PS4版许可但是想玩PC版，键鼠比手柄好用，有点历史，可以浪费大量时间
+
+聊天室狂猜信野和天际线，感觉肯定不是吧
+
