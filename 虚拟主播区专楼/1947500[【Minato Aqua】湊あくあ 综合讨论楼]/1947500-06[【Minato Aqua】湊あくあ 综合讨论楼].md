@@ -11412,3 +11412,41 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 是free icon哦<img src="https://static.saraba1st.com/image/smiley/carton2017/201.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ylssb10438  
+##### 8782#       发表于 2022-4-10 12:12
+
+突然想起来🤔
+
+6d0ce958d08d2b15.png
+(127.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-10 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202204/10/121223xuigtgzwwufazl1e.png" referrerpolicy="no-referrer">
+
+-1338e39df1d16a83.png
+(17.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-10 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202204/10/121224opoore1u7flzau2v.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Map-2  
+##### 8783#       发表于 2022-4-10 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55385189&amp;ptid=1947500" target="_blank">面具13 发表于 2022-4-10 02:47</a>
+灵魂画师，是本人了说起来几小时前还在会限发文求助火狐浏览器的问题来着 ...</blockquote>
+火狐浏览器不是在8号练习赛的时候出现问题的嘛？
+
+syl冒菜STOP！
+
