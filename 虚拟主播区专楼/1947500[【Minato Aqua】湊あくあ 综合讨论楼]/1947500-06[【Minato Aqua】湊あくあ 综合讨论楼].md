@@ -11548,3 +11548,22 @@ syl冒菜STOP！
 
 已经有109个评论了，这么短时间只是让人“闻味道”就10W以上的收益了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  あのん  
+##### 8793#       发表于 2022-4-10 14:11
+
+ 本帖最后由 あのん 于 2022-4-10 15:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388755&amp;ptid=1947500" target="_blank">lightsuger 发表于 2022-4-10 14:22</a>
+
+有没有以前看过kuroa fanbox的？ 是今天才加的5000円计划吗</blockquote>
+刚出的5000
+
+之前是500 1000 10000
+
+500被人なりすまし来了波大的，就把500关了
+
+一个月大概120W左右吧
+
