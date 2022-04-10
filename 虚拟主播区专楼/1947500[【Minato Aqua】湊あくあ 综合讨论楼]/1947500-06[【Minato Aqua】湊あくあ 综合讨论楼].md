@@ -11282,3 +11282,38 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一上来就开饭盒
 
+
+
+*****
+
+####  cIrcler  
+##### 8769#       发表于 2022-4-10 09:17
+
+还真是老风格，要么拖着不干，一干就疾风迅雷一**完，国内搬运组好像是也有了，不知道是不是授权的，这下就等初配信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  面具13  
+##### 8770#       发表于 2022-4-10 09:18
+
+<blockquote>近日、生放送しようと思ってます。
+
+その時にまたいろいろおはなしするね</blockquote><blockquote>対戦よろしくお願いします</blockquote>
+什么对战，感觉我已经输了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">（指被诈骗
+
+*****
+
+####  面具13  
+##### 8771#       发表于 2022-4-10 09:20
+
+就开个饭盒还能兴奋地睡不着觉？
+
+*****
+
+####  新磕娘  
+##### 8772#       发表于 2022-4-10 09:24
+
+太搞了苹果...这整的跟假的一样，笑了
+
