@@ -12525,3 +12525,14 @@ B68630C7-8E26-42A0-98CE-0DD8CBC033F5.jpeg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  player3960  
+##### 6889#       发表于 2022-4-10 21:12
+
+估计还是因为是面向国内的直播所以不能说太多，如果在油管或者Nico上开直播估计应该能说说ll相关和其他人，毕竟nagi的imo协会就提到过鲤鱼，菜宝也经常说…
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -826,3 +826,15 @@ epsxe支持的。
 
 cc可能是我唯一一个打开游戏光听bgm都不腻的游戏了
 
+
+
+*****
+
+####  KOGmk2  
+##### 79#       发表于 2022-4-10 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55387920&amp;ptid=2063467" target="_blank">大神一狼 发表于 2022-4-10 12:09</a>
+
+cc的战斗系统弄懂了会非常有意思，前提是你愿意懂脑子</blockquote>
+有啥意思呢......获得资源和释放都是固定的
+
