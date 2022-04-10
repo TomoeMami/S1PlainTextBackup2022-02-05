@@ -771,3 +771,14 @@ epsxe支持的。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  蕾丝控  
+##### 74#       发表于 2022-4-10 13:53
+
+很强，但是没前作强……
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
