@@ -12453,3 +12453,21 @@ B68630C7-8E26-42A0-98CE-0DD8CBC033F5.jpeg
 
 人格测试八成又要忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6882#       发表于 2022-4-10 19:55
+
+鲤鱼很明显的社牛啊，反而是菜宝是那种标准宅女。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  megapikachu  
+##### 6883#       发表于 2022-4-10 19:56
+
+小饿魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
