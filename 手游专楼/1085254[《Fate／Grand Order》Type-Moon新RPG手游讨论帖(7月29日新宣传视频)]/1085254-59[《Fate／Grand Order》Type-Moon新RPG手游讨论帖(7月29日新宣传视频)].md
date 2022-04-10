@@ -6564,3 +6564,17 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">教授气的闪闪直接掏乖离剑
 
+
+
+*****
+
+####  khxooo  
+##### 87575#       发表于 2022-4-10 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55392763&amp;ptid=1085254" target="_blank">J-002 发表于 2022-4-10 19:05</a>
+
+今天的三选一是跑车、机巧牛和维摩那
+
+教授气的闪闪直接掏乖离剑 ...</blockquote>
+看着小芬奇说那句台词还能忍，一个50岁大叔说这句话，是我我也掏出EA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -651,3 +651,57 @@ V13甚至能在KH1的隐藏动画里找到一些概念的雏形
 —— 来自 S1Fun</blockquote>
 居然是epic独占，怪不得<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  电磁炮233  
+##### 73#       发表于 2022-4-10 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55395569&amp;ptid=2063712" target="_blank">芷雅居 发表于 2022-4-10 21:47</a>
+居然是epic独占，怪不得</blockquote>
+ff起源也是epic独占，估计签了长期合作
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Piano-Forest  
+##### 74#         楼主| 发表于 2022-4-10 22:22
+
+[https://twitter.com/toro_cocoron0te/status/1513145841942335490](https://twitter.com/toro_cocoron0te/status/1513145841942335490)
+
+👑KH4について①
+
+・今はあまり話せない、続報はしばらく先。E3の時期にはない。(リークされないように早めに出した)
+
+・PVの映像は全部リアルタイム
+
+・PVはUE4だがU5に移行、さらに綺麗になる
+
+・ロゴが変わったのはダークシーカー編が完結したため
+
+👑KH4について②
+
+・登場するワールドを仕込んでる
+
+・新作はVERU REXかKH4で迷ったがKH4にした。コンシューマ2作は厳しいのとソラを心配するファンが多かったため。
+
+・VERUM REXの開発の呼称は『ヴェルムレックス』
+
+・KHMLとKH4のPVのナレーションはこれまでにいるキャラ(恐らく若ゼア) 
+
+[https://m.weibo.cn/detail/4756800672367133](https://m.weibo.cn/detail/4756800672367133)
+
+1、20周年纪念图昨晚通宵画到今天九点
+
+2、现在KH4是是用虚幻4引擎开发的，今后会转移到虚幻5
+
+3、犹豫过是先做KH4还是先做VERUM REX，同时开发两部主机作品过于棘手，认为大家比较在意索拉的去向选择了KH4（您不是经常多开……）
+
+4、E3不会有KH4续报（E3取消了啊！）
+
+5、请大家不要听信网络信息一切以官方发布为准（本站就是网络信息）
+
+6、标题风格改变是因为进入了新篇章
+
