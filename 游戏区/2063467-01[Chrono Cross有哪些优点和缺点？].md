@@ -704,3 +704,33 @@ ePSXe对CC的支持没有问题，我当年用这个模拟器通关过两次。�
 
 现在复刻版发行，我却才开始用手机尝试汉化版，说实在的这个游戏不适合用手机来玩，因为经常看不清楚。
 
+
+
+*****
+
+####  nightrap  
+##### 68#       发表于 2022-4-10 13:25
+
+CC不知是不是正方形社第一次尝试“平行时空”概念的游戏，观看不同时空的同一个人之间的交流和对比是游戏的一大特色了。很多人抱怨CC的世界构成相对CT来说显得过小也是因为这种题材的限制导致的——如果只是讲几个小地方的平行时空剧情是比较好做的，但如果想要做一个较大的世界的平行时空故事则是难度较大的，因为这其中的变数和复杂程度都是不好处理的地方，CC开始可能也想把世界做大但是最后发现还是只能做小。这么看来，即便CC能出续作，对平行时空这块也是无法继续深入进去了。
+
+*****
+
+####  处男鉴黄师  
+##### 69#       发表于 2022-4-10 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388415&amp;ptid=2063467" target="_blank">终将不惑 发表于 2022-4-10 12:55</a>
+
+是有很多可以玩的花样，然而没有足够强力的敌人来让你玩
+
+我印象中唯一能造成麻烦的，就是骷髅墓地 ...</blockquote>
+土龙岛（忘了home还是another）有个隐藏boss很强力。还有哪个小岛上蛇骨女儿恋人的失忆团长也很厉害，当时我都后期神装了本以为随便虐没想到差点被反杀
+
+*****
+
+####  终将不惑  
+##### 70#       发表于 2022-4-10 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388801&amp;ptid=2063467" target="_blank">处男鉴黄师 发表于 2022-4-10 13:25</a>
+土龙岛（忘了home还是another）有个隐藏boss很强力。还有哪个小岛上蛇骨女儿恋人的失忆团长也很厉害，当 ...</blockquote>
+你说的团长就是我说的那个团长<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+

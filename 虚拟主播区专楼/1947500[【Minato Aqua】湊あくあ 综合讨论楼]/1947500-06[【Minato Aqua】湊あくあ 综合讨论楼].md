@@ -11477,3 +11477,30 @@ syl冒菜STOP！
 
 练习赛都摸掉了，想留个深藏功与名结局还是先等两年吧
 
+
+
+*****
+
+####  lightsuger  
+##### 8787#       发表于 2022-4-10 13:22
+
+<img src="https://img.saraba1st.com/forum/202204/10/131928slowv3yyvvwaxlv6.png" referrerpolicy="no-referrer">
+
+<strong>sss.png</strong> (90.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-10 13:19 上传
+
+有没有以前看过kuroa fanbox的？ 是今天才加的5000円计划吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8788#       发表于 2022-4-10 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388755&amp;ptid=1947500" target="_blank">lightsuger 发表于 2022-4-10 13:22</a>
+
+有没有以前看过kuroa fanbox的？ 是今天才加的5000円计划吗</blockquote>
+5000不知道，之前肯定有1w档的，隔壁萝莉控一直续着呢
+
