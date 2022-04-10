@@ -12549,3 +12549,12 @@ B68630C7-8E26-42A0-98CE-0DD8CBC033F5.jpeg
 
 另外就是今晚又收获了一批新表情，谢谢嗷~我估计她应该见到不少自己的表情包了~~~~
 
+
+
+*****
+
+####  cqc1021  
+##### 6891#       发表于 2022-4-10 21:31
+
+感觉一开始还有点偶像包袱，从讨论鲜芋仙开始就恢复到以前的鲤鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
