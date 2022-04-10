@@ -550,3 +550,31 @@ geforce泄露又命中一回，不 ...</blockquote>
 
 战斗系统和游戏性不担心 剧情说人话 正常点结束就好了 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JOHNCHCHAN  
+##### 63#       发表于 2022-4-10 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55393723&amp;ptid=2063712" target="_blank">Luminous脑壳痛 发表于 2022-4-10 20:00</a>
+索拉诺克特化，这下可好，悠佐拉，利库，复制人大战了属于是，索拉这个钩锁不就是3代那个锁定飞行的改版吗 ...</blockquote>
+V13甚至能在KH1的隐藏动画里找到一些概念的雏形
+
+野村似乎很喜欢让人物在大厦外墙垂直垂直奔跑，KH4这段PV里又秀了一把
+
+*****
+
+####  电磁炮233  
+##### 64#       发表于 2022-4-10 20:44
+
+野村是不是小时候特别喜欢吃喜之郎啊，主角天天反重力打架
+
+*****
+
+####  蔷薇下  
+##### 65#       发表于 2022-4-10 20:50
+
+看完播片，我觉得下代ff要不还是野村来吧
+连pv都剪不出个所以然的话真的很难让人期待游戏成品啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
