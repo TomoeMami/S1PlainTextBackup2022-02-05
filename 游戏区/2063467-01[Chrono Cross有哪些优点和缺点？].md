@@ -748,3 +748,26 @@ CC不知是不是正方形社第一次尝试“平行时空”概念的游戏，
 那个饭店的女招待，这个世界里还在偷偷写诗，做着成为诗人的梦；另一个世界里却早早放弃，把写诗看做无聊。
 类似的情节还有一些。但我觉得也许还能做得更好，特别是在两个世界人们的互动方面。例如带着另一个世界的丽娜见这个世界的丽娜。。。看到自己的青梅竹马带了另一个自己过来，也就吓了一跳说了几句，怎么也得多点互动吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  处男鉴黄师  
+##### 72#       发表于 2022-4-10 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388833&amp;ptid=2063467" target="_blank">终将不惑 发表于 2022-4-10 13:29</a>
+
+你说的团长就是我说的那个团长</blockquote>
+我记得他不是灵魂啊，只是失忆了
+
+*****
+
+####  yangchunsiyue  
+##### 73#       发表于 2022-4-10 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388435&amp;ptid=2063467" target="_blank">终将不惑 发表于 2022-04-10 12:57:00</a>
+epsxe支持的。
+你说的地方是kid的童年回忆，孤儿院失火那一段吧。要把视频插件改成软加速，不然会黑屏。 ...</blockquote>可能是，就是好像玩到哪过不去了，然后当时看别人用换模拟器的方式解决了。就去专门下了个ssspsx，还转存档来着。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
