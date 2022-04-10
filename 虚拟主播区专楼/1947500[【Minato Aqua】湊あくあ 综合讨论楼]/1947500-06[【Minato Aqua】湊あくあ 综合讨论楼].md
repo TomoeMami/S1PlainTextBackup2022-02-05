@@ -11377,3 +11377,38 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心垂万刃  
+##### 8778#       发表于 2022-4-10 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">如果这是现成的皮套，那双马尾是给谁准备的?
+
+*****
+
+####  面具13  
+##### 8779#       发表于 2022-4-10 12:04
+
+话说凛酱现在的头像是什么已知角色吗？
+
+*****
+
+####  越动天下  
+##### 8780#       发表于 2022-4-10 12:08
+
+我只看到免费的素材吧 应该没有角色 不过我还不知道是谁画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  离魂仙  
+##### 8781#       发表于 2022-4-10 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55387864&amp;ptid=1947500" target="_blank">面具13 发表于 2022-4-10 12:04</a>
+
+话说凛酱现在的头像是什么已知角色吗？</blockquote>
+[https://twitter.com/shirane_rine/status/1406084325569822722](https://twitter.com/shirane_rine/status/1406084325569822722)
+
+是free icon哦<img src="https://static.saraba1st.com/image/smiley/carton2017/201.png" referrerpolicy="no-referrer">
+
