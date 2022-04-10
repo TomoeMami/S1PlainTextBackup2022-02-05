@@ -12319,3 +12319,14 @@ Ni老师
 <blockquote>仟音一心 发表于 2022-4-8 21:11</blockquote>
 这问答是为了节目效果，还是日本人平时真就这么事儿逼？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6868#       发表于 2022-4-10 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55387197&amp;ptid=2036367" target="_blank">qty 发表于 2022-4-10 11:03</a>
+这问答是为了节目效果，还是日本人平时真就这么事儿逼？</blockquote>
+礼仪应该是真的，不过就像荒木在《富豪村》吐槽的那样，现在年的人懂这个的也少了。
+

@@ -11368,3 +11368,12 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 がおう出来！说话！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 8777#       发表于 2022-4-10 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
