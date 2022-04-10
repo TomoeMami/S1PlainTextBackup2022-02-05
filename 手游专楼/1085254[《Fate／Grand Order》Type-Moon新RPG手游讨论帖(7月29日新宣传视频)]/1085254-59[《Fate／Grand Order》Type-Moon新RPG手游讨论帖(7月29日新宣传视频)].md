@@ -6518,3 +6518,38 @@ P梅林就是星之兽
 
 听说这次的建筑会给Buff？
 
+
+
+*****
+
+####  碎蛋骑士  
+##### 87571#       发表于 2022-4-10 16:56
+
+有确定送什么四星从者了吗？？？
+
+*****
+
+####  シャル  
+##### 87572#       发表于 2022-4-10 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55383044&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-4-9 22:45</a>
+
+听说这次的建筑会给Buff？</blockquote>
+对的。这场剧情站
+
+*****
+
+####  gpx234mqx  
+##### 87573#       发表于 2022-4-10 18:26
+
+没注意，loading变了
+
+442C1B67-607D-43E9-BC3A-EF0EF8910CF9.png
+(283.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-10 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202204/10/182542azozwws4n7tnuqtx.png" referrerpolicy="no-referrer">
+
