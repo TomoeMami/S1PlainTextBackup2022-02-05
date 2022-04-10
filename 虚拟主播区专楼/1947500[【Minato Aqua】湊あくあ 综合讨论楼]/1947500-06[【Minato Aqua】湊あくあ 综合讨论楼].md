@@ -11317,3 +11317,14 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 太搞了苹果...这整的跟假的一样，笑了
 
+
+
+*****
+
+####  lightsuger  
+##### 8773#       发表于 2022-4-10 10:02
+
+如果是盗号，本人该做点什么了，都开频道和fanbox诈骗了
+
+感觉越来越真了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
