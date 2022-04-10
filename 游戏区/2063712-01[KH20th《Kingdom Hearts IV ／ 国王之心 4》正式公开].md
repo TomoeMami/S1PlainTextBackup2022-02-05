@@ -610,3 +610,44 @@ V13甚至能在KH1的隐藏动画里找到一些概念的雏形
 野村似乎很喜欢让人物在大厦外墙垂直垂直奔跑，KH4这段P ...</blockquote>
 他说过做在高楼大厦之间穿梭战斗的游戏是他的梦想
 
+
+
+*****
+
+####  芷雅居  
+##### 69#       发表于 2022-4-10 21:43
+
+前几代炒了那么多次冷饭都没上pc呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ——裂锦——  
+##### 70#       发表于 2022-4-10 21:43
+
+<blockquote>squa11 发表于 2022-4-10 21:00
+这播片水平好垃啊，跟13年e3 v13变身播片完全不在一个档次</blockquote>
+第一个pv很正常，王国之心三第一个pv比这个还要简短多了。
+
+*****
+
+####  电磁炮233  
+##### 71#       发表于 2022-4-10 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55395491&amp;ptid=2063712" target="_blank">芷雅居 发表于 2022-4-10 21:43</a>
+前几代炒了那么多次冷饭都没上pc呢</blockquote>
+早上了啊，epic独占
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  芷雅居  
+##### 72#       发表于 2022-4-10 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55395514&amp;ptid=2063712" target="_blank">电磁炮233 发表于 2022-4-10 21:45</a>
+
+早上了啊，epic独占
+
+—— 来自 S1Fun</blockquote>
+居然是epic独占，怪不得<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
