@@ -12330,3 +12330,15 @@ Ni老师
 这问答是为了节目效果，还是日本人平时真就这么事儿逼？</blockquote>
 礼仪应该是真的，不过就像荒木在《富豪村》吐槽的那样，现在年的人懂这个的也少了。
 
+
+
+*****
+
+####  Enakina  
+##### 6869#       发表于 2022-4-10 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55387197&amp;ptid=2036367" target="_blank">qty 发表于 2022-04-10 11:03:20</a>
+这问答是为了节目效果，还是日本人平时真就这么事儿逼？</blockquote>年轻人哪还有那么多事的，不过岁数大点的估计还挺拘泥的。然后是前后辈那套，日本还挺事多的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
