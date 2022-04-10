@@ -11355,3 +11355,16 @@ holo有人是在毕业前就用了自己的live2d吗？jpg，gif的虚拟形象�
 
 <img src="https://img.saraba1st.com/forum/202204/10/111905cfk7kxhzff813yty.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离魂仙  
+##### 8776#       发表于 2022-4-10 11:37
+
+<img src="http://tvax3.sinaimg.cn/large/622734bdly1h14gynwwyij209m0hegnc.jpg" referrerpolicy="no-referrer">
+
+直接开播是吧，皮套都是现成的，这改名可以说是不打自招了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+がおう出来！说话！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
