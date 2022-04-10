@@ -11674,3 +11674,42 @@ syl冒菜STOP！
 
 三国志?还是三国无双?不过cover确实是不敢碰历史类了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 8805#       发表于 2022-4-10 17:58
+
+有价值的信息我一个没听到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不是正好做这个事就是那个事 不过也还行 虽然已经对魂号有梁木了
+
+*****
+
+####  nian1538  
+##### 8806#       发表于 2022-4-10 17:59
+
+仔细想想聊天室猜的那些个游戏可能性最高的还是巫师3
+
+*****
+
+####  暗心舞踏  
+##### 8807#       发表于 2022-4-10 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巫师3也太梦回原点了
+
+*****
+
+####  砂糖Kazuma  
+##### 8808#       发表于 2022-4-10 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55391715&amp;ptid=1947500" target="_blank">心垂万刃 发表于 2022-4-10 17:41</a>
+三国志?还是三国无双?不过cover确实是不敢碰历史类了</blockquote>
+都退出大陆市场了，大陆历史不是随便造<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8809#       发表于 2022-4-10 18:09
+
+巫师3难度太低了
+
