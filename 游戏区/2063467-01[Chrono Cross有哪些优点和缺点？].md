@@ -659,3 +659,25 @@ cc的战斗系统弄懂了会非常有意思，前提是你愿意懂脑子
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  终将不惑  
+##### 64#       发表于 2022-4-10 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55387920&amp;ptid=2063467" target="_blank">大神一狼 发表于 2022-4-10 12:09</a>
+cc的战斗系统弄懂了会非常有意思，前提是你愿意懂脑子</blockquote>
+是有很多可以玩的花样，然而没有足够强力的敌人来让你玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我印象中唯一能造成麻烦的，就是骷髅墓地那边的前任龙骑团长灵魂。
+
+*****
+
+####  终将不惑  
+##### 65#       发表于 2022-4-10 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55388048&amp;ptid=2063467" target="_blank">yangchunsiyue 发表于 2022-4-10 12:22</a>
+个人感觉老作品可能还是要看以前有没有接触过吧，不然以后面的眼光去看，期待值提到很高，玩起来总会感觉不 ...</blockquote>
+epsxe支持的。
+你说的地方是kid的童年回忆，孤儿院失火那一段吧。要把视频插件改成软加速，不然会黑屏。
+
