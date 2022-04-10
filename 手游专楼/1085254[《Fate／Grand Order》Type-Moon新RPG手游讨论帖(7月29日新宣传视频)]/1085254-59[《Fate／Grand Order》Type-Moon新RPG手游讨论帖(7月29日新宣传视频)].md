@@ -6578,3 +6578,12 @@ P梅林就是星之兽
 教授气的闪闪直接掏乖离剑 ...</blockquote>
 看着小芬奇说那句台词还能忍，一个50岁大叔说这句话，是我我也掏出EA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87576#       发表于 2022-4-10 23:48
+
+看这周常任务，发的四星会是个枪兵？
+
