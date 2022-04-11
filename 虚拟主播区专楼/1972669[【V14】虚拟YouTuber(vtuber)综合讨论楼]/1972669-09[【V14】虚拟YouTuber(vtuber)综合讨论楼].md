@@ -1542,3 +1542,21 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 
 这纯的正地雷风味我是觉得是mknk本人啦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 12125#       发表于 2022-4-11 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55401512&amp;ptid=1972669" target="_blank">Urakawa 发表于 2022-4-11 10:39</a>
+
+隔壁原版总结：</blockquote>
+草，谢谢总结
+
+典到这种程度我也觉得是演的
+
+不过几天前我瞄到个讲润姨开玩原神的讨论串，杏奴或者说ansure杏奴其实是看不惯润姨玩原神的
+
+主要是不爽杏女做不了的事她可以做吧
+
