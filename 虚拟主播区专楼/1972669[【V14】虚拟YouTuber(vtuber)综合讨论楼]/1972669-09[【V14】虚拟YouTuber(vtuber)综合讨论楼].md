@@ -1817,3 +1817,17 @@ anti发什么都有反应，你是不是在骂郡郡😭！（玩笑）
 
 想看看原版以外简中对润姨这事的评价顺手去微博搜了下，结果微博好几个因为游戏是原神所以认为是anti反串诽谤然后OP网暴猫的………
 
+
+
+*****
+
+####  lor  
+##### 12151#       发表于 2022-4-12 01:14
+
+微博可是op认定最大的猴聚集地之一，理智评价不存在的
+コレコレ今天蹭的话题是ななもり和猫，梦回一个月前<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不过那之后阿望真就没动过了
+
+syl 杏星那个车用意一言难尽，还不如学虹给新组合整首原创曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
