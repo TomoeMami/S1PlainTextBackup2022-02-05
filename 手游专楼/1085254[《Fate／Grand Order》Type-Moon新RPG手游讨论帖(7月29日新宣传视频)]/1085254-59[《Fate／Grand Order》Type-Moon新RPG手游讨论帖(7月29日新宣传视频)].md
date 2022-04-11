@@ -6621,3 +6621,15 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">造了泰坦尼克差点修罗场
 
+
+
+*****
+
+####  khxooo  
+##### 87580#       发表于 2022-4-11 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55410645&amp;ptid=1085254" target="_blank">J-002 发表于 2022-4-11 20:08</a>
+
+造了泰坦尼克差点修罗场</blockquote>
+能大概概括一下吗，我选了X毛的太空飞船
+
