@@ -950,3 +950,17 @@ fc和sfc的主流排队枪毙时代,atb确实有新意.但屎可喂尔在atb演�
 你说的复兴是亚人岛吧</blockquote>
 對。隱藏boss記憶中就黑龍和失憶團長
 
+
+
+*****
+
+####  纯战士  
+##### 89#       发表于 2022-4-11 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55405464&amp;ptid=2063467" target="_blank">codecloud 发表于 2022-4-11 14:29</a>
+
+屎可喂尔只不过是把它的atb当个独家法宝在无限复刻罢了.
+
+fc和sfc的主流排队枪毙时代,atb确实有新意.但屎 ...</blockquote>
+当时PS游戏是要读盘的，读盘本身就已经很操蛋了，读出来之后还要再拖，真的是忍不了。
+
