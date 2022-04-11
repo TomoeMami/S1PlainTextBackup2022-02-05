@@ -1722,3 +1722,14 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  fastary  
+##### 12142#       发表于 2022-4-11 15:34
+
+ 本帖最后由 fastary 于 2022-4-11 15:36 编辑 
+
+被害者回来道歉反省自己确实语言过激了，还说了一大堆跟猫无关她完全没错不要苛责她的话……至少能证明这人真的是完全的受害者不是自演了吧<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
