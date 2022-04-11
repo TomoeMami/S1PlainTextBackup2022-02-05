@@ -6653,3 +6653,26 @@ P梅林就是星之兽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87582#       发表于 2022-4-11 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55412842&amp;ptid=1085254" target="_blank">J-002 发表于 2022-4-11 23:18</a>
+
+简单来说就是造好了以后咕哒在船头看风景
+
+玛丽王妃说在电影里看过男女主在船头摆pose想咕哒陪她玩</blockquote>
+哈，两个都是种田的角色，我打我自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87583#       发表于 2022-4-11 23:26
+
+黄金树海纪行 ​​​​ 
+
+估计这标题没有因为某个游戏改过吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
