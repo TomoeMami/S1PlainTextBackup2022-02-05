@@ -12364,3 +12364,19 @@ TikTok要经过公司（下略）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这样吧，没排名有头至少比两个都没有好，这就算今天的进步了，比之前几次加起来都大
 
+
+
+*****
+
+####  lightsuger  
+##### 8878#       发表于 2022-4-11 22:23
+
+练习只有14 16号播<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8879#       发表于 2022-4-11 22:28
+
+我懂了，Startend这队就是一个吕布带个陈宫貂蝉
+

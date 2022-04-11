@@ -11624,3 +11624,14 @@ s b了，忘了像神一样了
 
 那咋办嘛，只能靠整点尬的混日子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10224#       发表于 2022-4-11 22:25
+
+那不行，选了她们是来干活的，哪有发慈善歇着的道理。更何况播了总比没播强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
