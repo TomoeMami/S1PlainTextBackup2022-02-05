@@ -11954,3 +11954,39 @@ TikTok要经过公司（下略）
 
 其实还是标准yhm操作、不安、开小号、开里垢（氪金饭盒），不想被一张皮完全代表之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8831#       发表于 2022-4-11 16:22
+
+会限说的吃了鸡再放录像的是平时私下练习还是包括官方自定义练习？
+
+*****
+
+####  nian1538  
+##### 8832#       发表于 2022-4-11 16:22
+
+ 本帖最后由 nian1538 于 2022-4-11 16:23 编辑 
+
+感觉意思还是说游戏都在大号打，但是现在心态上感觉打游戏像上班，打游戏之外的事情公司审核又久，所以偶尔在小号干点事情
+
+但还确实不知道有什么事情需要在小号干
+
+*****
+
+####  面具13  
+##### 8833#       发表于 2022-4-11 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55407268&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-4-11 16:22</a>
+感觉意思还是说游戏都在大号打，但是现在心态上感觉打游戏像上班，打游戏之外的事情公司审核又久，所以偶尔 ...</blockquote>
+带娃直播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 8834#       发表于 2022-4-11 16:29
+
+说实话确实播了几年了 你要我我也有点烦了 表演不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 合理
+
