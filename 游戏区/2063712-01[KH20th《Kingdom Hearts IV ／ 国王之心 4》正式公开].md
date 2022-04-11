@@ -799,3 +799,15 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 新宿又要爆炸了吗
 
+
+
+*****
+
+####  hosino  
+##### 84#       发表于 2022-4-11 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55392918&amp;ptid=2063712" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-4-10 19:16</a>
+
+去异世界有种过渡篇章的感觉，野村难道还想出5吗？</blockquote>
+可以是一个像2代序章一样的形式
+
