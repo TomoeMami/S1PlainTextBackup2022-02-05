@@ -781,3 +781,12 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 感觉整体变真实是要吸引迪士尼以外的群体了，不过按KH的风格，一个世界一个风格，随时变换成其他风格也不奇怪，美术团队工作量挺大啊
 
+
+
+*****
+
+####  acg_gyanc  
+##### 82#       发表于 2022-4-11 09:00
+
+话说有没有好心人介绍一下王国之心的玩点是什么，之前3代还在xgp的时候玩了七八个小时，有点不得要领<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 总觉得战斗怪怪的……
+
