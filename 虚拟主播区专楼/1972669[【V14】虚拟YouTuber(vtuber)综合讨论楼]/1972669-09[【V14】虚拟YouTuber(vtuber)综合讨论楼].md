@@ -1405,3 +1405,20 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 真的带走了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 昨晚看到这个“炎上”的时候笑死了，各方面都可以说旗鼓相当了
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 12117#       发表于 2022-4-11 10:01
+
+看了一下
+
+想买号那人是不是杏奴猫黑？被买号那人是不是杏奴猫黑？还有一大堆云玩家觉得送结晶是违法的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这些都无所谓、日本手游圈玩家本来对v管人圈就是普遍打踩的、有个上乘的借口正好发作，#平和な原神界隈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且mi桑真想玩O早就玩了，现在能直播才玩说明动机也不纯
+
+只能说两边都提升热度和纯度了，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
