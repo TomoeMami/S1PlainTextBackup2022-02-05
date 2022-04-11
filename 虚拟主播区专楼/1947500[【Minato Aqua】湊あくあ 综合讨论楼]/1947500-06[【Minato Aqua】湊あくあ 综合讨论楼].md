@@ -12286,3 +12286,81 @@ TikTok要经过公司（下略）
 
 夸还是用专注厉害啊，要不谁玩个罗芭给她搜能量子弹吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8868#       发表于 2022-4-11 22:01
+
+这什么狂犬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8869#       发表于 2022-4-11 22:01
+
+好起来了（震声
+
+*****
+
+####  nian1538  
+##### 8870#       发表于 2022-4-11 22:02
+
+比赛当单排打是吧
+
+*****
+
+####  Maonpuyo  
+##### 8871#       发表于 2022-4-11 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我超，专注狗！我也觉得让谁玩个罗芭吧
+
+*****
+
+####  乌鸦绅士  
+##### 8872#       发表于 2022-4-11 22:03
+
+ 本帖最后由 乌鸦绅士 于 2022-4-11 22:14 编辑 
+
+可别又像上把一样玩砸了
+
+还有下一把的话能不能把地平线掏出来玩，想看
+
+*****
+
+####  梅斯之围  
+##### 8873#       发表于 2022-4-11 22:10
+
+这也敢往上飞，换点别的玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpy393  
+##### 8874#       发表于 2022-4-11 22:10
+
+人头分比排名分好赚多了，就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8875#       发表于 2022-4-11 22:10
+
+就这阵容了，不是不能打，接战起手干倒一个 碎一个 再飞起来拉扯，俩人跟上就赢，跟不上就葫芦娃救爷爷<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lightsuger  
+##### 8876#       发表于 2022-4-11 22:12
+
+就这样打吧，至少看爽了
+
+主要苟着缩圈排名也上不去
+
+*****
+
+####  Maonpuyo  
+##### 8877#       发表于 2022-4-11 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这样吧，没排名有头至少比两个都没有好，这就算今天的进步了，比之前几次加起来都大
+
