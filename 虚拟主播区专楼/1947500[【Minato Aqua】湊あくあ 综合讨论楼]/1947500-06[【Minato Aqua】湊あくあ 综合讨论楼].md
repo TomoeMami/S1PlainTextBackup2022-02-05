@@ -12172,3 +12172,12 @@ TikTok要经过公司（下略）
 
 吃鸡这队一样的阵容，建议学学人家怎么踩点的
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 8854#       发表于 2022-4-11 20:42
+
+我的建议是要么把指挥权给towa吧，阿夸决策太激进了两个队友跟不上的，而且凭什么打这么凶这种环境下你又不能一打三<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
