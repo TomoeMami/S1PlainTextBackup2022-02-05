@@ -1767,3 +1767,17 @@ anti发什么都有反应，你是不是在骂郡郡😭！（玩笑）
 润确实厉害，烧得这么大，关注的日本原神ytb都没人敢提这事</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本原神ytb基本都是自己小圈子里热闹，圈外V关他们什么事
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 12146#       发表于 2022-4-11 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55386231&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-10 09:16</a>
+
+男妈妈没市场吧，我看难
+
+说起来初期甲斐田还叫晴妈呢，黛灰初期bls的MC联动也被叫过mayu妈妈，感觉应该没 ...</blockquote>
+我就是想想，而且我推的真人就是男妈妈气质而且不是营业是真人从内而外的妈味儿的那种<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实我刚入坑的时候觉得老叶挺男妈妈的，到后面就觉得没那个味儿了
+
