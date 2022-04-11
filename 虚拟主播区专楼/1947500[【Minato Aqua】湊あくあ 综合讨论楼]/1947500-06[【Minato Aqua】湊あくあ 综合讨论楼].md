@@ -12072,3 +12072,46 @@ TikTok要经过公司（下略）
 
 立本人的颜文字真的是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫南北  
+##### 8843#       发表于 2022-4-11 19:31
+
+虽然倒了，但是自己打的很爽了。
+
+*****
+
+####  越动天下  
+##### 8844#       发表于 2022-4-11 19:34
+
+确实看圣皇打的还可以 
+
+*****
+
+####  lightsuger  
+##### 8845#       发表于 2022-4-11 19:35
+
+队友救起来一瞬间就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Map-2  
+##### 8846#       发表于 2022-4-11 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55408565&amp;ptid=1947500" target="_blank">面具13 发表于 2022-4-11 17:42</a>
+
+今晚再手感冰凉，最高同接4w可能都守不住了</blockquote>
+开玩笑，枪民也许会迟到，但从来不会缺席
+
+<img src="https://img.saraba1st.com/forum/202204/11/193857g9qtjsy3gt9by939.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-11 19:38 上传
+
+3w同接换台看看astel回来就4w了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
