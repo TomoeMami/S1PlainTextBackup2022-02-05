@@ -6687,3 +6687,17 @@ P梅林就是星之兽
 
 —— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 87585#       发表于 2022-4-12 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55412928&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-4-11 23:26</a>
+
+黄金树海纪行 ​​​​ 
+
+估计这标题没有因为某个游戏改过吧</blockquote>
+好像去年八月就有解包出来了。
+
