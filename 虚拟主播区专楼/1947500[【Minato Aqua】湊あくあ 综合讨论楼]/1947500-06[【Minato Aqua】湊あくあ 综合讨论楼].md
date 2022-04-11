@@ -12055,3 +12055,20 @@ TikTok要经过公司（下略）
 
 過剰正当化効果(かじょうせいとうかこうか、英語: overjustification effect)は、金銭や賞品などの外発的インセンティブが、タスクを実行する人の内発的動機づけを期待に反して低下させるものである。
 
+
+
+*****
+
+####  lightsuger  
+##### 8842#       发表于 2022-4-11 19:01
+
+<img src="https://img.saraba1st.com/forum/202204/11/190107r12loxsolhpffpps.png" referrerpolicy="no-referrer">
+
+<strong>aaa.png</strong> (38.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-11 19:01 上传
+
+立本人的颜文字真的是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
