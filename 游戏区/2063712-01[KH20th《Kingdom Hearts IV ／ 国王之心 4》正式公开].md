@@ -811,3 +811,12 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 去异世界有种过渡篇章的感觉，野村难道还想出5吗？</blockquote>
 可以是一个像2代序章一样的形式
 
+
+
+*****
+
+####  ZyLintheMax  
+##### 85#       发表于 2022-4-11 09:29
+
+空哥发型两边的角还拉低了，真就整成V13了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
