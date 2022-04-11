@@ -1507,3 +1507,38 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 
 我是觉得这粉丝民度不怎么样，至于劈杏奴我自己也说了是顺劈
 
+
+
+*****
+
+####  空集  
+##### 12123#       发表于 2022-4-11 10:46
+
+ 本帖最后由 空集 于 2022-4-11 10:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55401545&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-11 10:41</a>
+
+问题是这个人从头到尾做错的唯一一件事就是挂了猫的tag(后面还删了)，结果就被猫挂诽谤然后被粉丝冲到销 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说怀疑自演是因为 
+
+“所以粉丝B私信玩家A，希望玩家A帮他免费代打到16级，玩家A拒绝。
+
+随后粉丝B又直接说，希望玩家A让出自己的账号给粉丝B用，A继续拒绝。
+
+在此之后粉丝B突然画风一转，问玩家A知不知道管人C，在玩家A回答不知道后直接辱骂他“去死”。
+
+玩家A莫名其妙被骂后将聊天截图发到推特上挂人，并带上了管人C的TAG。”
+
+这事完全就看着太滑稽，扪心自问如果抛开这些管人背景，全部换成中文互联网的事情，有这么个A发帖反馈这个事情还带上某个VUP或者真人主播感觉第一反应就是你是不是自演啊，什么奇怪的事情。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想了下不太知道该把打tag类比成简中的什么。
+
+*****
+
+####  mmss  
+##### 12124#       发表于 2022-4-11 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55401512&amp;ptid=1972669" target="_blank">Urakawa 发表于 2022-4-11 10:39</a>
+
+隔壁原版总结：</blockquote>
+……这个总结怎么连聊天记录都能颠倒的，是一个叫Neko的人找到网友B，先问的他知不知道mknk，想让他帮忙提高mknk号的等级，被说16级以上才能联机之后说那就把号给网友B，网友B拒绝了，NEKO直接骂人去死。
+
+这纯的正地雷风味我是觉得是mknk本人啦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
