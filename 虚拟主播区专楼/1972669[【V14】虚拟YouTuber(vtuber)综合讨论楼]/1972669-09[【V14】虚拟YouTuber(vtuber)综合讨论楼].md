@@ -1681,3 +1681,23 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 当杏奴遇上原批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 乐
 
+
+
+*****
+
+####  losstoY  
+##### 12138#       发表于 2022-4-11 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55403014&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-4-11 11:48</a>
+
+我早就说了从她的各种事情看 她就不像一个30岁的人 心灵还在jk阶段 期待假如其他的V离开cover会不会 ...</blockquote>
+其他v会不会捅出漏子来，或许可以通过看魂账知道。没有魂账的基本就是没有太多自我本身的表现欲的。把表现欲都托付在要演的形象上，该融入的融入了其他知道不能表现就压制了。其他有魂账的，应该就是除了自己演的形象以外，还想表现给外界的样子。
+
+*****
+
+####  布莱士·西伯利  
+##### 12139#       发表于 2022-4-11 13:08
+
+无关…但最近最有共鸣的是看水果篮子一个女酱油看由希遇到女主后开始经常笑了，自己却要毕业。害怕由希会在自己看不到的地方过自己不知道的生活，他的变化自己却一无所知。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">实在接近本人看管心态。
+
