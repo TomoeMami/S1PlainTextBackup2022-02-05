@@ -12030,3 +12030,19 @@ TikTok要经过公司（下略）
 
 开台了，七点练习赛
 
+
+
+*****
+
+####  面具13  
+##### 8839#       发表于 2022-4-11 17:42
+
+今晚再手感冰凉，最高同接4w可能都守不住了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saraba7th  
+##### 8840#       发表于 2022-4-11 17:47
+
+8w→6w→4w，很河里<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
