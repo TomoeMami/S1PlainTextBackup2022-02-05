@@ -838,3 +838,29 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">4年之后见？
 
+
+
+*****
+
+####  Piano-Forest  
+##### 88#         楼主| 发表于 2022-4-11 12:33
+
+ 本帖最后由 Piano-Forest 于 2022-4-11 12:36 编辑 
+
+野村氏がファンの疑問へ直接回答！ボイスキャストも駆けつけた「KINGDOM HEARTS 20th ANNIVERSARY EVENT」展示＆ステージをレポート  
+[https://www.gamer.ne.jp/news/202204110004/](https://www.gamer.ne.jp/news/202204110004/)
+
+野村哲也绘制的系列原画
+<img src="https://p.sda1.dev/5/6e0aa458001f819aec6f01fc9ab89ef7/20.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/e9ee02dcb75198735b425d924a0e494a/21.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/18edb3f0085a8d3667b6ee35fd01b0b5/22.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/ff1396630574a6c23d6ebe27683c4374/23.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/48d161539ee09b89c750142870513eea/24.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 89#       发表于 2022-4-11 12:36
+
+从目前有的预告和那个星战atst来看，没准4的世界都是现实非卡通风格的世界，迪斯尼这几年拍的那些2d动画真人化的世界
+
