@@ -790,3 +790,12 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 话说有没有好心人介绍一下王国之心的玩点是什么，之前3代还在xgp的时候玩了七八个小时，有点不得要领<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 总觉得战斗怪怪的……
 
+
+
+*****
+
+####  ChrisSnake  
+##### 83#       发表于 2022-4-11 09:08
+
+新宿又要爆炸了吗
+
