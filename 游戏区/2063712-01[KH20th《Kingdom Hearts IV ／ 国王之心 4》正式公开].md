@@ -864,3 +864,15 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 从目前有的预告和那个星战atst来看，没准4的世界都是现实非卡通风格的世界，迪斯尼这几年拍的那些2d动画真人化的世界
 
+
+
+*****
+
+####  JudgmentEye  
+##### 90#       发表于 2022-4-11 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55399975&amp;ptid=2063712" target="_blank">acg_gyanc 发表于 2022-4-11 09:00</a>
+
+话说有没有好心人介绍一下王国之心的玩点是什么，之前3代还在xgp的时候玩了七八个小时，有点不得要领[f:068 ...</blockquote>
+有玩系统的有玩剧情的
+
