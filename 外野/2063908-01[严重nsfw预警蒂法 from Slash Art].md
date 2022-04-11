@@ -548,3 +548,26 @@ LZ咋没了？这也不是弱智朋友圈啊？
 看不到图的试试这个脚本。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 [https://greasyfork.org/zh-CN/scr ... A%E5%8A%A8%E7%89%88](https://greasyfork.org/zh-CN/scripts/419494-%E6%9F%A5%E7%9C%8Bs1%E4%B8%8D%E5%8F%AF%E8%A7%81%E5%86%85%E5%AE%B9-%E5%AE%A1%E6%A0%B8%E4%B8%AD-%E7%A6%81%E8%A8%80-%E8%87%AA%E5%8A%A8%E7%89%88)
 
+
+
+*****
+
+####  starash  
+##### 66#       发表于 2022-4-11 10:28
+
+pixiv id 11135560
+当然p站是带码的。
+
+*****
+
+####  jy000129  
+##### 67#       发表于 2022-4-11 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55400888&amp;ptid=2063908" target="_blank">smishe 发表于 2022-4-11 10:09</a>
+LZ咋没了？这也不是弱智朋友圈啊？
+
+看不到图的试试这个脚本。</blockquote>
+应该不是在这贴里面发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
