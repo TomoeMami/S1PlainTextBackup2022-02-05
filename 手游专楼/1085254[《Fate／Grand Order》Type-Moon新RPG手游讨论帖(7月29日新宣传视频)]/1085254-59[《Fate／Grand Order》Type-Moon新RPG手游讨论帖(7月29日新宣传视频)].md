@@ -6633,3 +6633,23 @@ P梅林就是星之兽
 造了泰坦尼克差点修罗场</blockquote>
 能大概概括一下吗，我选了X毛的太空飞船
 
+
+
+*****
+
+####  J-002  
+##### 87581#       发表于 2022-4-11 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55412704&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-4-11 23:04</a>
+
+能大概概括一下吗，我选了X毛的太空飞船</blockquote>
+简单来说就是造好了以后咕哒在船头看风景
+
+玛丽王妃说在电影里看过男女主在船头pose想咕哒陪她玩
+
+正说着同样想法的清姬跳出来抢人
+
+俩人正吵着同样想法的拉姆拉姆过来了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

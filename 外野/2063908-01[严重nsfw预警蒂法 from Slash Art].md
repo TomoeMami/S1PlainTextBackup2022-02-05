@@ -846,3 +846,12 @@ https://dwz.mk/a6VbU3
 
 <img src="https://p.sda1.dev/5/60c3aedec7cf4551307be8d30beab2d6/CMP_20220411215226918.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 98#       发表于 2022-4-11 23:17
+
+被弱智建政干掉了。可见涩图哥不要建政
+
