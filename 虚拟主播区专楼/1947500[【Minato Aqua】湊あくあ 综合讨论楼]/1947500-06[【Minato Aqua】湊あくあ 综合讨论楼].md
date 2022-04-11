@@ -11932,3 +11932,16 @@ TikTok要经过公司（下略）
 
 今晚会参加练习赛。
 
+
+
+*****
+
+####  lightsuger  
+##### 8829#       发表于 2022-4-11 15:20
+
+想想也挺好的，趁这个机会开始活动
+
+对于只想看“湊あくあ”的也没影响（毕竟小号活动频率不高）
+
+等开播了再入会<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
