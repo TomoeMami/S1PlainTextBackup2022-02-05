@@ -889,3 +889,42 @@ cc的战斗系统弄懂了会非常有意思，前提是你愿意懂脑子</bloc
 
 没记错的话，这游戏就是典型的你没攻略打锤子的类型，随便一个没弄好就会错过重要东西。
 
+
+
+*****
+
+####  codecloud  
+##### 84#       发表于 2022-4-11 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55405305&amp;ptid=2063467" target="_blank">纯战士 发表于 2022-4-11 14:17</a>
+
+史克威尔在那一个时期的游戏战斗都极其拖沓，直接导致了我到现在对他印象都没恢复。
+
+没记错的话，这游戏就 ...</blockquote>
+屎可喂尔只不过是把它的atb当个独家法宝在无限复刻罢了.
+
+fc和sfc的主流排队枪毙时代,atb确实有新意.但屎可喂尔在atb演出上走火入魔之后就玩砸了,一个召唤兽演出一分多钟简直忍无可忍.可惜直到ps3时代,屎可喂尔都还在继续搞它的那套atb玩法.
+
+即使到现在,屎可喂尔的狒狒系列的战斗系统依然很拖沓无聊.只不过简化操作之后,强化演出效果也还算凑合吧.
+
+*****
+
+####  终将不惑  
+##### 85#       发表于 2022-4-11 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55405305&amp;ptid=2063467" target="_blank">纯战士 发表于 2022-4-11 14:17</a>
+史克威尔在那一个时期的游戏战斗都极其拖沓，直接导致了我到现在对他印象都没恢复。
+
+没记错的话，这游戏就 ...</blockquote>
+这游戏战斗非常简单。
+流程攻略也基本没有难度，跟着指示走就行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  终将不惑  
+##### 86#       发表于 2022-4-11 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55399959&amp;ptid=2063467" target="_blank">間桐櫻 发表于 2022-4-11 08:59</a>
+打完失憶團長後拿到神武，給裝備上的主角上命中debuff就行了，打boss像切菜一樣。魔法消耗太大，主要用來清 ...</blockquote>
+蛇骨馆好像每次重打我都是走的吉他手路线<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
