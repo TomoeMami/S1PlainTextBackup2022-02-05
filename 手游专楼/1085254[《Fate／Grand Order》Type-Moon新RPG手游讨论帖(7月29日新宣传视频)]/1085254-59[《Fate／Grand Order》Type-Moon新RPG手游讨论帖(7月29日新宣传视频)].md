@@ -6676,3 +6676,14 @@ P梅林就是星之兽
 
 估计这标题没有因为某个游戏改过吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stmule  
+##### 87584#       发表于 2022-4-12 00:02
+
+本来想签到的，结果安卓端突然频繁跳出，明明ios就是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
