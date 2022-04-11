@@ -1710,3 +1710,15 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 
 推上追着贴真人照的明显她自己的黑子啊，op含量不够，跟国内站道德高地的玩法一样
 
+
+
+*****
+
+####  lor  
+##### 12141#       发表于 2022-4-11 15:04
+
+原神界隈还在趋势上，看来是家乡原友第一次遭遇饭圈的文化冲击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有普通猫奴顺着抗议润姨这早点改名别污染三毛猫tag
+原推下面有UID对比，玩家B不是润姨的号，玩家A账号也复活对她道歉了。但这事润姨少说80％锅，她带来的anti惊扰普通玩家，本人又只会装死自怨自艾<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

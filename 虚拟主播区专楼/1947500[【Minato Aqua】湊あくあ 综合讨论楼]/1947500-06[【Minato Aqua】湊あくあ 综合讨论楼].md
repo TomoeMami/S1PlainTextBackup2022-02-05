@@ -11868,3 +11868,51 @@ TikTok要经过公司（下略）
 
 日本的“正社员”是终身雇佣有编制给你交社保的那种，待遇至少相当于我们的公务员了
 
+
+
+*****
+
+####  Scardy  
+##### 8823#       发表于 2022-4-11 15:01
+
+你这合同工收入真的高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  面具13  
+##### 8824#       发表于 2022-4-11 15:04
+
+草，怎么直接贴出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+魂号可以开摄像头啊，奶油面包拳和小蛮腰和“欧派”（不存在的
+
+稍微动动，至少能骗走不愿意给cover交钱的人。社区人少图认知的家伙也肯定有
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 越动天下| + 1|过一会 我就撤了|
+
+查看全部评分
+
+*****
+
+####  Maonpuyo  
+##### 8825#       发表于 2022-4-11 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">这样看至少以后毕业也不会退网了，赢！
+
+*****
+
+####  面具13  
+##### 8826#       发表于 2022-4-11 15:06
+
+不能算合同工，按cover说的算艺人经济合约，还附赠一张画皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 作为MCN体量不小了，单个艺人炎上损害品牌价值了，直接解约了事
+
