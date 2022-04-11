@@ -12240,3 +12240,26 @@ TikTok要经过公司（下略）
 
 反正我觉得要转点就让阿夸选瓦鸡另外两个队友选毒气胖子电妹这种，想打架就让阿夸玩秘客，选猎犬真的是毫无卵用了。。。
 
+
+
+*****
+
+####  Maonpuyo  
+##### 8862#       发表于 2022-4-11 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星姐这猎犬怎么看都比星姐的瓦鸡有用
+
+*****
+
+####  _Ra1nMaker  
+##### 8863#       发表于 2022-4-11 21:37
+
+又蠢死了，真是没眼看 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 8864#       发表于 2022-4-11 21:39
+
+绷，走晚了被毒死
+
