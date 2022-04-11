@@ -1755,3 +1755,15 @@ anti发什么都有反应，你是不是在骂郡郡😭！（玩笑）
 
 润确实厉害，烧得这么大，关注的日本原神ytb都没人敢提这事
 
+
+
+*****
+
+####  icecry  
+##### 12145#       发表于 2022-4-11 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55407364&amp;ptid=1972669" target="_blank">Aminor 发表于 2022-4-11 16:29</a>
+
+润确实厉害，烧得这么大，关注的日本原神ytb都没人敢提这事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本原神ytb基本都是自己小圈子里热闹，圈外V关他们什么事
+
