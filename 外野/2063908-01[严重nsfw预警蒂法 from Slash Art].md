@@ -617,3 +617,27 @@ LZ咋没了？这也不是弱智朋友圈啊？
 我猜是谷歌的？</blockquote>
 EH都没人看了吗！
 
+
+
+*****
+
+####  触手皇帝  
+##### 73#       发表于 2022-4-11 11:48
+
+你们不觉得这个基本就是对着明日花建出来的脸吗
+
+*****
+
+####  璃絵和花瑠  
+##### 74#       发表于 2022-4-11 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55399627&amp;ptid=2063908" target="_blank">nohope 发表于 2022-4-11 08:25</a>
+这是哪个盘的？
+
+前面是啥？</blockquote>
+
+https://dwz.mk/a6VbU3
+那这样吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
