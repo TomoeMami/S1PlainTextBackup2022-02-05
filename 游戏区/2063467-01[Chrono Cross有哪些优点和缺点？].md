@@ -928,3 +928,14 @@ fc和sfc的主流排队枪毙时代,atb确实有新意.但屎可喂尔在atb演�
 打完失憶團長後拿到神武，給裝備上的主角上命中debuff就行了，打boss像切菜一樣。魔法消耗太大，主要用來清 ...</blockquote>
 蛇骨馆好像每次重打我都是走的吉他手路线<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  终将不惑  
+##### 87#       发表于 2022-4-11 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55404432&amp;ptid=2063467" target="_blank">間桐櫻 发表于 2022-4-11 13:14</a>
+忘了，土龍島有隱藏boss嗎......記得應該是接了支線要復興島嶼，另一個島上就會出現作為隱藏boss的黑龍 ...</blockquote>
+你说的复兴是亚人岛吧
+
