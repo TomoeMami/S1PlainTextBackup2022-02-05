@@ -12147,3 +12147,28 @@ TikTok要经过公司（下略）
 
 感觉大亏一个人苟大概排名更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离魂仙  
+##### 8851#       发表于 2022-4-11 20:36
+
+决策太差了，圈边攻点能力不足 又开不好门就是这样了。
+
+真的只有在野地里靠枪法才能打打，夸这思路跟单排时没区别
+
+*****
+
+####  面具13  
+##### 8852#       发表于 2022-4-11 20:37
+
+跟单排的区别是会更多被队友抢指挥权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 8853#       发表于 2022-4-11 20:39
+
+吃鸡这队一样的阵容，建议学学人家怎么踩点的
+
