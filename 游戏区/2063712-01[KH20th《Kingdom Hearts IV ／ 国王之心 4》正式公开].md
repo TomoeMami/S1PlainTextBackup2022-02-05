@@ -790,3 +790,51 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 话说有没有好心人介绍一下王国之心的玩点是什么，之前3代还在xgp的时候玩了七八个小时，有点不得要领<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 总觉得战斗怪怪的……
 
+
+
+*****
+
+####  ChrisSnake  
+##### 83#       发表于 2022-4-11 09:08
+
+新宿又要爆炸了吗
+
+
+
+*****
+
+####  hosino  
+##### 84#       发表于 2022-4-11 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55392918&amp;ptid=2063712" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-4-10 19:16</a>
+
+去异世界有种过渡篇章的感觉，野村难道还想出5吗？</blockquote>
+可以是一个像2代序章一样的形式
+
+
+
+*****
+
+####  ZyLintheMax  
+##### 85#       发表于 2022-4-11 09:29
+
+空哥发型两边的角还拉低了，真就整成V13了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ff2077  
+##### 86#       发表于 2022-4-11 09:35
+
+还行，3代的索拉边上两个角看着难受
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  barry.allen  
+##### 87#       发表于 2022-4-11 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">4年之后见？
+
