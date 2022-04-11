@@ -12588,3 +12588,15 @@ B68630C7-8E26-42A0-98CE-0DD8CBC033F5.jpeg
 
 从昨天直播到现在正好1天，无聊去数了下切片，差不多160个视频<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6895#       发表于 2022-4-11 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55410888&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-11 20:26</a>
+从昨天直播到现在正好1天，无聊去数了下切片，差不多160个视频直播时间总共就2小时都还差一点[f:066 ...</blockquote>
+切片❎
+切臊子✅
+
