@@ -12046,3 +12046,12 @@ TikTok要经过公司（下略）
 
 8w→6w→4w，很河里<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 8841#       发表于 2022-4-11 18:01
+
+過剰正当化効果(かじょうせいとうかこうか、英語: overjustification effect)は、金銭や賞品などの外発的インセンティブが、タスクを実行する人の内発的動機づけを期待に反して低下させるものである。
+
