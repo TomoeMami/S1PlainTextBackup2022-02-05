@@ -820,3 +820,21 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 空哥发型两边的角还拉低了，真就整成V13了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ff2077  
+##### 86#       发表于 2022-4-11 09:35
+
+还行，3代的索拉边上两个角看着难受
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  barry.allen  
+##### 87#       发表于 2022-4-11 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">4年之后见？
+
