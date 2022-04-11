@@ -1586,3 +1586,19 @@ syl mhy当时禁止杏玩mhy原来是保护原友<img src="https://static.saraba
 
 主要是，我不能理解在还没实锤只是“典到像演的”就觉得主播粉丝冲到一个人销号退坑无可指摘，如果真的只是个受害者呢…？
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 12128#       发表于 2022-4-11 11:35
+
+都被开除了还不低调点，三天两头发病挂anti，希望她早日退网吧，对所有人都好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  耻照  
+##### 12129#       发表于 2022-4-11 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老阿姨真来b限怕不是观众拷打一下就又该跳楼了
+
