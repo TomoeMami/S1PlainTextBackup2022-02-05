@@ -2067,3 +2067,21 @@ op第一定律的人该获诺奖了<img src="https://static.saraba1st.com/image/
 
 太欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12176#       发表于 2022-4-12 21:05
+
+虹最近mc en服也很热闹，跑步进入工业化，一批提高效率的设施也是selen建造的
+
+Syl， 最近都没看最协，原来油露米队是hayun补位了
+
+*****
+
+####  藤原银  
+##### 12177#       发表于 2022-4-12 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">润姨原神上播前都有人在直播间里吵起来，争议怎么可能会不大
+
