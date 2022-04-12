@@ -2037,3 +2037,14 @@ op第一定律的人该获诺奖了<img src="https://static.saraba1st.com/image/
 我帮你说吧，都是猴在演中演</blockquote>
 不是的，是自演op看着可爱小棕被网暴，良心受不住煎熬自首了，给杏大人磕头了是原友不懂事只能说求放过🙇‍♂️🙇‍♂️🙇‍♂️
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12174#       发表于 2022-4-12 19:32
+
+我的理解是买的便宜账号被人举报搞掉了没有找回途径嘴硬说账号忘了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
