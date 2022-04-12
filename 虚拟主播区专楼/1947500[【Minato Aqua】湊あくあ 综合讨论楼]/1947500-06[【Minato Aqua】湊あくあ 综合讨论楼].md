@@ -12606,3 +12606,14 @@ selly呢，救一下啊
 
 杀了德龙（捡了noah队的漏）
 
+
+
+*****
+
+####  cIrcler  
+##### 8905#       发表于 2022-4-12 20:31
+
+被猩猩干了，towa去收牌子然后葫芦娃了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
