@@ -1858,3 +1858,21 @@ syl 杏星那个车用意一言难尽，还不如学虹给新组合整首原创�
 想看看原版以外简中对润姨这事的评价顺手去微博搜了下，结果微博好几个因为游戏是原神所以觉得是anti自演反 ...</blockquote>
 还真的给他们预测对了原友的民度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 乐
 
+
+
+*****
+
+####  Aminor  
+##### 12155#       发表于 2022-4-12 14:54
+
+粽子出事那段时间没看v了，到底是什么人跟她这么大仇，黑化的前粉尸？mfmf女粉？
+
+*****
+
+####  越动天下  
+##### 12156#       发表于 2022-4-12 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55420710&amp;ptid=1972669" target="_blank">Aminor 发表于 2022-4-12 14:54</a>
+粽子出事那段时间没看v了，到底是什么人跟她这么大仇，黑化的前粉尸？mfmf女粉？ ...</blockquote>
+就是原友呀 他们早就说不能让猫姐进入原神圈 说要守护净土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
