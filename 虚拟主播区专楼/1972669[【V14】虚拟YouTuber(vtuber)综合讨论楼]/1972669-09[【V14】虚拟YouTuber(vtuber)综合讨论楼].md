@@ -2015,3 +2015,14 @@ op第一定律的人该获诺奖了<img src="https://static.saraba1st.com/image/
 自演成功👉销号跑路👉然后复活自曝👉“账号密码全忘了我就记得我是自演”🤔 ...</blockquote>
 我帮你说吧，都是猴在演中演<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12172#       发表于 2022-4-12 18:46
+
+ 本帖最后由 fastary 于 2022-4-12 18:50 编辑 
+
+不过确实，到复活澄清这里nns基本上是大赢特赢了，结果一个能做完自演销号复活装白莲花全套流程的人却会第二天就忍不住罪恶感唐突道歉自爆想想还挺神秘的🤨不会是被开盒私聊逼着道歉说出真相吧(随口
+
