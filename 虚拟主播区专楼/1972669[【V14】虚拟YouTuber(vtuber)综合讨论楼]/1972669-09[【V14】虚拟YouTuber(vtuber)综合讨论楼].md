@@ -1847,3 +1847,14 @@ syl 杏星那个车用意一言难尽，还不如学虹给新组合整首原创�
 
 润姨离开了木口变得人尽可欺了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 12154#       发表于 2022-4-12 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55413730&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-12 00:47</a>
+想看看原版以外简中对润姨这事的评价顺手去微博搜了下，结果微博好几个因为游戏是原神所以觉得是anti自演反 ...</blockquote>
+还真的给他们预测对了原友的民度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 乐
+
