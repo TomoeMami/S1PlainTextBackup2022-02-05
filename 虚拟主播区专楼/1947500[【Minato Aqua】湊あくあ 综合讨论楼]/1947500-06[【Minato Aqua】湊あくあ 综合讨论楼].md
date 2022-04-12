@@ -12590,3 +12590,19 @@ selly呢，救一下啊
 
 还不如躲着玩小飞机呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 8903#       发表于 2022-4-12 20:24
+
+看位置又要遇到德龙队了，真就一生之敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8904#       发表于 2022-4-12 20:27
+
+杀了德龙（捡了noah队的漏）
+
