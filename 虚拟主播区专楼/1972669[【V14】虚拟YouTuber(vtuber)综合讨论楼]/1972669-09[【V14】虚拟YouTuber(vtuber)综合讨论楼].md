@@ -2115,3 +2115,12 @@ Syl， 最近都没看最协，原来油露米队是hayun补位了
 
 金发VTUBER一生一定要做的五件事
 
+
+
+*****
+
+####  rzrbtk  
+##### 12180#       发表于 2022-4-13 00:52
+
+拳打罗浮猫，脚踢b级综！我是新人看到这一幕估计已经偷偷5ch发帖了([https://www.youtube.com/watch?v=C8vxRYBuFro](https://www.youtube.com/watch?v=C8vxRYBuFro))
+
