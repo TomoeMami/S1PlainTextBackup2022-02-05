@@ -12765,3 +12765,12 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这场不带towa？
 
+
+
+*****
+
+####  离魂仙  
+##### 8922#       发表于 2022-4-13 00:08
+
+都给suisui整郁闷了今天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结果用鸡还是用狗仍然定不了；夸和towa的不同指示也让她进退失据
+
