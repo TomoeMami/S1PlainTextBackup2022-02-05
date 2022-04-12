@@ -12831,3 +12831,12 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 那拼死拼活拿个3分击杀分然后15名开外早早出局也没用啊，我觉得非必要的战斗不打就不打了省的被劝，早点占个好位置收收圈边的过路费人头也不会太少
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 8928#       发表于 2022-4-13 07:43
+
+问题在于她们基本没能收到过过路人头，倒是初期抓队能抓到些人头啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
