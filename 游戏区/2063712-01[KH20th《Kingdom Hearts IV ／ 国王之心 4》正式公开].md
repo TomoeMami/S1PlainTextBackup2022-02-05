@@ -927,3 +927,40 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 [https://www.bilibili.com/video/BV1A3411n7LY](https://www.bilibili.com/video/BV1A3411n7LY)
 
+
+
+*****
+
+####  Leaflower  
+##### 96#       发表于 2022-4-12 18:26
+
+ 本帖最后由 Leaflower 于 2022-4-12 18:29 编辑 
+
+王国之心 4 在王国之心 20 周年庆典期间宣布。
+
+但是，我们还需要很长一段时间才能听到有关该游戏的更多信息。
+
+王国之心的创作者野村哲也表示，更多信息，如发布日期、角色、世界和故事将“需要一些时间”才能揭晓。
+
+野村表示，《王国之心 4》在开发初期就被曝光，因为他们想避免泄露。
+
+不幸的是，他们看到 KH4 是 9 月份 GeForce Now 内部数据库泄漏期间透露的游戏之一。
+
+根据推特用户@toto_cocoron0te和@aibo_ac7收集的评论，由RPG Site翻译，
+
+野村表示，在我们再次看到Kingdom Hearts IV 之前“需要一些时间”，
+
+而且它肯定不会在今年夏天任何节目中出现。
+
+*****
+
+####  电磁炮233  
+##### 97#       发表于 2022-4-12 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55423985&amp;ptid=2063712" target="_blank">Leaflower 发表于 2022-4-12 18:26</a>
+
+游民星空消息
+
+在《王国之心》的20周年庆典期间系列新作《王国之心4》被公布了出来，但创作者野村哲也表 ...</blockquote>
+变相石锤啊
+

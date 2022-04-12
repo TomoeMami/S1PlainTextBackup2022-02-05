@@ -1996,3 +1996,22 @@ op第一定律的人该获诺奖了<img src="https://static.saraba1st.com/image/
 
 今天早上还在乐qsmf推跟推生两面人，怎么现在真反转了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亡灵人  
+##### 12170#       发表于 2022-4-12 18:24
+
+自演成功👉销号跑路👉然后复活自曝👉“账号密码全忘了我就记得我是自演”🤔
+
+*****
+
+####  OldGlory  
+##### 12171#       发表于 2022-4-12 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55423952&amp;ptid=1972669" target="_blank">亡灵人 发表于 2022-4-12 18:24</a>
+
+自演成功👉销号跑路👉然后复活自曝👉“账号密码全忘了我就记得我是自演”🤔 ...</blockquote>
+我帮你说吧，都是猴在演中演<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
