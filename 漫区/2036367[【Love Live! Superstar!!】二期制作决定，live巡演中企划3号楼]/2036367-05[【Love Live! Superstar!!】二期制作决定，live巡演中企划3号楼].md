@@ -12683,3 +12683,18 @@ D13D0C95-D59A-434C-A8C9-A213639EA6C6.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/12/095735br1xkixrrzjrx4d1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 6898#       发表于 2022-4-12 10:01
+
+0957 名無しで叶える物語(もんじゃ) 2022/04/12 09:23:55
+
+&gt;&gt;955
+
+りーの攻撃を防ぐために設置された板
+
+是你守护了小百合吗，自欺欺人板，你好温柔
+
