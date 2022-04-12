@@ -913,3 +913,17 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 可以搬一个B站的视频。
 
+
+
+*****
+
+####  Leaflower  
+##### 95#       发表于 2022-4-12 17:22
+
+ 本帖最后由 Leaflower 于 2022-4-12 17:28 编辑 
+
+<strong>王国之心IV 中文字幕
+</strong>
+
+[https://www.bilibili.com/video/BV1A3411n7LY](https://www.bilibili.com/video/BV1A3411n7LY)
+
