@@ -12542,3 +12542,26 @@ selly呢，救一下啊
 好像被叶打死了</blockquote>
 好像是小帮手点的
 
+
+
+*****
+
+####  lightsuger  
+##### 8897#       发表于 2022-4-12 20:05
+
+看到大亏打赢一队，切过去一看只剩大亏一人两箱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 8898#       发表于 2022-4-12 20:06
+
+这局就打了两三百伤
+
+*****
+
+####  lightsuger  
+##### 8899#       发表于 2022-4-12 20:09
+
+感觉真得带个密客<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
