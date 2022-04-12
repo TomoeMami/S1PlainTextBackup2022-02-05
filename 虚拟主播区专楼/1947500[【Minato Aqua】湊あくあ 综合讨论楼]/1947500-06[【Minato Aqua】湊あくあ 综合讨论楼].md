@@ -12565,3 +12565,28 @@ selly呢，救一下啊
 
 感觉真得带个密客<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 8900#       发表于 2022-4-12 20:13
+
+星街可以秘客或者罗芭随便选一个吧，慢慢练，不会更差了反正，这两个对团队都很有用
+
+*****
+
+####  梅斯之围  
+##### 8901#       发表于 2022-4-12 20:16
+
+星姐玩瓦鸡这种机动性强的都会脱节，玩密客估计就光顾着玩手机了
+
+*****
+
+####  lightsuger  
+##### 8902#       发表于 2022-4-12 20:18
+
+星街这两把18伤害 0伤害
+
+还不如躲着玩小飞机呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
