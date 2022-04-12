@@ -964,3 +964,12 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 在《王国之心》的20周年庆典期间系列新作《王国之心4》被公布了出来，但创作者野村哲也表 ...</blockquote>
 变相石锤啊
 
+
+
+*****
+
+####  lucky95  
+##### 98#       发表于 2022-4-12 21:42
+
+恐怕野村20年前也没想到自己的主力是KH而不是FF<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
