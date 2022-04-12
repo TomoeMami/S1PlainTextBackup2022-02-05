@@ -2048,3 +2048,22 @@ op第一定律的人该获诺奖了<img src="https://static.saraba1st.com/image/
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Ketestrait  
+##### 12175#       发表于 2022-4-12 19:34
+
+<img src="https://tva1.sinaimg.cn/large/7c16af6bly1h1761v4i94j20y80l0n02.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tva2.sinaimg.cn/large/7c16af6bly1h1761yluq1j20xw0j20vy.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tva1.sinaimg.cn/large/7c16af6bly1h176247smvj20xu0j1416.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tva2.sinaimg.cn/large/7c16af6bly1h17628ms6pj20xv0j2tck.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/YciElK2P9qI](https://youtu.be/YciElK2P9qI)
+
+太欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
