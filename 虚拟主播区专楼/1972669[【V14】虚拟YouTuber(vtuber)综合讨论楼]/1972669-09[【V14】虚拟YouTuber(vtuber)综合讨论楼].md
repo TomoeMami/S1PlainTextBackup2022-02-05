@@ -2085,3 +2085,16 @@ Syl， 最近都没看最协，原来油露米队是hayun补位了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">润姨原神上播前都有人在直播间里吵起来，争议怎么可能会不大
 
+
+
+*****
+
+####  OldGlory  
+##### 12178#       发表于 2022-4-12 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55424937&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-4-12 19:34</a>
+[https://youtu.be/YciElK2P9qI](https://youtu.be/YciElK2P9qI)
+
+太欢乐了</blockquote>
+喜欢这种的可以看看每周的holofightz
+

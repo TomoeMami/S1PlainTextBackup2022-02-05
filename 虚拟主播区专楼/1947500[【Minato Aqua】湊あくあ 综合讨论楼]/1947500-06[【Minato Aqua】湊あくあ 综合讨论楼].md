@@ -12705,3 +12705,29 @@ selly呢，救一下啊
 
 看推今天出门了？可能状态不太好吧
 
+
+
+*****
+
+####  离魂仙  
+##### 8916#       发表于 2022-4-12 21:55
+
+这样的人口密集型比赛可以提前宣布回家了，拼的是整体实力，各队的核心没有谁能独力carry，连易大山的空间都挤不出来
+
+只能说一切都要选择了suisui的阿夸自己负责，虽然本来也只能在sui和robo之间二择
+
+*****
+
+####  Map-2  
+##### 8917#       发表于 2022-4-12 21:59
+
+<img src="https://img.saraba1st.com/forum/202204/12/215943qral1wr4ao4zbzl4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-12 21:59 上传
+
+hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
