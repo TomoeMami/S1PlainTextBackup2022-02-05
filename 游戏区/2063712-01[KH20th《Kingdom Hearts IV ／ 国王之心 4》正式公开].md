@@ -897,3 +897,19 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我关心的是kh4的积木船能进化到什么地步
 
+
+
+*****
+
+####  Leaflower  
+##### 93#       发表于 2022-4-12 15:56
+
+这次不知道多久会推出。
+
+*****
+
+####  Leaflower  
+##### 94#       发表于 2022-4-12 15:57
+
+可以搬一个B站的视频。
+
