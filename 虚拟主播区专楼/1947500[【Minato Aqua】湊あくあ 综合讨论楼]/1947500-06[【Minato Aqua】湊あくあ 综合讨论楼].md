@@ -12740,3 +12740,19 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 深夜才发力是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 8919#       发表于 2022-4-12 22:13
+
+这是真杀疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 就是位置太不好了 能提前站点就好了
+
+*****
+
+####  zpy393  
+##### 8920#       发表于 2022-4-12 22:16
+
+怎么都是延长赛才发力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
