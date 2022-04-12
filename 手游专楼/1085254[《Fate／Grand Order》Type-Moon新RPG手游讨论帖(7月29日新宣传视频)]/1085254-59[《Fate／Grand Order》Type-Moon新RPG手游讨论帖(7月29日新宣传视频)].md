@@ -6742,3 +6742,12 @@ P梅林就是星之兽
 
 又是啥剧情都没发展
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87590#       发表于 2022-4-12 23:44
+
+剧情肯定就是我方在收复失地、黑幕在缝合呗，决战时说一下为什么要这么干，这事就可以完结了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
