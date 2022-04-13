@@ -6937,3 +6937,32 @@ Extra 4hit
 到底是有多吸金
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87601#       发表于 2022-4-13 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想想摩根已经三宝了没啥必要继续抽了，就跑去隔壁池子来了一发，出了…………
+
+*****
+
+####  千叶铁矢  
+##### 87602#       发表于 2022-4-13 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55436549&amp;ptid=1085254" target="_blank">kyonkoism 发表于 2022-4-13 17:08</a>
+No.338 Alterego 太歳星君 ILLUST:竹 CV:南央美＆河西健吾
+
+★4 HP12350 ATK9271 QQAAB
+
+Arts 3hit</blockquote>
+这满破不是七实么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 87603#       发表于 2022-4-13 17:53
+
+太岁头上动土是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
