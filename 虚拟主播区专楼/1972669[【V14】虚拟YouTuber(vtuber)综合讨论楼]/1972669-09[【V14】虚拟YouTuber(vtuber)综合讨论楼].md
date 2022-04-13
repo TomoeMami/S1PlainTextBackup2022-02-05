@@ -2230,3 +2230,14 @@ en男另算，话说四五期十个人只有yugo还能算有点歌力，最强�
 
 JP别的不说eden那4个男人肯定有要出道的。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12191#       发表于 2022-4-13 19:50
+
+eden三个嗯打游戏两个叔系，有歌投稿的就两个红毛，想让条子出道吗
+
+最火最in的en男，一个嗯造碳酸嚯嚯嗓子，一个满脑子只想近距离看管人，一个gay一个实质姐贵，前三期roll点随机抓人成团也比en男靠谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
