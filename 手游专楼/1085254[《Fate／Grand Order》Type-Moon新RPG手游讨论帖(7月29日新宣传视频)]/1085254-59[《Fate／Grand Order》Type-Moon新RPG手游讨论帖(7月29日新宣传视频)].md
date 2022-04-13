@@ -6912,3 +6912,28 @@ Extra 4hit
 我十个呼符全是三星，是被你抽走了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你怎么能信这种不科学的东西呢
 
+
+
+*****
+
+####  vacuumsword  
+##### 87598#       发表于 2022-4-13 17:20
+
+徐福有了，太岁有了，可以让青黑郎君画么，礼装也行啊
+
+*****
+
+####  yzj134100  
+##### 87599#       发表于 2022-4-13 17:26
+
+送太岁可还行
+
+*****
+
+####  exiaexa  
+##### 87600#       发表于 2022-4-13 17:28
+
+摩根都快被up成国民老婆了
+到底是有多吸金
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

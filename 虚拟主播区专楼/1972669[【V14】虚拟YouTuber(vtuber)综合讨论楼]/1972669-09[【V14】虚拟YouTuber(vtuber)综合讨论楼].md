@@ -2145,3 +2145,14 @@ king油明显比不破三枝强就不说了，连卵用都后来居上了
 油king一直是比不破强的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不破要死要活靠噗带上钻的时候king已经是钻三常驻民了。
 不过当初不破的对魔忍超高灵敏度和星川小窗apex本来是卧龙凤雏级的病友，现在经过哈弟调教后星川感觉比不破要强了
 
+
+
+*****
+
+####  rzrbtk  
+##### 12183#       发表于 2022-4-13 17:29
+
+[みけねこファン？の悪行を拡散した男が自作自演を認め謝罪 - YouTube](https://www.youtube.com/watch?v=A5lfbmUi6f4)
+
+#闲的程度
+
