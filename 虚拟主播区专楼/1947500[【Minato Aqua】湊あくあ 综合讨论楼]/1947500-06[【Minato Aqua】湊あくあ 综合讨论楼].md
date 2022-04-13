@@ -12898,3 +12898,17 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 等一个sui酱超进化，多一个夸宝复制人，泥头车创烂最协！
 
+
+
+*****
+
+####  星の守  
+##### 8935#       发表于 2022-4-13 12:04
+
+ 本帖最后由 星の守 于 2022-4-13 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55432626&amp;ptid=1947500" target="_blank">_Ra1nMaker 发表于 2022-4-13 11:49</a>
+怕没物资你可以选罗芭啊。想拿高分当然得打架，如果这仨是tsm是t1我肯定支持这么打，但是你要考虑到自己 ...</blockquote>
+一个是老八她们也不想用，二是多杀点人还有节目效果，苟起来真就什么都没有了，比起毫无亮点的去比赛里逛该，我宁愿看多杀几个人
+
+syl当然最大的问题还是哪怕苟了她们成绩也绝不会比现在好多少，毕竟到了圈里该打的架还是得打，到时候连物资都没还想和人刚枪？怕是只会更惨
+
