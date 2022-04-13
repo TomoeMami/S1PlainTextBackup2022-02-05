@@ -7187,3 +7187,21 @@ Arts 3hit</blockquote>
 草，摩根这扫地僧一样的逼格，差点忘记她也是异闻带之王了</blockquote>
 逼格：指至亲遭挟持后被龙套剁成酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 87623#       发表于 2022-4-13 21:30
+
+草，太岁这声音一出来就喷了，这不小牟么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 87624#       发表于 2022-4-13 21:35
+
+是五月（
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

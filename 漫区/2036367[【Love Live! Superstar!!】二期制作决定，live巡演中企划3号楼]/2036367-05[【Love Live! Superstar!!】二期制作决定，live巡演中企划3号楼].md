@@ -12902,3 +12902,46 @@ C89AD5A9-11BE-478B-8309-F7EE712AB454.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/13/211622nzmuzm1iyiwt1rmw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6909#       发表于 2022-4-13 21:31
+
+.
+
+DD8B0CA5-0677-491F-9440-05731811029C.jpeg
+(453.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-13 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202204/13/213112wibx97bb0s7s7bi7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+33B5DFA4-283A-4D87-80E4-3E8BBA6B2C18.jpeg
+(583.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-13 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202204/13/213112fqsqi1mpjjruq0sr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+18B7B1B8-BEAE-4EB5-B7C2-A3607CE3D8EA.jpeg
+(574.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-13 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202204/13/213112u66yt699v687tz6n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6910#       发表于 2022-4-13 21:35
+
+看来fc活动的转播不能期望太高了
+
