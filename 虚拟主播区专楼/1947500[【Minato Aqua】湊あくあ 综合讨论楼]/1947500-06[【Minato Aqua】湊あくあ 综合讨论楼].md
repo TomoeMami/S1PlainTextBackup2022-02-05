@@ -12861,3 +12861,12 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 她们这个队守点能力不够，为了收集资源还要把夸夸放出去。在房间里也没办法支援夸夸。别说收过路队了，圈缩起来往往是第一个被冲死的。
 我甚至觉得激进一点连胖子都不要了，反正最终圈也是超多人大混战没什么存活率<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫南北  
+##### 8931#       发表于 2022-4-13 09:37
+
+你不让towa玩胖子，towa就不会玩了。
+
