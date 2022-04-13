@@ -13033,3 +13033,21 @@ syl当然最大的问题还是哪怕苟了她们成绩也绝不会比现在好�
 
 这届最协烂完以后就不会有人嚷嚷去参赛了。该秀的都秀了，也把星街整玉玉了（报了马车之仇）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，尽力，泪目，しゃーなしゲーミング，一整套说辞已经准备好了，感觉永远不亏
 
+
+
+*****
+
+####  蓬莱广告  
+##### 8950#       发表于 2022-4-13 21:02
+
+永远不亏！
+
+*****
+
+####  cIrcler  
+##### 8951#       发表于 2022-4-13 21:03
+
+又是holo内战，打死了夏哥队友，结果被其他包了团灭，只有夏哥逃生成功，直接便宜了其他队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
