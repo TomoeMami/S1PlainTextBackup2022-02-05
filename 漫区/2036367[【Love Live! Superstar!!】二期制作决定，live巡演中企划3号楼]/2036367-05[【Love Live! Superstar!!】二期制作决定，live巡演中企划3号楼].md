@@ -12873,3 +12873,32 @@ sayu:不了不了，我肯定输，能预料到了。</blockquote>
 
 不同地区和学校不一样，隔壁区的高中就没有社团活动。我那高中就有很多社团，开学的时候还会在放学后摆摊招新，而且还有轻音部（刚好入学那年播放KON）
 
+
+
+*****
+
+####  仟音一心  
+##### 6908#       发表于 2022-4-13 21:16
+
+<blockquote>#Liyuu[超话]# 怎么就被说是珍珠奶茶裙子了呢？？？
+
+🧋🧋🧋🥲 </blockquote>
+
+C6DA0CDC-4A7C-4276-A161-48D0C33B02A4.jpeg
+(915.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-13 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202204/13/211622vlckhlahccyybbox.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C89AD5A9-11BE-478B-8309-F7EE712AB454.jpeg
+(657.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-13 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202204/13/211622nzmuzm1iyiwt1rmw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
