@@ -11739,3 +11739,19 @@ s b了，忘了像神一样了
 
 再说小红都上飞机了，肯定有工作啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 10236#       发表于 2022-4-13 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55433396&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-4-13 12:58</a>
+
+你说的刚发推不会是两天前吧？？
+
+再说小红都上飞机了，肯定有工作啊 ...</blockquote>
+两天前也是最近，我的表述不准确。
+
+我的意思就是要播估计也到周末了
+
