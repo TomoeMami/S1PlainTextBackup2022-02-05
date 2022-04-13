@@ -7254,3 +7254,25 @@ Arts 3hit</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又抽了2发10连 并没能3宝 合理吗
 
+
+
+*****
+
+####  qixinno2  
+##### 87629#       发表于 2022-4-13 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55441081&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-13 22:45</a>
+
+又抽了2发10连 并没能3宝 合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">很合理
+
+*****
+
+####  alucardcz  
+##### 87630#       发表于 2022-4-13 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55441183&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-13 22:53</a>
+
+很合理</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为能像某个欧洲人一样直接5宝的
+
