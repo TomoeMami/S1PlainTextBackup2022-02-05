@@ -12945,3 +12945,25 @@ DD8B0CA5-0677-491F-9440-05731811029C.jpeg
 
 看来fc活动的转播不能期望太高了
 
+
+
+*****
+
+####  Enakina  
+##### 6911#       发表于 2022-4-13 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55440105&amp;ptid=2036367" target="_blank">lj205 发表于 2022-04-13 21:35:48</a>
+看来fc活动的转播不能期望太高了</blockquote>前几天直播，她自己不说了吗，没有转播，说的挺确信的，不用期待了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  月夜凝雪  
+##### 6912#       发表于 2022-4-13 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55425229&amp;ptid=2036367" target="_blank">lj205 发表于 2022-4-12 19:53</a>
+
+课后活动应该各家学校不一样？我学校还是有的，比如排球部足球部甚至还有生物和美术 ...</blockquote>
+现在很多学校都有了，但以前大多数都没有
+
