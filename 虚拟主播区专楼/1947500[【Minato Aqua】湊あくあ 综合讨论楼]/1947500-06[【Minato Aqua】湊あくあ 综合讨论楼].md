@@ -12840,3 +12840,14 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 问题在于她们基本没能收到过过路人头，倒是初期抓队能抓到些人头啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 8929#       发表于 2022-4-13 08:05
+
+两天打下来感觉这个队比起每场目标10名3个头
+
+好像15名6个头还更容易一点
+
