@@ -7205,3 +7205,12 @@ Arts 3hit</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87625#       发表于 2022-4-13 22:16
+
+摩根的池子只到4.20的中午，而活动是到4.27，估计4.20下午五点到4.27中午十二点就该是艾蕾的池子了...
+
