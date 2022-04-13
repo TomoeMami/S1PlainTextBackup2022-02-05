@@ -2284,3 +2284,32 @@ eden三个嗯打游戏两个叔系，有歌投稿的就两个红毛，想让条�
 
 虹粉en和jp的矛盾激烈起来了啊……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12197#       发表于 2022-4-14 00:26
+
+详细希望？简中微博大家就不用说了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|那还能有啥，连阿b也开始了|
+
+查看全部评分
+
+*****
+
+####  cckuku  
+##### 12198#       发表于 2022-4-14 00:30
+
+我刷微博还看见有人说因为微博en粉太烦了所以希望en男赶紧乳滑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说实话有点幻视以前被杏碾压无力回天，只能寄希望对面炸掉的虹粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
