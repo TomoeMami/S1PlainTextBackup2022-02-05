@@ -7304,3 +7304,15 @@ Arts 3hit</blockquote>
 
 一隻摩根(NEW)、一隻武則天(寶3)、一隻哪吒(寶4)
 
+
+
+*****
+
+####  森兰丸  
+##### 87634#       发表于 2022-4-14 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55441198&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-13 22:54</a>
+
+我以为能像某个欧洲人一样直接5宝的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黙る
+
