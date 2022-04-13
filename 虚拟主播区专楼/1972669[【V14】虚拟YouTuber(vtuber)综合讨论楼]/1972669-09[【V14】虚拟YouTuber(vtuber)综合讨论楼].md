@@ -2124,3 +2124,14 @@ Syl， 最近都没看最协，原来油露米队是hayun补位了
 
 拳打罗浮猫，脚踢b级综！我是新人看到这一幕估计已经偷偷5ch发帖了([https://www.youtube.com/watch?v=C8vxRYBuFro](https://www.youtube.com/watch?v=C8vxRYBuFro))
 
+
+
+*****
+
+####  poipanchao  
+##### 12181#       发表于 2022-4-13 16:02
+
+按说配置上明明相差不大，king和饭屋境遇简直…
+king油明显比不破三枝强就不说了，连卵用都后来居上了
+只能说打枪确实看个天赋
+
