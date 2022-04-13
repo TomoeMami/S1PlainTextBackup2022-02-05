@@ -7034,3 +7034,24 @@ Arts 3hit</blockquote>
 
 30抽补了2宝，继续攒石等奥伯龙复刻
 
+
+
+*****
+
+####  qixinno2  
+##### 87610#       发表于 2022-4-13 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55436591&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-13 17:11</a>
+
+啊 这？
+
+感觉我这号和狂这个职阶有一定孽缘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呸 狗萌新疯狂出五星
+
+*****
+
+####  qixinno2  
+##### 87611#       发表于 2022-4-13 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连 我也二宝了 还是王姐爱我
+
