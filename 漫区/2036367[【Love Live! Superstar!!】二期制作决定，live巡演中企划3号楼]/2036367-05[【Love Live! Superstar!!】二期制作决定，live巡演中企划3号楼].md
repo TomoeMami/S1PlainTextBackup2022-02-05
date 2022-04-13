@@ -12967,3 +12967,16 @@ DD8B0CA5-0677-491F-9440-05731811029C.jpeg
 课后活动应该各家学校不一样？我学校还是有的，比如排球部足球部甚至还有生物和美术 ...</blockquote>
 现在很多学校都有了，但以前大多数都没有
 
+
+
+*****
+
+####  lj205  
+##### 6913#       发表于 2022-4-13 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55440192&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-4-13 21:41</a>
+前几天直播，她自己不说了吗，没有转播，说的挺确信的，不用期待了
+
+  -- 来自 有消息提醒的 Stage1官方 An ...</blockquote>
+就跟去年一样，看个寂寞，不过有画面比啥都没好吧，就是唱歌肯定没……
+
