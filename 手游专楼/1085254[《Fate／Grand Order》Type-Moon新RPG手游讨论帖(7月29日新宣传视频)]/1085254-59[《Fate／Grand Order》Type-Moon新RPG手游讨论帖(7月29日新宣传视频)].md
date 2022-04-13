@@ -7245,3 +7245,12 @@ Arts 3hit</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后官方公布出来是摩根，绷不住了【
 
+
+
+*****
+
+####  alucardcz  
+##### 87628#       发表于 2022-4-13 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又抽了2发10连 并没能3宝 合理吗
+
