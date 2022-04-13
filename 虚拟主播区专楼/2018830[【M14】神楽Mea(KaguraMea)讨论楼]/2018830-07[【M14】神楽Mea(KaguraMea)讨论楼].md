@@ -11764,3 +11764,14 @@ s b了，忘了像神一样了
 
 今晚有盒限（咕咕预定？），估计是不播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10238#       发表于 2022-4-13 14:36
+
+到26号新人出道还有近半个月，估计还要有两次联动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
