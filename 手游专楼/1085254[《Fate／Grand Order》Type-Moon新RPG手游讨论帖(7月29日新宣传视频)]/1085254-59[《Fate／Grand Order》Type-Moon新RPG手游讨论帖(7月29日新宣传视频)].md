@@ -7117,3 +7117,37 @@ Arts 3hit</blockquote>
 这达贡造型是不是太廉价了点</blockquote>
 不是达贡，是大衮<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 87618#       发表于 2022-4-13 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55438244&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-4-13 19:30</a>
+
+太岁的满破有点像匂宫出梦啊，我超爱这个角色的（零崎人识上身）....不过给不玩FGO的朋友看了图，他说像鬼 ...</blockquote>
+这和上三差远了吧，不论少年还是成人还是那个很优秀的满破
+
+我也爱出梦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87619#       发表于 2022-4-13 20:56
+
+ 本帖最后由 Jamaisvu 于 2022-4-13 20:59 编辑 
+<blockquote>angelooo 发表于 2022-4-13 20:50
+这和上三差远了吧，不论少年还是成人还是那个很优秀的满破
+
+我也爱出梦 ...</blockquote>
+我看到的是画风、色调和手，他看的是纹身和衣服...
+
+唉，戏言动画虽然不尽人意，但好希望能出到食人魔法那卷啊，绞首浪漫派也行...至少让我听听人识君的声音...
+
+（我当初看刀语和戏言都是纯文本，后来才补的插画，着实是锦上添花了）
+
+这次FGO请竹老师来画人物，虽然已经不是当初给西尾画插画的风格，但依然很满意，真的圆梦了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">。
+
+（强度不够厨力凑）
+
