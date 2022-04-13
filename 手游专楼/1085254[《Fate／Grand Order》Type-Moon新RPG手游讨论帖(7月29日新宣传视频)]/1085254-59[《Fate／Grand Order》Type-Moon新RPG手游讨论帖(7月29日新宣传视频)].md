@@ -7093,3 +7093,27 @@ Arts 3hit</blockquote>
 
 只有我一如既往的脸黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87616#       发表于 2022-4-13 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55437159&amp;ptid=1085254" target="_blank">cckuku 发表于 2022-4-13 17:53</a>
+
+太岁头上动土是什么东西</blockquote>
+犯太岁啊
+
+要倒大霉了
+
+*****
+
+####  シャル  
+##### 87617#       发表于 2022-4-13 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55437388&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-13 18:15</a>
+
+这达贡造型是不是太廉价了点</blockquote>
+不是达贡，是大衮<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
