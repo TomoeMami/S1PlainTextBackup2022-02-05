@@ -6870,3 +6870,45 @@ Extra 4hit
 
 怎么王姐又up了？
 
+
+
+*****
+
+####  alucardcz  
+##### 87595#       发表于 2022-4-13 17:11
+
+ 本帖最后由 alucardcz 于 2022-4-13 17:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/13/171104sfuf6e59hhuf66ch.jpg" referrerpolicy="no-referrer">
+
+<strong>2222222.jpg</strong> (556.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-13 17:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 这？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉我这号和狂这个职阶有一定孽缘 
+
+*****
+
+####  里村紅葉  
+##### 87596#       发表于 2022-4-13 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55436591&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-13 17:11</a>
+
+啊 这？
+
+感觉我这号和狂这个职阶有一定孽缘</blockquote>
+我十个呼符全是三星，是被你抽走了吧<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87597#       发表于 2022-4-13 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55436681&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-13 17:16</a>
+
+我十个呼符全是三星，是被你抽走了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你怎么能信这种不科学的东西呢
+
