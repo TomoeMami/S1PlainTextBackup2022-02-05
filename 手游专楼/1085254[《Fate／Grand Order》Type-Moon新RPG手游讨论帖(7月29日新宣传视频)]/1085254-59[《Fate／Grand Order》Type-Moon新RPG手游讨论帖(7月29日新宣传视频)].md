@@ -7175,3 +7175,15 @@ Arts 3hit</blockquote>
 
 草，摩根这扫地僧一样的逼格，差点忘记她也是异闻带之王了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87622#       发表于 2022-4-13 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55439806&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-13 21:19</a>
+
+草，摩根这扫地僧一样的逼格，差点忘记她也是异闻带之王了</blockquote>
+逼格：指至亲遭挟持后被龙套剁成酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

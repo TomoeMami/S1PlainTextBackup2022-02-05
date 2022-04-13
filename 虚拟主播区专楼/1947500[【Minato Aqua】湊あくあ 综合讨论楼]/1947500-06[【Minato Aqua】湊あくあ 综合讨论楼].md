@@ -13060,3 +13060,12 @@ syl当然最大的问题还是哪怕苟了她们成绩也绝不会比现在好�
 
 永远亏爆了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 8953#       发表于 2022-4-13 21:22
+
+看到现在这届葛叶他们太强了，阿夸怎么都没机会夺冠的，无所谓了其实，重在参与了
+
