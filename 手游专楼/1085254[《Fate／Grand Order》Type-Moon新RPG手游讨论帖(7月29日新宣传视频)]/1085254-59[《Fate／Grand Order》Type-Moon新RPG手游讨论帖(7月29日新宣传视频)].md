@@ -7055,3 +7055,32 @@ Arts 3hit</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连 我也二宝了 还是王姐爱我
 
+
+
+*****
+
+####  alucardcz  
+##### 87612#       发表于 2022-4-13 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55438223&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-13 19:29</a>
+
+两发十连 我也二宝了 还是王姐爱我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">呸 狗欧洲人疯狂出五星
+
+*****
+
+####  Jamaisvu  
+##### 87613#       发表于 2022-4-13 19:30
+
+太岁的满破有点像匂宫出梦啊，我超爱这个角色的（零崎人识上身）....不过给不玩FGO的朋友看了图，他说像鬼灭之刃的猗窝座...
+
+*****
+
+####  qixinno2  
+##### 87614#       发表于 2022-4-13 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55438242&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-13 19:30</a>
+
+呸 狗欧洲人疯狂出五星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没有你狗
+
