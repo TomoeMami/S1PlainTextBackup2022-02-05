@@ -7276,3 +7276,31 @@ Arts 3hit</blockquote>
 很合理</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为能像某个欧洲人一样直接5宝的
 
+
+
+*****
+
+####  qixinno2  
+##### 87631#       发表于 2022-4-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55441198&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-13 22:54</a>
+
+我以为能像某个欧洲人一样直接5宝的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可是天选之子 岂是一般人能做到的
+
+*****
+
+####  qixinno2  
+##### 87632#       发表于 2022-4-13 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也上头了 摩根三宝失败
+
+*****
+
+####  eilot  
+##### 87633#       发表于 2022-4-14 01:39
+
+90石
+
+一隻摩根(NEW)、一隻武則天(寶3)、一隻哪吒(寶4)
+
