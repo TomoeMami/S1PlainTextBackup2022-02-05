@@ -12870,3 +12870,22 @@ hololive好温暖啊<img src="https://static.saraba1st.com/image/smiley/face2017
 
 你不让towa玩胖子，towa就不会玩了。
 
+
+
+*****
+
+####  星の守  
+##### 8932#       发表于 2022-4-13 11:44
+
+不会真有人觉得打的苟会有用吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 8933#       发表于 2022-4-13 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55432556&amp;ptid=1947500" target="_blank">星の守 发表于 2022-4-13 11:44</a>
+
+不会真有人觉得打的苟会有用吧不打架苟进圈里，到时候要物资没物资，子弹一下就打完，三个白甲拿头 ...</blockquote>
+怕没物资你可以选罗芭啊。想拿高分当然得打架，如果这仨是tsm是t1我肯定支持这么打，但是你要考虑到自己队友的能力吧，你不会觉得带着两个跟不上的队友还能在比赛里大杀特杀吧？
+
