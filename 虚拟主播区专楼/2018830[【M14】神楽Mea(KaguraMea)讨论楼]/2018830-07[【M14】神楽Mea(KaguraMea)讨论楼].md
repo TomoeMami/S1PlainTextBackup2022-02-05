@@ -11718,3 +11718,24 @@ s b了，忘了像神一样了
 
 今天播吗……
 
+
+
+*****
+
+####  clvan_  
+##### 10234#       发表于 2022-4-13 12:54
+
+最近感觉自频道直播大部分都放周末了吧，刚发了推说忙心情不好，估计周末前不会自己播了
+
+*****
+
+####  古战场亡魂  
+##### 10235#       发表于 2022-4-13 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55433371&amp;ptid=2018830" target="_blank">clvan_ 发表于 2022-4-13 12:54</a>
+
+最近感觉自频道直播大部分都放周末了吧，刚发了推说忙心情不好，估计周末前不会自己播了 ...</blockquote>
+你说的刚发推不会是两天前吧？？
+
+再说小红都上飞机了，肯定有工作啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
