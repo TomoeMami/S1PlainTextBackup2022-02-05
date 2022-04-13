@@ -12980,3 +12980,22 @@ DD8B0CA5-0677-491F-9440-05731811029C.jpeg
   -- 来自 有消息提醒的 Stage1官方 An ...</blockquote>
 就跟去年一样，看个寂寞，不过有画面比啥都没好吧，就是唱歌肯定没……
 
+
+
+*****
+
+####  cat1230  
+##### 6914#       发表于 2022-4-13 22:03
+
+liyuuBD特典预览图啥时候才会有啊，想挑个喜欢的买<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 6915#       发表于 2022-4-13 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55440358&amp;ptid=2036367" target="_blank">lj205 发表于 2022-04-13 21:52:54</a>
+就跟去年一样，看个寂寞，不过有画面比啥都没好吧，就是唱歌肯定没…… ...</blockquote>去年好像是临时租了个摄像机，就一个远景，真看了个寂寞，衣服都看不清。夜场的はつらじ公开收录好像都没有。现在在投票唱啥歌了，去年那次ミラールージュ初公开，这次估计不会有新歌了吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
