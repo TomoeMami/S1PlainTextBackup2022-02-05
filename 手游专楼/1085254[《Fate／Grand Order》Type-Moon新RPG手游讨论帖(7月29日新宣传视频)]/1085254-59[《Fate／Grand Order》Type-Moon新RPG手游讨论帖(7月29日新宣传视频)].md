@@ -7316,3 +7316,14 @@ Arts 3hit</blockquote>
 我以为能像某个欧洲人一样直接5宝的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黙る
 
+
+
+*****
+
+####  eilot  
+##### 87635#       发表于 2022-4-14 11:21
+
+今次建築分支劇情，如果要全部收集，是否都要全部弄一次
+
+還是活動完了後全部補回
+
