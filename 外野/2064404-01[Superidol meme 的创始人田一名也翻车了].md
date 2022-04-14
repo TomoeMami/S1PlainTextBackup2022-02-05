@@ -630,3 +630,33 @@ B站有人做过对应的解析视频，我记得是用来广告宣传的口水�
 
 我一时间没搞清楚他是高质量男性本人还是模仿者😓
 
+
+
+*****
+
+####  bubuyu  
+##### 76#       发表于 2022-4-14 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55444111&amp;ptid=2064404" target="_blank">Blackson 发表于 2022-4-14 09:07</a>
+B站有人做过对应的解析视频，我记得是用来广告宣传的口水歌</blockquote>
+这还用解析吗，原唱是阿肆，屈臣氏蒸馏水的广告歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moonblackwh  
+##### 77#       发表于 2022-4-14 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55446166&amp;ptid=2064404" target="_blank">普丁 发表于 2022-4-14 11:38</a>
+
+正常。很多人看中的不是颜值这么虚无的东西，而是粉丝量名气这些实际的
+
+比如泥潭名人cha研也是个丑男，照 ...</blockquote>
+这是20年的事，这人是21年才火的
+
+*****
+
+####  archfriend12  
+##### 78#       发表于 2022-4-14 12:10
+
+丑其实也不至于，他的视频都是P过脑袋的，麻痹是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，刷b站之前一直能刷到
+
