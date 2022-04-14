@@ -660,3 +660,25 @@ B站有人做过对应的解析视频，我记得是用来广告宣传的口水�
 
 丑其实也不至于，他的视频都是P过脑袋的，麻痹是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，刷b站之前一直能刷到
 
+
+
+*****
+
+####  havoc_cc  
+##### 79#       发表于 2022-4-14 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55444840&amp;ptid=2064404" target="_blank">云隐 发表于 2022-4-14 10:03</a>
+冯提莫的会计判了没？</blockquote>
+我也想说这个，这不就是性转版么？这女的发出微博上嫌自己死的不够快？
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  毒菇  
+##### 80#       发表于 2022-4-14 12:21
+
+<blockquote>你就知道了</blockquote>
+
+还是不知道
+
