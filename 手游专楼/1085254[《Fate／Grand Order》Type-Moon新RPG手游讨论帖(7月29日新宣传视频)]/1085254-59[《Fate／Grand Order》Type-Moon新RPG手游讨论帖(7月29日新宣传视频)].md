@@ -7327,3 +7327,36 @@ Arts 3hit</blockquote>
 
 還是活動完了後全部補回
 
+
+
+*****
+
+####  J-002  
+##### 87636#       发表于 2022-4-14 11:43
+
+<img src="https://img.saraba1st.com/forum/202204/14/114139n95jkg3vkrnznk3p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220414-112932_FateGO.jpg</strong> (356.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-14 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202204/14/114139ep6rd6cvlcpnolgn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220414-113607_FateGO.jpg</strong> (449.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-14 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202204/14/114140hpghh43egpmpszym.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220414-113730_FateGO.jpg</strong> (292.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-14 11:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">太过分了
+
