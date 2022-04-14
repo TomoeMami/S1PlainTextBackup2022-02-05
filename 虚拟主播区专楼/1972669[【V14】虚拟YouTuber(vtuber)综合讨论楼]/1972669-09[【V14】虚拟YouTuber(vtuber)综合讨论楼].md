@@ -2492,3 +2492,14 @@ sanya的l2d披露回多少数字来着，不知跟歌回比哪个比较重量级
 
 东南亚这个时间段是黄金时间呗，holoid基本上都是这个点开直播的，说明你虹EN非常清楚目标用户是哪些人
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12218#       发表于 2022-4-14 23:26
+
+其实没那么多借口，因为基本盘在JST，想吃同接订阅就得倒时差
+
+Syl，才看最协队练，我们老叶这队怎么一碰就碎啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
