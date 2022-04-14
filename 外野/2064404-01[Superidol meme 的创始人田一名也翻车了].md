@@ -682,3 +682,26 @@ B站有人做过对应的解析视频，我记得是用来广告宣传的口水�
 
 还是不知道
 
+
+
+*****
+
+####  皇甫延  
+##### 81#       发表于 2022-4-14 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55443640&amp;ptid=2064404" target="_blank">相原舞 发表于 2022-4-14 08:26</a>
+不是啊，唱歌的只是打扮成高质量男性的样子蹭这个梗的。
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+竟然不是一个人
+
+*****
+
+####  WarChief  
+##### 82#       发表于 2022-4-14 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55444111&amp;ptid=2064404" target="_blank">Blackson 发表于 2022-4-14 09:07</a>
+B站有人做过对应的解析视频，我记得是用来广告宣传的口水歌</blockquote>
+热爱105度的你，阿肆给屈臣氏蒸馏水写的广告曲<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+蒸馏水105度很合理嘛
+
