@@ -11912,3 +11912,27 @@ wtm加班错过了超啊
 
 yuzuru家里有养猫的吗，一直有猫叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10252#       发表于 2022-4-14 18:22
+
+<img src="https://img.saraba1st.com/forum/202204/14/182243wp17k8vp1l7z1r8w.jpg" referrerpolicy="no-referrer">
+
+<strong>BCFF65196E9A6BD8A279884F23DAC96A_edit_1708827480394977.jpg</strong> (421 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-14 18:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  T_Hb  
+##### 10253#       发表于 2022-4-14 18:27
+
+<blockquote>和otaku相处的时间变短了，happy</blockquote>
+
