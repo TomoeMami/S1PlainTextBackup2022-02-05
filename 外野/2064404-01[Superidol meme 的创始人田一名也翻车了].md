@@ -535,3 +535,35 @@ B站有人做过对应的解析视频，我记得是用来广告宣传的口水�
 孩子他爸又要被迫养孩子，真是倒了血霉
 话说这算不算芳心纵火犯？
 
+
+
+*****
+
+####  lokin  
+##### 67#       发表于 2022-4-14 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55444373&amp;ptid=2064404" target="_blank">摸🐟佬 发表于 2022-4-14 09:28</a>
+
+一个pua沾点诈骗，一个挪用公款，真报警这女的估计更容易进去</blockquote>
+女的给男的花钱都是pua吗
+
+*****
+
+####  筒井彩芽  
+##### 68#       发表于 2022-4-14 11:10
+
+ 本帖最后由 筒井彩芽 于 2022-4-14 11:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55442607&amp;ptid=2064404" target="_blank">Andrewfvk 发表于 2022-4-14 01:23</a>
+
+他在外网很火，也是墙里开花墙外香的典型了</blockquote>
+这倒不是，国内也火过，然后被铁拳锤了一次，结果过了很久国外突然也被**了，
+
+顺带的这首歌也火了，不过这首歌在国内也同样是是出了很久以后才突然靠短视频火的
+
+*****
+
+####  deathomega  
+##### 69#       发表于 2022-4-14 11:12
+
+周杰伦唱不清词真的很糟糕，70楼了才有人说了这歌名
+
