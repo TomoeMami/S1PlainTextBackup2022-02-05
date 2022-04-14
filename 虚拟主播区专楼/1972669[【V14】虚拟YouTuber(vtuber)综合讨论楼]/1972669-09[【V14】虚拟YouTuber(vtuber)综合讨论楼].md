@@ -2438,3 +2438,23 @@ en粉强的啊。睿站虹官号应该一两个月1000+涨粉甚至更高了
 
 6万同接的唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> vox让你们看看谁才是彩虹的王
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12212#       发表于 2022-4-14 22:44
+
+ 本帖最后由 alcoholic1000 于 2022-4-14 22:49 编辑 
+
+我不信King歌回只有6w<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不要高攀好吧，DECO给写的「Q」还是很好听的
+
+*****
+
+####  dybang  
+##### 12213#       发表于 2022-4-14 22:45
+
+可惜了五音不全<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然真是男鲨皇了
+
