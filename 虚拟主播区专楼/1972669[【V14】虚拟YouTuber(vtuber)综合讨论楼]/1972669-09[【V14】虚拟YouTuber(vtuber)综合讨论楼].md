@@ -2474,3 +2474,21 @@ en粉强的啊。睿站虹官号应该一两个月1000+涨粉甚至更高了
 
 sanya的l2d披露回多少数字来着，不知跟歌回比哪个比较重量级。不过葛皇都主流出道了为了数字应该也能开歌回吧，虽然他打游戏就有数字好像不是会搞艹同接企划的人。
 
+
+
+*****
+
+####  越动天下  
+##### 12216#       发表于 2022-4-14 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55454897&amp;ptid=1972669" target="_blank">我不是很好 发表于 2022-4-14 23:01</a>
+他在日本还是哪里？怎么这个点开歌回？</blockquote>
+我记得好像是说这个时间同接比较高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过好像只有vox是这个原因 mysta是房子隔音不好不能扰民 不一定对 有看EN的也可以说说原因
+
+*****
+
+####  _Ra1nMaker  
+##### 12217#       发表于 2022-4-14 23:16
+
+东南亚这个时间段是黄金时间呗，holoid基本上都是这个点开直播的，说明你虹EN非常清楚目标用户是哪些人
+
