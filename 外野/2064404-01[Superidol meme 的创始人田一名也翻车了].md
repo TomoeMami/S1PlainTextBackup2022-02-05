@@ -578,3 +578,28 @@ B站有人做过对应的解析视频，我记得是用来广告宣传的口水�
 
 百度了也还是不清楚，大概是个不怎么有名气的制作人？
 
+
+
+*****
+
+####  bas3721  
+##### 71#       发表于 2022-4-14 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55444097&amp;ptid=2064404" target="_blank">量子大蛇 发表于 2022-4-14 09:06</a>
+原来高质量男性（徐勤根）和那个广场跳舞男（晒干了沉默）不是同一个人
+
+我还真以为是同一个呢 ...</blockquote>
+长得完全不像吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普丁  
+##### 72#       发表于 2022-4-14 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55443284&amp;ptid=2064404" target="_blank">炽十二翼 发表于 2022-4-14 06:58</a>
+
+这人那么丑，图什么啊</blockquote>
+正常。很多人看中的不是颜值这么虚无的东西，而是粉丝量名气这些实际的
+
+比如泥潭名人cha研也是个丑男，照样因为名气有两个女粉丝的倒贴，还争风吃醋
+
