@@ -13390,3 +13390,12 @@ https://youtu.be/_MinjLFFD6w
 
 更激烈的战争发生在观众之间<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 8989#       发表于 2022-4-15 13:09
+
+就算本篇垫底了，练习赛有过一次吃鸡逆转第一，打出了风采，永远不亏！
+
