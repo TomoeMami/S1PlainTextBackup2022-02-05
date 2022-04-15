@@ -13399,3 +13399,16 @@ https://youtu.be/_MinjLFFD6w
 
 就算本篇垫底了，练习赛有过一次吃鸡逆转第一，打出了风采，永远不亏！
 
+
+
+*****
+
+####  winda  
+##### 8990#       发表于 2022-4-15 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55458409&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2022-4-15 10:11</a>
+听说10杀吃了去看了下切片，感觉也没特别亮眼啊
+
+除了一开始抢车厢干碎3个算正面实力，后面几个头不都是别人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是3月28号的练习赛切片还在，我还真就信了
+
