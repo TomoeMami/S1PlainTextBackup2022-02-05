@@ -2962,3 +2962,24 @@ bsyl 饭屋这届比上届happy hour带个nrk搞得三枝想活跃气氛说赛�
 
 完全看不出来能练到现在的程度
 
+
+
+*****
+
+####  wuzhengkai  
+##### 12271#       发表于 2022-4-16 07:42
+
+昨天pomu歌回还是有意思的 今天finana这好家伙味也太大了 水果姐霉霉轮着来 只能说niji没把你也reject了真是瞎了眼了
+
+*****
+
+####  wuzhengkai  
+##### 12272#       发表于 2022-4-16 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55454739&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-14 22:44</a>
+
+我不信King歌回只有6w
+
+不要高攀好吧，DECO给写的「Q」还是很好听的</blockquote>
+Q真不行 pv质量高 歌曲纯粹deco摆烂 给calli和星街写的就强很多
+
