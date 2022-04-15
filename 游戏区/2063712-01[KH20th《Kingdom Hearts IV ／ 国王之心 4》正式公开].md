@@ -1015,3 +1015,41 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2047983&amp;page=7
 
 希望能好好用一下唐纳德和高飞啊
 
+
+
+*****
+
+####  Piano-Forest  
+##### 101#         楼主| 发表于 2022-4-15 10:20
+
+访谈中提到了字谜：
+[https://s.famitsu.com/news/202204/14257987.html](https://s.famitsu.com/news/202204/14257987.html)
+
+――会場では貴重な資料などもたくさん展示されていました。ソラのスタチューに野村さんのメッセージが掲げられていましたが、下から3行目に"x"の文字がありました。あれには何か意味が？
+
+野村：あれには別のメッセージも隠していて、“x”はそのヒントですね。ご覧になった方々が、SNSなどで考察されていましたが、答えに辿り着いている方はまだいないようでしたね。
+
+可能看到了当时推上的讨论？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> ：
+[https://twitter.com/aibo_ac7/status/1513054751167942661](https://twitter.com/aibo_ac7/status/1513054751167942661)
+
+KH20th：イベント
+
+野村氏のコメント、χのマークみたいなのあって気になりますね。 
+<img src="https://p.sda1.dev/5/461b602f26a40ecec95266fe369eb5da/20220415_101756.jpg" referrerpolicy="no-referrer">
+
+当时下方的回复
+<img src="https://p.sda1.dev/5/3f51c8f6aa1493fe05a23576cb1bcd0e/20220415_101801.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/4758446828686595](https://m.weibo.cn/detail/4758446828686595)
+
+【谜题解开|#王国之心#】
+
+王国之心20周年纪念野村哲也寄语中的谜题告破！昨晚日推粉丝经过几小时，解开了「X」的隐藏信息。
+
+将寄语按照原格式转化为平假名，按照「X」字阅读方式可以得到「こえのしょうたいは　しくるどようちゅうい」，翻译为「声音是源自西格鲁德」。也就是本次宣传片旁白的声音。
+
+西格鲁德在KHUX最终幕登场仅仅几分钟，P3中左侧人物，期待后续的剧情！
+[https://p.sda1.dev/api/v1/delete ... 5b/6adf89d7ddd44db4](https://p.sda1.dev/api/v1/delete/5/d0b6142b54451f2e70cf49f02ef7f95b/6adf89d7ddd44db4)
+[https://p.sda1.dev/api/v1/delete ... 40/17bcdb925327eb84](https://p.sda1.dev/api/v1/delete/5/a2071327b862286195e91d0ebd156b40/17bcdb925327eb84)
+[https://p.sda1.dev/api/v1/delete ... 7b/a93262d7a572a77a](https://p.sda1.dev/api/v1/delete/5/f3e2a2f18d19867dbe1e01bc8b2b5f7b/a93262d7a572a77a)
+
