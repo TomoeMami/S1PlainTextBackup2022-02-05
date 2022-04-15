@@ -13354,3 +13354,17 @@ SYL，能看她打枪就不错了，别的liver评价那么高证明枪力不是
 
 某些大家庭电竞元年粉在那一喜一憂在评论区当教练，又是分锅又是找战犯，看着着实想笑
 
+
+
+*****
+
+####  UnhappyTails  
+##### 8986#       发表于 2022-4-15 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55458409&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2022-4-15 10:11</a>
+
+听说10杀吃了去看了下切片，感觉也没特别亮眼啊
+
+除了一开始抢车厢干碎3个算正面实力，后面几个头不都是别人 ...</blockquote>
+是新人吗，好像之前在原神区见过你。。。
+
