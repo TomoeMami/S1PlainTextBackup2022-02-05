@@ -2917,3 +2917,48 @@ syl，饭屋连别人家的二把手都不一定顶得住，更别提大师冲�
 
 这玩意难道以前好看过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我早就觉得花谱长得像蟑螂了
 
+
+
+*****
+
+####  rzrbtk  
+##### 12267#       发表于 2022-4-16 01:28
+
+郡郡尊帕特月之要联动<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">，
+
+遥想以前郡郡和月之的联系，有生日会郡郡向完全不熟的月之要祝福结果月之对不上凸待时间还特地发视频祝福，有历史课郡郡胡言乱语说怪话月之坐牢一小时，还有nijiholo人狼月之被狠狠80，如果我是月之早就把郡加入联动NG名单，月之真是最好的前辈<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 12268#       发表于 2022-4-16 02:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55461876&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-4-15 14:49</a>
+之前看到uruca说要小心noah队大亏队 and 饭屋
+你们小心饭屋什么…要快点杀掉保证kill数吗，不注意就丢了是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">饭屋这队分最低落点选最好啊
+而且开赛前不破是被吹近战超过5pt，黑客则是密客熟练工，一样能超模发挥，最后还有和卵用一样在拿到邀请函后再上分的三枝，一路都奶满了
+
+*****
+
+####  winda  
+##### 12269#       发表于 2022-4-16 02:38
+
+bsyl 饭屋这届比上届happy hour带个nrk搞得三枝想活跃气氛说赛后一起去温泉结果尬住，改说带kws去玩的情况好吧，突破上届18位就是成功
+
+*****
+
+####  poipanchao  
+##### 12270#       发表于 2022-4-16 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55469792&amp;ptid=1972669" target="_blank">winda 发表于 2022-4-16 02:35</a>
+
+饭屋这队分最低落点选最好啊
+
+而且开赛前不破是被吹近战超过5pt，黑客则是密客熟练工，一样能超模 ...</blockquote>
+结果是劣化版king、劣化版IB、劣化版live王是吧……
+
+不过king和IB老油条了就不说了，卵用这个急速成长确实有说法的
+
+完全看不出来能练到现在的程度
+
