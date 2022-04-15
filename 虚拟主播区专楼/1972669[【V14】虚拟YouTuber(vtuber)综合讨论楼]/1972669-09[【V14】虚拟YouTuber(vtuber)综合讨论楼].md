@@ -2521,3 +2521,14 @@ vox这同接我就再问一遍唱歌走音妨碍主流出道吗<img src="https:/
 
 怎么做到比想象中的还要难听的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 12221#       发表于 2022-4-15 10:04
+
+Niji EN 应该是英语歌稍微放开了吧，这周仨不留档英歌回
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
