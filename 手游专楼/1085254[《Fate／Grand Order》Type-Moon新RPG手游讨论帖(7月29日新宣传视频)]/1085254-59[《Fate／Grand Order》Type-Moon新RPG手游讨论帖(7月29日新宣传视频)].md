@@ -7381,3 +7381,72 @@ Arts 3hit</blockquote>
 太过分了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位置真的巧妙
 
+
+
+*****
+
+####  zakki  
+##### 87639#       发表于 2022-4-15 15:25
+
+凑了3个石头去抽第十发的买一送一，竟然特么双黄了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/15/152604ktrmbmybziirbu2b.jpg" referrerpolicy="no-referrer">
+
+<strong></strong> (326.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 15:26 上传
+
+*****
+
+####  qixinno2  
+##### 87640#       发表于 2022-4-15 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55462397&amp;ptid=1085254" target="_blank">zakki 发表于 2022-4-15 15:25</a>
+
+凑了3个石头去抽第十发的买一送一，竟然特么双黄了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">竟然比萌新还狗 吸你欧气
+
+*****
+
+####  里村紅葉  
+##### 87641#       发表于 2022-4-15 15:35
+
+专楼只剩欧狗了（恼）
+
+*****
+
+####  rooarr  
+##### 87642#       发表于 2022-4-15 16:24
+
+怎么能这么欧，真的是一个游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 87643#       发表于 2022-4-15 16:37
+
+这转楼全毙了怕是没几个冤枉的
+
+我这种信用卡战士实名羡慕了艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87644#       发表于 2022-4-15 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55463317&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-4-15 16:37</a>
+这转楼全毙了怕是没几个冤枉的
+
+我这种信用卡战士实名羡慕了艹</blockquote>
+队长别开枪，自己人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87645#       发表于 2022-4-15 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正打不到我 毕竟我是四个多月只有两个五星的纯种非洲人
+

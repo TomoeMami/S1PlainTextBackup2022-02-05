@@ -2583,3 +2583,270 @@ Niji EN 应该是英语歌稍微放开了吧，这周仨不留档英歌回
 
 饭屋属于比较被看好的那种，而且是全男队，肯定打的菜就压力大呗
 
+
+
+*****
+
+####  lor  
+##### 12227#       发表于 2022-4-15 14:35
+
+饭屋下播的气氛看着就能让粉丝吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">打得菜玩得开心没事，玩得不开心高压情况下有点摩擦都很麻烦
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Suny08  
+##### 12228#       发表于 2022-4-15 14:36
+
+<blockquote>渡鸦骑士 发表于 2022-4-15 12:50
+？“菜是原罪”→打的不好心里压力大→类比前几天打的也不好，整个环境气氛都降下去了→结论，打不好确实消 ...</blockquote>
+？哪儿来的鬼逻辑，没打好把环境氛围带崩完全是个人的原因可别aoe，火畜虽然恶心到处引战别人king队里面正常的很可没有什么压力大气氛不好的，你要想开团压力怪不如挑勇气千寻，把噗这边的观众都带反感了，其他大部分队气氛都挺好的根本没有什么压力大的感觉
+
+*****
+
+####  poipanchao  
+##### 12229#       发表于 2022-4-15 14:38
+
+yqqx这么多年了，知名的螺旋增压啊
+死了就不说话真的太给压力了
+
+*****
+
+####  nian1538  
+##### 12230#       发表于 2022-4-15 14:39
+
+14分的队按理来说粉丝不是应该没什么期望吗...
+
+*****
+
+####  ヒトニナル  
+##### 12231#       发表于 2022-4-15 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">饭屋是被看好的队？哪个世界线的最协？
+
+*****
+
+####  越动天下  
+##### 12232#       发表于 2022-4-15 14:44
+
+ 本帖最后由 越动天下 于 2022-4-15 14:45 编辑 
+
+反正我以前看到管厕里天天有人说饭屋里谁谁蹭了谁谁 谁又吸了谁的血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 打a后同接都低就好像和谐了
+
+*****
+
+####  poipanchao  
+##### 12233#       发表于 2022-4-15 14:49
+
+之前看到uruca说要小心noah队大亏队 and 饭屋
+你们小心饭屋什么…要快点杀掉保证kill数吗，不注意就丢了是吧
+
+syl，饭屋同为14分队，打的还不如我本间桑也是个问题
+
+*****
+
+####  ヒトニナル  
+##### 12234#       发表于 2022-4-15 14:53
+
+小心饭屋那必然是要关注饭屋的快递啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是很好  
+##### 12235#       发表于 2022-4-15 15:02
+
+乐了<img src="https://pb.nichi.co/switch-angry-drink" id="aimg_tA5mk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  cckuku  
+##### 12236#       发表于 2022-4-15 15:04
+
+这么多国人吗……
+
+*****
+
+####  Kokichi  
+##### 12237#       发表于 2022-4-15 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">饭屋高情商说有进步吧。
+最痛苦的就是努力了还是送菜，菜到alelu都绷不住了，属实折磨。
+
+*****
+
+####  rzrbtk  
+##### 12238#       发表于 2022-4-15 15:15
+
+没事的，赛前吵得再凶气压再低，只要正赛吃一次，做一个emo剪辑大家喜极而泣一下，一切（关系性/粉丝氛围）都会好起来的
+
+*****
+
+####  fastary  
+##### 12239#       发表于 2022-4-15 15:16
+
+ 本帖最后由 fastary 于 2022-4-15 15:26 编辑 
+
+吓人，怎么引申开这么远了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">粉丝是没期望啊，饭屋自己打得开心那看他们那么努力还是没回报再坐牢也认了，而且前两天坐牢akn问开心吗黑客fw还说挺开心的，结果昨天下播才发现演都没力气演了……就感叹下最协原来可以给人精神压力这么大而已。
+
+话说被骂也不是饭屋哪个人被骂菜，是黑客被骂自己菜还要指责队友状态不好/没察觉到akn状态不对就硬开这种玩笑，逼的akn道歉一时间空气也僵了，伤害了akn是烂人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真飞鸟i  
+##### 12240#       发表于 2022-4-15 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cn之力！只能说虹终究获得了它能在cn获得的一切。
+
+
+
+*****
+
+####  cckuku  
+##### 12241#       发表于 2022-4-15 15:22
+
+期待vox来b限的那一天，最好现场再唱个《学猫叫》吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 12242#       发表于 2022-4-15 15:23
+
+我观察到的en中华之力跟当年杏不同之处在于
+内地和弯弯的集美会边勾心斗角边合作共赢，颇有古风
+比死肥宅高明了不知道多少倍
+
+syl，饭屋连别人家的二把手都不一定顶得住，更别提大师冲锋了
+
+*****
+
+####  真飞鸟i  
+##### 12243#       发表于 2022-4-15 15:33
+
+ 本帖最后由 真飞鸟i 于 2022-4-15 15:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对比一下，集美主动翻墙贡献sc同接订阅掩盖v的失言，而cn原v圈粉丝龟缩b站没有b限等于看不起cn粉丝，墙外贡献同接订阅打钱等于把v往外赶，抓着v的失言互相攻击，拿着政治大棒互相打，不得不说集美是更加优质的粉丝。
+
+*****
+
+####  渡鸦骑士  
+##### 12244#       发表于 2022-4-15 15:34
+
+甚至劣币驱逐良币（？）
+
+开始给本社粉压力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 12245#       发表于 2022-4-15 15:37
+
+ 本帖最后由 越动天下 于 2022-4-15 15:49 编辑 
+
+集美无论各方面确实不错 相比宅宅确实不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> syl天天能看到管厕的人骂en男的粉丝
+
+*****
+
+####  lor  
+##### 12246#       发表于 2022-4-15 15:48
+
+这才叫国际化大主播，换本社的评论栏里出现干扰性中文内部都能把萌萌给灭了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  fastary  
+##### 12247#       发表于 2022-4-15 15:49
+
+集美对v本人上贡啥的方面确实没得说，但是污染讨论环境也绝对是一流……幸好现在mmr粉比较多，被现在搞咒的那群神经病看上当下一个玩具的话就完了
+
+*****
+
+####  rzrbtk  
+##### 12248#       发表于 2022-4-15 15:57
+
+在看到腐男luca的避雷长条/转发抽奖/破防微博后已经清晰认识到部分粉丝的热情与活力确实不寻常，
+反正各自发展也没把我推们饭碗砸了也就这样呗，更恨自视清高的男宝女宝妈（夸张）
+
+*****
+
+####  poipanchao  
+##### 12249#       发表于 2022-4-15 16:04
+
+上次看到个切片，reimu搁哪儿养gachi结果chat都在对她们最协队的教练发情了
+估摸着en女的粉丝也被迭代了
+
+*****
+
+####  マドマコ  
+##### 12250#       发表于 2022-4-15 16:05
+
+本社粉和新晋en粉已经有点对立了，微博的本社厕妹和嗯男厕妹不再局限于投稿管厕婊对方，在私博@挂人直接开撕💥的也有不少<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 12251#       发表于 2022-4-15 16:46
+
+只要不撕到v面前或是发疯发到匿名论坛甚至给v版看笑话那都是小打小闹，反正微博不就是给集美们互婊互撕地方(小声)
+
+*****
+
+####  渡鸦骑士  
+##### 12252#       发表于 2022-4-15 16:54
+
+不是早就在评论区里面冲突过了吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然是两岸的中文集美们
+
+*****
+
+####  IDIDIDID  
+##### 12253#       发表于 2022-4-15 16:57
+
+嗯男主要现在规模还小，再来个几期集美们忙着内战就没工夫搭理jp老粉了。
+
+参考当年火畜大战叶队说老叶吸king血的时期。
+
+*****
+
+####  alcoholic1000  
+##### 12254#       发表于 2022-4-15 17:04
+
+作为明治的最后一场live，rd雨ニモマケズ
+
+如此多灾多难的一场live，恰如其名呢<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lor  
+##### 12255#       发表于 2022-4-15 17:14
+
+鹅妈妈……<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">如果没有疫情早点能开得起来又是什么世界线呢
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  opticalcalcite  
+##### 12256#       发表于 2022-4-15 17:21
+
+最近官号转组号转播是啥情况，有没有老哥给情弱科普下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  藤原银  
+##### 12257#       发表于 2022-4-15 17:27
+
+ 本帖最后由 藤原银 于 2022-4-15 17:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这才是国际化大主播啊。这个汉语浓度要是放到某些宅宅群体说不定已经开始自肃了。
+
+至于粉丝群体要是能对付才有鬼......虽然我还是小小期待了一下温暖的虹人粉丝大家庭的
+
+*****
+
+####  渡鸦骑士  
+##### 12258#       发表于 2022-4-15 17:46
+
+国际化（中文化）笑
+

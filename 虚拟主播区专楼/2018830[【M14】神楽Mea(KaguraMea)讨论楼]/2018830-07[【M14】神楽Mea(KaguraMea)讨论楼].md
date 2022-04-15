@@ -12054,3 +12054,68 @@ yuzuru家里有养猫的吗，一直有猫叫<img src="https://static.saraba1st.
 
 反正我是遭不住每天脑死打游戏的直播
 
+
+
+*****
+
+####  汇聚群光  
+##### 10267#       发表于 2022-4-15 17:31
+
+突击直播，马上开始
+
+*****
+
+####  路人庚  
+##### 10268#       发表于 2022-4-15 17:31
+
+油管突击
+
+*****
+
+####  古战场亡魂  
+##### 10269#       发表于 2022-4-15 17:34
+
+？？？这么勤奋吗，一天三动
+
+*****
+
+####  路人庚  
+##### 10270#       发表于 2022-4-15 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐确实酬勤
+
+*****
+
+####  T_Hb  
+##### 10271#       发表于 2022-4-15 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这背景，看着人都歪了
+
+*****
+
+####  clvan_  
+##### 10272#       发表于 2022-4-15 17:43
+
+到周末了呀，你咩姐还是想着要在自己频道播的
+
+*****
+
+####  掉头学姐  
+##### 10273#       发表于 2022-4-15 17:57
+
+被监控了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 10274#       发表于 2022-4-15 18:01
+
+还好就错过十八分钟<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10275#       发表于 2022-4-15 18:03
+
+胡言乱语
+
