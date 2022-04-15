@@ -1063,3 +1063,23 @@ KH20th：イベント
 se这才从良几天啊又开始谜语人画饼了
 都tm赖老黄<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 103#         楼主| 发表于 2022-4-15 21:08
+
+全文翻译：
+[https://m.weibo.cn/detail/4758528189533124](https://m.weibo.cn/detail/4758528189533124)
+
+【Fami通《王国之心 4》野村哲也特别访谈】SE 在东京涉谷 Hikarie 举办的《王国之心》系列 20 周年纪念活动上正式公开了《王国之心 4》和《王国之心 失落之链》这两款游戏，系列导演野村哲也在采访中透露了更多内容。完整采访内容将在《Fami 通》5 月 12-19 日的合并刊（4 月 28 日发售）上将刊登。
+[https://card.weibo.com/article/m/show/id/2309404758528190447787](https://card.weibo.com/article/m/show/id/2309404758528190447787)
+
+*****
+
+####  Luminous脑壳痛  
+##### 104#       发表于 2022-4-15 21:18
+
+听说野村的家就是pv索拉醒来的地方，这么暴露个人隐私没问题吗
+

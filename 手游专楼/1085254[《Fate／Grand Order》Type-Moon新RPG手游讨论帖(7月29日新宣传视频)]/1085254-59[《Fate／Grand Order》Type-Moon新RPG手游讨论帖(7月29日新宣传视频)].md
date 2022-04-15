@@ -7450,3 +7450,53 @@ Arts 3hit</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正打不到我 毕竟我是四个多月只有两个五星的纯种非洲人
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87646#       发表于 2022-4-15 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55464500&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-15 18:06</a>
+
+反正打不到我 毕竟我是四个多月只有两个五星的纯种非洲人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你这也能自称非洲人，那我这种经历过半年零五星的算啥
+
+*****
+
+####  qixinno2  
+##### 87647#       发表于 2022-4-15 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55464715&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-4-15 18:23</a>
+
+你这也能自称非洲人，那我这种经历过半年零五星的算啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人中的王者 酋长
+
+*****
+
+####  真红眼教授  
+##### 87648#       发表于 2022-4-15 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55462397&amp;ptid=1085254" target="_blank">zakki 发表于 2022-4-15 15:25</a>
+
+凑了3个石头去抽第十发的买一送一，竟然特么双黄了</blockquote>
+天选欧洲人你好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 87649#       发表于 2022-4-15 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55462397&amp;ptid=1085254" target="_blank">zakki 发表于 2022-4-15 15:25</a>
+凑了3个石头去抽第十发的买一送一，竟然特么双黄了</blockquote>
+你也太狗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 87650#       发表于 2022-4-15 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55464775&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2022-4-15 18:28</a>
+天选欧洲人你好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

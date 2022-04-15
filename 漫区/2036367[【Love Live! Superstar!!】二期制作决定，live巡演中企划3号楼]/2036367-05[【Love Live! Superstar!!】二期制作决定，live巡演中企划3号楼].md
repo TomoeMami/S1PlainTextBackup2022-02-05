@@ -13069,3 +13069,151 @@ twi:sora_no_iroto
 
 熊猫囡囡<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6919#       发表于 2022-4-15 19:58
+
+这期节目应该比较好翻译，梗比较少
+
+*****
+
+####  一个陆仁贾  
+##### 6920#       发表于 2022-4-15 20:00
+
+没有特别能整活和吐槽的，有种随时会冷场的感觉
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  一个陆仁贾  
+##### 6921#       发表于 2022-4-15 20:13
+
+草手游环节太草了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  lj205  
+##### 6922#       发表于 2022-4-15 20:17
+
+后面游戏笑死
+
+*****
+
+####  优妮可  
+##### 6923#       发表于 2022-4-15 20:23
+
+<img src="https://img.saraba1st.com/forum/202204/15/202336nw7te6k67wzemfav.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220415_202112.jpg</strong> (115.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 20:23 上传
+
+又是环大陆
+
+*****
+
+####  player3960  
+##### 6924#       发表于 2022-4-15 20:50
+
+不够看啊，一个季度一期都行，多来几期啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 6925#       发表于 2022-4-15 21:17
+
+新表情
+
+0F2AB8EA-9900-4BA7-84BD-2B307E7C5D64.jpeg
+(330.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 21:17 上传
+
+<img src="https://img.saraba1st.com/forum/202204/15/211714o8l4fx7lvyn633vm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 6926#       发表于 2022-4-15 21:22
+
+防暴板再次立大功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 6927#       发表于 2022-4-15 21:28
+
+这期好像没有板子
+
+*****
+
+####  iuhehc  
+##### 6928#       发表于 2022-4-15 21:50
+
+捏橡皮泥那里真的是全程笑死，真希望这节目能一直做下去
+
+*****
+
+####  仟音一心  
+##### 6929#       发表于 2022-4-15 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55467174&amp;ptid=2036367" target="_blank">starring 发表于 2022-4-15 21:22</a>
+
+防暴板再次立大功</blockquote>
+是这样的
+
+D5EAF7C2-1FAB-43A3-B914-75753FCE865A.jpeg
+(318.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202204/15/215507lfou91o0rxxk5fh4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 6930#       发表于 2022-4-15 21:55
+
+P图
+
+92CB50BB-09CB-4A98-B336-8E9C1389832E.jpeg
+(131.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202204/15/215539r00k1mobqp30zr0u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 6931#       发表于 2022-4-15 22:27
+
+说起来板子撤了，星团以后生放最好能多整点活，连中文节目都安排游戏环节
+
+不过这样打铁的屏障就没了，希望她赶紧买好伤害保险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山岚夜雨  
+##### 6932#       发表于 2022-4-16 00:59
+
+能多聊点企划内东西我觉得还挺有意思的，可惜这期不多。这节目假如常驻，以后生放不是没可能
+

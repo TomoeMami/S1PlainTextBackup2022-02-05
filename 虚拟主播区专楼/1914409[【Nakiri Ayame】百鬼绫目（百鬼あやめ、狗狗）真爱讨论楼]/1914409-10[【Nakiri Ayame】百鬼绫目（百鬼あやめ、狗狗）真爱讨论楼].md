@@ -6141,3 +6141,51 @@ music sense这块反正也就是k歌爱好者的程度了，让别人主导也�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">运营的任务罢了
 
+
+
+*****
+
+####  Fami水  
+##### 14115#       发表于 2022-4-15 21:07
+
+mio香羊了 这下绫总和狐姨密接了
+
+*****
+
+####  nian1538  
+##### 14116#       发表于 2022-4-15 21:16
+
+录音倒是还好，估计都很久之前录的了
+
+还是近期一起吃过青椒酿肉的小粥和名字没提到的其他人更危险一些
+
+不知道里头有没有绫总
+
+*****
+
+####  Fami水  
+##### 14117#       发表于 2022-4-15 21:40
+
+公告里写着倒是没有密接 和船长的还是有点不一样
+
+*****
+
+####  stedckk  
+##### 14118#       发表于 2022-4-15 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要真冠了那又可以休息两个月了。。。
+
+*****
+
+####  Badwoman  
+##### 14119#       发表于 2022-4-15 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞科两周不到就出来直播了 休什么休
+
+*****
+
+####  因为你不会  
+##### 14120#       发表于 2022-4-15 22:16
+
+给绫总一个继续摸的理由
+

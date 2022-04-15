@@ -2850,3 +2850,70 @@ syl，饭屋连别人家的二把手都不一定顶得住，更别提大师冲�
 
 国际化（中文化）笑
 
+
+
+*****
+
+####  Kokichi  
+##### 12259#       发表于 2022-4-15 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">kamito终于来vspo激ロー了
+
+*****
+
+####  FCCHua  
+##### 12260#       发表于 2022-4-15 19:16
+
+ 本帖最后由 FCCHua 于 2022-4-15 22:59 编辑 
+
+虽迟但到惹...
+
+*****
+
+####  free  
+##### 12261#       发表于 2022-4-15 19:26
+
+<img src="https://img.saraba1st.com/forum/202204/15/192617xr54nzr5njcrricr.png" referrerpolicy="no-referrer">
+
+<strong>金鸡.png</strong> (116.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 19:26 上传
+
+*****
+
+####  渡鸦骑士  
+##### 12262#       发表于 2022-4-15 19:39
+
+感觉更丑了
+
+*****
+
+####  Ryuuseigun  
+##### 12263#       发表于 2022-4-15 20:01
+
+电光蟑螂须<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  藤原银  
+##### 12264#       发表于 2022-4-15 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这设计的什么啊
+
+*****
+
+####  北山玖公  
+##### 12265#       发表于 2022-4-15 20:15
+
+这啥玩意，这皮到底是什么思路去创作的？
+别说美少女了，换个什么虫族我也不会觉得这好看啊。
+
+*****
+
+####  OldGlory  
+##### 12266#       发表于 2022-4-15 22:00
+
+这玩意难道以前好看过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我早就觉得花谱长得像蟑螂了
+

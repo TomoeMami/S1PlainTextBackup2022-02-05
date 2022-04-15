@@ -12119,3 +12119,126 @@ yuzuru家里有养猫的吗，一直有猫叫<img src="https://static.saraba1st.
 
 胡言乱语
 
+
+
+*****
+
+####  黒長直姫  
+##### 10276#       发表于 2022-4-15 18:37
+
+刚到家 周末下班 咩歌送饭 还有更开心的事吗
+
+*****
+
+####  Dualist彩  
+##### 10277#       发表于 2022-4-15 18:38
+
+你麻恰豆芽菜时也没天天发直播预告啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 10278#       发表于 2022-4-15 19:11
+
+迟到一小时，今晚是不是录播吗？
+
+*****
+
+####  古战场亡魂  
+##### 10279#       发表于 2022-4-15 20:05
+
+左边油管 ，右边b站，太亮了。
+
+<img src="https://img.saraba1st.com/forum/202204/15/200501yom1j7j1jjc4011o.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220415200422571.jpg</strong> (86.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202204/15/200502ii4iujiwaa7mall9.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220415200431089.jpg</strong> (58.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 20:05 上传
+
+*****
+
+####  ashero  
+##### 10280#       发表于 2022-4-15 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55466063&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-4-15 20:05</a>
+
+左边油管 ，右边b站，太亮了。</blockquote>
+其实狗蛋b站也在转 完全没有那么亮
+
+*****
+
+####  掉头学姐  
+##### 10281#       发表于 2022-4-15 21:05
+
+还是挺欢乐的
+
+*****
+
+####  路人庚  
+##### 10282#       发表于 2022-4-15 21:39
+
+早早集合结果没人来的孤单阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10283#       发表于 2022-4-15 21:51
+
+可以多看会儿hikakin
+
+*****
+
+####  T_Hb  
+##### 10284#       发表于 2022-4-15 22:34
+
+ 本帖最后由 T_Hb 于 2022-4-15 22:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/15/223357i606qv0jj08zz2lc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.69 KB, 下载次数: 1)
+
+下载附件
+
+2022-4-15 22:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/15/224704qff05uz0hnhk53sk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-15 22:47 上传
+
+*****
+
+####  路人庚  
+##### 10285#       发表于 2022-4-15 23:10
+
+所以今天的时间表安排的这么紧（指第三动）怕不是因为苔苔庆生拉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10286#       发表于 2022-4-15 23:20
+
+鉴定了一下，大乱斗玩家<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10287#       发表于 2022-4-15 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候是双排匹配坐牢吗
+
