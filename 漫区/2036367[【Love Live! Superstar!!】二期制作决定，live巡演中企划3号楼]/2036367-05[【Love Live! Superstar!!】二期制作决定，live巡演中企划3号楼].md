@@ -13226,3 +13226,45 @@ P图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">感觉菜宝的中文越来越流畅了怎么解
 
+
+
+*****
+
+####  名津流  
+##### 6934#       发表于 2022-4-16 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55465997&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-4-15 20:00</a>
+
+没有特别能整活和吐槽的，有种随时会冷场的感觉
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版  ...</blockquote>
+前半段比较收着，后半段开始欢乐度拉满
+
+*****
+
+####  名津流  
+##### 6935#       发表于 2022-4-16 15:40
+
+上次星团生放的时候还有不少人讨论过读信环节占比太大的问题，这次的中文特别节目不知道是有意还是无意的，读信环节非常的短，用来整活部分占的时长比重就增加了，希望系列的其他生放都好好学学
+
+*****
+
+####  名津流  
+##### 6936#       发表于 2022-4-16 15:40
+
+风怒
+
+*****
+
+####  甘蓝巧克力  
+##### 6937#       发表于 2022-4-16 16:18
+
+把鱼模仿岚珠那段反复听了好几遍<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cao1rui2  
+##### 6938#       发表于 2022-4-16 16:43
+
+这两人真是太好笑了
+

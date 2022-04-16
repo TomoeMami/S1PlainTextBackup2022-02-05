@@ -3079,3 +3079,55 @@ selen今天播远哭3这个dlc也太乐了吧，估计本来是想随便播一�
 
 反正我觉得apex最协没有最开始那种什么菜鸡VTB都能来参加的娱乐的感觉了，卷成现在这样简直就是小CR杯甚至小algs了，主播和观众压力都挺大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  動画編集神  
+##### 12284#       发表于 2022-4-16 17:17
+
+<img src="https://img.saraba1st.com/forum/202204/16/171650i02kxskb3uz071ia.jpg" referrerpolicy="no-referrer">
+
+<strong>FQc-XGnaUAAkiBY.jpg</strong> (142.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-16 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202204/16/171650iipaqhai4iaai4xu.png" referrerpolicy="no-referrer">
+
+<strong>FQdDhhOUcAAZlF5.png</strong> (33.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-16 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202204/16/171651mitbbhbxnhifzmrm.jpg" referrerpolicy="no-referrer">
+
+<strong>FQdDTdqakAUS8fe.jpg</strong> (180.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-16 17:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天就是集体谋反wactor的日子
+
+*****
+
+####  alcoholic1000  
+##### 12285#       发表于 2022-4-16 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55470199&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-4-16 07:45</a>
+
+Q真不行 pv质量高 歌曲纯粹deco摆烂 给calli和星街写的就强很多</blockquote>
+我就是听了CapSule才觉得Q确实不错
+
+而且calli和gura声音相性要好很多
+
+*****
+
+####  渡鸦骑士  
+##### 12286#       发表于 2022-4-16 18:37
+
+火锅p不行就完事了
+
