@@ -12491,3 +12491,106 @@ WOC
 
 和塔菲联动。。
 
+
+
+*****
+
+####  suzumiya123  
+##### 5825#       发表于 2022-4-16 21:09
+
+出场也太搞了，一来就坐牢
+
+*****
+
+####  suzumiya123  
+##### 5826#       发表于 2022-4-16 21:10
+
+<img src="https://img.saraba1st.com/forum/202204/16/211018jxg2sxr2sdpepoi2.png" referrerpolicy="no-referrer">
+
+<strong>C9FBE839-9F61-4A6E-BF35-D3D007008869.png</strong> (298.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-16 21:10 上传
+
+*****
+
+####  灰色的狐狸  
+##### 5827#       发表于 2022-4-16 21:14
+
+没同传听不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 5828#       发表于 2022-4-16 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">文静 败北👋🏻
+
+*****
+
+####  Finsty  
+##### 5829#       发表于 2022-4-16 21:15
+
+笑飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  人民de救星  
+##### 5830#       发表于 2022-4-16 21:17
+
+太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 5831#       发表于 2022-4-16 21:19
+
+这吹的啥。。
+
+*****
+
+####  rgauss  
+##### 5832#       发表于 2022-4-16 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静绝对听出来了
+
+*****
+
+####  rgauss  
+##### 5833#       发表于 2022-4-16 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">文静你哥呢
+
+*****
+
+####  rgauss  
+##### 5834#       发表于 2022-4-16 21:30
+
+👋🏻👋🏻文静 再次败北
+
+*****
+
+####  T型钉宫病毒  
+##### 5835#       发表于 2022-4-16 21:33
+
+这尖叫鸡还挺好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 5836#       发表于 2022-4-16 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">塔菲好可怕啊
+
+*****
+
+####  胡里奥  
+##### 5837#       发表于 2022-4-16 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静完全接不住塔菲
+
