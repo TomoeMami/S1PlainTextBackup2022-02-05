@@ -12265,3 +12265,28 @@ yuzuru家里有养猫的吗，一直有猫叫<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个月应该有自己开台的扑克
 
+
+
+*****
+
+####  Klience  
+##### 10291#       发表于 2022-4-16 20:13
+
+对面中单塞恩 估计是推塔送死流塞恩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 10292#       发表于 2022-4-16 20:29
+
+感觉微妙的有点熟，不会也是以前你麻一起打过游戏的吧
+
+*****
+
+####  T_Hb  
+##### 10293#       发表于 2022-4-16 20:31
+
+ 本帖最后由 T_Hb 于 2022-4-16 20:39 编辑 
+
+这还熟，上来只能聊你今天早上吃了啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的皮肤真漂亮阿
+
