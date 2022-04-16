@@ -3011,3 +3011,30 @@ Q真不行 pv质量高 歌曲纯粹deco摆烂 给calli和星街写的就强很�
 草，Elira在唱贾斯汀比伯
 1W同接了
 
+
+
+*****
+
+####  Suzutsuki  
+##### 12276#       发表于 2022-4-16 11:26
+
+马上1.4w了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 12277#       发表于 2022-4-16 11:36
+
+ 本帖最后由 wuzhengkai 于 2022-4-16 11:52 编辑 
+
+这个歌力属于一个爆杀了
+
+选曲品位也不怎么样就是
+
+*****
+
+####  ヒトニナル  
+##### 12278#       发表于 2022-4-16 11:52
+
+最协从PUBG时代开始就很卷，现在更卷了罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
