@@ -12594,3 +12594,21 @@ WOC
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静完全接不住塔菲
 
+
+
+*****
+
+####  Finsty  
+##### 5838#       发表于 2022-4-16 22:01
+
+手机号露出，盒完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  rgauss  
+##### 5839#       发表于 2022-4-16 22:07
+
+文静对谁都是爆线
+
