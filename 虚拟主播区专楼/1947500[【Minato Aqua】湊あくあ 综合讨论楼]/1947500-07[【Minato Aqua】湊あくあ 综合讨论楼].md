@@ -688,3 +688,16 @@ q都交了还敢这样一个人拉门啊
 
 我看完第一把就觉得今天寄了，现在心情毫无波动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离魂仙  
+##### 9084#       发表于 2022-4-17 21:04
+
+2pc还真安排上了，suisui别哭，已经血赚了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+主要是可惜这个startend结束得不够尽兴，遗憾也就算了，根本是耻辱性大败，套进范大将军meme都毫无违和<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+如果是3排娱乐组合可能更轻松些，但也不会有一个月合练培养出来的感觉了，我是真的很喜欢startend，阿夸全锅<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
