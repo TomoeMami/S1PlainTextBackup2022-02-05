@@ -357,3 +357,23 @@ towa这样的反而不用她花什么心思纠结不更好嘛<img src="https://s
 
 我还挺想看瓦的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 9046#       发表于 2022-4-17 14:50
+
+努力就有回报：指苦练一年solo大师
+
+尽人事听天命：指控制不了队友犯病
+
+*****
+
+####  nian1538  
+##### 9047#       发表于 2022-4-17 15:09
+
+Startendよ、永遠に！
+
+不知道是不是双关，有点意思
+
