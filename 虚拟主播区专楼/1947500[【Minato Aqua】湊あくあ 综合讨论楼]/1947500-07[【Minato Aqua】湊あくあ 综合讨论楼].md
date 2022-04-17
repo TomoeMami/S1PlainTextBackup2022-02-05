@@ -445,3 +445,12 @@ Startendよ、永遠に！
 
 对啊，不是star tend吗，我还以为是步入群星、为菈妮~
 
+
+
+*****
+
+####  fangjun96  
+##### 9056#       发表于 2022-4-17 17:41
+
+实力可以一战，剩下就看天时地利了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">冲啊
+
