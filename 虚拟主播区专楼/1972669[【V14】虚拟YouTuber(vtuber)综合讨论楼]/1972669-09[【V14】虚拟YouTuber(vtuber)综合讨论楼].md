@@ -3201,3 +3201,12 @@ zeta淘汰tl步入冰岛大师赛6强，就这势头下次就是valo最协了吧
 
 可以去看后夜祭
 
+
+
+*****
+
+####  rzrbtk  
+##### 12295#       发表于 2022-4-17 13:36
+
+跟ina几乎同时开玩环，一个月下来进度被她不知道甩到哪里了，现在还联动大棒无骨灰打大树，心态和技术一如既往（指出道hades）的好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
