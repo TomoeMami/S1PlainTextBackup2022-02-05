@@ -3337,3 +3337,21 @@ king太有节目效果了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解说大叫nijisanji的king被毒死的时候太精彩了
 
+
+
+*****
+
+####  fastary  
+##### 12308#       发表于 2022-4-17 20:45
+
+饭屋打赢了一次！！！！！！！
+
+无悔了！！！！！
+
+*****
+
+####  fastary  
+##### 12309#       发表于 2022-4-17 20:51
+
+最后一局8杀2位！！！！！！！！饭屋WIN！！！！！！！
+

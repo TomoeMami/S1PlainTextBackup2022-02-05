@@ -651,3 +651,29 @@ q都交了还敢这样一个人拉门啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">飞进人群好玩吗，好玩就多飞点
 
+
+
+*****
+
+####  离魂仙  
+##### 9081#       发表于 2022-4-17 20:45
+
+甲子园落幕，我的青春结束了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+虽然正赛打得很丑
+
+虽然startend原地解散
+
+虽然有点不甘心
+
+但是要是能封印apex就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 9082#       发表于 2022-4-17 20:47
+
+确实不是大赛型选手啊，实力差距不大的比赛必翻车
+
+还是多自己玩点吧，观众也开心
+
