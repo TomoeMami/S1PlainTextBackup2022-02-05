@@ -3245,3 +3245,12 @@ zeta淘汰tl步入冰岛大师赛6强，就这势头下次就是valo最协了吧
 
 只要我是黑听打击就不会那么大<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12299#       发表于 2022-4-17 17:27
+
+reimu就是马前卒，开响战争的第一炮<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
