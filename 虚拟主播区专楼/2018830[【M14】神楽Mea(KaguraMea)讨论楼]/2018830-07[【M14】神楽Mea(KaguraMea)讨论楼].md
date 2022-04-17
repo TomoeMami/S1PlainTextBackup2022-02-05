@@ -12543,3 +12543,14 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 这东西是直播吗，看了一下黄兔子那边没录播，想姑且看看有没有肥婆声音 ...</blockquote>
 是直播，选马而已，没有声音，发了几条评论，录播油管又没删，最后没人要，allin一把组长输了勉为其难收下了
 
+
+
+*****
+
+####  时间在我手中  
+##### 10321#       发表于 2022-4-18 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55489761&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-4-18 00:55</a>
+是直播，选马而已，没有声音，发了几条评论，录播油管又没删，最后没人要，allin一把组长输了勉为其难收 ...</blockquote>
+难怪我挂了四十分钟毛没听到（）滚去补空间录播得了
+
