@@ -601,3 +601,19 @@ q都交了还敢这样一个人拉门啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都没注意看怎么死的，这又是冲房又是拉门到别人脚下，这是当炸鱼玩还是开摆了啊
 
+
+
+*****
+
+####  离魂仙  
+##### 9075#       发表于 2022-4-17 19:21
+
+离门远了多吃一管血，回去后犯傻了原地打甲，过了老半天才想起正确的阻击方法是封雷门，现场教学sui<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 9076#       发表于 2022-4-17 19:43
+
+早该玩玩了，很有网红队的自觉，总该有点东西能切片！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

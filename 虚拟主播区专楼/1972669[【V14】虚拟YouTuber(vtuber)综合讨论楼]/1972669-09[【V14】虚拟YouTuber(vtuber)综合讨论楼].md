@@ -3314,3 +3314,26 @@ ib这靓仔新衣装<img src="https://static.saraba1st.com/image/smiley/face2017
 
 看到aqua十万同接点进去一看就是寄中寄
 
+
+
+*****
+
+####  Ketestrait  
+##### 12305#       发表于 2022-4-17 19:26
+
+King这惊世一跳震撼全场，真正的entertainment<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超能力者stven  
+##### 12306#       发表于 2022-4-17 19:37
+
+king太有节目效果了
+
+*****
+
+####  winda  
+##### 12307#       发表于 2022-4-17 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解说大叫nijisanji的king被毒死的时候太精彩了
+
