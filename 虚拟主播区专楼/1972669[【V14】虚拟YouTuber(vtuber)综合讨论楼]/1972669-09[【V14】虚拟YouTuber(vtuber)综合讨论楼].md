@@ -3254,3 +3254,40 @@ zeta淘汰tl步入冰岛大师赛6强，就这势头下次就是valo最协了吧
 
 reimu就是马前卒，开响战争的第一炮<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我不是很好  
+##### 12300#       发表于 2022-4-17 17:40
+
+ 本帖最后由 我不是很好 于 2022-4-17 17:41 编辑 
+
+<img src="http://cdn.u1.huluxia.com/g4/M01/D7/DC/rBAAdmJb4MSAUUYlAAUqDrrs0Tk242.jpg" referrerpolicy="no-referrer">
+<img src="http://cdn.u1.huluxia.com/g4/M02/D7/DC/rBAAdmJb4ESAUwipABemNGQjn4g194.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alcoholic1000  
+##### 12301#       发表于 2022-4-17 17:40
+
+<blockquote><blockquote>NIJISANJI EN karaoke archive
+
+Selen [【UNARCHIVED ENGLISH KARAOKE】be prepared【NIJISANJI EN _ Selen Tatsuki】](https://mega.nz/folder/33YxGQBJ#U6kkr4CI-kzFwPOBtbOqog)
+
+Rosemi [【UNARCHIVED】SINGING SONGS FROM MAGICAL GIRL ANIME【KARAOKE】【NIJISANJI EN _ ROSEMI LOVELOCK】](https://mega.nz/folder/zzhxCJ5C#qViJRAAbXv0kyQHI0XZ7TA)
+
+Pomu [【UNARCHIVED ENGLISH KARAOKE】LETS SING!!!【NIJISANJI EN _ Pomu Rainpuff】](https://drive.google.com/file/d/1W6DD-Z57daNMuWQTttCRAcZPa_nwvN0g/view)
+
+Vox [【522K KARAOKE】This one's for you, kindred!【NIJISANJI EN _ Vox Akuma】](https://mega.nz/folder/8oN3SSrJ#YGVmSBTRnqGhN5FSaLCM1g)
+
+Finana  [【300K UNARCHIVED ENGLISH KARAOKE】 NOSTALGIA TIME 【NIJISANJI EN _ Finana Ryugu】](https://drive.google.com/file/d/1nqY5Kje5-5kmYGaqAwDdqIpjrehSuotG/view)
+
+Elira [【UNARCHIVED ENGLISH KARAOKE】 we're all in this together 【NIJISANJI EN _ Elira Pendora】](https://drive.google.com/file/d/1KTJfN4xc5fCU1bdx1FW8qzsWLCIdKoU_/view)</blockquote><blockquote>HOLOLIVE karaoke archive
+
+[HOLOLIVE EN karaoke archive](https://mega.nz/folder/kMwFDayC#KOOmK3YRPCOLfm9oVD282w/folder/ZURSBBqS)
+[HOLOLIVE ID karaoke archive](https://mega.nz/folder/kMwFDayC#KOOmK3YRPCOLfm9oVD282w/folder/8ZYAkDQb)</blockquote>
+</blockquote>
+
