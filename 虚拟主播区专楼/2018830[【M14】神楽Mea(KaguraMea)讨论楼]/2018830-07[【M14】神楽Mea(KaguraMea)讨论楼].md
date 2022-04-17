@@ -12501,3 +12501,12 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 我可不相信一个主播家里连备用的麦克风都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 10317#       发表于 2022-4-17 23:31
+
+希望这个备用旧麦用久点，就爱听你咩姐敲键盘点鼠标的声音<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
