@@ -12469,3 +12469,26 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 ？好奶
 
+
+
+*****
+
+####  thisisaspider  
+##### 10313#       发表于 2022-4-17 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10314#       发表于 2022-4-17 22:13
+
+这直播走的也太突然了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 10315#       发表于 2022-4-17 22:22
+
+突然有事吧，就鸽了，就是这间隔有点短<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
