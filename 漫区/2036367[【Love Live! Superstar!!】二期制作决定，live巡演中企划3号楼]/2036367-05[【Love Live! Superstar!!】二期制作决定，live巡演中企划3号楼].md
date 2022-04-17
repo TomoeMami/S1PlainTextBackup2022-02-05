@@ -13379,3 +13379,19 @@ sif敢抽卡啊
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  lj205  
+##### 6952#       发表于 2022-4-17 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 6953#       发表于 2022-4-17 20:33
+
+鲤鱼终于挽回了英名，菜宝被低电量断了全连，staff好好检查认设备啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
