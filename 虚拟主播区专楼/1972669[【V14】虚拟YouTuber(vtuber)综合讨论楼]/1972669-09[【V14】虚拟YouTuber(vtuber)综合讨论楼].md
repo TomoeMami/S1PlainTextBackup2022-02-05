@@ -3390,3 +3390,12 @@ king太有节目效果了
 或世要真是演的还挺下力气的。
 之前看他和水无濑双排的时候就是个拿着三重的纯混子。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 12314#       发表于 2022-4-17 21:32
+
+这个或世感觉在最后几天的训练赛里就已经很强了，还挺突然的，我一直以为他们那队的8分选手是他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
