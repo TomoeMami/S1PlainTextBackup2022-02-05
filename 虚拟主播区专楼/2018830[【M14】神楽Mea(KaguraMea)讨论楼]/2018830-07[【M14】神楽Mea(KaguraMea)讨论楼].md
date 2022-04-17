@@ -12531,3 +12531,15 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 赠品马卡古拉咩阿</blockquote>
 这东西是直播吗，看了一下黄兔子那边没录播，想姑且看看有没有肥婆声音
 
+
+
+*****
+
+####  T_Hb  
+##### 10320#       发表于 2022-4-18 00:55
+
+ 本帖最后由 T_Hb 于 2022-4-18 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55489740&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-4-18 00:51</a>
+这东西是直播吗，看了一下黄兔子那边没录播，想姑且看看有没有肥婆声音 ...</blockquote>
+是直播，选马而已，没有声音，发了几条评论，录播油管又没删，最后没人要，allin一把组长输了勉为其难收下了
+
