@@ -3210,3 +3210,27 @@ zeta淘汰tl步入冰岛大师赛6强，就这势头下次就是valo最协了吧
 
 跟ina几乎同时开玩环，一个月下来进度被她不知道甩到哪里了，现在还联动大棒无骨灰打大树，心态和技术一如既往（指出道hades）的好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12296#       发表于 2022-4-17 15:39
+
+什么时候打
+
+<img src="https://img.saraba1st.com/forum/202204/17/153929bynd8v5s5avadyyy.png" referrerpolicy="no-referrer">
+
+<strong>i smell blood.png</strong> (52.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-17 15:39 上传
+
+*****
+
+####  IDIDIDID  
+##### 12297#       发表于 2022-4-17 15:43
+
+新王对旧王宣战了
+
