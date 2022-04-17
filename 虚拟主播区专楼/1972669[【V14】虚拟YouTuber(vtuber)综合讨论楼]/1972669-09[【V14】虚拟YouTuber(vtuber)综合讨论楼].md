@@ -3234,3 +3234,14 @@ zeta淘汰tl步入冰岛大师赛6强，就这势头下次就是valo最协了吧
 
 新王对旧王宣战了
 
+
+
+*****
+
+####  fastary  
+##### 12298#       发表于 2022-4-17 17:15
+
+身体还是很诚实地打开了直播间<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+只要我是黑听打击就不会那么大<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
