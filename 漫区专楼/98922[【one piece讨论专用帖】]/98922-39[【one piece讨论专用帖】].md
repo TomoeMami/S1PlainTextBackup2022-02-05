@@ -10741,3 +10741,25 @@ image.png
 
 团战好像只有奥兹路飞那
 
+
+
+*****
+
+####  C男人  
+##### 57892#       发表于 2022-4-17 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55476357&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-4-16 20:23</a>
+
+太坚持1对1了
+
+我印象里海贼打败对手，就没用过团战的手段
+
+团战好像只有奥兹路飞那 ...</blockquote>
+漫画里很少越级打怪，
+
+要么是青雏、大熊这种 “大家一起上，一起被秒掉。”
+
+要么是老沙、火鸡这种 “努努力还是能打赢的”。
+
+这么一想，七武海之间的实力差距可真大。
+
