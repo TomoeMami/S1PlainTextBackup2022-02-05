@@ -12492,3 +12492,12 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 突然有事吧，就鸽了，就是这间隔有点短<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10316#       发表于 2022-4-17 22:37
+
+我可不相信一个主播家里连备用的麦克风都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
