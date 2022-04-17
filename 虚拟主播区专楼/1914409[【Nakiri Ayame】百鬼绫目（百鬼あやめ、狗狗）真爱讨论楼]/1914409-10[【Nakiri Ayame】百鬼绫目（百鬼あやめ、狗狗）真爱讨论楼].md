@@ -6242,3 +6242,16 @@ mio香羊了 这下绫总和狐姨密接了
 
 但是绫没拿到第十六名 和奖品无缘<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 14126#       发表于 2022-4-18 07:40
+
+[https://youtu.be/hU1Jmp0k3pg?t=1500](https://youtu.be/hU1Jmp0k3pg?t=1500)
+
+又提了一次绫总，说第一次认识是在Pokemon大会，感觉两个人很像，都很喜欢哈利波特，特别是火焰杯，喜欢的电影也很像
+
+觉得虎鲸和绫总的笑点很像，所以之后还想拉虎鲸三人联动
+
