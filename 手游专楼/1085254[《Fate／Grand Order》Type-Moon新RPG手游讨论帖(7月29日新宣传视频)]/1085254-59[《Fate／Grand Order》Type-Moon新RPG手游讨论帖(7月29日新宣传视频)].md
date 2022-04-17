@@ -7525,3 +7525,25 @@ Arts 3hit</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们这么欧，我们玩得是一个游戏吗
 
+
+
+*****
+
+####  qixinno2  
+##### 87654#       发表于 2022-4-17 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55483931&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-17 15:29</a>
+
+为什么你们这么欧，我们玩得是一个游戏吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">说的就跟你不欧一样
+
+*****
+
+####  alucardcz  
+##### 87655#       发表于 2022-4-17 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55485352&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-17 18:10</a>
+
+说的就跟你不欧一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不是我没有
+

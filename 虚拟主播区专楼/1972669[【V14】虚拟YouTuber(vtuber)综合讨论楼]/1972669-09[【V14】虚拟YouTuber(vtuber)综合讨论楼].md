@@ -3291,3 +3291,26 @@ Elira [【UNARCHIVED ENGLISH KARAOKE】 we're all in this together 【NIJISANJI 
 [HOLOLIVE ID karaoke archive](https://mega.nz/folder/kMwFDayC#KOOmK3YRPCOLfm9oVD282w/folder/8ZYAkDQb)</blockquote>
 </blockquote>
 
+
+
+*****
+
+####  fastary  
+##### 12302#       发表于 2022-4-17 18:08
+
+第一局0杀10位<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">虽然死的快但也躲得好，不是垫底就是胜利
+
+*****
+
+####  rzrbtk  
+##### 12303#       发表于 2022-4-17 18:31
+
+ib这靓仔新衣装<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">，就算输垫底也有心情快乐打枪了吧
+
+*****
+
+####  tiro_finale  
+##### 12304#       发表于 2022-4-17 18:33
+
+看到aqua十万同接点进去一看就是寄中寄
+

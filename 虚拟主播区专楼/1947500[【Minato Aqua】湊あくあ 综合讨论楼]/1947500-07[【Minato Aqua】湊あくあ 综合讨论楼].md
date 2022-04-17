@@ -454,3 +454,123 @@ Startendよ、永遠に！
 
 实力可以一战，剩下就看天时地利了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">冲啊
 
+
+
+*****
+
+####  面具13  
+##### 9057#       发表于 2022-4-17 18:02
+
+垫了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 9058#       发表于 2022-4-17 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55484623&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2022-4-17 17:02</a>
+
+楼友别奶了，就算奶倒数第一该来的还会来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 9059#       发表于 2022-4-17 18:02
+
+19还是20来着。233
+
+*****
+
+####  fangjun96  
+##### 9060#       发表于 2022-4-17 18:04
+
+垫了，盲飞葛大爷<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zpy393  
+##### 9061#       发表于 2022-4-17 18:08
+
+这样垫了我突然就不怎么紧张了，果然没期待就没压力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 9062#       发表于 2022-4-17 18:09
+
+虽然垫了，但策略是正确的，前几回的经验告诉我们，抢到葛叶队的选点就能进决赛圈，继续！塔塔开！
+
+*****
+
+####  梅斯之围  
+##### 9063#       发表于 2022-4-17 18:10
+
+这飞的点是夸自己标的吧，全责
+
+*****
+
+####  面具13  
+##### 9064#       发表于 2022-4-17 18:13
+
+选点没问题，那个楼那么多层，可以容纳两三队一起苟的，只是夜见队同时落在一块，对面也是喜欢打架的队，直接两败俱伤，送给敌台king了
+
+*****
+
+####  梅斯之围  
+##### 9065#       发表于 2022-4-17 18:18
+
+不是，飞太晚了
+
+*****
+
+####  Maonpuyo  
+##### 9066#       发表于 2022-4-17 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁给你的自信最后一个进圈抢最好的点啊，指挥全责
+
+*****
+
+####  离魂仙  
+##### 9067#       发表于 2022-4-17 18:26
+
+T：GLHF
+
+A：规矩是垫底的发这个？
+
+你当GG了是吧，这嘴一张就是晦气话<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">垫定了
+
+*****
+
+####  面具13  
+##### 9068#       发表于 2022-4-17 18:30
+
+无了，不敢看了。去看另一个水子哥，晚点回来看结果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 9069#       发表于 2022-4-17 18:30
+
+ 本帖最后由 梅斯之围 于 2022-4-17 18:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关了吧没意思。同接掉了两万多
+
+syl冲到脸上慌的一批
+
+*****
+
+####  Maonpuyo  
+##### 9070#       发表于 2022-4-17 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二把就没什么好说的了，纯菜
+
+*****
+
+####  离魂仙  
+##### 9071#       发表于 2022-4-17 18:32
+
+哦嚯，绷不住了。towa大脑短路，夸吓到动作都走形了，第一次看见她鼠标停转<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
