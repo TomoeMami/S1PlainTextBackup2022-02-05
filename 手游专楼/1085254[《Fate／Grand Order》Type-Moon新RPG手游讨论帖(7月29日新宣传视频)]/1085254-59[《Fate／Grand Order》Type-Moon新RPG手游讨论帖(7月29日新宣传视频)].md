@@ -7509,3 +7509,19 @@ Arts 3hit</blockquote>
 
 为什么你们这么欧，我们玩得是一个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87652#       发表于 2022-4-17 15:11
+
+楼里到处是欧气啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87653#       发表于 2022-4-17 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们这么欧，我们玩得是一个游戏吗
+
