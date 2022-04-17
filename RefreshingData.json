@@ -1973,7 +1973,7 @@
     "newtitle": "[大飞机现在是什么进度了]",
     "lastedit": 1649628744,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2062790": {
     "totalreply": 82,
@@ -3640,10 +3640,10 @@
     "active": true
   },
   "2064590": {
-    "totalreply": 2627,
+    "totalreply": 2629,
     "title": "[上海疫情#5]",
     "newtitle": "[上海疫情#5]",
-    "lastedit": 1650232904,
+    "lastedit": 1650234156,
     "category": "外野",
     "active": true
   },
