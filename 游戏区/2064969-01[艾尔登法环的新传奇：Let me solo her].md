@@ -722,3 +722,15 @@ XX者不符合汉语取名习惯
 
 楼上的有不少人忽略了他作为勾指，会有因为网络延迟导致吃瘪的情况，跟单机玩是不一样的。所以选择更稳的打法非常合理。
 
+
+
+*****
+
+####  维克塔利昂  
+##### 69#       发表于 2022-4-18 15:11
+
+打得稳保守也有人喷，笑了。
+这个真可可以你行你上的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
