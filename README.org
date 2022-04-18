@@ -29,7 +29,7 @@
     - webp
 - 评分
 
- ** 脚本使用须知
+** 脚本使用须知
 
 - 为确保可被GitHub网页渲染，单个文件大小需控制在1M以内，故以50页为限，拆分成多个文件。
 - 如需要本地图文备份，请采用这个备份工具：[S1Downloader](https://github.com/shuangluoxss/Stage1st-downloader)
