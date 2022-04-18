@@ -665,3 +665,12 @@ XX者不符合汉语取名习惯
 看了楼里的评论，只能说国内社区诞生不了壶哥这样的meme。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内网络就已经千奇百怪了，联机都不能稳定指望啥
 
+
+
+*****
+
+####  里神经  
+##### 63#       发表于 2022-4-18 14:00
+
+其实这个id我第一眼看到，更多的是感受到一种魂三太阳打黑龙的绝望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
