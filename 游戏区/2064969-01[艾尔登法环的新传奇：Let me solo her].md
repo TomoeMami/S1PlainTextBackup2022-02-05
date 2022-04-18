@@ -890,3 +890,17 @@ XX者不符合汉语取名习惯
 
 不愧是泥潭啊，这么正能量的一个梗科普帖，一群人对着昵称吵了起来，另一群人对着穿不穿装备打得快不快吵了起来
 
+
+
+*****
+
+####  mowind  
+##### 84#       发表于 2022-4-19 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55486454&amp;ptid=2064969" target="_blank">FLZB 发表于 2022-4-17 19:44</a>
+
+作为一个战技复读人看他这个纯近战solo就感觉女武神更加恶臭了，全程看表演，很难有出手的机会。二阶段影分 ...</blockquote>
+法环几个攻击欲望强的boss，不都是经常看表演么？黑剑、荷莱露、拉达冈，甚至熔炉骑士，发起疯来你都得看表演。而且法环的AI就是这么弱智，荷莱露一样5连踩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+女武神可以纯翻滚可以弹反可以举盾，各种流派都可以来挑战。招式多变但起手非常明显，普通招数伤害不算特别高（相较黑剑、荷莱露这种温柔多了），大招必杀但可以靠技术完美躲，此外人形怪、低韧、吃异常，所以可以和玩家打的有来有回，算是法环里难得有交互感的boss了，我觉得是本作最佳<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
