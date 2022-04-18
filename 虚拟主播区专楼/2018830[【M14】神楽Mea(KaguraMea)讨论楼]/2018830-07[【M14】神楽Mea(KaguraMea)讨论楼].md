@@ -12594,3 +12594,14 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人的都唱了，就是不唱自己的
 
+
+
+*****
+
+####  Cushaw  
+##### 10326#       发表于 2022-4-18 17:52
+
+对社畜很友好，suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
