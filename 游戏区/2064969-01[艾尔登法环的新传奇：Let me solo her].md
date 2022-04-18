@@ -674,3 +674,35 @@ XX者不符合汉语取名习惯
 
 其实这个id我第一眼看到，更多的是感受到一种魂三太阳打黑龙的绝望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  重巡羊舰  
+##### 64#       发表于 2022-4-18 14:24
+
+ 本帖最后由 重巡羊舰 于 2022-4-18 14:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55486435&amp;ptid=2064969" target="_blank">魔法酪饼 发表于 2022-4-17 19:42</a>
+
+非常高，只要他战技配的是猎犬步伐，再配上双出血武器（太刀系几乎没有不带出血的），即使是初见 ...</blockquote>
+没带猎犬，冰冻打刀+尸山血海，纯靠翻滚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有个问题，这女武神回血到底啥机制，我看视频里他没被砍到一刀，但女武神有几次血量往上跳了，女武神被砍了也会回血嘛……
+
+*****
+
+####  傲慢的空想家X  
+##### 65#       发表于 2022-4-18 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55494506&amp;ptid=2064969" target="_blank">重巡羊舰 发表于 2022-4-18 14:24</a>
+没带猎犬，冰冻打刀+尸山血海，纯靠翻滚还有个问题，这女武神回血到底啥机制，我看视频里他没被砍 ...</blockquote>
+网络不稳定吧
+
+*****
+
+####  ChrisSnake  
+##### 66#       发表于 2022-4-18 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55493038&amp;ptid=2064969" target="_blank">modkingr 发表于 2022-4-18 12:08</a>
+
+你这说的什么怪话，人家是来帮忙萌新过boss的又不是来打高观赏度视频然后发b站炒作寻求流量的，分清楚主 ...</blockquote>
+帮萌新过boss需要不穿盔甲？ 需要两把辣鸡武器？ 需要不上buff？ 需要无伤？
+
