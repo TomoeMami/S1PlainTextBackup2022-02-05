@@ -12855,3 +12855,31 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 起码4月8号是去掉了的
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10354#       发表于 2022-4-19 03:49
+
+ 本帖最后由 古战场亡魂 于 2022-4-19 04:19 编辑 
+
+ 要是JP电竞正面击败KR的话。怕不是日本要掀起瓦的狂欢了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/19/040057tpk9p446089xumzw.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220419040036934.jpg</strong> (6.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-19 04:00 上传
+
+360截图20220419034659633.jpg
+(6.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-19 03:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/19/034800uul3msij3z0j5n58.jpg" referrerpolicy="no-referrer">
+

@@ -904,3 +904,22 @@ XX者不符合汉语取名习惯
 
 女武神可以纯翻滚可以弹反可以举盾，各种流派都可以来挑战。招式多变但起手非常明显，普通招数伤害不算特别高（相较黑剑、荷莱露这种温柔多了），大招必杀但可以靠技术完美躲，此外人形怪、低韧、吃异常，所以可以和玩家打的有来有回，算是法环里难得有交互感的boss了，我觉得是本作最佳<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ayre不发糖哟  
+##### 85#       发表于 2022-4-19 02:02
+
+为啥这种奇怪的东西会成为meme啊
+
+*****
+
+####  空集  
+##### 86#       发表于 2022-4-19 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55500883&amp;ptid=2064969" target="_blank">huoguo32 发表于 2022-4-19 00:54</a>
+
+不愧是泥潭啊，这么正能量的一个梗科普帖，一群人对着昵称吵了起来，另一群人对着穿不穿装备打得快不快吵了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">泥潭很多时候杠精或者钻牛角尖的劲真的让我觉得是真就现实性格如此还是故意巨魔
+
