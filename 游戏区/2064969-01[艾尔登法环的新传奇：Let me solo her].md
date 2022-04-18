@@ -734,3 +734,23 @@ XX者不符合汉语取名习惯
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  遗尿  
+##### 70#       发表于 2022-4-18 16:00
+
+我打也是希望自己solo，援助好几次都是打没几下房间主人自己就先挂了。
+
+*****
+
+####  DelayNoMore  
+##### 71#       发表于 2022-4-18 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55494537&amp;ptid=2064969" target="_blank">ChrisSnake 发表于 2022-4-18 14:27</a>
+帮萌新过boss需要不穿盔甲？ 需要两把辣鸡武器？ 需要不上buff？ 需要无伤？ ...</blockquote>
+不穿衣服就是为了轻身好翻滚躲避啊，而且武器又不止数值，距离和攻击模组也很重要啊，人家既然能一次就过，你还质疑那就没意思了
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
