@@ -12833,3 +12833,14 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜了，最后组长没放个nice boat片段，美中不足。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10352#       发表于 2022-4-19 00:48
+
+mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九条。
+
+前几天看好像还在来着。
+
