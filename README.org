@@ -10,24 +10,11 @@
 
 2022至今历史存档 https://github.com/TomoeMami/S1PlainTextArchive2022
 
-__2021年9月9日更新：发现S1对国外IP访问限速导致Action成功率大大下降，已转为国内服务器更新。__
+2021年9月9日更新：发现S1对国外IP访问限速导致Action成功率大大下降，已转为国内服务器更新。
 
 ** 全文搜索方式：
 
 限制频率为20次每分钟的简易网页搜索：http://175.27.249.201:8000/
-
-** 2021-01-08 增加GithubAction支持
-
-**** 触发方式
-
-- 每隔20分钟定时执行
-
-- 自定义：.github/workflows/S1.yaml 编辑
-
-**** 使用用法
-- 点击右上角 `Fork` 项目
-- `Settings` -> `Secrets` 中添加s1的账号Cookie
-    - `S1_COOKIE`：账号Cookie
 
 *** 目前支持的特殊效果
 
@@ -44,23 +31,6 @@ __2021年9月9日更新：发现S1对国外IP访问限速导致Action成功率�
 
  ** 脚本使用须知
 
-- 2021-08-16 每次更新帖子内容之前自动爬取前两页序号大于某固定值的帖子（防止单次挖坟），实现了部分的自动添加帖子自动更新。
-    - 还会自动删除掉状态为False且时间大于一个月的帖子。
-- `RefreshingData.json`的数据格式（可用`simpleadd.py`快速添加）：
-    - id：代表帖子id
-    - totalreply：新帖子为0
-    - title：代表帖子标题
-    - lastedit：代表最后更新时间
-    - category：代表放进哪个文件夹
-    - active：标为false的帖子不会被更新
 - 为确保可被GitHub网页渲染，单个文件大小需控制在1M以内，故以50页为限，拆分成多个文件。
-- 所有图片采取markdown格式链接，均为网络图片，不保证可用性。
-    - 如果加载不出来请采用网络加速手段，因为GitHub的markdown预览会把图片先自己缓存一次，所以你获取图片的来源就变成了GitHub了。
-    - 也可以把md文件下载到本地用本地markdown客户端进行预览，这样你就是直连的图片源。
-    - Gitee不会帮你缓存图片，会和本地markdown客户端一样直连图片源。
-- `sactive.py` 运行之后会把`RefreshingData.json`里的帖子一一比对，距离上次回帖1个月以内的帖子会设置为`"active": true`。
-- `sclean.py` 运行之后会把`RefreshingData.json`里的`"active": false`帖子全部删除，仅留`"active": true`帖子。
 - 如需要本地图文备份，请采用这个备份工具：[S1Downloader](https://github.com/shuangluoxss/Stage1st-downloader)
-- 代码写得很烂，还请多多包涵！如果有需要我保存的专楼，可以给我提issue或者在S1私信我。
 - 三号四号疫情专楼的备份来自于https://gitlab.com/memory-s1/virus
-- 2021-06-08 更新方式改为增量更新，如遇S1炸了出现大量【已归档】[]文件，则需完全回退，或利用`sactive.py`重新激活。
