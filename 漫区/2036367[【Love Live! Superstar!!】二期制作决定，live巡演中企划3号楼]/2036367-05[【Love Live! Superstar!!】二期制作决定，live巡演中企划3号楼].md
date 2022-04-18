@@ -13544,3 +13544,12 @@ C0FB6B72-875B-441B-8173-7EE52C68C238.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/18/180908c1xx5kswqz2yjxki.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 6958#       发表于 2022-4-18 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这娃太实诚了也
+

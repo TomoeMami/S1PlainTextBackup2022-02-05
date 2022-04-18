@@ -6255,3 +6255,12 @@ mio香羊了 这下绫总和狐姨密接了
 
 觉得虎鲸和绫总的笑点很像，所以之后还想拉虎鲸三人联动
 
+
+
+*****
+
+####  因为你不会  
+##### 14127#       发表于 2022-4-18 18:19
+
+绫总第一届比赛最后一局我现在都忘不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
