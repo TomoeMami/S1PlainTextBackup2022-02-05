@@ -12759,3 +12759,24 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗贝尔王也有罗贝尔阿
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10346#       发表于 2022-4-18 21:19
+
+剧本我已经知道了，mea选夸自己的，然后鉴定为假……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|欢乐多|
+
+查看全部评分
+
