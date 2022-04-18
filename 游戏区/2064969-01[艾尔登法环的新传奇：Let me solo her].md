@@ -797,3 +797,14 @@ XX者不符合汉语取名习惯
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看过视频 老哥真的稳 一刀都不贪
 
+
+
+*****
+
+####  msfan  
+##### 76#       发表于 2022-4-18 20:17
+
+神经啊，太阳战士求稳有什么问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
