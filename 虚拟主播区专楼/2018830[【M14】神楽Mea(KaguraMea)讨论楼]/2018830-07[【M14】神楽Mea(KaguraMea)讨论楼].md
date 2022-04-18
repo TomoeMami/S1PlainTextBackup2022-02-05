@@ -12614,3 +12614,49 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 完成度好高啊，这真的是旧麦吗？？
 
+
+
+*****
+
+####  T_Hb  
+##### 10328#       发表于 2022-4-18 18:40
+
+ 本帖最后由 T_Hb 于 2022-4-18 18:47 编辑 
+
+今天好持久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  恩造高音
+
+*****
+
+####  Mikumiku831  
+##### 10329#       发表于 2022-4-18 18:40
+
+这高音爽了
+
+*****
+
+####  aliade  
+##### 10330#       发表于 2022-4-18 18:46
+
+太过阳间社畜感到不适<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">她播完我都没下班
+
+*****
+
+####  古战场亡魂  
+##### 10331#       发表于 2022-4-18 18:47
+
+感觉这慢的比快的还难唱。
+
+*****
+
+####  掉头学姐  
+##### 10332#       发表于 2022-4-18 18:50
+
+这叫声我好了
+
+*****
+
+####  T_Hb  
+##### 10333#       发表于 2022-4-18 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行了
+
