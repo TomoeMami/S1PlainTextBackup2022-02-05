@@ -13553,3 +13553,12 @@ C0FB6B72-875B-441B-8173-7EE52C68C238.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这娃太实诚了也
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 6959#       发表于 2022-4-18 19:01
+
+这不是上个月中旬的采访么，刚出没多久就看到有人翻译了
+
