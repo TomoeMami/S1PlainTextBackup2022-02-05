@@ -808,3 +808,22 @@ XX者不符合汉语取名习惯
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  oyss  
+##### 77#       发表于 2022-4-18 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55494506&amp;ptid=2064969" target="_blank">重巡羊舰 发表于 2022-4-18 14:24</a>
+
+没带猎犬，冰冻打刀+尸山血海，纯靠翻滚还有个问题，这女武神回血到底啥机制，我看视频里他没被砍 ...</blockquote>
+网络卡了而已.重新跟主机同步血量
+
+*****
+
+####  oyss  
+##### 78#       发表于 2022-4-18 20:24
+
+开花的时候不冲上去换血,还是为了追求无伤吧.其实上去换效率更高.也完全没有风险.
+
