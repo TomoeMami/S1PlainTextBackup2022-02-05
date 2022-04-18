@@ -12743,3 +12743,19 @@ Poker Chase？这玩意应该也转播不了吧，b站连视频都少的很。�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10344#       发表于 2022-4-18 21:01
+
+等会，这最强神乐mea王，mea自己也参赛啊？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10345#       发表于 2022-4-18 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗贝尔王也有罗贝尔阿
+
