@@ -754,3 +754,15 @@ XX者不符合汉语取名习惯
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  魔人揪揪  
+##### 72#       发表于 2022-4-18 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55484995&amp;ptid=2064969" target="_blank">茶卡特尔 发表于 2022-4-17 17:41</a>
+
+一直想问一个问题，为什么这代的褪色者要昵称“阿褪”？我寻思，不死人也不叫阿死，灰烬也不叫阿灰，猎人也 ...</blockquote>
+因为环破圈了 有一堆奇奇怪怪的人进来 叫了个让人脚趾扣地板的昵称
+
