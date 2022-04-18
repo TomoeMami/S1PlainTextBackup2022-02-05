@@ -923,3 +923,13 @@ XX者不符合汉语取名习惯
 不愧是泥潭啊，这么正能量的一个梗科普帖，一群人对着昵称吵了起来，另一群人对着穿不穿装备打得快不快吵了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">泥潭很多时候杠精或者钻牛角尖的劲真的让我觉得是真就现实性格如此还是故意巨魔
 
+
+
+*****
+
+####  platina  
+##### 87#       发表于 2022-4-19 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55501234&amp;ptid=2064969" target="_blank"> 空集 发表于 2022-4-19 03:00</a> 引用:huoguo32 发表于 2022-4-19 00:54 不愧是泥潭啊，这么正能量的一个梗科普帖，一群人对着昵称吵了起来，另一群人对着穿不穿装备打得快不快吵了 ... 泥潭很多时候杠精或者钻牛角尖的劲真的让我觉得是真就现实性格如此还是故意巨魔 </blockquote>
+不是的，真的是有傻逼的来自: iPhone客户端
+
