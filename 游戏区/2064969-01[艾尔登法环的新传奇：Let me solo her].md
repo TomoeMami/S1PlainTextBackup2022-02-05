@@ -1014,3 +1014,17 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  zakki  
+##### 95#       发表于 2022-4-19 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55502145&amp;ptid=2064969" target="_blank">维克塔利昂 发表于 2022-4-19 09:32</a>
+
+何来路ai有问题，经常复读机
+
+—— 来自 vivo V2118A, Android 12上的 S1Next-鹅版 v2.5.3 ...</blockquote>
+还好吧，可能会复读踩地，但触发几率体感不太高，而且那招还比较好躲，比女武神复读四连斩好上不少
+
