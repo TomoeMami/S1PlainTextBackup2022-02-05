@@ -13044,3 +13044,15 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 主播游戏力这提升有点快啊……
 
+
+
+*****
+
+####  ashero  
+##### 10371#       发表于 2022-4-19 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55509306&amp;ptid=2018830" target="_blank">zc1996zc 发表于 2022-4-19 20:28</a>
+
+索尼这个项目无聊到炸，是不是日本人就喜欢这种</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">是运营喜欢吧
+
