@@ -950,3 +950,14 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 不服的自己去摆摊试试，不会真的有人要求"不敢表演速杀也敢出来摆摊"吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rinne70  
+##### 89#       发表于 2022-4-19 08:25
+
+挺好一事也能扯东扯西，泥潭婆罗门的劣根性展露无遗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
