@@ -990,3 +990,14 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 没想到这事也有巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 93#       发表于 2022-4-19 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55501116&amp;ptid=2064969" target="_blank">mowind 发表于 2022-4-19 01:49</a>
+法环几个攻击欲望强的boss，不都是经常看表演么？黑剑、荷莱露、拉达冈，甚至熔炉骑士，发起疯来你都得看 ...</blockquote>
+黑剑，何莱露还粪吗，但黑剑有些招连滚都不用滚，走都能走出范围，招数大开大合。何莱露除了那个疯狂乱抓，其他招数躲起来都非常有节奏感。可能我理解有些偏差，这俩打起来的互动感和节奏感可比耍赖出快刀和水鸟的女武神强多了
+
