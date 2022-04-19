@@ -3470,3 +3470,14 @@ king太有节目效果了
 
 本来很烦看en当数字厨瞧不起本社的en粉，突然觉得也挺好，不可名状的怪物还是锁在en那边别过来了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  11512  
+##### 12322#       发表于 2022-4-19 19:13
+
+[https://www.youtube.com/watch?v=MwIMoOz_m5w](https://www.youtube.com/watch?v=MwIMoOz_m5w)
+
+委员长这powerplay还上趋势了。。。
+
