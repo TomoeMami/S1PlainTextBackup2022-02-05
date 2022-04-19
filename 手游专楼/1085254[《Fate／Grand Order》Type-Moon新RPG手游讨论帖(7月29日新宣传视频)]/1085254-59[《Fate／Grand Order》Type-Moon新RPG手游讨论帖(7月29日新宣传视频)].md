@@ -7568,3 +7568,24 @@ Arts 3hit</blockquote>
 
 草，日元跌到4字头了，有氪金的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 87658#       发表于 2022-4-19 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55502212&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-4-19 09:38</a>
+草，日元跌到4字头了，有氪金的冲动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">求个课金路子….日服萌新一直找不到课金办法
+
+*****
+
+####  khxooo  
+##### 87659#       发表于 2022-4-19 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55508783&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2022-4-19 19:34</a>
+
+求个课金路子….日服萌新一直找不到课金办法</blockquote>
+代充，或者JCB，我个人是代充的。充了几次福袋都没问题。
+
