@@ -1073,3 +1073,15 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 玩家社区活跃的游戏真好啊，每天都有乐子，哪怕游戏已卸载.
 
+
+
+*****
+
+####  FLZB  
+##### 101#       发表于 2022-4-19 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55501116&amp;ptid=2064969" target="_blank">mowind 发表于 2022-4-19 01:49</a>
+
+法环几个攻击欲望强的boss，不都是经常看表演么？黑剑、荷莱露、拉达冈，甚至熔炉骑士，发起疯来你都得看 ...</blockquote>
+所以这作都是排泄物啊，从小怪到boss都是。女武神我用大剑也没觉得能有来有回，一刀下去人还没站起来她就可以突然给我一套，我血条蒸发不说她刚才被砍掉的又吸回来了。几个回合下来我只看到满屏的不讲道理，最后只想赶紧用战技把她轰杀拿针走人。
+
