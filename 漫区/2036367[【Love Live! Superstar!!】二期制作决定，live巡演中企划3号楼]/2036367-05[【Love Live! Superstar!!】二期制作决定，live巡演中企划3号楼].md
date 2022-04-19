@@ -13572,3 +13572,12 @@ C0FB6B72-875B-441B-8173-7EE52C68C238.jpeg
 草，伪史
 [https://www.bilibili.com/video/BV1194y1d7CV](https://www.bilibili.com/video/BV1194y1d7CV)
 
+
+
+*****
+
+####  starring  
+##### 6961#       发表于 2022-4-19 22:35
+
+nako在广播里即兴唱的歌太可爱，一定要听啊<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
