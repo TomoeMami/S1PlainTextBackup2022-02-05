@@ -12999,3 +12999,39 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 —— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10366#       发表于 2022-4-19 20:23
+
+ 本帖最后由 古战场亡魂 于 2022-4-19 20:26 编辑 
+
+主播的游戏力有很大的提升空间。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">苔苔那样不行吗？
+
+*****
+
+####  T_Hb  
+##### 10367#       发表于 2022-4-19 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骗关注
+
+*****
+
+####  zc1996zc  
+##### 10368#       发表于 2022-4-19 20:28
+
+索尼这个项目无聊到炸，是不是日本人就喜欢这种
+
+*****
+
+####  路人庚  
+##### 10369#       发表于 2022-4-19 20:29
+
+油管的推流和b站的推流居然不一样可还行
+
+油管是那个男主播在推流，b站是阿咩在推流
+
+四舍五入这简直是b限（x
+
