@@ -13056,3 +13056,14 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 索尼这个项目无聊到炸，是不是日本人就喜欢这种</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">是运营喜欢吧
 
+
+
+*****
+
+####  往世雷书  
+##### 10372#       发表于 2022-4-19 21:22
+
+可以肯定的是运营不是天狗，一点事业心没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
