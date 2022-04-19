@@ -981,3 +981,12 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 做人還是多點正能量吧,這事不挺好的嗎
 
+
+
+*****
+
+####  lighttt  
+##### 92#       发表于 2022-4-19 09:03
+
+没想到这事也有巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
