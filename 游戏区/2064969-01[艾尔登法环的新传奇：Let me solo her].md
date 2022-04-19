@@ -1120,3 +1120,21 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  梁山伯与猪硬来  
+##### 105#       发表于 2022-4-19 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55507136&amp;ptid=2064969" target="_blank">小李子大脸猫 发表于 2022-4-19 17:04</a>
+
+熊猫一开始指的是小熊猫，而不是很多人认为的大熊猫。你说这是熊还是猫 ...</blockquote>
+我说的是大熊猫，你非要转进小熊猫。
+
+这能有多大关系？一开始地心说还是世界主流呢，就不能改改？
+
+我看以前竹熊这个名字就挺好。
+
+名称要取的方便易理解。
+
