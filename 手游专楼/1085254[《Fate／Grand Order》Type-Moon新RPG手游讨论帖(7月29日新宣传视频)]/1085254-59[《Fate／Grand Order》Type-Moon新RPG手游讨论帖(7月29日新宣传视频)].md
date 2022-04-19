@@ -7559,3 +7559,12 @@ Arts 3hit</blockquote>
 我不是我没有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别装了 大家都知道你有多狗
 
+
+
+*****
+
+####  khxooo  
+##### 87657#       发表于 2022-4-19 09:38
+
+草，日元跌到4字头了，有氪金的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
