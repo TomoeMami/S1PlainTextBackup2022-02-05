@@ -13562,3 +13562,13 @@ C0FB6B72-875B-441B-8173-7EE52C68C238.jpeg
 
 这不是上个月中旬的采访么，刚出没多久就看到有人翻译了
 
+
+
+*****
+
+####  礼央破流堂  
+##### 6960#       发表于 2022-4-19 10:50
+
+草，伪史
+[https://www.bilibili.com/video/BV1194y1d7CV](https://www.bilibili.com/video/BV1194y1d7CV)
+
