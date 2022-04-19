@@ -1138,3 +1138,19 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 
 名称要取的方便易理解。
 
+
+
+*****
+
+####  小李子大脸猫  
+##### 106#       发表于 2022-4-19 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55507364&amp;ptid=2064969" target="_blank">梁山伯与猪硬来 发表于 2022-4-19 17:21</a>
+
+我说的是大熊猫，你非要转进小熊猫。
+
+这能有多大关系？一开始地心说还是世界主流呢，就不能改改？
+
+我看以 ...</blockquote>
+因为大熊猫这命名称呼本来就是套的小熊猫的套娃啊
+
