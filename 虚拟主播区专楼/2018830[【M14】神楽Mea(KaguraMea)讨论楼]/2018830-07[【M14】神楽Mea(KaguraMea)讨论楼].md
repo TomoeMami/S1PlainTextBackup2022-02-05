@@ -12939,3 +12939,16 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没区别
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10361#       发表于 2022-4-19 18:28
+
+虽然很sad，但是这是主播自己不养游戏民的错。
+
+糖豆人国内真的是过气到没法再过气了。
+
+3个人，嘉宾是apex常客，不选apex令人迷惑。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
