@@ -1154,3 +1154,31 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 我看以 ...</blockquote>
 因为大熊猫这命名称呼本来就是套的小熊猫的套娃啊
 
+
+
+*****
+
+####  梁山伯与猪硬来  
+##### 107#       发表于 2022-4-19 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55507597&amp;ptid=2064969" target="_blank">小李子大脸猫 发表于 2022-4-19 17:40</a>
+
+因为大熊猫这命名称呼本来就是套的小熊猫的套娃啊</blockquote>
+so what？这名字就算是爱因斯坦他爹取的，也是明显和事实不符的东西了。
+
+每个小朋友重新学习这个知识点的时候，都要额外付出成本去理解和记忆完全没有必要的信息。
+
+何必呢？
+
+*****
+
+####  小李子大脸猫  
+##### 108#       发表于 2022-4-19 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55507673&amp;ptid=2064969" target="_blank">梁山伯与猪硬来 发表于 2022-4-19 17:47</a>
+
+so what？这名字就算是爱因斯坦他爹取的，也是明显和事实不符的东西了。
+
+每个小朋友重新学习这个知识点 ...</blockquote>
+那就不存在所谓的“熊猫不改回猫熊这个正确的叫法”这回事，就这么大点事
+
