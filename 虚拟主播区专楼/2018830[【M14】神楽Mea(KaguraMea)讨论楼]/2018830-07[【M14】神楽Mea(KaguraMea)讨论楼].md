@@ -12952,3 +12952,24 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 3个人，嘉宾是apex常客，不选apex令人迷惑。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10362#       发表于 2022-4-19 18:45
+
+没办法，她不喜欢打游戏，又不是粉丝打钱点播游戏就直接开的类型。所有的游戏兴趣都已经在出道第一年耗光了，那时候她玩fps，mc，方块，任天堂游戏，充满了功利性。现在？现在谁还伺候你们<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古战场亡魂  
+##### 10363#       发表于 2022-4-19 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55508353&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-19 18:45</a>
+
+她不喜欢打游戏，又不是粉丝打钱点播游戏就直接开的类型，所有的游戏兴趣都已经在出道第一年耗光了。那时候 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
