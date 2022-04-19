@@ -7589,3 +7589,14 @@ Arts 3hit</blockquote>
 求个课金路子….日服萌新一直找不到课金办法</blockquote>
 代充，或者JCB，我个人是代充的。充了几次福袋都没问题。
 
+
+
+*****
+
+####  johnkamsar  
+##### 87660#       发表于 2022-4-19 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55508810&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-4-19 19:36</a>
+代充，或者JCB，我个人是代充的。充了几次福袋都没问题。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">介绍个下路子？
+
