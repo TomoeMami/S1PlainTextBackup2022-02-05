@@ -1097,3 +1097,26 @@ Reddit一直都有针对某些boss联机写let me solo her的PSA，包括不限�
 熊猫与猫熊的民国叫法争论，国内早就辟过谣了</blockquote>
 这用的着辟什么谣？明明就是熊，偏偏要叫猫。
 
+
+
+*****
+
+####  小李子大脸猫  
+##### 103#       发表于 2022-4-19 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55507013&amp;ptid=2064969" target="_blank">梁山伯与猪硬来 发表于 2022-4-19 16:54</a>
+
+这用的着辟什么谣？明明就是熊，偏偏要叫猫。</blockquote>
+熊猫一开始指的是小熊猫，而不是很多人认为的大熊猫。你说这是熊还是猫
+
+*****
+
+####  寅就一个字  
+##### 104#       发表于 2022-4-19 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55484995&amp;ptid=2064969" target="_blank">茶卡特尔 发表于 2022-4-17 17:41</a>
+一直想问一个问题，为什么这代的褪色者要昵称“阿褪”？我寻思，不死人也不叫阿死，灰烬也不叫阿灰，猎人也 ...</blockquote>
+顺口？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
