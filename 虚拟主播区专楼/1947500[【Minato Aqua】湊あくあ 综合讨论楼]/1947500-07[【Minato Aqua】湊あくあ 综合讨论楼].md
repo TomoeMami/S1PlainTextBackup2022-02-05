@@ -857,3 +857,14 @@ APEX 封印！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">又要摸一阵子了
 
+
+
+*****
+
+####  Scardy  
+##### 9100#       发表于 2022-4-19 14:37
+
+意料之中
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
