@@ -7874,3 +7874,15 @@ WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
 
 大王强化太棒了，最早的二宝，开服时都是靠这个砍过去的
 
+
+
+*****
+
+####  qixinno2  
+##### 87687#       发表于 2022-4-20 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523439&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-20 22:22</a>
+
+也有可能WYS本身就是个幌子，压根不存在这个人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">人人都是WYS 全是点子大师
+
