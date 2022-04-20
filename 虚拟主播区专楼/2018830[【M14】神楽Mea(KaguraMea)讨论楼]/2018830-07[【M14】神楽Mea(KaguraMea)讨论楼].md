@@ -13225,3 +13225,19 @@ fanart也是有时效性的好吧。<img src="https://static.saraba1st.com/image
 
 mea油管频道空荡荡的，没啥东西，打开犬山和组长的都是满版的联动……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  汇聚群光  
+##### 10389#       发表于 2022-4-20 19:32
+
+把她当接班人首先得让她加入anmr吧？
+
+*****
+
+####  clvan_  
+##### 10390#       发表于 2022-4-20 19:35
+
+你这就加戏太多了，单纯关系好罢了，相差也没多少岁接啥班，更何况你麻和黄兔子业务方向都不同
+
