@@ -7664,3 +7664,24 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 —— 来自 OnePlus GM ...</blockquote>
 已经算好了吧，年初看过一次代充还不如直接信用卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 87667#       发表于 2022-4-20 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55513928&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2022-4-20 09:21</a>
+
+我没信用卡</blockquote>
+没信用卡可以礼品卡，反正现在涉及money laundering的礼品卡比以前少了挺多了，就是iOS日区账号相关问题会稍微麻烦一点（再麻烦也比现在google容易
+
+
+
+*****
+
+####  qixinno2  
+##### 87668#       发表于 2022-4-20 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波强化的角色我一个没有 太棒了
+

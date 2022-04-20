@@ -3561,3 +3561,62 @@ vtb首冠
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  rzrbtk  
+##### 12330#       发表于 2022-4-20 15:57
+
+lr（暂时）复活！想去看串民反响结果发现不知何时黑称变成了红奇酷比，过分但又有点好笑…
+
+
+
+*****
+
+####  毛头小希  
+##### 12331#       发表于 2022-4-20 16:17
+
+ 本帖最后由 毛头小希 于 2022-4-20 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55518790&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-20 15:57</a>
+
+lr（暂时）复活！想去看串民反响结果发现不知何时黑称变成了红奇酷比，过分但又有点好笑… ...</blockquote>
+事件爆出来那会儿就叫红奇酷比了，事件之前则是叫红牛至<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">赤マラ 青マラ　マラノワ
+
+
+
+*****
+
+####  fastary  
+##### 12332#       发表于 2022-4-20 16:30
+
+该预言同接了(笑)感觉3w起步，或许上至10w也不是梦
+
+
+
+*****
+
+####  alcoholic1000  
+##### 12333#       发表于 2022-4-20 16:38
+
+<blockquote>Nipple Boy is back.</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qq845629713  
+##### 12334#       发表于 2022-4-20 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/20/164940xuf08mizj4sw8we4.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220420164914.png</strong> (37.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-20 16:49 上传
+
+机台完结是真的还是完结欺诈啊，
+

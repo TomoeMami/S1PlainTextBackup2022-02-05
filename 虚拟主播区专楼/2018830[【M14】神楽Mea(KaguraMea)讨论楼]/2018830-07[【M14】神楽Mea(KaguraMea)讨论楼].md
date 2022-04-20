@@ -13067,3 +13067,34 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10373#       发表于 2022-4-20 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还挑个工作日。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">接下来没什么大活的话也就是随机带带新人了，全员6人同台的话有点多，以后轮空休息的时间可能会多啊。
+
+*****
+
+####  T_Hb  
+##### 10374#       发表于 2022-4-20 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">好事，多来点歌回
+
+
+
+*****
+
+####  古战场亡魂  
+##### 10375#       发表于 2022-4-20 16:55
+
+ 本帖最后由 古战场亡魂 于 2022-4-20 17:02 编辑 
+
+推特上这个神楽めあBILIBILI転載是什么情况，隔了八百年的fanart再重复发，每天都在仿佛固定任务一样，本来不多的fanart池子都被污染了。
+
+fanart也是有时效性的好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我都记得的，mea肯定记得，反正我是觉得每天工作式的放一张旧图挺没意思的。
+
