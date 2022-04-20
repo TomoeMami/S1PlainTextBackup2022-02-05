@@ -608,3 +608,26 @@ lz为啥这么急。。。
 
 索尼是不是没活了，三天两头一传闻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  昆仑之巅  
+##### 62#       发表于 2022-4-20 10:49
+
+<img src="https://img.saraba1st.com/forum/202204/20/104905v9axy03393bzdz6h.jpg" referrerpolicy="no-referrer">
+
+<strong>1650396158895.jpg</strong> (164.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-4-20 10:49 上传
+
+*****
+
+####  昆仑之巅  
+##### 63#       发表于 2022-4-20 10:50
+
+没活可以去咬打火机。
+
