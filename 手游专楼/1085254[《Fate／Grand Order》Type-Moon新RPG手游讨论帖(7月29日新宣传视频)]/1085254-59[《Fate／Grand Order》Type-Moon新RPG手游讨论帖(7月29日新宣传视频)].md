@@ -7767,3 +7767,14 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 街机马修要开10绊100级了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87677#       发表于 2022-4-20 19:14
+
+这次自充都是30<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+加上初始20，能上50礼装开幕暴具了
+
