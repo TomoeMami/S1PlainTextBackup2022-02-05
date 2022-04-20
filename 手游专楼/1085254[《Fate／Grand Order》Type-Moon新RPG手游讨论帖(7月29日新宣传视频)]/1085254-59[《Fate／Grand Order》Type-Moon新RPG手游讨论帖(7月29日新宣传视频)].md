@@ -7809,3 +7809,25 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 现在五星剑光炮只有一个人没有自充了</blockquote>
 自充-10，怎么能叫没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87681#       发表于 2022-4-20 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523127&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-4-20 21:59</a>
+
+群冲也是自充</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高贵的群充
+
+*****
+
+####  qixinno2  
+##### 87682#       发表于 2022-4-20 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523137&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-20 22:00</a>
+
+自充-10，怎么能叫没有呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">215是不是这辈子都没机会强化了 毕竟上次强化还是街机联动活动给的
+
