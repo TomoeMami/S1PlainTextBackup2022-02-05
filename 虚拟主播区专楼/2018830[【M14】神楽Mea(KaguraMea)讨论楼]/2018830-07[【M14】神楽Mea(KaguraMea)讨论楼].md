@@ -13067,3 +13067,21 @@ mea 终于把油管频道里的 原本的神乐组 成员去了 就留了个 九
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10373#       发表于 2022-4-20 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还挑个工作日。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">接下来没什么大活的话也就是随机带带新人了，全员6人同台的话有点多，以后轮空休息的时间可能会多啊。
+
+*****
+
+####  T_Hb  
+##### 10374#       发表于 2022-4-20 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">好事，多来点歌回
+

@@ -10857,3 +10857,183 @@ image.png
 
 大蛇还在仰卧起坐呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 57901#       发表于 2022-4-20 11:47
+
+这两话让凯多讲的东西都是尾田画外音的意味比较多一点。结合剧情意味就比较微妙了。
+
+*****
+
+####  仟音一心  
+##### 57902#       发表于 2022-4-20 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55514692&amp;ptid=98922" target="_blank">真红眼教授 发表于 2022-4-20 10:23</a>
+大蛇还在仰卧起坐呢</blockquote>
+大蛇必须被桃之助的“天羽羽斩”砍倒，这就是尾田强迫症
+
+*****
+
+####  jxzeroga0  
+##### 57903#       发表于 2022-4-20 11:59
+
+勘十郎，我的超人！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幻之妖精  
+##### 57904#       发表于 2022-4-20 12:02
+
+大蛇还没有死，这样水剧情有什么意思啊
+
+*****
+
+####  Algie  
+##### 57905#       发表于 2022-4-20 12:04
+
+橡胶橡胶雷是什么玩意，艾尼路麻了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 57906#       发表于 2022-4-20 12:06
+
+翻页
+
+*****
+
+####  仟音一心  
+##### 57907#       发表于 2022-4-20 12:06
+
+翻页
+
+*****
+
+####  团结奋进碇真嗣  
+##### 57908#       发表于 2022-4-20 12:08
+
+-凯多说罗杰不是能力者，能力并非制霸世界必须之物。
+所以罗杰到了最终岛却啥也干不了
+
+*****
+
+####  klzxs  
+##### 57909#       发表于 2022-4-20 12:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">鬼岛往花之都飞是有作者的安排吧
+
+到目前为止和之国的民众还不知道现在的战斗
+
+甚至连大妈的爆炸都特意套了一层静音
+
+但终究不可能一直不知道
+
+不太猜的出会有什么具体安排
+
+不过大蛇大概会那个时候才被干掉吧
+
+*****
+
+####  gg326  
+##### 57910#       发表于 2022-4-20 12:46
+
+干部全灭，部下大半反水，现在岛上站着的几乎全是对面的人，搞不懂凯多还在花力气托着鬼岛干嘛，真是太温柔了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saturnus  
+##### 57911#       发表于 2022-4-20 13:39
+
+推荐一个b站UP主 阿金很忙，各种瞎扯吹水比正篇有趣多了
+
+*****
+
+####  武男  
+##### 57912#       发表于 2022-4-20 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55516719&amp;ptid=98922" target="_blank">gg326 发表于 2022-4-20 12:46</a>
+
+干部全灭，部下大半反水，现在岛上站着的几乎全是对面的人，搞不懂凯多还在花力气托着鬼岛干嘛，真是太温柔 ...</blockquote>
+“你尽可来试试看，哪怕我背负皇团，需一只手托着鬼岛，我凯多一样无敌世间！”
+
+*****
+
+####  Freemasons  
+##### 57913#       发表于 2022-4-20 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55517279&amp;ptid=98922" target="_blank">saturnus 发表于 2022-4-20 13:39</a>
+推荐一个b站UP主 阿金很忙，各种瞎扯吹水比正篇有趣多了</blockquote>
+因为他明白
+
+*****
+
+####  触手皇帝  
+##### 57914#       发表于 2022-4-20 14:01
+
+橡胶橡胶 雷
+
+哈哈哈哈哈哈哈哈哈哈随便吧尾田**的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 57915#       发表于 2022-4-20 14:13
+
+ 本帖最后由 klzxs 于 2022-4-20 16:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">凯多的部下是败了又不是死了
+
+砸下去才真没了
+
+不过目前看来凯多真的没力气的话确实鬼岛会掉下去
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">如果不是现在有桃之助备用，岂不是就算路飞打赢了凯多，岛上人也都得跌死
+
+*****
+
+####  sandrock  
+##### 57916#       发表于 2022-4-20 15:05
+
+橡胶橡胶 雷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  24k纯帅  
+##### 57917#       发表于 2022-4-20 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55517609&amp;ptid=98922" target="_blank">klzxs 发表于 2022-4-20 14:13</a>
+部下是败了又不是死了
+
+砸下去才真没了
+
+不过目前看来凯多真的没力气的话确实鬼岛会掉下去</blockquote>
+原计划毫不费劲打赢呀，y1s1，除了五皇这神仙果实，当世能和凯多五五开的也没几人
+
+*****
+
+####  klzxs  
+##### 57918#       发表于 2022-4-20 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55518710&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-4-20 15:52</a>
+
+原计划毫不费劲打赢呀，y1s1，除了五皇这神仙果实，当世能和凯多五五开的也没几人 ...</blockquote>
+啊，是想说如果没有桃之助催熟事件
+
+那路飞就算真把凯多打倒了岛上的大家也都得跌死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yinacona  
+##### 57919#       发表于 2022-4-20 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55518885&amp;ptid=98922" target="_blank">klzxs 发表于 2022-4-20 16:04</a>
+
+啊，是想说如果没有桃之助催熟事件
+
+那路飞就算真把凯多打倒了岛上的大家也都得跌死 ...</blockquote>
+最胡闹的果实来一个能让鬼岛安全着陆的橡胶气垫甚至是橡胶降落伞/滑翔伞也是很合理的（
+

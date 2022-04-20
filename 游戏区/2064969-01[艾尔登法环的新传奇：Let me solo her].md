@@ -1337,3 +1337,67 @@ so what？这名字就算是爱因斯坦他爹取的，也是明显和事实不�
 
 捋明白了再说。
 
+
+
+*****
+
+####  popchong  
+##### 121#       发表于 2022-4-20 11:55
+
+solo her哥是不是要陨落了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【1.04女武神重大恶性联机BUG，砍空气也能回血】《艾尔登法环》
+[https://b23.tv/nTth1rs](https://b23.tv/nTth1rs)
+
+*****
+
+####  不可避免  
+##### 122#       发表于 2022-4-20 11:57
+
+<blockquote>popchong 发表于 2022-4-20 11:55
+solo her哥是不是要陨落了
+
+【1.04女武神重大恶性联机BUG，砍空气也能回血】《艾尔登法环》
+</blockquote>
+估计没了，纯闪避打的不如回的多
+
+*****
+
+####  diablo5  
+##### 123#       发表于 2022-4-20 12:15
+
+<blockquote>梁山伯与猪硬来 发表于 2022-4-18 12:46
+你这问题不值一提。
+
+比起这个，为什么熊猫不改回猫熊这个正确的叫法，逼死强迫症。 ...</blockquote>
+没什么正确不正确的叫法，约定俗成罢了，又不是拉丁文的学名，不需要这么严谨
+
+*****
+
+####  yyman  
+##### 124#       发表于 2022-4-20 14:34
+
+  想讨论熊猫可以啊，为什么不出去外野新开一贴你们两个在那里战个痛，非要在这个讨论壶男的帖子里打滚污染信息？真当进这个帖子的人都很关心你两说的这些屁事么
+
+*****
+
+####  tsoulgain  
+##### 125#       发表于 2022-4-20 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">sala哥，凋零！！
+
+*****
+
+####  popchong  
+##### 126#       发表于 2022-4-20 15:38
+
+尽管陷入了巨大不利，但在交界地，仍不时有人传颂壶哥的胜利。
+
+<img src="https://img.saraba1st.com/forum/202204/20/153626k2jk21ijifldmwfi.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20220420153615.jpg</strong> (92.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-20 15:36 上传
+

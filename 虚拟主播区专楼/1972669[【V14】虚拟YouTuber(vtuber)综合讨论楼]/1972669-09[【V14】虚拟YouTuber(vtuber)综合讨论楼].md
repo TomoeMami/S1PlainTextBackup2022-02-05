@@ -3561,3 +3561,34 @@ vtb首冠
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  rzrbtk  
+##### 12330#       发表于 2022-4-20 15:57
+
+lr（暂时）复活！想去看串民反响结果发现不知何时黑称变成了红奇酷比，过分但又有点好笑…
+
+
+
+*****
+
+####  毛头小希  
+##### 12331#       发表于 2022-4-20 16:17
+
+ 本帖最后由 毛头小希 于 2022-4-20 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55518790&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-20 15:57</a>
+
+lr（暂时）复活！想去看串民反响结果发现不知何时黑称变成了红奇酷比，过分但又有点好笑… ...</blockquote>
+事件爆出来那会儿就叫红奇酷比了，事件之前则是叫红牛至<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">赤マラ 青マラ　マラノワ
+
+
+
+*****
+
+####  fastary  
+##### 12332#       发表于 2022-4-20 16:30
+
+该预言同接了(笑)感觉3w起步，或许上至10w也不是梦
+

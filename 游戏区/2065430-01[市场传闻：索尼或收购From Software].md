@@ -710,3 +710,204 @@ lz为啥这么急。。。
 
 人家软软只在已有主题的回复里期盼微软买公司，而gk都是单独发帖，污染环境的
 
+
+
+*****
+
+####  大耳兽  
+##### 72#       发表于 2022-4-20 11:52
+
+索尼怎么天天传言收着收那的，难道是太上老君的乾坤袋吗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 治丧委| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  minysun  
+##### 73#       发表于 2022-4-20 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55514469&amp;ptid=2065430" target="_blank">Slyvan 发表于 2022-4-20 10:06</a>
+昨天卡普空 , 今天fs ,  索尼整得跟温差签一样   
+
+什么时候7.5亿签下GTA结束主机战争啊, 好急 ...</blockquote>
+SIE娜娜，微软psg，任地狱皇马是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还真的挺形象的
+
+*****
+
+####  白行简5566  
+##### 74#       发表于 2022-4-20 12:02
+
+市场传闻：索尼或收购美国
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  ermne  
+##### 75#       发表于 2022-4-20 12:04
+
+“吞噬业界的索尼”
+
+*****
+
+####  greenegg  
+##### 76#       发表于 2022-4-20 12:08
+
+看这个标题差点窒息了！
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  zris  
+##### 77#       发表于 2022-4-20 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55515334&amp;ptid=2065430" target="_blank">漫漫来 发表于 2022-4-20 11:08</a>
+
+乐微软天天聊收购可以，索尼聊收购就是gk，大家都是yy居然也有贵贱之分 ...</blockquote>
+··········要不你把微软天天收购哪些贴出来，让大火乐呵乐呵
+
+*****
+
+####  帝蓝  
+##### 78#       发表于 2022-4-20 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">索尼第一方到底有多烂啊？天天就指望收购了？
+
+*****
+
+####  Rinne70  
+##### 79#       发表于 2022-4-20 12:28
+
+是真的，吉姆正在骑车去收购的路上，刚想起来忘带钱了让我v他五刀收购角川呢，明天就能看到新闻了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  otaku21126  
+##### 80#       发表于 2022-4-20 12:33
+
+是真的，我舅舅就在索尼，他说今天下午就完成收购
+
+*****
+
+####  tachikoma27  
+##### 81#       发表于 2022-4-20 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55514829&amp;ptid=2065430" target="_blank">不可避免 发表于 2022-4-20 10:33</a>
+看到这楼我稍微想了下，点开许久未去的阿9果然有基本一样标题的帖子。
+
+而且连阿9的人都觉得可能不大，有个 ...</blockquote>
+阿9经过几亿美刀结束主机战争一役也长进了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rinne70  
+##### 82#       发表于 2022-4-20 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55516448&amp;ptid=2065430" target="_blank">zris 发表于 2022-4-20 12:24</a>
+··········要不你把微软天天收购哪些贴出来，让大火乐呵乐呵</blockquote>
+微软收购杯赛和动暴泥潭可以盖这么多楼讨论，我索收购个fs你们软软就这么急，其心可诛
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天堂蜘蛛| + 1|其心可诛|
+
+查看全部评分
+
+*****
+
+####  有一条大鱼  
+##### 83#       发表于 2022-4-20 13:23
+
+巨硬确实没整天说收购，不过软软yy p5进xgp的次数可不比🔒🔒收购谣言的次数少<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hallowilliam  
+##### 84#       发表于 2022-4-20 13:48
+
+大规模收购能稳定出品的游戏公司对索尼而言没太多好处吧，如果是konami这种ip多没人做的我觉得还可以理解。FS社完全可以花钱做独发，除非FS觉得现在自己硬了不愿意，但真收购FS独占社群反应也不会好。
+
+*****
+
+####  dumplingpro  
+##### 85#       发表于 2022-4-20 13:51
+
+ 本帖最后由 dumplingpro 于 2022-4-20 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55515334&amp;ptid=2065430" target="_blank">漫漫来 发表于 2022-4-20 11:08</a>
+
+乐微软天天聊收购可以，索尼聊收购就是gk，大家都是yy居然也有贵贱之分 ...</blockquote>
+人家微软真买了啊，还是每次出手都是玩家想都不敢想那种。
+
+原本以为7E结束战争了不起了，结果是被70E打脸，以为70E已经是前无古人后无来者了，结果被700E打脸
+
+*****
+
+####  披头破落户  
+##### 86#       发表于 2022-4-20 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55516612&amp;ptid=2065430" target="_blank">Rinne70 发表于 2022-4-20 12:37</a>
+微软收购杯赛和动暴泥潭可以盖这么多楼讨论，我索收购个fs你们软软就这么急，其心可诛
+
+—— 来自 Xiaomi ...</blockquote>
+软软是已经收购成功了，索索呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  战狼PTSD  
+##### 87#       发表于 2022-4-20 14:10
+
+没活了可以咬个打火机
+
+*****
+
+####  chizuru  
+##### 88#       发表于 2022-4-20 15:18
+
+万代收都比索尼收要靠谱
+
+*****
+
+####  瓦格雷  
+##### 89#       发表于 2022-4-20 15:51
+
+<blockquote>cyberpenk 发表于 2022-4-20 09:57
+我立刻直奔巨人大锅</blockquote>
+知道速通的意义了吗
+
+
+
+*****
+
+####  FanKiE  
+##### 90#       发表于 2022-4-20 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55516073&amp;ptid=2065430" target="_blank">minysun 发表于 2022-4-20 11:57</a>
+
+SIE娜娜，微软psg，任地狱皇马是吧 还真的挺形象的</blockquote>
+可别侮辱老爷子了，真要这么比SIE那些第一方游戏加起来也不如温一期巅峰的一根腿毛
+
