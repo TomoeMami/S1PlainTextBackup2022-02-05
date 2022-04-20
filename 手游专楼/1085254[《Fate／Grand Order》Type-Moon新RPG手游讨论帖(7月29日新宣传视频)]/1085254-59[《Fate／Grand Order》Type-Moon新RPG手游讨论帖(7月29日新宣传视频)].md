@@ -7831,3 +7831,25 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 自充-10，怎么能叫没有呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">215是不是这辈子都没机会强化了 毕竟上次强化还是街机联动活动给的
 
+
+
+*****
+
+####  里村紅葉  
+##### 87683#       发表于 2022-4-20 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523255&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-20 22:09</a>
+
+215是不是这辈子都没机会强化了 毕竟上次强化还是街机联动活动给的</blockquote>
+那要问WYS了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87684#       发表于 2022-4-20 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523305&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-20 22:12</a>
+
+那要问WYS了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">WYS到底是谁至今没人知道的样子 是不是怕被人打死
+
