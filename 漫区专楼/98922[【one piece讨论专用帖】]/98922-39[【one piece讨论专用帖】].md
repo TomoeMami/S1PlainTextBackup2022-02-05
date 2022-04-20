@@ -11046,3 +11046,27 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">橡胶橡胶 雷，看啥时候萨博打出一拳火火果实 岩浆
 
+
+
+*****
+
+####  proselyte  
+##### 57921#       发表于 2022-4-20 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55515933&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2022-4-20 11:47</a>
+
+这两话让凯多讲的东西都是尾田画外音的意味比较多一点。结合剧情意味就比较微妙了。 ...</blockquote>
+主要是现在那个果实到底是个什么东西
+
+*****
+
+####  proselyte  
+##### 57922#       发表于 2022-4-20 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55518241&amp;ptid=98922" target="_blank">sandrock 发表于 2022-4-20 15:05</a>
+
+橡胶橡胶 雷</blockquote>
+德岛有雷神象枪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+尾田开心就好
+

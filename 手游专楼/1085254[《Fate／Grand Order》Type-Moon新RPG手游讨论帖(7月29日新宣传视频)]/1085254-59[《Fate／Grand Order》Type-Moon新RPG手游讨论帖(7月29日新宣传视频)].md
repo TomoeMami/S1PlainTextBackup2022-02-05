@@ -7685,3 +7685,15 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波强化的角色我一个没有 太棒了
 
+
+
+*****
+
+####  alucardcz  
+##### 87669#       发表于 2022-4-20 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55519700&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-20 17:12</a>
+
+这波强化的角色我一个没有 太棒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么骑双子都没呢
+
