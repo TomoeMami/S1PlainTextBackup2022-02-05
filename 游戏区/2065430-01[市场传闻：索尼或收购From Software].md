@@ -1042,3 +1042,19 @@ bungie36亿 FS怎么也得翻个倍吧
 
 不是我小看sony
 
+
+
+*****
+
+####  luhf  
+##### 105#       发表于 2022-4-20 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55516612&amp;ptid=2065430" target="_blank">Rinne70 发表于 2022-4-20 12:37</a>
+
+微软收购杯赛和动暴泥潭可以盖这么多楼讨论，我索收购个fs你们软软就这么急，其心可诛
+
+—— 来自 Xiaomi ...</blockquote>
+软软是震惊微软真花700亿收动视暴雪
+
+而索索只能YY索尼7.5亿结束主机战争<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

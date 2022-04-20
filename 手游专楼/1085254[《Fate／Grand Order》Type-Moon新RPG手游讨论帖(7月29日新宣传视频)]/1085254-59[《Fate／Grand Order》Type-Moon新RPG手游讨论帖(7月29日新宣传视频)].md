@@ -7853,3 +7853,15 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 那要问WYS了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">WYS到底是谁至今没人知道的样子 是不是怕被人打死
 
+
+
+*****
+
+####  里村紅葉  
+##### 87685#       发表于 2022-4-20 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523318&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-20 22:14</a>
+
+WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
+也有可能WYS本身就是个幌子，压根不存在这个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
