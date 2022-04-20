@@ -7697,3 +7697,25 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 这波强化的角色我一个没有 太棒了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么骑双子都没呢
 
+
+
+*****
+
+####  angelooo  
+##### 87670#       发表于 2022-4-20 17:42
+
+只有大王和骑双子，全是仓管没咋用过，大王平时就是用来舔灵衣的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87671#       发表于 2022-4-20 17:47
+
+这波强化挺好的，大王成为红A后第二个二次强化技能的从者，又是暴击又是自充很全面；枪狐直接删了副作用，四星们看着也不错。
+
+现在就是有点缺传承结晶了，大王二技能还是要配个10级NP被动才好用啊...
+
+我还是挺喜欢阿提拉的，本人第二个五星，已经五宝一百级了。
+
+感觉三技能也可以强化一下，变成游星之纹章EX，加个神性特攻之类的...
+
