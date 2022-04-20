@@ -7719,3 +7719,19 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 感觉三技能也可以强化一下，变成游星之纹章EX，加个神性特攻之类的...
 
+
+
+*****
+
+####  里村紅葉  
+##### 87672#       发表于 2022-4-20 17:51
+
+大王这军略就真不打算动了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87673#       发表于 2022-4-20 18:00
+
+这次强化只有骑双子<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

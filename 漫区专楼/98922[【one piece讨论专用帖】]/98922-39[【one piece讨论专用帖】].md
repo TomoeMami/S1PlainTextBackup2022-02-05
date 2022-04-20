@@ -11070,3 +11070,15 @@ image.png
 
 尾田开心就好
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 57923#       发表于 2022-4-20 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55516719&amp;ptid=98922" target="_blank">gg326 发表于 2022-4-20 12:46</a>
+
+干部全灭，部下大半反水，现在岛上站着的几乎全是对面的人，搞不懂凯多还在花力气托着鬼岛干嘛，真是太温柔 ...</blockquote>
+凯多是为了谁你说说看，还不是为了这个家<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
