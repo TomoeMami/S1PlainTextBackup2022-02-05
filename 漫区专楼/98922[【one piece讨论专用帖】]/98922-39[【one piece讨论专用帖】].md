@@ -10832,3 +10832,19 @@ image.png
 -路飞把他的拳头膨胀地比鬼岛城堡还大，准备以此攻击凯多。
 本周合刊，下面2周出1话海贼王，情报时间不定。
 
+
+
+*****
+
+####  武男  
+##### 57899#       发表于 2022-4-20 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55476357&amp;ptid=98922" target="_blank">7sevenseven 发表于 2022-4-16 20:23</a>
+
+太坚持1对1了
+
+我印象里海贼打败对手，就没用过团战的手段
+
+团战好像只有奥兹路飞那 ...</blockquote>
+海军不讲武德联手干翻大海上的王者也不是第一次吧
+
