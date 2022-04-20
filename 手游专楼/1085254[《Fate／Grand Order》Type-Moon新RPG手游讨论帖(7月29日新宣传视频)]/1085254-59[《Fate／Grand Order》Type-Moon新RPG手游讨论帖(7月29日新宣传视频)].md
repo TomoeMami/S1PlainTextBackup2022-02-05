@@ -7637,3 +7637,16 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 现在的问题主要是谷歌渠道需要日本本地IP了，苹果那边还是不用的
 
+
+
+*****
+
+####  johnkamsar  
+##### 87665#       发表于 2022-4-20 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55513655&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-4-20 08:54</a>
+JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要试试
+
+现在的问题主要是谷歌渠道需要日本本地IP ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我没信用卡
+
