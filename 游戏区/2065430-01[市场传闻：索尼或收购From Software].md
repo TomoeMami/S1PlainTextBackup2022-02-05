@@ -911,3 +911,31 @@ SIE娜娜，微软psg，任地狱皇马是吧<img src="https://static.saraba1st.
 SIE娜娜，微软psg，任地狱皇马是吧 还真的挺形象的</blockquote>
 可别侮辱老爷子了，真要这么比SIE那些第一方游戏加起来也不如温一期巅峰的一根腿毛
 
+
+
+*****
+
+####  minysun  
+##### 91#       发表于 2022-4-20 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55519188&amp;ptid=2065430" target="_blank">FanKiE 发表于 2022-4-20 16:27</a>
+
+可别侮辱老爷子了，真要这么比SIE那些第一方游戏加起来也不如温一期巅峰的一根腿毛 ...</blockquote>
+阿森纳巅峰时要是有同期PS2那种号召力枪蜜的数量能多更多。
+
+*****
+
+####  haruhiismer  
+##### 92#       发表于 2022-4-20 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55519272&amp;ptid=2065430" target="_blank">minysun 发表于 2022-4-20 16:36</a>
+阿森纳巅峰时要是有同期PS2那种号召力枪蜜的数量能多更多。</blockquote>
+欧冠都木有很蓝的啦
+
+*****
+
+####  monolithsoft  
+##### 93#       发表于 2022-4-20 16:38
+
+人民有信仰，民族有希望，国家有力量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
