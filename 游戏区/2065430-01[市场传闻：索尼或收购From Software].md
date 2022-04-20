@@ -958,3 +958,14 @@ SIE娜娜，微软psg，任地狱皇马是吧 还真的挺形象的</blockquote>
 
 #wengerout
 
+
+
+*****
+
+####  你妈的为什么  
+##### 96#       发表于 2022-4-20 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议软软速度收购索尼
+
+至少清静了
+
