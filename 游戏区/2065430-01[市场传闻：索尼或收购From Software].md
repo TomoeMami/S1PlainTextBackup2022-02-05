@@ -988,3 +988,28 @@ SIE娜娜，微软psg，任地狱皇马是吧 还真的挺形象的</blockquote>
 索索买一个棒鸡都要30多亿，再收其他公司市场心态只会更加看高更加得不偿失
 跟巨硬玩钞能力是没前途的……
 
+
+
+*****
+
+####  smdzh2  
+##### 99#       发表于 2022-4-20 18:05
+
+都2202年了居然还有活的gk<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  女仆高达  
+##### 100#       发表于 2022-4-20 18:06
+
+<blockquote>治丧委 发表于 2022-4-20 09:27
+本来是一个无聊的帖子，但是看到楼主破防以后我觉得还是蛮有乐子的。 ...</blockquote>
+嗦嗦最美丽的风景是gk?
+
+*****
+
+####  Redis  
+##### 101#       发表于 2022-4-20 18:10
+
+万代：我不同意<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

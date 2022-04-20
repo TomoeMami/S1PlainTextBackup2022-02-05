@@ -7735,3 +7735,15 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 这次强化只有骑双子<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 87674#       发表于 2022-4-20 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55519878&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-20 17:25</a>
+
+你怎么骑双子都没呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊了 刚看到我竟然有这个 白嫖2石
+
