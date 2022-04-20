@@ -7865,3 +7865,12 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
 也有可能WYS本身就是个幌子，压根不存在这个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空气蛹  
+##### 87686#       发表于 2022-4-20 22:35
+
+大王强化太棒了，最早的二宝，开服时都是靠这个砍过去的
+
