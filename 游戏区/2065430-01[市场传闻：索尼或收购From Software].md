@@ -659,3 +659,17 @@ lz为啥这么急。。。
 
 乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不可避免  
+##### 67#       发表于 2022-4-20 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55515334&amp;ptid=2065430" target="_blank">漫漫来 发表于 2022-4-20 11:08</a>
+
+乐微软天天聊收购可以，索尼聊收购就是gk，大家都是yy居然也有贵贱之分 ...</blockquote>
+建议以“索尼”“微软”为关键词使用帖子搜索功能各一次。
+
+也不要求像索尼这样没几天几贴了。一个月造谣一次说要收购某某公司我都算你说得对
+

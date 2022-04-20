@@ -7650,3 +7650,17 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 现在的问题主要是谷歌渠道需要日本本地IP ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我没信用卡
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87666#       发表于 2022-4-20 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55510326&amp;ptid=1085254" target="_blank">空气蛹 发表于 2022-4-19 21:47</a>
+
+看了下现在汇率这么低，信用卡497，淘宝代充看了几家都是480左右，没得啥价格优势了
+
+—— 来自 OnePlus GM ...</blockquote>
+已经算好了吧，年初看过一次代充还不如直接信用卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
