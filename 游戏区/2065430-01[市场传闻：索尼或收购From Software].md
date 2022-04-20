@@ -673,3 +673,31 @@ lz为啥这么急。。。
 
 也不要求像索尼这样没几天几贴了。一个月造谣一次说要收购某某公司我都算你说得对
 
+
+
+*****
+
+####  治丧委  
+##### 68#       发表于 2022-4-20 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55515334&amp;ptid=2065430" target="_blank">漫漫来 发表于 2022-4-20 11:08</a>
+
+乐微软天天聊收购可以，索尼聊收购就是gk，大家都是yy居然也有贵贱之分 ...</blockquote>
+人家微软真的有钞能力<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 69#       发表于 2022-4-20 11:33
+
+该起床了
+
+*****
+
+####  jellyhero  
+##### 70#       发表于 2022-4-20 11:36
+
+论索尼还要买谁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NEO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
