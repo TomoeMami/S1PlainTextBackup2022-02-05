@@ -7778,3 +7778,12 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 加上初始20，能上50礼装开幕暴具了
 
+
+
+*****
+
+####  qixinno2  
+##### 87678#       发表于 2022-4-20 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在五星剑光炮只有一个人没有自充了
+
