@@ -701,3 +701,12 @@ lz为啥这么急。。。
 
 —— 来自 HUAWEI NEO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  浅川雏羽  
+##### 71#       发表于 2022-4-20 11:44
+
+人家软软只在已有主题的回复里期盼微软买公司，而gk都是单独发帖，污染环境的
+
