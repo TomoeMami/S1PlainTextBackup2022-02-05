@@ -7787,3 +7787,25 @@ JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在五星剑光炮只有一个人没有自充了
 
+
+
+*****
+
+####  khxooo  
+##### 87679#       发表于 2022-4-20 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55521196&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-20 19:21</a>
+
+现在五星剑光炮只有一个人没有自充了</blockquote>
+群冲也是自充<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 87680#       发表于 2022-4-20 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55521196&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-20 19:21</a>
+
+现在五星剑光炮只有一个人没有自充了</blockquote>
+自充-10，怎么能叫没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
