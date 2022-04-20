@@ -11037,3 +11037,12 @@ image.png
 那路飞就算真把凯多打倒了岛上的大家也都得跌死 ...</blockquote>
 最胡闹的果实来一个能让鬼岛安全着陆的橡胶气垫甚至是橡胶降落伞/滑翔伞也是很合理的（
 
+
+
+*****
+
+####  陶矢  
+##### 57920#       发表于 2022-4-20 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">橡胶橡胶 雷，看啥时候萨博打出一拳火火果实 岩浆
+
