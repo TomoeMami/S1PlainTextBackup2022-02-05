@@ -1013,3 +1013,14 @@ SIE娜娜，微软psg，任地狱皇马是吧 还真的挺形象的</blockquote>
 
 万代：我不同意<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  umbasa  
+##### 102#       发表于 2022-4-20 18:27
+
+<blockquote>haruhiismer 发表于 2022-4-20 09:10
+索尼一个月壕沟游戏业半壁江山</blockquote>
+不是豪掷7.5亿结束主机战争?
+
