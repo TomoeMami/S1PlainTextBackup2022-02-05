@@ -7600,3 +7600,40 @@ Arts 3hit</blockquote>
 代充，或者JCB，我个人是代充的。充了几次福袋都没问题。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">介绍个下路子？
 
+
+
+*****
+
+####  空气蛹  
+##### 87661#       发表于 2022-4-19 21:47
+
+看了下现在汇率这么低，信用卡497，淘宝代充看了几家都是480左右，没得啥价格优势了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  qixinno2  
+##### 87662#       发表于 2022-4-20 08:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后的石头护符都用光了 摩根三宝失败
+
+*****
+
+####  黑上シグマ  
+##### 87663#       发表于 2022-4-20 08:52
+
+翻页
+
+*****
+
+####  UNISONIA  
+##### 87664#       发表于 2022-4-20 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55509651&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2022-4-19 21:03</a>
+
+介绍个下路子？</blockquote>
+JCB其实很方便啊，中行的JCB是必可以绑定的，别家的可能要试试
+
+现在的问题主要是谷歌渠道需要日本本地IP了，苹果那边还是不用的
+
