@@ -1058,3 +1058,27 @@ bungie36亿 FS怎么也得翻个倍吧
 
 而索索只能YY索尼7.5亿结束主机战争<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  久安aster  
+##### 106#       发表于 2022-4-21 00:50
+
+<blockquote>Rinne70 发表于 2022-4-20 12:37
+微软收购杯赛和动暴泥潭可以盖这么多楼讨论，我索收购个fs你们软软就这么急，其心可诛
+
+—— 来自 Xiaomi ...</blockquote>
+人家真的收啊，你索？
+
+*****
+
+####  久安aster  
+##### 107#       发表于 2022-4-21 00:51
+
+<blockquote>luhf 发表于 2022-4-20 22:23
+软软是震惊微软真花700亿收动视暴雪
+
+而索索只能YY索尼7.5亿结束主机战争 ...</blockquote>
+其实在微软收了b社之后，那个就是笑话了，现在更笑话了而已。
+
