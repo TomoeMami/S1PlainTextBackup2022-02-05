@@ -11443,3 +11443,12 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 所以说是屁话啊，而且真要说，过去人和果实算互相成就，橡胶有用，但也只是身体的特性，能变多强还是靠自 ...</blockquote>
 是啊，凯多也靠果实啊，但是凯多不会立“我都是靠自己努力”的人设，现在凯多说自己苦心经营的一切要消失，搞得好像他才是主角一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Freemasons  
+##### 57949#       发表于 2022-4-21 18:31
+
+凯老师的大招五大明王用了三个，所以这样的战斗至少还要画两话吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
