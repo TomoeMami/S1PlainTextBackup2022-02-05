@@ -3714,3 +3714,27 @@ IS和NB（live）的长30m演播室，くろなん时期又增设了新的3D演�
 
 感觉真的如黛灰之前说的，新时代的にじさんじ定位从“主播公会”改为了“面向主播的艺人事务所”……开live、发歌、
 
+
+
+*****
+
+####  IDIDIDID  
+##### 12342#       发表于 2022-4-21 17:59
+
+思路是没问题，就是娱乐业遍地老害巨无霸，资源全是他们的，打起来可没以前打nico生主行业那么顺手。
+
+*****
+
+####  IDIDIDID  
+##### 12343#       发表于 2022-4-21 18:03
+
+BSYL：
+
+直观对比一下两社思路，一个迈向主流娱乐圈一个去元宇宙发癫，以后就是大路朝天各走一边了。
+
+🌈：
+[https://www.moguravr.com/nijisanji-interview-3/](https://www.moguravr.com/nijisanji-interview-3/)
+
+杏：
+[https://college.goodfind.jp/articles/cover-tanigo-metaverse/](https://college.goodfind.jp/articles/cover-tanigo-metaverse/)
+
