@@ -13791,3 +13791,15 @@ EF2472EE-7FA7-4596-8D46-E1E939C426F9.jpeg
 
 捡漏了一本一巡场刊，感觉收一巡海报已经不太可能了
 
+
+
+*****
+
+####  JustW_2  
+##### 6973#       发表于 2022-4-21 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55519757&amp;ptid=2036367" target="_blank">lj205 发表于 2022-4-20 17:17</a>
+跟菜宝出门玩，母语说了个爽吧，真好啊真好</blockquote>
+にほんじん：“好吃吗”
+中国人：“おいしい”
+
