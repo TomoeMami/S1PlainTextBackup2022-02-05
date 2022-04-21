@@ -3852,3 +3852,23 @@ hnn参加这节目简直是坐牢，两万人看她杂谈也行吧<img src="http
 
 哈哈，然而黑客最协结束直接请假休了，他的五十万纪念都欠了两个月也不知道什么时候搞。我看不顺眼enkr搞主流最大的原因还是总觉得黑客因为感觉跟enkr路线合不来所以才直接摆了……虽说运营表面上也并没有说不支持主播搞企划，更像是我一厢情愿希望黑客不是真的厌倦当管人了(つД`)
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12354#       发表于 2022-4-21 20:12
+
+企划势在en，selen这半年一手筹划了NIJISANJI Express（包括自己和同事的），MC大搞基建，私下筹备en V最协，虹OW大会，还抽空solo了apex大师
+
+反观本社<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> <blockquote>たつきのOW対抗戦計画って結局どうなったんだっけ？JP以外チームも決まっててJPの返事待ちみたいな感じだった気がするけど
+
+正直JP連中が返事しないならぶいすぽとかトワ様とかでもいいからとにかく海外勢OWカスタム実現させてくれ~</blockquote>
+
+*****
+
+####  rzrbtk  
+##### 12355#       发表于 2022-4-21 20:13
+
+嘻嘻，先看圭利的虹pex办不办得成吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
