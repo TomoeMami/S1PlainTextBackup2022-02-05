@@ -1123,3 +1123,12 @@ fs游戏一半以上收入都是pc的（因为难pc有修改器和其他游戏�
 确实索尼假收棒鸡、haven假投资epic罪大恶极，扣扣索索才这么几十亿刀在坛友面前不值一提 ...</blockquote>
 确实几十亿大于700亿。
 
+
+
+*****
+
+####  TANA  
+##### 112#       发表于 2022-4-21 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">gk这阵仗仿佛掏了7000亿
+
