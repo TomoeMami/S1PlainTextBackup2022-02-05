@@ -8054,3 +8054,35 @@ AE阶给个上三骑特攻是什么整蛊吗<img src="https://static.saraba1st.c
 看起来像是beast的角，难道漫画联动剧情打平行世界的兽四幼体</blockquote>
 莫非这次riyo联动要搞事吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87700#       发表于 2022-4-21 12:52
+
+ 本帖最后由 シャル 于 2022-4-21 12:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55528727&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-4-21 12:37</a>
+
+AE阶给个上三骑特攻是什么整蛊吗</blockquote>
+技能里没有特殊相性<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+打上三还是不变减半
+
+又不想杀生院一样给加个特攻
+
+反弥赛亚只是弱体耐性无效<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87701#       发表于 2022-4-21 12:54
+
+ 本帖最后由 Jamaisvu 于 2022-4-21 12:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55528767&amp;ptid=1085254" target="_blank">シャル 发表于 2022-4-21 12:42</a>
+
+莫非这次riyo联动要搞事吗</blockquote>
+目前各时间线的beast产生了很严重的分化，漫画线的芙芙好像还没寄呢吧，毕竟除了抽卡非和材料缺，没发生什么严重事态，连奥尔加玛丽也活得好好的。真把riyo版白狗拉出来刷一刷存在感也有可能，反正怎么写也没人会当真<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+对于从漫画了解FGO这部作品，我印象里就只剩下混乱邪恶咕哒子、跳过宝具动画、女同贴贴、跳过宝具动画、大王海伦娜CP、跳过宝具动画、小盆友帝国、跳过宝具动画、乌冬七人组、跳过宝具动画、渣男大王、跳过宝具动画、META...、跳，宝，懂？、... ...<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
