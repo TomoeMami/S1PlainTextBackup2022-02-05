@@ -11407,3 +11407,15 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 现在就是上下层在反复拖戏，内容还差不多，就算有什么亮点（不谈好坏），都会给拖没了，凯老师这称呼也越名副其实。
 
+
+
+*****
+
+####  肉搏光头  
+##### 57946#       发表于 2022-4-21 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55530161&amp;ptid=98922" target="_blank">Renes 发表于 2022-4-21 15:01</a>
+
+尾田给凯多写的这些台词都是屁话，你王路飞有本事把果实吐出来也可以和凯老师打成现在这样，能做海贼王再说 ...</blockquote>
+可是凯多也吃了果实啊，这么说要不然所有人都不用果实/不用霸气，像体育比赛那样遵守规则？
+
