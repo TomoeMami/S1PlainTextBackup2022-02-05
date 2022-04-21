@@ -1176,3 +1176,15 @@ fs游戏一半以上收入都是pc的（因为难pc有修改器和其他游戏�
 确实呢，微软粉或者PCMR只在贴里污染环境，gk直接污染版面。确实呢，出最少的钱，做最多最好最棒的梦，守 ...</blockquote>
 有没有一种可能所有不合我心意的帖子都算污染版面，确实您要是s1股东那当我妹说<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚瑟摩根  
+##### 116#       发表于 2022-4-21 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55527327&amp;ptid=2065430" target="_blank">饮度 发表于 2022-4-21 10:37</a>
+
+确实索尼假收棒鸡、haven假投资epic罪大恶极，扣扣索索才这么几十亿刀在坛友面前不值一提 ...</blockquote>
+老哥咋不更新XSX和PS5那个数毛贴了
+
