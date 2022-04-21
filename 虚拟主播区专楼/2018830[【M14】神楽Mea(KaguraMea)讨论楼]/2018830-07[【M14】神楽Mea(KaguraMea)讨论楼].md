@@ -13306,3 +13306,27 @@ mea油管频道空荡荡的，没啥东西，打开犬山和组长的都是满�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10398#       发表于 2022-4-21 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我知道我放了图楼里的某位会崩溃，但我还是放图了。组长频道的切片。
+
+<img src="https://img.saraba1st.com/forum/202204/21/160757ay9f9mmgowmomf9w.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220421160704250.jpg</strong> (147.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-21 16:07 上传
+
+*****
+
+####  Lotis  
+##### 10399#       发表于 2022-4-21 16:11
+
+好耶
+
