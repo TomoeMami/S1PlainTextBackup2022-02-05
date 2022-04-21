@@ -7994,3 +7994,16 @@ fgo现在跳出来说手游第六兽是爱歌我还可以原谅他<img src="http
 
 <img src="https://img.saraba1st.com/forum/202204/21/120031pcxb8kpgrc44v9pc.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87695#       发表于 2022-4-21 12:19
+
+<blockquote>シャル 发表于 2022-4-21 12:00
+街机送五星尼禄多拉贡</blockquote>
+虽然是五星，但和赠送的四星一样，只有一个模型两个卡面。
+
+嘛，心理平衡了。（并不！）
+

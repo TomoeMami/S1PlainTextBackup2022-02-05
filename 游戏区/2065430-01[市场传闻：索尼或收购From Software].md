@@ -1132,3 +1132,36 @@ fs游戏一半以上收入都是pc的（因为难pc有修改器和其他游戏�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">gk这阵仗仿佛掏了7000亿
 
+
+
+*****
+
+####  饮度  
+##### 113#       发表于 2022-4-21 12:15
+
+<blockquote>ruits 发表于 2022-4-21 12:01
+确实几十亿大于700亿。等索尼一口气掏出来100亿再来YY吧</blockquote>
+确实700亿算收购几十亿不算所以假收购罪大恶极啊，索索几十亿刀的并购在坛友面前确实不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ruits|-1||
+
+查看全部评分
+
+*****
+
+####  ruits  
+##### 114#       发表于 2022-4-21 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55528465&amp;ptid=2065430" target="_blank">饮度 发表于 2022-4-21 12:15</a>
+
+确实700亿算收购几十亿不算所以假收购罪大恶极啊，索索几十亿刀的并购在坛友面前确实不值一提 ...</blockquote>
+确实呢，微软粉或者PCMR只在贴里污染环境，gk直接污染版面。确实呢，出最少的钱，做最多最好最棒的梦，守护最好的索索，比心。
+
