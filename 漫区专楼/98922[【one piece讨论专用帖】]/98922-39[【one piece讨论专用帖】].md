@@ -11489,3 +11489,12 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">凯多这不就是一句别以为果实牛逼了你就能赢，我依然比你强的挑衅话吗
 
+
+
+*****
+
+####  modkingr  
+##### 57954#       发表于 2022-4-21 20:03
+
+感觉把主要战斗穿插着画阅读体验真的很糟糕，虽然AB都是同时发生的就不能A画完了再切去B吗？
+
