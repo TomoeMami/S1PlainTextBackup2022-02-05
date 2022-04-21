@@ -11541,3 +11541,14 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 凯老师描写的这么厉害，黑胡子要咋样才能把五黄逼出新挂呢
 
+
+
+*****
+
+####  承尘  
+##### 57960#       发表于 2022-4-22 02:13
+
+尼卡我都没觉得多粪，这硬拖拖得好烦<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一周周毫无进展
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
