@@ -8024,3 +8024,21 @@ fgo现在跳出来说手游第六兽是爱歌我还可以原谅他<img src="http
 
 嗯，suge～
 
+
+
+*****
+
+####  シャル  
+##### 87697#       发表于 2022-4-21 12:35
+
+七骑特攻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+也就普通圣杯战争无敌了
+
+*****
+
+####  里村紅葉  
+##### 87698#       发表于 2022-4-21 12:37
+
+AE阶给个上三骑特攻是什么整蛊吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
