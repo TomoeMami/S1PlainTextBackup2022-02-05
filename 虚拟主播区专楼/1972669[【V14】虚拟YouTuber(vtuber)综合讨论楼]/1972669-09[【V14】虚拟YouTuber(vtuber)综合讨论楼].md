@@ -3649,3 +3649,14 @@ lr（暂时）复活！想去看串民反响结果发现不知何时黑称变成
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Ketestrait  
+##### 12338#       发表于 2022-4-21 13:03
+
+<img src="https://tva1.sinaimg.cn/large/7c16af6bly1h1h9c0wz80j20tn07aq44.jpg" referrerpolicy="no-referrer">
+
+帰ってきた
+
