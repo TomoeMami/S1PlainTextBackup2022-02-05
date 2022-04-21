@@ -1111,3 +1111,15 @@ fs游戏一半以上收入都是pc的（因为难pc有修改器和其他游戏�
 人家真的收啊，你索？</blockquote>
 确实索尼假收棒鸡、haven假投资epic罪大恶极，扣扣索索才这么几十亿刀在坛友面前不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruits  
+##### 111#       发表于 2022-4-21 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55527327&amp;ptid=2065430" target="_blank">饮度 发表于 2022-4-21 10:37</a>
+
+确实索尼假收棒鸡、haven假投资epic罪大恶极，扣扣索索才这么几十亿刀在坛友面前不值一提 ...</blockquote>
+确实几十亿大于700亿。
+

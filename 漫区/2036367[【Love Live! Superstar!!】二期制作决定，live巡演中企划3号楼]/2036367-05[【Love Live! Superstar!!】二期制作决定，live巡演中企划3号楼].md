@@ -13814,3 +13814,12 @@ EF2472EE-7FA7-4596-8D46-E1E939C426F9.jpeg
 捡漏了一本一巡场刊，感觉收一巡海报已经不太可能了</blockquote>
 一巡场刊还能捡吗，找了好久都没发现<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 6975#       发表于 2022-4-21 11:53
+
+一巡场刊和海报都买了，毕竟意义重大
+

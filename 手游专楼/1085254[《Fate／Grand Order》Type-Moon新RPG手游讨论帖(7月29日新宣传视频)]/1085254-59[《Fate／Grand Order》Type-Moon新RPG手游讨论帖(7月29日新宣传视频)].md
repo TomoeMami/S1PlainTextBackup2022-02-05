@@ -7948,3 +7948,31 @@ B44D49C5-43F8-47FD-A76C-BC4EC28F655D.png
 
 （干脆以后冠位从者也分两条线吧）
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87691#       发表于 2022-4-21 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55525049&amp;ptid=1085254" target="_blank">シャル 发表于 2022-4-21 01:03</a>
+
+房间里混了一只奇怪的芙，耳朵不一样</blockquote>
+看起来像是beast的角，难道漫画联动剧情打平行世界的兽四幼体<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 87692#       发表于 2022-4-21 10:21
+
+fgo现在跳出来说手游第六兽是爱歌我还可以原谅他<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87693#       发表于 2022-4-21 11:57
+
+看来手游这边要打6L和6R是妥了
+
+街机还得打只6G
+
