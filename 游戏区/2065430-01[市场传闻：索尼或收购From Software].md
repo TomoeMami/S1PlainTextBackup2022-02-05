@@ -1100,3 +1100,14 @@ fs游戏一半以上收入都是pc的（因为难pc有修改器和其他游戏�
 
 要真给索尼买了是不是以后防火女都是黑人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  饮度  
+##### 110#       发表于 2022-4-21 10:37
+
+<blockquote>久安aster 发表于 2022-4-21 00:50
+人家真的收啊，你索？</blockquote>
+确实索尼假收棒鸡、haven假投资epic罪大恶极，扣扣索索才这么几十亿刀在坛友面前不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
