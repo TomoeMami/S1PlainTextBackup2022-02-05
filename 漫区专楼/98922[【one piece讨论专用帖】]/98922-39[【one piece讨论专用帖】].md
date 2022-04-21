@@ -11480,3 +11480,12 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 凯老师的大招五大明王用了三个，所以这样的战斗至少还要画两话吧</blockquote>
 差不动明王 和 金刚夜叉明王
 
+
+
+*****
+
+####  klzxs  
+##### 57953#       发表于 2022-4-21 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">凯多这不就是一句别以为果实牛逼了你就能赢，我依然比你强的挑衅话吗
+

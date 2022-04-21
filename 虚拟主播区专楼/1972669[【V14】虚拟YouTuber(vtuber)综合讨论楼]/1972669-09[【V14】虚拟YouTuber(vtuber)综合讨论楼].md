@@ -3810,3 +3810,36 @@ BSYL：
 
 hnn参加这节目简直是坐牢，两万人看她杂谈也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 12350#       发表于 2022-4-21 19:42
+
+<img src="https://img.saraba1st.com/forum/202204/21/194132hoo1znrijzn8ti16.jpg" referrerpolicy="no-referrer">
+
+<strong>MqvqcUM.jpg</strong> (30.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-21 19:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能上主流的好吃好喝待着，没价值的burden就开始欠薪了吧
+
+*****
+
+####  dybang  
+##### 12351#       发表于 2022-4-21 19:45
+
+杏感觉还是因为一个是排排坐不好分蛋糕，一个是老阿姨折腾不动吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lor  
+##### 12352#       发表于 2022-4-21 19:47
+
+新节目和出歌出新组合一样都是推广知名度，不耽误直播的情况下多做做挺好的，具体还是该播的播来留下粉吧。v的用户黏着度很核心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
