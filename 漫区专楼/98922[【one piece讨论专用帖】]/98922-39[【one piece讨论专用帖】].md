@@ -11264,3 +11264,84 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 天雷憋了两个礼拜，然后被凯多一个闪避就躲了
 
+
+
+*****
+
+####  天使的日曜日  
+##### 57931#       发表于 2022-4-21 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55528920&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2022-4-21 12:56</a>
+
+这一话结尾的巨大拳头，和上一话结尾的引天雷有啥区别
+
+天雷憋了两个礼拜，然后被凯多一个闪避就躲了 ...</blockquote>
+传统艺能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+6F27AAE0-5E51-4AF3-BC66-9977E2ED88D5.jpeg
+(1.02 MB, 下载次数: 0)
+
+下载附件
+
+2022-4-21 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/21/125906sw7l22onmnkfkf8k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+58C3E9AC-F8D8-4D79-84A4-3EEF033EA678.jpeg
+(1005.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-21 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/21/125907aqqxdgd77d7s7qgi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yario  
+##### 57932#       发表于 2022-4-21 13:09
+
+凯多的强度太大了，觉醒了 打  还是不能五五开，感觉尾田的设计有点问题。
+
+*****
+
+####  Renes  
+##### 57933#       发表于 2022-4-21 15:01
+
+尾田给凯多写的这些台词都是屁话，你王路飞有本事把果实吐出来也可以和凯老师打成现在这样，能做海贼王再说吧
+
+*****
+
+####  GreenBird  
+##### 57934#       发表于 2022-4-21 15:37
+
+可爱多老师辛苦了...
+
+*****
+
+####  仟音一心  
+##### 57935#       发表于 2022-4-21 15:41
+
+翻
+
+*****
+
+####  仟音一心  
+##### 57936#       发表于 2022-4-21 15:41
+
+页
+
+*****
+
+####  仟音一心  
+##### 57937#       发表于 2022-4-21 15:41
+
+翻
+
+*****
+
+####  chais613  
+##### 57938#       发表于 2022-4-21 15:44
+
+大蛇是要死八次才够吗？
+
