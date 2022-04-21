@@ -7904,3 +7904,12 @@ B44D49C5-43F8-47FD-A76C-BC4EC28F655D.png
 
 <img src="https://img.saraba1st.com/forum/202204/21/010323ft84ztg2it99ikyk.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87689#       发表于 2022-4-21 08:46
+
+既然街机送了小的，手游给大的抽不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
