@@ -8086,3 +8086,19 @@ AE阶给个上三骑特攻是什么整蛊吗</blockquote>
 
 对于从漫画了解FGO这部作品，我印象里就只剩下混乱邪恶咕哒子、跳过宝具动画、女同贴贴、跳过宝具动画、大王海伦娜CP、跳过宝具动画、小盆友帝国、跳过宝具动画、乌冬七人组、跳过宝具动画、渣男大王、跳过宝具动画、META...、跳，宝，懂？、... ...<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kissout  
+##### 87702#       发表于 2022-4-21 13:12
+
+Lr看起来没吃
+
+*****
+
+####  qixinno2  
+##### 87703#       发表于 2022-4-21 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而最重要的抽卡必出五星的宝具被打断了啊
+
