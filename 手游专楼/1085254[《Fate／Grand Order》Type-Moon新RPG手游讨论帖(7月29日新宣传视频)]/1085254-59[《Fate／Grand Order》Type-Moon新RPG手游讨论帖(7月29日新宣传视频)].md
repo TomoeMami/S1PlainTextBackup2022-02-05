@@ -7913,3 +7913,38 @@ B44D49C5-43F8-47FD-A76C-BC4EC28F655D.png
 
 既然街机送了小的，手游给大的抽不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87690#       发表于 2022-4-21 10:07
+
+ 本帖最后由 Jamaisvu 于 2022-4-21 10:10 编辑 
+
+街机终章最新剧情里，旧剑说在这个世界（街机线）上有第六兽S（Sodom，索多玛之兽）和第六兽G（Gomorrah，蛾摩拉之兽），而第六兽的L和S存在于彼方的迦勒底（手游线）。
+
+<img src="https://img.saraba1st.com/forum/202204/21/100942cw8nxxjej9ef1z9x.png" referrerpolicy="no-referrer">
+
+<strong>1650506879662.png</strong> (334.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-21 10:09 上传
+
+<img src="https://img.saraba1st.com/forum/202204/21/100946b12o001xvq35jwyg.png" referrerpolicy="no-referrer">
+
+<strong>1650506887280.png</strong> (182.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-21 10:09 上传
+
+这设定是越来越诡异了，我愿称BeastVI为麻将之兽。
+
+希望每只兽的个体上限就顶多四个，每边俩，要不冠位前赴后继地要不够用了...
+
+话说旧剑这带着记忆满世界穿越的能力和武藏有点像啊，什么时候发给冠位剑当当？
+
+（干脆以后冠位从者也分两条线吧）
+
