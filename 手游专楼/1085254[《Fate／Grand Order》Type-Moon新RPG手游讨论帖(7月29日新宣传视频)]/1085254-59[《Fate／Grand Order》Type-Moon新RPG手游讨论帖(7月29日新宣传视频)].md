@@ -8102,3 +8102,15 @@ Lr看起来没吃
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而最重要的抽卡必出五星的宝具被打断了啊
 
+
+
+*****
+
+####  UNISONIA  
+##### 87704#       发表于 2022-4-21 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55523318&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-20 22:14</a>
+
+WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
+17年内提过一次石仓是管数值的，后面现场也提过一次wys去过生放
+
