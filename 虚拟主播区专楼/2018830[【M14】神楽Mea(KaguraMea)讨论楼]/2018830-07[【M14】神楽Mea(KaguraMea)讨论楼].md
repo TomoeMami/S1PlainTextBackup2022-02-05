@@ -13399,3 +13399,15 @@ mea油管频道空荡荡的，没啥东西，打开犬山和组长的都是满�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  汇聚群光  
+##### 10407#       发表于 2022-4-21 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55531789&amp;ptid=2018830" target="_blank">やト 发表于 2022-4-21 17:10</a>
+
+神乐组就剩九条了吧</blockquote>
+是的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">如月毕业，noe人间蒸发，夜宵胎死腹中，前不久mea把她油管频道都删了就说明她永远不会出道了
+
