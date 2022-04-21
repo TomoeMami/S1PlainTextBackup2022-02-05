@@ -1091,3 +1091,12 @@ bungie36亿 FS怎么也得翻个倍吧
 
 fs游戏一半以上收入都是pc的（因为难pc有修改器和其他游戏不同），卖给索尼做300万血缘吗
 
+
+
+*****
+
+####  skgaminger1988  
+##### 109#       发表于 2022-4-21 10:29
+
+要真给索尼买了是不是以后防火女都是黑人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
