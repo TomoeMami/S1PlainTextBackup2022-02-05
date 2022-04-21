@@ -3738,3 +3738,25 @@ BSYL：
 杏：
 [https://college.goodfind.jp/articles/cover-tanigo-metaverse/](https://college.goodfind.jp/articles/cover-tanigo-metaverse/)
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 12344#       发表于 2022-4-21 18:41
+
+彩虹背靠着索尼音乐好乘凉，签了的不少人音乐全是唱片公司发。说白了就是自己没什么音乐上的人脉和资源的。不过葛叶和洛夫猫的宣传能力emmmmmm，看不懂。
+
+而在内容创作领域……虹小剧场的地位<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+实际上还是缺啥喊啥。
+
+至于holo，这已经属于有钱没地方花了真的，搞这些突出个力大砖飞。哦飞不飞得起来还难说呢。反正现在分歧已经大到不能摸着彩虹过河了。
+
+*****
+
+####  空集  
+##### 12345#       发表于 2022-4-21 18:48
+
+力大砖飞尼玛呀，云宝别恶心我了，不就是把钱扔水里，这些各种b东西有哪个有用的，唯一有点用的alter出个漫画出的那么不顺利。这不叫力大砖飞叫钱打水漂。
+

@@ -11452,3 +11452,12 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 凯老师的大招五大明王用了三个，所以这样的战斗至少还要画两话吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cdfjg  
+##### 57950#       发表于 2022-4-21 18:40
+
+原来路飞两年后变得更胡闹是因为这个果实！尾田这伏笔太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
