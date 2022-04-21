@@ -3791,3 +3791,13 @@ BSYL：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">红条子回归打枪同接一万九
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 12348#       发表于 2022-4-21 19:08
+
+我看夏芽出轻小说挺开心的。观众是想看直播倒也不强求主播们硬播，不是坏事。
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
