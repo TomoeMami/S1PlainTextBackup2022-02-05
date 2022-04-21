@@ -13803,3 +13803,14 @@ EF2472EE-7FA7-4596-8D46-E1E939C426F9.jpeg
 にほんじん：“好吃吗”
 中国人：“おいしい”
 
+
+
+*****
+
+####  starring  
+##### 6974#       发表于 2022-4-21 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55526072&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-4-21 08:33</a>
+捡漏了一本一巡场刊，感觉收一巡海报已经不太可能了</blockquote>
+一巡场刊还能捡吗，找了好久都没发现<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
