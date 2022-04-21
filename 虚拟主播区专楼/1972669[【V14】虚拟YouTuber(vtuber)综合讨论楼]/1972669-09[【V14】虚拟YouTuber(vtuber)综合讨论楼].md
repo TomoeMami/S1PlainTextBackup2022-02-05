@@ -3899,3 +3899,51 @@ hnn参加这节目简直是坐牢，两万人看她杂谈也行吧<img src="http
 
 综艺我没看不评价，有一说一liver关系看起来好像确实也没到business以上(没见过四人自己约的联动)，图也确实……一言难尽。但是毕竟主打卖的歌本身还算不错，而且很多厨遇上能给自推花钱的机会宽容度是无限的……厨力加成还有抽选live券多卖点也不奇怪啊
 
+
+
+*****
+
+####  poipanchao  
+##### 12359#       发表于 2022-4-21 20:53
+
+主人公白雪レイド（cv松岡禎丞）のぶいすぽギャルゲーヒロイン候補
+
+付き合いの長い女子力皆無幼馴染の一ノ瀬うるは
+
+同じく幼馴染の元気っ子小森めと、実は過去に大きな秘密を抱えていて…？
+
+途中退場してしまう家庭環境複雑韓国人留学生ヌン•ボラ
+
+その穴を埋めるかのようにずっとべったりなメンヘラ後輩紫宮るな
+
+昔から付き合いがあって唯一主人公の事を白雪と呼ぶ天然な宇宙人先輩花芽すみれ
+
+大会で一緒のチームになった事により仲良くなる本作の正統派メインヒロイン（cv花澤香菜）の藍沢エマ
+
+*****
+
+####  Kokichi  
+##### 12360#       发表于 2022-4-21 20:56
+
+hnn给kamito唱カタオモイ未免过于<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lor  
+##### 12361#       发表于 2022-4-21 21:00
+
+属于是被厕术语和gachi管人吃唬住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她们骂归骂可能不看不买吗，只是觉得这低端企划配不上自己giegie罢了。
+日本是吸了不少别圈观众入坑，简中才看的批站里rofmao歌和熟肉播放都不低。四个人要说关系也不止纯营业，还有一起去购物选电视这种不说出来都不知道的奇怪关系好。直播方向天差地别，哪天要搞联动才比较像运营的任务<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+现在几个企划还是男v受益大，希望之后能扩展开来吧<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+syl 好开好开
+
+*****
+
+####  FCCHua  
+##### 12362#       发表于 2022-4-21 21:01
+
+结果唱歌时候kmt在说话给我整麻了，能不能好好听<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
