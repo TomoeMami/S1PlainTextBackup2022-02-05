@@ -11461,3 +11461,22 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 原来路飞两年后变得更胡闹是因为这个果实！尾田这伏笔太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  今天不守尸  
+##### 57951#       发表于 2022-4-21 19:20
+
+这话让我想起来东成西就，凯多打路飞就像是欧阳锋打洪七怎么打也打不死，最后欧阳锋哭着喊着：“我不杀你了，求求你放过我吧!”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yario  
+##### 57952#       发表于 2022-4-21 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55532725&amp;ptid=98922" target="_blank">Freemasons 发表于 2022-4-21 18:31</a>
+
+凯老师的大招五大明王用了三个，所以这样的战斗至少还要画两话吧</blockquote>
+差不动明王 和 金刚夜叉明王
+
