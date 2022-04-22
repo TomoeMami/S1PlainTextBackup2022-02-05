@@ -4375,3 +4375,23 @@ en字幕组是开的啥？
 
 我快速看了一下转发和评论，好像给en女鸣不平的是多数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">jp女？真不熟
 
+
+
+*****
+
+####  lor  
+##### 12404#       发表于 2022-4-23 00:04
+
+合成音合真人还是差很多的。要考虑到换人可以一开始就采取老鸨那样的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">jp女就集中在几个人身上转。冲成功过吗，怎么记得彩虹哥一直是死的，en男之前烤肉都全白嫖字幕组的
+
+*****
+
+####  winda  
+##### 12405#       发表于 2022-4-23 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55549273&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-22 23:17</a>
+那毕竟jp虹男也确实没转，怎么都该冲的。反正为虹女冲也是冲、为jp虹男冲也是冲…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转叶师的浓度已经是少数能和en打打的了，反倒是king一点不转比较怪
+
