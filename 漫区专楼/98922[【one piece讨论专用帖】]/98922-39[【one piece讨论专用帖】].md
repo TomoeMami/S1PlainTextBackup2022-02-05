@@ -11552,3 +11552,63 @@ B9BEFFFB-C53C-4ACA-897F-CEEF234CF470.jpeg
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  anubis_s08  
+##### 57961#       发表于 2022-4-22 03:02
+
+bigbang punch？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+*****
+
+####  hagaren  
+##### 57962#       发表于 2022-4-22 11:43
+
+前面是桃太郎fw的一天，接着是凯多的废话大全。
+
+*****
+
+####  武男  
+##### 57963#       发表于 2022-4-22 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55534983&amp;ptid=98922" target="_blank">Van夫膜开 发表于 2022-4-21 21:15</a>
+
+我记得上一话凯多人都扶着棒子快倒了，结果这话直接放大招，实在看不懂这些人的体力到底多牛逼 ...</blockquote>
+白胡子被狗子打没了小半脑袋不还是让黑胡子翻船嘛，狗子被打到地下爬起来不还是得跟皇团和四皇对线，凯老师现在又没少什么零件，只不过漫画观感还是差，找个人一起围殴算了。
+
+*****
+
+####  SteinLee  
+##### 57964#       发表于 2022-4-22 12:10
+
+好奇尾田要怎么表现世界第一果实尼卡的强度，除了能让自己开金身免疫攻击，就是让自己的拳头变大？拳头越大越厉害，伤害就越高？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懂了这一定是为了巨人国的剧情埋伏笔！毕竟巨人国拳头都很大，战力一定很高吧，还圆上了基德和罗让自己手里的武器变大就击败了同为四皇的大妈的剧情，更远处“巨大”王国的伏笔也给了解释，大，就是厉害啊
+
+*****
+
+####  klzxs  
+##### 57965#       发表于 2022-4-22 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这话的拳头和之前还是不太一样的
+
+像上话闪电虽然看着酷，凯多也明显没当回事
+
+但这话凯老师脸色都不对了
+
+*****
+
+####  24k纯帅  
+##### 57966#       发表于 2022-4-22 12:36
+
+这集没有扉页故事， 如果有的话， 信息量比漫画还大
+
+*****
+
+####  GreenBird  
+##### 57967#       发表于 2022-4-22 16:42
+
+凯老师挺有道理的，要是五黄被黑胡子抓住，瞬时失去果实力量，那下场就跟艾斯差不多吧hh
+
