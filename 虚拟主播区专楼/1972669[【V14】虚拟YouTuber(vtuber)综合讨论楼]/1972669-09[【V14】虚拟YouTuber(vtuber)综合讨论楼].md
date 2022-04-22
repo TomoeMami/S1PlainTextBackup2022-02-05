@@ -4343,3 +4343,12 @@ en字幕组是开的啥？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">无关，但老荣耀这句话让我隐约理解为什么俄国斯拉夫派那么讨厌资本主义引起的道德和情感的崩塌。
 
+
+
+*****
+
+####  OldGlory  
+##### 12400#       发表于 2022-4-22 23:07
+
+懒得多说，反正替虹女鸣不平当幌子，本质要求多转jp虹男这点心思我还看不出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">没人真的care虹女的。
+
