@@ -4210,3 +4210,12 @@ Syl，真要叛逃，一pomu二millie，这两个人选吧
 
 lr谢罪直播那天晚上除了有大型联动预定的教授pt，los不开播甚至也没发摸鱼通知，ax更狠直接请假一星期，也被怀疑是不是考虑到有人会闹事所以回避的因素
 
+
+
+*****
+
+####  蓬莱广告  
+##### 12387#       发表于 2022-4-22 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">メリー你带我走吧
+
