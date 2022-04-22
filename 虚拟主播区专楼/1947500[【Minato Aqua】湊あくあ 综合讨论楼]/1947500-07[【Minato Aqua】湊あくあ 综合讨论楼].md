@@ -991,3 +991,14 @@ APEX 封印！
 
 小号也可能来点匂わせ
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 9112#       发表于 2022-4-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55509988&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2022-4-19 21:23</a>
+这玩意是不是吃刺身吃的，以前念高中的时候传染了一学校</blockquote>
+寿司郎全责
+
