@@ -4291,3 +4291,12 @@ en字幕组是开的啥？
 
 开的好啊，天天搁那转en相关，虹女日常惨已经不需要再提了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 12394#       发表于 2022-4-22 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">会有第二季的。
+
