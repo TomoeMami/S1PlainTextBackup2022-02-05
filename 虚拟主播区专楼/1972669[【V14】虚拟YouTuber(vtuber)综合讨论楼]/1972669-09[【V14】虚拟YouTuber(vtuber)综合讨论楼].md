@@ -4477,3 +4477,25 @@ Twitch按观众顺序排列三成是蹭kw的，三成是韩国人，还有三成
 
 Syl，国内虹en女liver吸了不少女性观众，体感主要是出于部分女性观众的一种孤高、逆反但不完全逆反的心理
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 12415#       发表于 2022-4-23 02:29
+
+<img src="https://p.sda1.dev/5/24140f9ba1ff44c8c89f1c0577d70c7f/CMP_20220423022621619.jpg" referrerpolicy="no-referrer">
+✋🤚🧎‍♂️谁才是njsj的futureking
+管人早该饭饭了
+
+*****
+
+####  lor  
+##### 12416#       发表于 2022-4-23 02:36
+
+kingkingking 心服口服🏳🏳🏳🙋‍♂🙇‍♂🙇‍♂
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过讲真老的再怎么嘴en男粉，不掺和这些阴湿的新粉推广力把老的摁着打一百个都行，饭圈文化战斗力太强了
+syl holo走之后国内男性向虚拟直播能分流走男粉的可太多了也是一方面，女粉en才开始大量入场
+搞什么熟肉预约还以为彩虹哥终于出力了，结果还是白嫖那套啊……
+
