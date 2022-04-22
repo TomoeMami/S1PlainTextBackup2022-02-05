@@ -4327,3 +4327,19 @@ en字幕组是开的啥？
 
 👆已经超出了我的认知能力
 
+
+
+*****
+
+####  OldGlory  
+##### 12398#       发表于 2022-4-22 22:43
+
+彩虹官号这还不行啊，要是天天转没人看的虹女才是真的运营不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 12399#       发表于 2022-4-22 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">无关，但老荣耀这句话让我隐约理解为什么俄国斯拉夫派那么讨厌资本主义引起的道德和情感的崩塌。
+
