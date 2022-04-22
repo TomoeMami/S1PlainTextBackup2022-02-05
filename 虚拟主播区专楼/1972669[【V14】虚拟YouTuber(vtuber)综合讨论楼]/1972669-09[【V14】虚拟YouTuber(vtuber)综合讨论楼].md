@@ -4395,3 +4395,13 @@ en字幕组是开的啥？
 那毕竟jp虹男也确实没转，怎么都该冲的。反正为虹女冲也是冲、为jp虹男冲也是冲…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转叶师的浓度已经是少数能和en打打的了，反倒是king一点不转比较怪
 
+
+
+*****
+
+####  winda  
+##### 12406#       发表于 2022-4-23 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼评论区，名义上是为en女鸣不怕，实质上还是jp男en男粉大战嘛
+至于本社女，除了毕业的阿菜能当炮弹也没人关心
+
