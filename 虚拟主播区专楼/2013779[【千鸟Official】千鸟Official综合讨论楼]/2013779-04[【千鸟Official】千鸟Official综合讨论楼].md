@@ -12709,3 +12709,14 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 岚少楼主怎么在这儿也看到你了</blockquote>
 必须要跟上时代嘛，在专楼外面不要提
 
+
+
+*****
+
+####  龙娘777  
+##### 5850#       发表于 2022-4-22 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55549297&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-4-22 23:19</a>
+必须要跟上时代嘛，在专楼外面不要提</blockquote>
+你看了一圈哪个杂谈力强点？我发现我还是爱看整活儿逗逼的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
