@@ -11612,3 +11612,19 @@ bigbang punch？
 
 凯老师挺有道理的，要是五黄被黑胡子抓住，瞬时失去果实力量，那下场就跟艾斯差不多吧hh
 
+
+
+*****
+
+####  汤圆です  
+##### 57968#       发表于 2022-4-22 16:51
+
+ 本帖最后由 汤圆です 于 2022-4-22 16:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55541501&amp;ptid=98922" target="_blank">klzxs 发表于 2022-4-22 12:33</a>
+这话的拳头和之前还是不太一样的
+
+像上话闪电虽然看着酷，凯多也明显没当回事
+
+但这话凯老师脸色都不 ...</blockquote>
+之前那些再怎样也都是往凯老师身上招呼的点攻击，凯老师被五皇当众搞笑羞辱都没放松托岛的一丝力气，现在这一拳下去可是砸到辛辛苦苦托了半天的岛上面啊，到底谁才是大恶人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
