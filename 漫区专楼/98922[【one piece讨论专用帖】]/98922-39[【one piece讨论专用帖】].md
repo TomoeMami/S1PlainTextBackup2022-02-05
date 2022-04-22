@@ -11640,3 +11640,15 @@ bigbang punch？
 凯老师挺有道理的，要是五黄被黑胡子抓住，瞬时失去果实力量，那下场就跟艾斯差不多吧hh ...</blockquote>
 艾斯他不怎么会用霸气，但是四皇霸气哪有不强的，黑胡子在顶上的时候不是都在濒死的白胡子那翻船了嘛
 
+
+
+*****
+
+####  管他三俗  
+##### 57970#       发表于 2022-4-22 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55541173&amp;ptid=98922" target="_blank">SteinLee 发表于 2022-4-22 12:10</a>
+
+好奇尾田要怎么表现世界第一果实尼卡的强度，除了能让自己开金身免疫攻击，就是让自己的拳头变大？拳头越大 ...</blockquote>
+人体，很神奇吧？<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+

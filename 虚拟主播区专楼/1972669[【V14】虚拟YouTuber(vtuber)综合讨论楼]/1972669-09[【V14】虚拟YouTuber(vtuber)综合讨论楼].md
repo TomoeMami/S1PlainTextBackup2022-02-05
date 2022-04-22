@@ -4252,3 +4252,17 @@ en字幕组是开的啥？
 
 反正我看官号不管jp天天转en相关本社粉早看不顺眼了，加上这次en女也只出三人，新谷动态下面全是骂的<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12391#       发表于 2022-4-22 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55547152&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-22 20:29</a>
+
+en字幕组是开的啥？
+
+反正我看官号不管jp天天转en相关本社粉早看不顺眼了，加上这次en女也只出三人，新谷动 ...</blockquote>
+就是那一条，转发里已经能看到字幕组了
+
