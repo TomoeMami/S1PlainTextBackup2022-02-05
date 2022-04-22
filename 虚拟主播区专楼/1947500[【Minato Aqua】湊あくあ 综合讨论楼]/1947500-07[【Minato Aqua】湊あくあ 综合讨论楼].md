@@ -1013,3 +1013,14 @@ APEX 封印！
 寿司郎全责</blockquote>
 这工商工得好啊，建议寿司郎下次找虹男。
 
+
+
+*****
+
+####  蓬莱广告  
+##### 9114#       发表于 2022-4-22 12:24
+
+<img src="https://p.sda1.dev/5/918178d045b37692dd41d35adc78ef95/IMG_CMP_21150755.jpeg" referrerpolicy="no-referrer">
+
+贴纸套餐是真的没有买的必要…
+
