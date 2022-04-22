@@ -4030,3 +4030,35 @@ enkr出谷频率之高让我不仅感慨真的是开live亏惨了，以及黑客
 厄介的是不是粉都不好说……但凡是活动各种点都能角度清奇地喷。搞企划又抗压还可能吃力不讨好，solo或者小圈子联动就能过得不错的liver选择不做太正常了。
 syl 看到教授说不会拥护条子的切片，有态度正常的同期挺好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12372#       发表于 2022-4-22 13:05
+
+<img src="https://img.saraba1st.com/forum/202204/22/130235v27fbcimnbni4csn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>NIJISANJI EN「Sakura Bloom Goods&amp;amp;Voice2022」ENストア・にじストアにて販売決定！.jpeg</strong> (564.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-22 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202204/22/130458hv6vazx7gh5zcotq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>NIJISANJI EN「Sakura Bloom Goods&amp;amp;Voice2022」ENストア・にじストアにて販売決定！.jpeg</strong> (152.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-22 13:04 上传
+
+看人下菜碟了，男团+订阅最高的三个女V才有周边，够狼性
+
+*****
+
+####  cckuku  
+##### 12373#       发表于 2022-4-22 13:07
+
+以我有限的买谷经验来评价一下，感觉不印名字会更好看<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
