@@ -4280,3 +4280,14 @@ en字幕组是开的啥？
 
 早该开一下了，b的彩虹官号运营真的不行
 
+
+
+*****
+
+####  FCCHua  
+##### 12393#       发表于 2022-4-22 20:57
+
+ 本帖最后由 FCCHua 于 2022-4-22 21:00 编辑 
+
+开的好啊，天天搁那转en相关，虹女日常惨已经不需要再提了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
