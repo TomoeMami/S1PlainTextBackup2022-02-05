@@ -4300,3 +4300,12 @@ en字幕组是开的啥？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">会有第二季的。
 
+
+
+*****
+
+####  藤原银  
+##### 12395#       发表于 2022-4-22 21:46
+
+没想到这么快来就开打了
+
