@@ -12720,3 +12720,27 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 必须要跟上时代嘛，在专楼外面不要提</blockquote>
 你看了一圈哪个杂谈力强点？我发现我还是爱看整活儿逗逼的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sjbssd  
+##### 5851#       发表于 2022-4-22 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55549362&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-4-22 23:25</a>
+
+你看了一圈哪个杂谈力强点？我发现我还是爱看整活儿逗逼的</blockquote>
+文静的话比较喜欢和弹幕互动黄色笑话，人生经历应该是v里面比较丰富的，比较适合25岁以上，但是皮套机能不行，关于二次元的整活比较少，艾白的话是偏搞笑一点的，装傻类型，但是唱歌超好听，可惜听不到几次，千鸟我就看这两个。其他的我私信你吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 龙娘777| + 1|回回血吧|
+
+查看全部评分
+
