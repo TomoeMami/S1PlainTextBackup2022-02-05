@@ -4266,3 +4266,17 @@ en字幕组是开的啥？
 反正我看官号不管jp天天转en相关本社粉早看不顺眼了，加上这次en女也只出三人，新谷动 ...</blockquote>
 就是那一条，转发里已经能看到字幕组了
 
+
+
+*****
+
+####  fastary  
+##### 12392#       发表于 2022-4-22 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55547198&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-4-22 20:33</a>
+
+就是那一条，转发里已经能看到字幕组了</blockquote>
+没关注en女组号还真没发现，好开！
+
+早该开一下了，b的彩虹官号运营真的不行
+
