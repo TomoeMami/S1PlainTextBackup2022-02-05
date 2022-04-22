@@ -4241,3 +4241,14 @@ lr谢罪直播那天晚上除了有大型联动预定的教授pt，los不开播�
 
 B站NIJIEN字幕组开始开彩虹官号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12390#       发表于 2022-4-22 20:29
+
+en字幕组是开的啥？
+
+反正我看官号不管jp天天转en相关本社粉早看不顺眼了，加上这次en女也只出三人，新谷动态下面全是骂的<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
