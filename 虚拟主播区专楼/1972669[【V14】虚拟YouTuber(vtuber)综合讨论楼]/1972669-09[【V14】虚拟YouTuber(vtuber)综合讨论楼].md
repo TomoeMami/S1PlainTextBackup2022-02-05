@@ -4232,3 +4232,12 @@ lr谢罪直播那天晚上除了有大型联动预定的教授pt，los不开播�
 玩梗肯定不是教授 ...</blockquote>
 说了也是对粉丝负责吧，表明态度免得粉丝担心自推和犯罪者一路人什么的，不评价好坏…
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12389#       发表于 2022-4-22 20:14
+
+B站NIJIEN字幕组开始开彩虹官号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
