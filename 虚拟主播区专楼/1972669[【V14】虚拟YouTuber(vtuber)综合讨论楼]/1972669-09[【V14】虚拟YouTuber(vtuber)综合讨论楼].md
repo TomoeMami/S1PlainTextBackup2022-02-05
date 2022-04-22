@@ -4352,3 +4352,26 @@ en字幕组是开的啥？
 
 懒得多说，反正替虹女鸣不平当幌子，本质要求多转jp虹男这点心思我还看不出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">没人真的care虹女的。
 
+
+
+*****
+
+####  sjbssd  
+##### 12401#       发表于 2022-4-22 23:14
+
+用语音识别技术加上虚拟歌姬的音调合成技术能不能实现换人听不出区别的效果？
+
+*****
+
+####  fastary  
+##### 12402#       发表于 2022-4-22 23:17
+
+那毕竟jp虹男也确实没转，怎么都该冲的。反正为虹女冲也是冲、为jp虹男冲也是冲……
+
+*****
+
+####  ヒトニナル  
+##### 12403#       发表于 2022-4-22 23:19
+
+我快速看了一下转发和评论，好像给en女鸣不平的是多数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">jp女？真不熟
+
