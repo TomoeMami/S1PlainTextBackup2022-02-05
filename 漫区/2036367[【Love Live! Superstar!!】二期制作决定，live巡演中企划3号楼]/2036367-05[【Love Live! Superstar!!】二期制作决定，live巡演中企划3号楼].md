@@ -14230,3 +14230,13 @@ hot dog(热狗)
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 6994#       发表于 2022-4-23 10:26
+
+天猫店买也不会比代购的货快多少吧，剩下就只有价钱优势<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+我已经全特了，希望物流到时能恢复正常
+
