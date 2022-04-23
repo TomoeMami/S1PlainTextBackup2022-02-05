@@ -4595,3 +4595,21 @@ rurudo“初配信”<img src="https://static.saraba1st.com/image/smiley/face201
 
 hana怎么了，细说
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12428#       发表于 2022-4-23 17:13
+
+我的评价是都不如sana粉丝的生日卡上太空（平流层），浪漫还符合设定
+[Sana's Space Birthday Project 2022](https://docs.google.com/forms/d/e/1FAIpQLSf5W3Db54yzUHDTSK5XBV7drGzQhwSGgCYj9l3Gb-bwrNw7Gg/viewform)
+
+<img src="https://img.saraba1st.com/forum/202204/23/171343isr2w4abbb9anxq2.png" referrerpolicy="no-referrer">
+
+<strong>Sana's Space Birthday Project 2022.png</strong> (199.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-23 17:13 上传
+
