@@ -4560,3 +4560,22 @@ syl holo走之后国内男性向虚拟直播能分流走男粉的可太多了也
 
 为了外界评价而不选择时代广场，不如杏仁👋
 
+
+
+*****
+
+####  实津二三  
+##### 12424#       发表于 2022-4-23 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55555665&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-23 15:37</a>
+
+其实还好吧，感觉单播游戏也挺多的(游戏选择就不评价了)，纪念回多主要是涨的确实快又不想错过捞钱机会。另 ...</blockquote>
+欢乐多。
+
+*****
+
+####  FCCHua  
+##### 12425#       发表于 2022-4-23 16:36
+
+rurudo“初配信”<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
