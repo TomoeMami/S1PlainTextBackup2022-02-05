@@ -14240,3 +14240,19 @@ hot dog(热狗)
 天猫店买也不会比代购的货快多少吧，剩下就只有价钱优势<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 我已经全特了，希望物流到时能恢复正常
 
+
+
+*****
+
+####  cat1230  
+##### 6995#       发表于 2022-4-23 12:02
+
+<blockquote>引用第6993楼lj205于2022-04-23 10:26发表的  :
+
+天猫店买也不会比代购的货快多少吧，剩下就只有价钱优势我已经全特了，希望物流到时能恢复正常</blockquote>
+@lj205
+
+到货速度我到无所谓，反正买来一般也不看，就是现在抢卷太太难了。。。泪流满面，都被黄牛包圆了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
