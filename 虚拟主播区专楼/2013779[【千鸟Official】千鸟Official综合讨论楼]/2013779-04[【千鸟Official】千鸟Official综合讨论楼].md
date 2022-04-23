@@ -12762,3 +12762,12 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 
 补了录播，感觉这次直播过后，起哈鲁会对自己虚拟主播的认知产生怀疑，一场直播说了好多“这是可以说的吗”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  龙娘777  
+##### 5854#       发表于 2022-4-23 17:56
+
+这节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
