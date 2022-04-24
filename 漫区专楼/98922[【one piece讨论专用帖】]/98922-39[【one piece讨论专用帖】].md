@@ -11733,3 +11733,48 @@ BIG MOM的那些儿女们除了佩罗斯佩罗以外还都在海里泡着呢？�
 （爱奇艺估计会有较多和谐[f:0 ...</blockquote>
 这年头想看到精彩的超新星大战四皇都只能奢望动画了，尾田画的什么玩意
 
+
+
+*****
+
+####  evangelina  
+##### 57979#       发表于 2022-4-24 11:27
+
+ 本帖最后由 evangelina 于 2022-4-24 11:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/24/112753e3anpb2nxg6gzjtu.jpg" referrerpolicy="no-referrer">
+
+<strong>FREl7iRacAAVYj8.jpg</strong> (65.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-24 11:27 上传
+
+<img src="https://img.saraba1st.com/forum/202204/24/112753e1ntw7nq5mtr7g99.jpg" referrerpolicy="no-referrer">
+
+<strong>FREiNgeaUAANrcy.jpg</strong> (172.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-24 11:27 上传
+
+<img src="https://img.saraba1st.com/forum/202204/24/112752d5sv5ty705woazzl.jpg" referrerpolicy="no-referrer">
+
+<strong>FREiNfAaUAAIoND.jpg</strong> (69.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-24 11:27 上传
+
+<img src="https://img.saraba1st.com/forum/202204/24/112755y22y6vu2vvygbayu.jpg" referrerpolicy="no-referrer">
+
+<strong>FREl7jpaAAAt0OQ.jpg</strong> (74.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-24 11:27 上传
+
+这集动画质量真的高，而且这bgm是We Are啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+可惜接下来就是跟凯老师的仰卧起坐对练环节，wt给动画组磕个头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
