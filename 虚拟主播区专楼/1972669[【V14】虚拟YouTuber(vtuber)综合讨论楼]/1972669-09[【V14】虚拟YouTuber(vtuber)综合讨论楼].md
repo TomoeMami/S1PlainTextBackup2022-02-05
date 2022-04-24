@@ -4772,3 +4772,26 @@ reid和ema的双排怎么同接这么高，独角兽都死了吗！
 
 省一楼，lr这回归的，深感数字就是正义
 
+
+
+*****
+
+####  Suzutsuki  
+##### 12442#       发表于 2022-4-24 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55572061&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-24 20:37</a>
+
+素世一sc润羽的新号。
+
+省一楼，lr这回归的，深感数字就是正义</blockquote>
+草，这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 12443#       发表于 2022-4-24 22:21
+
+ 本帖最后由 FCCHua 于 2022-4-24 22:23 编辑 
+
+reid自从最协后的同接都不算低，尤其直播联动和apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
