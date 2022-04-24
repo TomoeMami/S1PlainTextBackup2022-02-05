@@ -4823,3 +4823,32 @@ reid自从最协后的同接都不算低，尤其直播联动和apex<img src="ht
 
 为什么vspo还会有独角兽，这些人跟男人联动难道不是日常么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 12447#       发表于 2022-4-24 22:42
+
+ 本帖最后由 poipanchao 于 2022-4-24 22:46 编辑 
+
+vspo的独角兽分类上应该属于，历战型独角兽吧
+
+一般的男女联动无所谓，只要你不在直播里谈恋爱就行
+
+下午ema跟reid联动，小女友感有点强了，我觉着有些抗性低的应该忍不住
+
+syl，如果楼友懂官延区的话，某种意义上跟松冈cp厨有点像
+
+hnn的独角兽大概就是可以接受kmt作为投影，但是换成giru之类的其他人就要炸
+
+*****
+
+####  FCCHua  
+##### 12448#       发表于 2022-4-24 22:43
+
+ 本帖最后由 FCCHua 于 2022-4-24 22:44 编辑 
+
+像hnn有cp组合的都有独角兽，所以完全不意外
+不过反过来kmt也有不少女友粉就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
