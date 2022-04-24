@@ -4689,3 +4689,38 @@ rurudo这皮可以啊
 
 2022-4-24 01:58 上传
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12436#       发表于 2022-4-24 17:31
+
+<img src="https://img.saraba1st.com/forum/202204/24/170337p3hyoau0eyuhuprz.png" referrerpolicy="no-referrer">
+
+<strong>Tsunderia.png</strong> (82.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-24 17:03 上传
+
+英语箱Tsunderia（Rosemi前前世的公司）成员大规模解约，Yuuna Nini, Miori Celesta和Kallin Yazaki三位一期生成员选择转为个人势并没有毕业配信，Matsuro Meru和Orla Gan Ceann将于April 29th, May 3rd毕业配信后成为个人势。
+
+以下是坊间传闻：
+
+&gt;神秘的中国老板出资创立了Tsunderia
+
+&gt;老板意识到仅出资是不够的，紧急雇佣两位Manager（Urara、Char）
+
+&gt;没有liver听马内甲的，而马内甲只想和liver做朋友
+
+&gt;Char不作为，Urara受够了，双双离职
+
+&gt;公司拿四成收益但不提供任何支持与帮助，liver们意识到公司毛用没有
+
+&gt;买皮走人←NOW
+
+（BTW，总感觉任何v箱动荡都能看到虹杏两家信在那儿挑精拣肥）
+
+（想要Miori，她翻唱的Red太有水平了）
+
