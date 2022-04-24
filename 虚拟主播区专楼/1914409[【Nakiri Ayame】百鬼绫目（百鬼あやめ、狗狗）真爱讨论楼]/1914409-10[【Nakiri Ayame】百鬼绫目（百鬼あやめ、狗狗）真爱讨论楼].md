@@ -6302,3 +6302,22 @@ mio香羊了 这下绫总和狐姨密接了
 
 这里有点邪的，别七天之内绫总真要会限了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 14132#       发表于 2022-4-24 10:59
+
+[https://youtu.be/6Oe9cZLxNeA?t=1910](https://youtu.be/6Oe9cZLxNeA?t=1910)
+
+ルイ姉会限谈绫总：
+
+最近大量聊天，长时间畅谈哈利波特和神奇动物
+
+笑点相近，讲个冷笑话两人狂笑
+
+之前说自己会限同时视听了神奇动物的时候绫总说要加会员看
+
+感觉绫总是不会主动的类型，但最近居然收到了消息说要联动
+
