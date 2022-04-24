@@ -4742,3 +4742,19 @@ rurudo这皮可以啊
 
 reid和ema的双排怎么同接这么高，独角兽都死了吗！
 
+
+
+*****
+
+####  Ketestrait  
+##### 12439#       发表于 2022-4-24 20:21
+
+2022荣冠新加的觉醒还挺有意思的，放到虹甲里说不定本来的冷板凳也可以靠脸一举翻身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 12440#       发表于 2022-4-24 20:28
+
+にじさんじ官号 金盾达成
+
