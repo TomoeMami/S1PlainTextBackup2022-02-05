@@ -4852,3 +4852,12 @@ hnn的独角兽大概就是可以接受kmt作为投影，但是换成giru之类�
 像hnn有cp组合的都有独角兽，所以完全不意外
 不过反过来kmt也有不少女友粉就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12449#       发表于 2022-4-24 23:01
+
+ymen说今天有告知又迟迟没动作搞得我心神不宁一天怕他要在ymen恢复正常直播了，结果就是下一次trpg……黛灰还要休息多久啊，别是ymen过完trpg瘾再说吧OTZ
+
