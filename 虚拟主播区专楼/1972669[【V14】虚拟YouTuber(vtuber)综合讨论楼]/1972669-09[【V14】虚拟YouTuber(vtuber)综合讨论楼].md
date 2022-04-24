@@ -4910,3 +4910,14 @@ ymen说今天有告知又迟迟没动作搞得我心神不宁一天怕他要在y
 
 明明会的动画歌挺多的，最后唱来唱去还是这几首，就像阿菜的人生一样永远在原地打转<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12455#       发表于 2022-4-25 02:11
+
+reid和ema这立绘这性格太登对了，最协的时候就感觉很不妙<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
