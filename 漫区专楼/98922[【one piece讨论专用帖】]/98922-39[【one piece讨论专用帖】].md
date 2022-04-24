@@ -11789,3 +11789,17 @@ BIG MOM的那些儿女们除了佩罗斯佩罗以外还都在海里泡着呢？�
 
 接下来的1017话也会是质量高峰，而且1017话的作画张数又双叒叕破纪录了
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 57981#       发表于 2022-4-24 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55565440&amp;ptid=98922" target="_blank">evangelina 发表于 2022-4-24 11:27</a>
+
+这集动画质量真的高，难得五皇这么帅气。而且这bgm是We Are啊
+
+可惜接下来就是跟凯老师的仰卧起 ...</blockquote>
+五黄的火拳真帅啊
+
