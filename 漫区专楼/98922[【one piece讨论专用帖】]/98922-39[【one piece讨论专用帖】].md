@@ -11778,3 +11778,14 @@ BIG MOM的那些儿女们除了佩罗斯佩罗以外还都在海里泡着呢？�
 
 可惜接下来就是跟凯老师的仰卧起坐对练环节，wt给动画组磕个头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Tomorrow_D  
+##### 57980#       发表于 2022-4-24 11:36
+
+这集从去年7月到现在一共用了十个月的时间去制作，细想的话对于长篇动画来说真的太浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+接下来的1017话也会是质量高峰，而且1017话的作画张数又双叒叕破纪录了
+
