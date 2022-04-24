@@ -13696,3 +13696,12 @@ Screenshot_2022-04-23-23-55-54-277_com.android.browser.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  JY要塞  
+##### 10435#       发表于 2022-4-24 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定是坦克爱好者比较多呢，坦克民永不输
+
