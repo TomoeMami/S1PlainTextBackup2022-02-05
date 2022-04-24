@@ -4795,3 +4795,22 @@ reid和ema的双排怎么同接这么高，独角兽都死了吗！
 
 reid自从最协后的同接都不算低，尤其直播联动和apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 12444#       发表于 2022-4-24 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有独角兽啊，明显有人来狙还有狙完直接给白雪哥上了一套反复处决的。
+今天的エマ确实非常可爱。
+
+*****
+
+####  poipanchao  
+##### 12445#       发表于 2022-4-24 22:30
+
+快点把reid ema luna三排端上来吧
+
+等不及看修罗场了
+
