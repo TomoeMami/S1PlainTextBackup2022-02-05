@@ -13811,3 +13811,14 @@ Screenshot_2022-04-23-23-55-54-277_com.android.browser.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 10447#       发表于 2022-4-25 13:53
+
+👋有点下头了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
