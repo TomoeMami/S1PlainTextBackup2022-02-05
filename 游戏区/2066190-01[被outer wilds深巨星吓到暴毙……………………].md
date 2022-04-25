@@ -964,3 +964,12 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">主机啥时候给60帧啊
 
+
+
+*****
+
+####  渺晓  
+##### 101#       发表于 2022-4-25 23:38
+
+刚通，深巨星的印象是壮观，躲章鱼里时竟然还有一种安全感<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">，吓人的还是突然冒出来的安康鱼，还有碎空星无数次掉进黑洞的失重感。
+
