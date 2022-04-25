@@ -13936,3 +13936,12 @@ NHOT BOT 新メンバー お披露目発表会
 
 功课到位的阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10458#       发表于 2022-4-25 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
