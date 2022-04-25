@@ -955,3 +955,12 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 制作组也在有意的将玩家往深巨星引导（对就是睁眼时的轨道探测器）
 天文台出来时跟那个路人的强制对话，也是引导你去见加布罗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 100#       发表于 2022-4-25 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">主机啥时候给60帧啊
+
