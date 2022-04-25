@@ -13848,3 +13848,20 @@ NHOT BOT 新メンバー お披露目発表会
 
 西村博之さんは第1部でメンバーに今後のアドバイスを行い、第2部ではゲーム対決に参加する。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10450#       发表于 2022-4-25 16:59
+
+开始抽礼物。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/25/165808upp44oolh95gflxl.jpg" referrerpolicy="no-referrer">
+
+<strong>FRLQ3lfVkAEaVtv.jpg</strong> (238.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-25 16:58 上传
+
