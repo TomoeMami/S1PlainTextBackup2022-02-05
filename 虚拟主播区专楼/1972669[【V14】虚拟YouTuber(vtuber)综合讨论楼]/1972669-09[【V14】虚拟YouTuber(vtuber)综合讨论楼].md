@@ -5128,3 +5128,22 @@ elu和花妈一直打感觉数字没改善，美夜子人人夸结果每次赛�
 
 不过也可能只是我看的女v们一打apex同接就三位数且涨粉死掉<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，打麻将好歹还有机会联动上位涨粉...
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12475#       发表于 2022-4-25 19:10
+
+<img src="https://img.saraba1st.com/forum/202204/25/190730p1j9r5277xc7yrcw.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220425190712.png</strong> (29.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-25 19:07 上传
+
+最协的含金量↑
+
+关键还是要打出成绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
