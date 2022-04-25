@@ -4921,3 +4921,12 @@ reid和ema这立绘这性格太登对了，最协的时候就感觉很不妙<img
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 12456#       发表于 2022-4-25 09:19
+
+petra拉联动被烧了啊……你虹连en都无法避免大联动烧组织者啊
+
