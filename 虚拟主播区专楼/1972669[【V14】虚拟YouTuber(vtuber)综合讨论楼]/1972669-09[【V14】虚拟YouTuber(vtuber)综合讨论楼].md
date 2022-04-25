@@ -5052,3 +5052,28 @@ nijisanji是工作，hololive是生活
 
 petra这个看了眼好像是前后辈玩笑开过火了，什么乱七八糟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  rzrbtk  
+##### 12468#       发表于 2022-4-25 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55581892&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-4-25 17:16</a>
+
+现在v麻将势99%都是打雀魂，别的网麻都糊透了，天凤也糊，至于那个麻将协会pro计划大多数v也就是转着玩而 ...</blockquote>
+确实，顶层的v干什么都有数字不如多开收米回，不过对中层来说打麻将应该不算debuff，就我自己体感，水平一样菜的情况下apex（非联动）更是数字杀手且吃不到米，麻将打多了要不有联动甚至官方活动，参加大赛/找pro提高水平多少还是有好处的，吧。
+
+我觉得reid上雀圣已经是投入大量精力的结果了，顺势参加两个大赛也挺合理的。
+
+*****
+
+####  IDIDIDID  
+##### 12469#       发表于 2022-4-25 18:18
+
+【BIRTHDAY BASH】HAPPY BIRTHDAY CLAN【NIJISANJI EN | Vox Akuma】
+
+454 waitingScheduled for Apr 25, 2022
+
+今天不会有人不看这台吧？
+
