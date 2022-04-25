@@ -942,3 +942,16 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  filo916  
+##### 99#       发表于 2022-4-25 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55580690&amp;ptid=2066190" target="_blank">dunkeicht 发表于 2022-4-25 15:46</a>
+深巨星和其他几个星球比起来其实是相当安全的，龙卷风怎么吹都吹不死人，水多了点但也没有怪物，相对危险的 ...</blockquote>
+深巨星算是除了母星木炉星以外最安全的行星了
+制作组也在有意的将玩家往深巨星引导（对就是睁眼时的轨道探测器）
+天文台出来时跟那个路人的强制对话，也是引导你去见加布罗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
