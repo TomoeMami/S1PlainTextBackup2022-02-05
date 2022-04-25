@@ -4930,3 +4930,12 @@ reid和ema这立绘这性格太登对了，最协的时候就感觉很不妙<img
 
 petra拉联动被烧了啊……你虹连en都无法避免大联动烧组织者啊
 
+
+
+*****
+
+####  lor  
+##### 12457#       发表于 2022-4-25 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">自己推受点气就是罪大恶极
+
