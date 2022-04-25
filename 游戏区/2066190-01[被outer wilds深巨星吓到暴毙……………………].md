@@ -788,3 +788,26 @@ XGP库里有。操作一个球状（可以变成飞盘滑翔）的探测器在�
 不过要是买了vr套装的话，个人打算尝试前三位的就是alyx，outer wilds，subnautica
 排名分先后，因为实在不敢先去试subnautica
 
+
+
+*****
+
+####  Evilgurren  
+##### 85#       发表于 2022-4-25 14:03
+
+这游戏起码有一半的恐惧感来自你的大尺寸屏幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+换成ns屏幕就不吓人了
+
+*****
+
+####  barry.allen  
+##### 86#       发表于 2022-4-25 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55571224&amp;ptid=2066190" target="_blank">hypnossz86 发表于 2022-4-24 19:31</a>
+
+我记得云了一下说真结局的入口就是从深海底一个巨大安康鱼的嘴里边进去...
+
+单是云那一下我都害怕... ...</blockquote>
+那其实不用去，而且那是只死安康鱼
+
