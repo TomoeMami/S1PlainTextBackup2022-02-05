@@ -4957,3 +4957,20 @@ petra拉联动被烧了啊……你虹连en都无法避免大联动烧组织者�
 
 有栖莓Live
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12460#       发表于 2022-4-25 14:44
+
+<img src="https://img.saraba1st.com/forum/202204/25/144225vn5vn2ohpmvhe08k.png" referrerpolicy="no-referrer">
+
+<strong>I will never forget a :u: ship... .png</strong> (55.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-25 14:42 上传
+
+nijisanji是工作，hololive是生活
+
