@@ -820,3 +820,18 @@ XGP库里有。操作一个球状（可以变成飞盘滑翔）的探测器在�
 
 全是安康鱼那个叫啥来着？黑棘星？
 
+
+
+*****
+
+####  十六夜pad长  
+##### 88#       发表于 2022-4-25 14:27
+
+巨行星恐惧症的，先玩个戴森球计划脱敏吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+开场就是载着你的飞船近距离飞过太阳，然后你的初始星球是设定在一颗巨星气态行星的卫星上，只要不是小几率的特殊轨道和特殊倾角，你站在初始星球上抬起头就会看到一颗巨大的气态行星从你头顶掠过<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+随着科技发展你还可以飞去那颗气态行星，也可以飞去太阳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCCM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
