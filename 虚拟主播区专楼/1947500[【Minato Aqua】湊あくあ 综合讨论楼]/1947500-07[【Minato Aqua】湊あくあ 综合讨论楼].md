@@ -1033,3 +1033,12 @@ APEX 封印！
 
 病好了倒是播呀！
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 9116#       发表于 2022-4-25 20:48
+
+大亏寿司工商吃到食物中毒上吐下泄，这搞了很久的红牛工商大亏你的心脏受的了吗，上次solo大师的时候就已经说那边一直在送红牛+心脏受不了了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
