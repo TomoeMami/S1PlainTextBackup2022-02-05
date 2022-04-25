@@ -5156,3 +5156,16 @@ elu和花妈一直打感觉数字没改善，美夜子人人夸结果每次赛�
 
 毕业还要打狒狒14的阿菜，令人肃然起敬
 
+
+
+*****
+
+####  fastary  
+##### 12477#       发表于 2022-4-25 19:31
+
+最协期间：很少打枪的黑客变得像枪男主播一样了(笑)(同接还低)，等结束就能回到原来的独立游戏玩家了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+最协后：休息两周，回来还是打枪(指作为队友参加APEX大会活动)<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+黑客，你快回来搞你的50人凸待好不好<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+

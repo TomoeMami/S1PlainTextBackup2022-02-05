@@ -8155,3 +8155,12 @@ WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
 那么这次是实装局长和导演了吧</blockquote>
 美服可以跑路了
 
+
+
+*****
+
+####  rooarr  
+##### 87708#       发表于 2022-4-25 19:27
+
+4星直接用咕哒子啊，4星caster都设定好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

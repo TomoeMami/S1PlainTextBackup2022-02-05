@@ -12856,3 +12856,19 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Badwoman  
+##### 5865#       发表于 2022-4-25 19:23
+
+违反保密协议<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 5866#       发表于 2022-4-25 19:31
+
+越来越觉得静子是个悲剧英雄了。不知道能不能在我不看管人之前看到大结局。
+
