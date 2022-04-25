@@ -12838,3 +12838,21 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 
 有没有可能律师函是给我们看的，实际上已经私了了
 
+
+
+*****
+
+####  夜潇箫  
+##### 5863#       发表于 2022-4-25 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">是不是说明陈珺说的有部分是真的
+
+*****
+
+####  yvy2222  
+##### 5864#       发表于 2022-4-25 19:20
+
+不传谣，不信谣，坐等静静反转
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
