@@ -685,3 +685,18 @@ abzu很美啊!这也能害怕么</blockquote>
 
 我自己觉得体会不到别人说的吓人，然后想了一下原因：这游戏距离尺度太迷你了。星球就数千米大，规模印象因此完全达不到巨物。画面都不需要改，数字显示加一串零，大概就可怕多了
 
+
+
+*****
+
+####  Andrue  
+##### 76#       发表于 2022-4-25 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55571196&amp;ptid=2066190" target="_blank">liuyuan23 发表于 2022-4-24 19:28</a>
+恐水症是不是应该赶紧来一针狂犬疫苗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+似乎发作了就没救了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
