@@ -5028,3 +5028,14 @@ nijisanji是工作，hololive是生活
 
 而且那个pro培训计划到底对企业势什么态度就说不清，兔组也不是很敢直接报名的样子，但有流量的大都是企业势诶...
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 12466#       发表于 2022-4-25 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55580359&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-25 15:24</a>
+ 麻将不等于雀魂啦，俱乐部/协会/联盟/雀魂/天凤...也不是各个吃中华饭吧。 悠星和虹绑了，abema要不虹要 ...</blockquote>
+现在v麻将势99%都是打雀魂，别的网麻都糊透了，天凤也糊，至于那个麻将协会pro计划大多数v也就是转着玩而已，对有数字的v来说麻将根本就是debuff，没有投入大量精力的必要，reid喜欢打麻将也不经常播都是自己打
+
