@@ -931,3 +931,14 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 还有鮟鱇鱼和DLC呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弑古斯  
+##### 98#       发表于 2022-4-25 19:51
+
+因为先玩的星际拓荒，导致我觉得无人深空做得就是一坨翔<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">不管是驾驶飞船还是星球表面，都很无趣
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
