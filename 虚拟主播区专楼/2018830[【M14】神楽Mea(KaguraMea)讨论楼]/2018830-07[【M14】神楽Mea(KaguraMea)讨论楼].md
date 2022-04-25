@@ -13768,3 +13768,15 @@ Screenshot_2022-04-23-23-55-54-277_com.android.browser.jpg
 
 <img src="https://p.sda1.dev/5/27c952b28199d74cf946fd9e8f9b67cd/IMG_20220425_103734.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 10443#       发表于 2022-4-25 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55575355&amp;ptid=2018830" target="_blank">肥到终点 发表于 2022-4-25 07:36</a>
+
+从戴不上犬山婚戒那刻起不是鉴定为肥了吗</blockquote>
+我记得几年前楼里就经常骂犬山肥，什么照片都是高P，不如mea火腿肠。现在好，自己的推居然戴不上犬山的魂戒，这不是个天大的笑话么
+
