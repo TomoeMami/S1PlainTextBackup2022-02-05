@@ -12881,3 +12881,28 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 
 👋🏻别跟鸟吧那群脑弹共振
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 5868#       发表于 2022-4-25 20:25
+
+珺说啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gawain039  
+##### 5869#       发表于 2022-4-25 20:31
+
+v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
+
+*****
+
+####  gawain039  
+##### 5870#       发表于 2022-4-25 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55584195&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2022-4-25 20:25</a>
+珺说啥了</blockquote>
+文静是最后一个到千鸟的，是艺术生，没动阑尾手术，只动了脖子以上的手术
+
