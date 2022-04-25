@@ -13958,3 +13958,41 @@ NHOT BOT 新メンバー お披露目発表会
 
 你咩姐乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10460#       发表于 2022-4-25 22:29
+
+最后一题玩过桃铁优势太大了
+
+*****
+
+####  路人庚  
+##### 10461#       发表于 2022-4-25 22:29
+
+你咩姐战胜了自己！她记住了四国！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/25/222953xdhoj176cxw13ca2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1600FFAE-5E05-441E-8FB9-40AD8EEF4856.jpeg</strong> (299.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-25 22:29 上传
+
+*****
+
+####  T_Hb  
+##### 10462#       发表于 2022-4-25 22:30
+
+好伏笔
+
+*****
+
+####  汇聚群光  
+##### 10463#       发表于 2022-4-25 22:32
+
+哥杀漫画的作者是组长直播间的常客了
+
