@@ -912,3 +912,22 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 —— 来自 OPPO PCCM00, An ...</blockquote>
 得了，下单去。
 
+
+
+*****
+
+####  dunkeicht  
+##### 96#       发表于 2022-4-25 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55579930&amp;ptid=2066190" target="_blank">笔の海 发表于 2022-04-25 14:49:58</a>
+我跌跌撞撞一头摔进深巨星水下，视角天旋地转，看到底下一个黑乎乎的球，旁边还有发光的生物，就想起npc ...</blockquote>深巨星和其他几个星球比起来其实是相当安全的，龙卷风怎么吹都吹不死人，水多了点但也没有怪物，相对危险的核心找到方法前都去不了，可以放心探索<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  fever41  
+##### 97#       发表于 2022-4-25 15:49
+
+还有鮟鱇鱼和DLC呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

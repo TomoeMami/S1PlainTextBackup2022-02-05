@@ -12771,3 +12771,12 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 
 这节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lh6933  
+##### 5855#       发表于 2022-4-25 15:45
+
+联动猫雷、取关砸牌
+
