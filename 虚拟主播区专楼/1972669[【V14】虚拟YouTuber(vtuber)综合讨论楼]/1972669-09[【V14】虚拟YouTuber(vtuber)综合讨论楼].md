@@ -5012,3 +5012,19 @@ nijisanji是工作，hololive是生活
 
 你这解释了个寂寞啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 12465#       发表于 2022-4-25 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55580207&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-4-25 15:12</a>
+
+不是因为zz问题吗，雀魂怎么也是国产游戏</blockquote>
+麻将不等于雀魂啦，俱乐部/协会/联盟/雀魂/天凤...也不是各个吃中华饭吧。
+
+悠星和虹绑了，abema要不虹要不anmr，其他肯定要各自找路，这次reid不知道能不能当个桥梁，
+
+而且那个pro培训计划到底对企业势什么态度就说不清，兔组也不是很敢直接报名的样子，但有流量的大都是企业势诶...
+
