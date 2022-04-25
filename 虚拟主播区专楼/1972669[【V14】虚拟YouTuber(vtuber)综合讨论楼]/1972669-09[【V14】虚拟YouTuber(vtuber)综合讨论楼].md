@@ -4974,3 +4974,30 @@ petra拉联动被烧了啊……你虹连en都无法避免大联动烧组织者�
 
 nijisanji是工作，hololive是生活
 
+
+
+*****
+
+####  rzrbtk  
+##### 12461#       发表于 2022-4-25 15:05
+
+看到有人说，最近神域麻将赛要开始了，麻将联盟要搞vtuber的pro培训计划，麻将协会要积极vtb联动，都在抢肉吃<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">，
+
+想说怎么没人争取一下杏，结果搜索了杏麻将相关，主要有【#雀魂】振り込む度に存在感が薄くなる麻雀大会和【ぺこくす】兎田ぺこら三連続飛翔！？楠栞桜ぺこ虐シーン集，这siosio全责...？
+
+*****
+
+####  渡鸦骑士  
+##### 12462#       发表于 2022-4-25 15:09
+
+主要还是雀魂那边情况很尴尬导致根本没人一直打麻将也谈不上培养吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 12463#       发表于 2022-4-25 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55580107&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-25 15:05</a>
+ 看到有人说，最近神域麻将赛要开始了，麻将联盟要搞vtuber的pro培训计划，麻将协会要积极vtb联动，都在抢肉 ...</blockquote>
+不是因为zz问题吗，雀魂怎么也是国产游戏
+
