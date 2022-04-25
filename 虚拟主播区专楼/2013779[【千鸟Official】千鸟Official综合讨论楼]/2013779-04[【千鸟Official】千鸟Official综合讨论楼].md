@@ -12789,3 +12789,20 @@ SYL 艾白模仿塔菲还是吐词太清晰了
 
 不要的牌子可以给我吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 5857#       发表于 2022-4-25 18:49
+
+原本也就当笑话听听，最多变成梗，这一发律师函不好说了…
+
+*****
+
+####  夜之中道崩殂  
+##### 5858#       发表于 2022-4-25 18:50
+
+停尸间没人搬是吧？
+<img src="https://p.sda1.dev/5/3a2d6d615a5b6eee75f56671af347988/CMP_20220425184955351.jpg" referrerpolicy="no-referrer">
+

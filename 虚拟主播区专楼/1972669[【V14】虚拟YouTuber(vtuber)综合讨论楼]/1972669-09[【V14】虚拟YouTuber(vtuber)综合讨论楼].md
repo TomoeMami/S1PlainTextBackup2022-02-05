@@ -5113,3 +5113,18 @@ petra这个看了眼好像是前后辈玩笑开过火了，什么乱七八糟的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">宇宙第一男V还是留给小仙女们看吧，我可不看
 
+
+
+*****
+
+####  rzrbtk  
+##### 12474#       发表于 2022-4-25 18:48
+
+ 本帖最后由 rzrbtk 于 2022-4-25 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55582882&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-4-25 18:30</a>
+
+底层打一年apex能从同接几百打上同接几千上万，而天狗师匠顶级实力到处联动麻将打了几年现在最多也就一千 ...</blockquote>
+elu和花妈一直打感觉数字没改善，美夜子人人夸结果每次赛完数字就有回去了，在中层v上枪民的支持也多限于枪吧（我个人对枪民的攻击性也比较...）；论竞争人数apex不比麻将激烈，有段时间一开直播一栏apex，麻将好歹有pro或者官方支援。稍微有一些冷门的游戏对底边优点就是方便蹭，老板娘也能蹭麻将赛，空星上番组什么的，如果本来就有麻将能力的话去参加pro计划多少也是划算的吧，毕竟虹第二重视数字的男人也有意一试。
+
+不过也可能只是我看的女v们一打apex同接就三位数且涨粉死掉<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，打麻将好歹还有机会联动上位涨粉...
+
