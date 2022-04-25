@@ -5077,3 +5077,39 @@ petra这个看了眼好像是前后辈玩笑开过火了，什么乱七八糟的
 
 今天不会有人不看这台吧？
 
+
+
+*****
+
+####  adamtheo  
+##### 12470#       发表于 2022-4-25 18:29
+
+【祝】収益化＆5万人記念配信！みんな、本当にありがとう！！！【#夜十神封魔 #アップロー #ホロスターズ 】
+
+77 waitingScheduled for Apr 25, 2022
+
+撞车无人在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 12471#       发表于 2022-4-25 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55582702&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-4-25 18:15</a>
+ 确实，顶层的v干什么都有数字不如多开收米回，不过对中层来说打麻将应该不算debuff，就我自己体感，水平 ...</blockquote>
+底层打一年apex能从同接几百打上同接几千上万，而天狗师匠顶级实力到处联动麻将打了几年现在最多也就一千多点还是吃了神域buff后，相比来说投入一样的时间玩啥都比打麻将收益高，而且麻将这东西实际上很吃时间进步起来可能还比练打枪慢………当然最重要的是现在麻将v其实挺饱和了，进去抢一个也不算香的位置完全没必要
+
+*****
+
+####  格林卡罗尔  
+##### 12472#       发表于 2022-4-25 18:30
+
+按future king的增速还有半年才能登基，急什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 12473#       发表于 2022-4-25 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">宇宙第一男V还是留给小仙女们看吧，我可不看
+
