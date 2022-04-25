@@ -5001,3 +5001,14 @@ nijisanji是工作，hololive是生活
  看到有人说，最近神域麻将赛要开始了，麻将联盟要搞vtuber的pro培训计划，麻将协会要积极vtb联动，都在抢肉 ...</blockquote>
 不是因为zz问题吗，雀魂怎么也是国产游戏
 
+
+
+*****
+
+####  Ketestrait  
+##### 12464#       发表于 2022-4-25 15:20
+
+<img src="https://tva4.sinaimg.cn/large/7c16af6bly1h1lzsf8q0bj20gj06z0wk.jpg" referrerpolicy="no-referrer">
+
+你这解释了个寂寞啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
