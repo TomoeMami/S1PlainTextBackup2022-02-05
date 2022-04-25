@@ -13945,3 +13945,16 @@ NHOT BOT 新メンバー お披露目発表会
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 10459#       发表于 2022-4-25 22:21
+
+笨蛋王（X）
+
+东大王（O）
+
+你咩姐乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
