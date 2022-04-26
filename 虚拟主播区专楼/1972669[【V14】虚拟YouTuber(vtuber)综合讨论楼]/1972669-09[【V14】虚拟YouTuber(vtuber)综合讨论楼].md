@@ -5450,3 +5450,24 @@ TSM和哈弟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png
 
 求求大家不要拓展聊到月之上海游了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12504#       发表于 2022-4-26 19:34
+
+有没有情强科普下TSM和KNR，我只知道应该是游戏战队（
+
+*****
+
+####  ashero  
+##### 12505#       发表于 2022-4-26 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55596639&amp;ptid=1972669" target="_blank">fastary 发表于 2022-4-26 19:34</a>
+
+有没有情强科普下TSM和KNR，我只知道应该是游戏战队（</blockquote>
+tsm=Team SoloMid 北美豪门电子竞技俱乐部
+
+哈弟组的apex小团伙 仲良しグループのKnot Not Rank（通称KNR）
+
