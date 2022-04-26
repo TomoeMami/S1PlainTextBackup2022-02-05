@@ -11883,3 +11883,16 @@ BIG MOM的那些儿女们除了佩罗斯佩罗以外还都在海里泡着呢？�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">不是 路飞最后是让桃之助赶紧把岛拖走别让他打到吧？
 
+
+
+*****
+
+####  梦·花火  
+##### 57988#       发表于 2022-4-26 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55528920&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2022-4-21 12:56</a>
+这一话结尾的巨大拳头，和上一话结尾的引天雷有啥区别
+
+天雷憋了两个礼拜，然后被凯多一个闪避就躲了 ...</blockquote>
+尾田现在只会整这些噱头
+
