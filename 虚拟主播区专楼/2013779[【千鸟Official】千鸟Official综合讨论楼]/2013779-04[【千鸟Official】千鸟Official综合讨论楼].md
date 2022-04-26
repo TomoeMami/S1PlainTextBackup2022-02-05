@@ -13161,3 +13161,20 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 
 现在是鸟又散版本了是吗
 
+
+
+*****
+
+####  古战场亡魂  
+##### 5897#       发表于 2022-4-26 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真的假的无所谓的，但是装死是不可取的。
+
+假的就直播道歉，学七海同志来个高级墙，然后勤快的播几天。
+
+真的就直接一步到位法院传票，律师函这种也就是笑话。
+
+反正从发出律师函再撤销的时候事件早升级了。
+
+现在直接一手病遁除了让事情发酵之外没有更多好处，别又来一次遁个几天直播念稿年错行的操作就行。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
