@@ -13117,3 +13117,20 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 有没有可能她的谎话影响直播了呢</blockquote>
 虚拟主播规定了说话要保真吗，什么真话都往外说才是真的蠢，七海锐评耳机挺真的然后呢。一群乐子人搞盒中盒带起来的节奏，最后怪主播不够真？现在真人秀都没几个是真的，来虚拟主播身上寻找真实是不是搞错了什么
 
+
+
+*****
+
+####  明镜止水s  
+##### 5892#       发表于 2022-4-26 14:54
+
+一个贩卖虚拟陪伴感的主播，其中的信任感被cj打破了，不是影响直播了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 5893#       发表于 2022-4-26 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">本来也没想是真话 
+只不过cj的话都能信 呃呃
+
