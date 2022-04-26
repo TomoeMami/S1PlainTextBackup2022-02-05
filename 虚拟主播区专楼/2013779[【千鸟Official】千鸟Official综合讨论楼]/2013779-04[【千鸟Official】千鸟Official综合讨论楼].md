@@ -13068,3 +13068,15 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 虚拟主播谎话连篇是什么鬼，连皮都是假的，难到文静还真是38岁离异带俩娃？这么关心中之人真实信息看什么虚 ...</blockquote>
 有没有可能她的谎话影响直播了呢
 
+
+
+*****
+
+####  迷失的脚趾  
+##### 5887#       发表于 2022-4-26 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55592239&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2022-4-26 13:36</a>
+
+有没有可能她的谎话影响直播了呢</blockquote>
+有没有可能鸟p都喜欢听妈妈说谎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
