@@ -14047,3 +14047,22 @@ NHOT BOT 新メンバー お披露目発表会
 
 但凡玩个词语狼人杀我都当企划制作人真的有领工资。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">宇宙狼人杀，还是一群不熟的，甚至都不知道开几个频道。
 
+
+
+*****
+
+####  路人庚  
+##### 10469#       发表于 2022-4-26 20:05
+
+你咩姐和不熟的人玩宇宙狼人杀也不是第一回了（参考之前绿熊拉的半夜野男人amoasu回
+
+*****
+
+####  古战场亡魂  
+##### 10470#       发表于 2022-4-26 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55596902&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-4-26 20:05</a>
+
+你咩姐和不熟的人玩宇宙狼人杀也不是第一回了（参考之前绿熊拉的半夜野男人amoasu回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 这b站直播比油管还快有点绷不住。
+
