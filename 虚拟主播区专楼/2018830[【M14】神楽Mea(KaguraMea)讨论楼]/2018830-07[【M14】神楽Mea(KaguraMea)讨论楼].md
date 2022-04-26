@@ -14038,3 +14038,12 @@ NHOT BOT 新メンバー お披露目発表会
 
 今晚还有狼人杀？
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10468#       发表于 2022-4-26 16:29
+
+但凡玩个词语狼人杀我都当企划制作人真的有领工资。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">宇宙狼人杀，还是一群不熟的，甚至都不知道开几个频道。
+
