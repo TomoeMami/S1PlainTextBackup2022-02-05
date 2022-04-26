@@ -5471,3 +5471,33 @@ tsm=Team SoloMid 北美豪门电子竞技俱乐部
 
 哈弟组的apex小团伙 仲良しグループのKnot Not Rank（通称KNR）
 
+
+
+*****
+
+####  Kokichi  
+##### 12506#       发表于 2022-4-26 19:43
+
+【【TSMFTX】欢迎Shibuya Hal加入TSMFTX！-哔哩哔哩】 https://b23.tv/NzjIigA
+b站发的好快<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下届最协是不是能扩展到欧美了
+
+*****
+
+####  fastary  
+##### 12507#       发表于 2022-4-26 19:46
+
+<blockquote>ashero 发表于 2022-4-26 19:38
+tsm=Team SoloMid 北美豪门电子竞技俱乐部
+
+哈弟组的apex小团伙 仲良しグループのKnot Not Rank（通称KNR ...</blockquote>
+哦哦knr原来不是战队头衔，我还在想这种应该不能多所属怎么会有两个
+
+非常感谢！
+
+*****
+
+####  集合酱  
+##### 12508#       发表于 2022-4-26 19:51
+
+感觉虹嗯女在国内外的热度都起来了
+

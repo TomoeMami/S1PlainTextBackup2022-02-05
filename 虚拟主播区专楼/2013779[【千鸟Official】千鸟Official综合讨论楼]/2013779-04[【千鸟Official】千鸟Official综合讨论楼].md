@@ -13209,3 +13209,14 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 
 谁给个精简版本说明，瓜没吃上
 
+
+
+*****
+
+####  suzumiya123  
+##### 5901#       发表于 2022-4-26 19:49
+
+这下鸟又散了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
