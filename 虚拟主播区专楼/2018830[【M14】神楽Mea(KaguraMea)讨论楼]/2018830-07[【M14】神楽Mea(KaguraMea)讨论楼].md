@@ -14277,3 +14277,29 @@ meame贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/072.p
 
 草，原来主持人也在游戏里啊，为了节目效果还是第一个刀主持人罢（
 
+
+
+*****
+
+####  路人庚  
+##### 10496#       发表于 2022-4-26 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咩姐是狼啊，做得好啊
+
+*****
+
+####  古战场亡魂  
+##### 10497#       发表于 2022-4-26 21:27
+
+ 本帖最后由 古战场亡魂 于 2022-4-26 21:28 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/26/212841hk2kkm26zxkkk2k8.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220426212757592.jpg</strong> (58.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 21:28 上传
+
+游戏等级最高的两个人是狼，乱杀。
+
