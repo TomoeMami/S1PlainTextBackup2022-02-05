@@ -5560,3 +5560,29 @@ en v最协selen有考虑过办<img src="https://static.saraba1st.com/image/smile
 
 虽然selen提到参赛者不够，但我觉得反而是一个合适的筛选方式很难找到
 
+
+
+*****
+
+####  Ketestrait  
+##### 12516#       发表于 2022-4-26 20:32
+
+<img src="https://tvax4.sinaimg.cn/large/7c16af6bly1h1neebi0fyj20y10j5jva.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax3.sinaimg.cn/large/7c16af6bly1h1neeeprvsj20xz0j142f.jpg" referrerpolicy="no-referrer">
+<img src="https://tva3.sinaimg.cn/large/7c16af6bly1h1neei31lej20xy0j5adz.jpg" referrerpolicy="no-referrer">
+<img src="https://tva1.sinaimg.cn/large/7c16af6bly1h1neellf7tj20xz0j4tcu.jpg" referrerpolicy="no-referrer">
+
+さすJK<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 2|好！！！！！！！！！|
+
+查看全部评分
+
