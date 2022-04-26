@@ -11856,3 +11856,21 @@ BIG MOM的那些儿女们除了佩罗斯佩罗以外还都在海里泡着呢？�
 
 <img src="https://img.saraba1st.com/forum/202204/25/191437n3376ll636963ded.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  C男人  
+##### 57986#       发表于 2022-4-26 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55544483&amp;ptid=98922" target="_blank">汤圆です 发表于 2022-4-22 16:51</a>
+
+之前那些再怎样也都是往凯老师身上招呼的点攻击，凯老师被五皇当众搞笑羞辱都没放松托岛的一丝力气，现在 ...</blockquote>
+说的很对，
+
+所以这一话故意让豹五郎钓大家，把 “我宁愿掉下去” 这话说了，
+
+表示这是群众的选择，不是路**菅人命。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

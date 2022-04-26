@@ -14066,3 +14066,50 @@ NHOT BOT 新メンバー お披露目発表会
 你咩姐和不熟的人玩宇宙狼人杀也不是第一回了（参考之前绿熊拉的半夜野男人amoasu回 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 这b站直播比油管还快有点绷不住。
 
+
+
+*****
+
+####  zc1996zc  
+##### 10471#       发表于 2022-4-26 20:14
+
+又再放送一遍是吧
+
+*****
+
+####  clvan_  
+##### 10472#       发表于 2022-4-26 20:19
+
+企划半年了，能拿出来填转场空当的东西还是只有一个一言难尽的mv，感叹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zc1996zc  
+##### 10473#       发表于 2022-4-26 20:20
+
+嘉宾好开
+
+*****
+
+####  古战场亡魂  
+##### 10474#       发表于 2022-4-26 20:21
+
+ 本帖最后由 古战场亡魂 于 2022-4-26 20:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/26/202157pwioini2jih3n4il.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220426202145237.jpg</strong> (64.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 20:21 上传
+
+这站位什么意思啊？？？你把mea放右边还好点。
+
+*****
+
+####  yywzjsw  
+##### 10475#       发表于 2022-4-26 20:22
+
+lol你mea喜欢，艹会中文是国人吧
+

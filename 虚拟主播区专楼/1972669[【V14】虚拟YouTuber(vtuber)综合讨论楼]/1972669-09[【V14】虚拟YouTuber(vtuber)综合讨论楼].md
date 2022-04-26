@@ -5526,3 +5526,26 @@ tsm=Team SoloMid 北美豪门电子竞技俱乐部
 
 🤔能说英语的v加起来真的不够吗
 
+
+
+*****
+
+####  OldGlory  
+##### 12512#       发表于 2022-4-26 20:14
+
+全英语v为啥非要参加你那最协
+
+*****
+
+####  _Ra1nMaker  
+##### 12513#       发表于 2022-4-26 20:17
+
+那搞个TSM杯 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 12514#       发表于 2022-4-26 20:21
+
+en v最协selen有考虑过办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不指望哈弟了
+
