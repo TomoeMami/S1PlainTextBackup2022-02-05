@@ -13189,3 +13189,14 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 5899#       发表于 2022-4-26 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55592923&amp;ptid=2013779" target="_blank">虾籽馄饨 发表于 2022-4-26 14:45</a>
+虚拟主播规定了说话要保真吗，什么真话都往外说才是真的蠢，七海锐评耳机挺真的然后呢。一群乐子人搞盒中 ...</blockquote>
+谢谢你陌生人，来到管人区的最先发言就是和我汴京
+
