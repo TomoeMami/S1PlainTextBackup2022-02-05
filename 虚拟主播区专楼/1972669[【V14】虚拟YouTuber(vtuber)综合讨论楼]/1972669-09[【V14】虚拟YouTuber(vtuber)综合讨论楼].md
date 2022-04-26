@@ -5306,3 +5306,37 @@ Mリーグ第一战多井top，待机室日向姐一直抱着西西玩偶...
 
 先端恐惧症……，来跑团的？芙连这新衣服太花哨了，没有视觉重点……
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 12490#       发表于 2022-4-26 15:43
+
+<blockquote>Zeenyシリーズ初✨
+
+Bluetoothスピーカー【Zeeny T★Box】
+
+受注販売第二弾開始❗️
+
+＼通常ボイスが #みすみゆうか さんに決定🎉／
+
+❗️さらに期間限定で❗️
+
+限定オリジナルボイス搭載モデル
+
+みすみゆうか Special Editionも登場です❤️
+
+🔽詳細はこちら🔽</blockquote>
+[https://zeeny.com/collections/sp ... iant=42797955416298](https://zeeny.com/collections/speaker/products/zeeny-t-box-misumi?variant=42797955416298)
+
+露露耳机Mk.2
+
+<img src="https://img.saraba1st.com/forum/202204/26/154203rttvwv3r9wqu3brt.png" referrerpolicy="no-referrer">
+
+<strong>word1_3000x.png</strong> (301.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 15:42 上传
+
