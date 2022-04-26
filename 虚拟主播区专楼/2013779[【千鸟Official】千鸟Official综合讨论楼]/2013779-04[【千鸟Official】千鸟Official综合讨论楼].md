@@ -13105,3 +13105,15 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 
 不关心真的假的，我现在就想看文静肚皮的照片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  虾籽馄饨  
+##### 5891#       发表于 2022-4-26 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55592239&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2022-4-26 13:36</a>
+
+有没有可能她的谎话影响直播了呢</blockquote>
+虚拟主播规定了说话要保真吗，什么真话都往外说才是真的蠢，七海锐评耳机挺真的然后呢。一群乐子人搞盒中盒带起来的节奏，最后怪主播不够真？现在真人秀都没几个是真的，来虚拟主播身上寻找真实是不是搞错了什么
+
