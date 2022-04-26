@@ -50,3 +50,53 @@
 
 我也好想吸麻麻
 
+
+
+*****
+
+####  thisisaspider  
+##### 10507#       发表于 2022-4-26 22:25
+
+没看到前面新人部分 等等去补一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JY要塞  
+##### 10508#       发表于 2022-4-26 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以新人能鉴坦了吗
+
+*****
+
+####  古战场亡魂  
+##### 10509#       发表于 2022-4-26 22:25
+
+吸血鬼幸存者早就火了过了，我2月份跟风斗鱼玩的时候就试过了，不过mea能解锁玩游戏了也是好事。她的油管频道太干净了。
+
+不过我个人觉得应该玩点新的，比如哥布林弹珠啥的。
+
+<img src="https://img.saraba1st.com/forum/202204/26/222352q2qrllj0rr6v2rr0.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220426222321733.jpg</strong> (19.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 22:23 上传
+
+*****
+
+####  古战场亡魂  
+##### 10510#       发表于 2022-4-26 22:26
+
+ 本帖最后由 古战场亡魂 于 2022-4-26 22:30 编辑 
+
+狼人杀今晚三人开台，分别是mc，海贼，还有先端。第二把海贼把先端和mea票死，都在刷战犯。
+
+<img src="https://img.saraba1st.com/forum/202204/26/223032ayxvgcx4xxwwvhaa.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220426222946930.jpg</strong> (17.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 22:30 上传
+
