@@ -14391,3 +14391,15 @@ Liella!新立绘公开
 
 Nagi：pay宝10点就睡觉了所以在这个时间后发的消息是不会回复的。鲤鱼只要LINE在线是以秒为单位回复的。 Nako：虽然我有时候也会没注意消息而很晚回复，不过sayu有时候是完全不回复。</blockquote>
 
+
+
+*****
+
+####  csolfans  
+##### 7004#       发表于 2022-4-26 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55551541&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-23 07:27</a>
+
+可能很多人已经买了但还是提下，liyuu的首本写真各大国家队（各个天猫店）都有上架423各店也有300-100的卷 ...</blockquote>
+买的FC直签
+
