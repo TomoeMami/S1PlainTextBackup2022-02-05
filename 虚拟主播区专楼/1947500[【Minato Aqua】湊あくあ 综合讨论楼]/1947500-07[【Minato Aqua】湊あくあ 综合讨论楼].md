@@ -1051,3 +1051,28 @@ APEX 封印！
 
 估计是等黄金周冲大师吧，应该过几天就会动的
 
+
+
+*****
+
+####  nian1538  
+##### 9118#       发表于 2022-4-26 17:26
+
+<img src="https://img.saraba1st.com/forum/202204/26/172347p99s9jjtqd3tzrd9.png" referrerpolicy="no-referrer">
+
+<strong>d39l8dpbt4y61.png</strong> (145.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 17:23 上传
+
+<img src="https://img.saraba1st.com/forum/202204/26/172623ztbu75d9qgdiuni7.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (20.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-26 17:26 上传
+
+coser全是男人的原因找到了（去年就看到过这个对比图一直忘了发）
+

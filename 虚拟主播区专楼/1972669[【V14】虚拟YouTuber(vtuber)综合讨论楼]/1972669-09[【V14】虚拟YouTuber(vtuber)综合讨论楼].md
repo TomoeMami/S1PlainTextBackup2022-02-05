@@ -5358,3 +5358,27 @@ Zeeny 这牌子的品控真的差啊，之前买的露露耳机一堆问题，�
 
 看了nga的帖子后我有一个问题，为什么国内的虹本社粉，不管是和天狗，和杏奴，还有和现在的en粉比起来，他们永远都是少数派呢🤔️虹老害可能真的要付点责的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 12493#       发表于 2022-4-26 17:25
+
+有没有可能是因为彩虹一直都是德不配位，只有拆妮子认清了这点，一直给的都是应有的地位
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 12494#       发表于 2022-4-26 17:31
+
+微博黑黑咎人罗浮猫等等粉丝可没那么费拉不堪，尼哥不行。
+
+*****
+
+####  winda  
+##### 12495#       发表于 2022-4-26 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹本社在cn的营业水平确实是属于德不配位那一档的，现在被真正会营业的en冲击那也是自然的事
+
