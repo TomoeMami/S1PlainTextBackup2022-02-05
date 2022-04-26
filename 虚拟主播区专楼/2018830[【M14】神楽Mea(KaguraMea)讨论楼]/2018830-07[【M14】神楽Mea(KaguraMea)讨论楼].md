@@ -14147,3 +14147,54 @@ lol你mea喜欢，艹会中文是国人吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cortana  
+##### 10480#       发表于 2022-4-26 20:45
+
+西村好强的攻击性啊,可以一块出道吗
+
+*****
+
+####  -MUON-  
+##### 10481#       发表于 2022-4-26 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这肥羊还是摸的愉快
+
+*****
+
+####  ashero  
+##### 10482#       发表于 2022-4-26 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有雨音勉强构成威胁
+
+*****
+
+####  -MUON-  
+##### 10483#       发表于 2022-4-26 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">组团会有团建么，温泉配信来一个
+
+*****
+
+####  clvan_  
+##### 10484#       发表于 2022-4-26 20:51
+
+日本疫情团建出去一锅端了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dualist彩  
+##### 10485#       发表于 2022-4-26 20:51
+
+meame贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10486#       发表于 2022-4-26 20:51
+
+我是搞不懂这团到底想怎么玩。特别是星，这声音招进来想必有什么地方是特别突出的吧，这皮和声音也太不搭了，去换个成年人的立绘可能好点。
+

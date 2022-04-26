@@ -14380,3 +14380,14 @@ Liella!新立绘公开
 
 今天的裂垃圾广播Nagi做的梦太可怕了，把pay吓得悲鸣了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 7003#       发表于 2022-4-26 20:52
+
+<blockquote>鲤鱼是Liella里阅读&amp;回复消息最快的人，pay宝醒着的时候回复的也很快（不过会睡的很早），打铁是最慢的，甚至可能隔两周才回。
+
+Nagi：pay宝10点就睡觉了所以在这个时间后发的消息是不会回复的。鲤鱼只要LINE在线是以秒为单位回复的。 Nako：虽然我有时候也会没注意消息而很晚回复，不过sayu有时候是完全不回复。</blockquote>
+
