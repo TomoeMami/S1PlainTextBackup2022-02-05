@@ -5391,3 +5391,12 @@ Zeeny 这牌子的品控真的差啊，之前买的露露耳机一堆问题，�
 
 所以为什么月丿一直没入驻批站呢？
 
+
+
+*****
+
+####  lor  
+##### 12497#       发表于 2022-4-26 17:55
+
+用露露当盾虚空攻击嗯男粉的虹老害和管luca叫露露的一样傻叉，集美们这是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
