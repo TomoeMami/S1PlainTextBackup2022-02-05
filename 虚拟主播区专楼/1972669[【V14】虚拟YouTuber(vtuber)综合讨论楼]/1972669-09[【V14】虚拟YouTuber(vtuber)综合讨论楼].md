@@ -5416,3 +5416,12 @@ Zeeny 这牌子的品控真的差啊，之前买的露露耳机一堆问题，�
 
 听说月丿有次去上海因维阿接待不周，回去后给田角写了千字文让他重新考虑下这次合作
 
+
+
+*****
+
+####  FCCHua  
+##### 12500#       发表于 2022-4-26 19:11
+
+TSM和哈弟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
