@@ -13269,3 +13269,14 @@ syl，文静这肯定假的啊。一个主杂谈这么久了还这么多经历�
 
 其实我比较疑惑的是文静没有自己的私用小号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 5906#       发表于 2022-4-27 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55599243&amp;ptid=2013779" target="_blank">pipeline 发表于 2022-4-26 23:51</a>
+其实我比较疑惑的是文静没有自己的私用小号吗</blockquote>
+这个有 还抢过乃琳装扮(文静提过自己喜欢乃琳)
+
