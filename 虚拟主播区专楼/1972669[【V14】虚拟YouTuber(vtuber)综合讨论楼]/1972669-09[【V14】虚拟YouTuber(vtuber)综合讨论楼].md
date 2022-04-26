@@ -5382,3 +5382,12 @@ Zeeny 这牌子的品控真的差啊，之前买的露露耳机一堆问题，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹本社在cn的营业水平确实是属于德不配位那一档的，现在被真正会营业的en冲击那也是自然的事
 
+
+
+*****
+
+####  qq845629713  
+##### 12496#       发表于 2022-4-26 17:32
+
+所以为什么月丿一直没入驻批站呢？
+
