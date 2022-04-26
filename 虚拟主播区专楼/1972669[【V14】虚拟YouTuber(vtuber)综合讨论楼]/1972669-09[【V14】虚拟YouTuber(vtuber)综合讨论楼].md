@@ -5549,3 +5549,14 @@ tsm=Team SoloMid 北美豪门电子竞技俱乐部
 
 en v最协selen有考虑过办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不指望哈弟了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12515#       发表于 2022-4-26 20:24
+
+英语v的数量是绝对够的，几个稍微有点人气的箱比如Phase Connect，Kawaii，PRISM，Tsunderia，MyHoloTV虽然各有拉垮但这种机会不可能无视的，加上数量庞大的个人势。随便能抓出来的套皮英语大师猎杀不计其数...他们都缺一个能获得更多关注度的机会
+
+虽然selen提到参赛者不够，但我觉得反而是一个合适的筛选方式很难找到
+
