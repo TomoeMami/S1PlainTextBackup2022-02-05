@@ -5349,3 +5349,12 @@ Bluetoothスピーカー【Zeeny T★Box】
 
 Zeeny 这牌子的品控真的差啊，之前买的露露耳机一堆问题，纯纯骗死宅钱的，
 
+
+
+*****
+
+####  cckuku  
+##### 12492#       发表于 2022-4-26 17:00
+
+看了nga的帖子后我有一个问题，为什么国内的虹本社粉，不管是和天狗，和杏奴，还有和现在的en粉比起来，他们永远都是少数派呢🤔️虹老害可能真的要付点责的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
