@@ -14403,3 +14403,17 @@ Nagi：pay宝10点就睡觉了所以在这个时间后发的消息是不会回�
 可能很多人已经买了但还是提下，liyuu的首本写真各大国家队（各个天猫店）都有上架423各店也有300-100的卷 ...</blockquote>
 买的FC直签
 
+
+
+*****
+
+####  仟音一心  
+##### 7005#       发表于 2022-4-26 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55597405&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-26 20:52</a></blockquote>
+pay：我努力熬到23点再睡。
+sayu：我感觉我回复的还挺勤快的~~
+鲤鱼：现在确实在回复中，但还是没有回复我。 
+Nagi：下次如果第二天还没回复我的话，就发大量line消息轰炸你。 
+Nagi回复pay那条熬夜的推：没事可以睡哦。
+
