@@ -12952,3 +12952,14 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 
 干脆鱼死网破把核中核都爆了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外cjb透露的那些感觉都无足轻重 即便静姨真做个医美又能怎么样
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 5875#       发表于 2022-4-26 08:12
+
+看个直播屁事真b多，要么直接鱼死网破互相自爆一起死了得了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
