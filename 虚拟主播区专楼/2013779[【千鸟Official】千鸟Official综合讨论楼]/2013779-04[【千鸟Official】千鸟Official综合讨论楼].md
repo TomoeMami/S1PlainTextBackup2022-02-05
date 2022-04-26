@@ -13178,3 +13178,14 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 
 现在直接一手病遁除了让事情发酵之外没有更多好处，别又来一次遁个几天直播念稿年错行的操作就行。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yvy2222  
+##### 5898#       发表于 2022-4-26 15:58
+
+哪天贴吧里回复的真是珺圣？我一直当n87⛵烂炒呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
