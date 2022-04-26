@@ -13134,3 +13134,14 @@ v圈屁事多，老东西们天天脑瘫共振除了烂炒还会干嘛？
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">本来也没想是真话 
 只不过cj的话都能信 呃呃
 
+
+
+*****
+
+####  triviumwcy  
+##### 5894#       发表于 2022-4-26 15:04
+
+太莫名了，直播感觉都是mmr，结果动态下评论感觉全臊皮的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">  真的怀疑有些人闲的程度
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
