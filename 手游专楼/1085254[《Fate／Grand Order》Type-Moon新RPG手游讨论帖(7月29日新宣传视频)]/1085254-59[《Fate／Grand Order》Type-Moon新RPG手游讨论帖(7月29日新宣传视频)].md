@@ -8326,3 +8326,19 @@ FBI上门<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然还记得265 奇迹
 
+
+
+*****
+
+####  rooarr  
+##### 87727#       发表于 2022-4-27 19:24
+
+没有rider，感觉随便抽抽礼装就可以<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 87728#       发表于 2022-4-27 19:27
+
+别的地方看到拿riyo来踩竹老师的，我对你游玩家的精神状况很担心
+
