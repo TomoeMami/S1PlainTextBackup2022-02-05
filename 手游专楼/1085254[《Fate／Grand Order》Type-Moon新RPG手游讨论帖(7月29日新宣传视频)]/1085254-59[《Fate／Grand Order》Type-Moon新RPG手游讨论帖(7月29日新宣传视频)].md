@@ -8279,3 +8279,50 @@ WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
 局长和导演还是没啊</blockquote>
 难道不敢实装吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87721#       发表于 2022-4-27 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卡池下不了手啊
+
+*****
+
+####  シャル  
+##### 87722#       发表于 2022-4-27 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55608526&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-4-27 19:09</a>
+
+难道不敢实装吗</blockquote>
+FBI上门<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87723#       发表于 2022-4-27 19:15
+
+虽然也没打算抽这池子（除了一星），但一群云玩家在弹幕里狂喷riyo画风真是够搞笑的
+
+*****
+
+####  黑上シグマ  
+##### 87724#       发表于 2022-4-27 19:16
+
+省钱，我讨厌这个漫画系列
+
+*****
+
+####  里村紅葉  
+##### 87725#       发表于 2022-4-27 19:19
+
+街机的活太烂以至于觉得手游的活还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87726#       发表于 2022-4-27 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然还记得265 奇迹
+
