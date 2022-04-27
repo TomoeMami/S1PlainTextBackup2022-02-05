@@ -8665,3 +8665,33 @@ fgo实装孙渣了？
 
 怀疑是运营知道大家抽摩根抽的银根紧缩，做个搞笑角色来省钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87754#       发表于 2022-4-27 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55610524&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-4-27 22:06</a>
+
+一技能我看wiki里写的是自身攻击力提升+全体红卡提升，数值上姑且算作自己三回合红魔放或者三回合怪力，已 ...</blockquote>
+3技能红暴是附带的
+
+主要是封对面和降暴击嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+就是搞笑的，实战不太行<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87755#       发表于 2022-4-27 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55610584&amp;ptid=1085254" target="_blank">シャル 发表于 2022-4-27 22:11</a>
+
+3技能红暴是附带的
+
+主要是封对面和降暴击嘛</blockquote>
+确实，图标就是全体封印，也算个实用技能。
+
+不过全体红吸三回合的效果过于鸡肋，怀疑以后技能本会给一技能加个全体暴击啥的。
+
