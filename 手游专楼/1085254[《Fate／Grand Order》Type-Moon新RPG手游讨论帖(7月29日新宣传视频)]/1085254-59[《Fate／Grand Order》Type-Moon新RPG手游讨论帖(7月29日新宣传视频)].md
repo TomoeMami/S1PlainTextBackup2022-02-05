@@ -8807,3 +8807,14 @@ fgo实装孙渣了？
 
 <img src="https://img.saraba1st.com/forum/202204/28/020036yq6pfgbkgly9zpbx.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  闽明  
+##### 87765#       发表于 2022-4-28 07:01
+
+捅了耗子窝，没有班扬<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/5/7ca7bdd8473d31766f9662dcff06d407/CMP_20220428070056606.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
