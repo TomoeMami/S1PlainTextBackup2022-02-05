@@ -13298,3 +13298,14 @@ syl，文静这肯定假的啊。一个主杂谈这么久了还这么多经历�
 
 白子在千春直播间，速来<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Finsty  
+##### 5909#       发表于 2022-4-27 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，看V在乎无关利益的真实感是图什么，一对多的做节目真就以为是小女友了？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
