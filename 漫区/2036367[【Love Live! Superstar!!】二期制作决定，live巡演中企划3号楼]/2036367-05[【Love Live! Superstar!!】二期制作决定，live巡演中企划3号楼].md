@@ -15491,3 +15491,66 @@ celticwhite也破防了，看着有点心疼<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道该说啥好 多少有点犯恶心
 
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 7106#       发表于 2022-4-28 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612158&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-04-28 00:54:06</a>
+就不像和虹一样234分组吗？</blockquote>这不传统啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定先按稳的333来奶啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 7107#       发表于 2022-4-28 01:00
+
+<img src="https://p.sda1.dev/5/0afeadecb1052705f4d84ebc432aff41/2020446748.jpg" referrerpolicy="no-referrer">
+五角星下四方砖是吧，这可是伏笔呢
+
+我现在阴暗的怀疑花田写成香音传就是因为知道要多塞人。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 7108#       发表于 2022-4-28 01:02
+
+就问鲤鱼她们知不知道这藏起来的四个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dozen  
+##### 7109#       发表于 2022-4-28 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612120&amp;ptid=2036367" target="_blank">名津流 发表于 2022-4-28 00:49</a>
+我往好处想的话，老实说本来大部分观众应该都会觉得按部就班的拍第二季估计也就那样？应该没几个人认为一期 ...</blockquote>
+大部分观众都有可能要加人的预期吧，但这消息不期而至时还是会骂
+二期剧本不至于到「不破不立」的地步，毕竟花田写缪水9人时也就着重那么几人写，现在追加都帮他把人圈出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  魔术师梅丽  
+##### 7110#       发表于 2022-4-28 01:05
+
+感觉回来了，水团完结后我有很长一段时间拒绝接受拉拉的消息和新闻。大概就是生理上的恶心，要不是百无聊赖的时候点开虹团就没有回到这上面来。
+
+现在你宣布要加人我这股奇怪的味道就上来了。还是那个味。虹果然是特殊的
+
+
+
+*****
+
+####  saverok  
+##### 7111#       发表于 2022-4-28 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612120&amp;ptid=2036367" target="_blank">名津流 发表于 2022-4-28 00:49</a>
+我往好处想的话，老实说本来大部分观众应该都会觉得按部就班的拍第二季估计也就那样？应该没几个人认为一期 ...</blockquote>
+从看看有没有机会翻盘到完了烂定了差不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
