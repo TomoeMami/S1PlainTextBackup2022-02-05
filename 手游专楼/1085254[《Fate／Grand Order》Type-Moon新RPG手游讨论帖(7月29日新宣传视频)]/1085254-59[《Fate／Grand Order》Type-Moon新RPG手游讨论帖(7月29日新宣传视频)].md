@@ -8604,3 +8604,64 @@ fgo实装孙渣了？
 
 150抽解决战斗，第二个十连就两宝，然后第三、第九、第十五个十连分别一个，还附赠了两个四星狗粮、两个三星狗粮和一个哈贝喵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87751#       发表于 2022-4-27 22:01
+
+ 本帖最后由 シャル 于 2022-4-27 22:09 编辑 
+
+一发护符金圈之后加了40次免费石头<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+全了这次
+
+4,5星事件礼装各一张，5星冬之圣女一张
+
+1C2D5363-3784-4622-A0ED-F10A540D665E.png
+(969.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/220053cgesifuem04o0sog.png" referrerpolicy="no-referrer">
+
+2E48DC1A-DA15-4AF6-91D3-1DF3721F47A1.png
+(721.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 22:00 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/220054hgy0xk0g9gk0oayo.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 87752#       发表于 2022-4-27 22:02
+
+哈贝喵还少最后一个<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87753#       发表于 2022-4-27 22:06
+
+ 本帖最后由 Jamaisvu 于 2022-4-27 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55610340&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-4-27 21:47</a>
+
+这炒鸡班杨简直浑身是毒啊
+
+1技能只有一半全体化
+
+2技能的宝具OC居然不是次数型是1T限定</blockquote>
+一技能我看wiki里写的是自身攻击力提升+全体红卡提升，数值上姑且算作自己三回合红魔放或者三回合怪力，已经不错了，全体效果就当附赠的好了。（全体红卡up，海伦娜是20，暗狐是30）
+
+二技能确实毒，都六回合冷却了不能给个50NP吗，非逼着开被动不成？OC提升不是三回合而是一回合也很尴尬，希望以后出技能本。
+
+三技能就是大家一起打红暴，确保每个人都能红卡暴击——问题来了，她自己就根本没暴击加成，难道要用小班扬当拐？
+
+怀疑是运营知道大家抽摩根抽的银根紧缩，做个搞笑角色来省钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
