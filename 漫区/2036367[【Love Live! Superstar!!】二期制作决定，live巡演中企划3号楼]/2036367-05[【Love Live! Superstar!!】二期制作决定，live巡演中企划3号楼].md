@@ -15654,3 +15654,35 @@ leader香音带高人气角色可可和软性格后辈四季（？）组成最�
 结果整个ll因为搞的皮套人企划吃了大屎嗷的一声暴毙了  
 夺冠？ 下辈子吧
 
+
+
+*****
+
+####  红焖菠菜  
+##### 7123#       发表于 2022-4-28 01:21
+
+q娃一年加1个都有追加破坏观感的问题，这一次加4个动画不炸才怪了。
+
+*****
+
+####  iuhehc  
+##### 7124#       发表于 2022-4-28 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612317&amp;ptid=2036367" target="_blank">糖尔 发表于 2022-4-28 01:15</a>
+不追真人巡演对加人倒也还好，但是肉眼可见动画肯定一泻千里要拉到底了 ...</blockquote>
+同，动画的话我还无感，细节描写也不多，和现实五个人那些巡演和外景加上各种广播建立起来的关系不同..
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  renkan119  
+##### 7125#       发表于 2022-4-28 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612319&amp;ptid=2036367" target="_blank">wxc060302 发表于 2022-4-28 01:15</a>
+
+如果是新的对手团或者是同校另外一个偶像团体，那运营的🐴可以暂时回归近地轨道，咬打火机都比这强
+
+——  ...</blockquote>
+不用想了 明确说了是裂啦的新成员
+
