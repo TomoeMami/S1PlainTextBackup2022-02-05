@@ -13389,3 +13389,21 @@ ps：希望我可以入典
 
 千鸟运营私信回复说的“我们主打真实”哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  藤原银  
+##### 5917#       发表于 2022-4-27 13:35
+
+ 本帖最后由 藤原银 于 2022-4-27 13:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭巨魔太多了，恨不得把人底裤扒出来，都当乐子看的。在这里说确实同理的人不多
+
+*****
+
+####  夜之中道崩殂  
+##### 5918#       发表于 2022-4-27 13:42
+
+我能咋办，贴吧、nga的sb太多，讲不得道理，评论区全是和谐，我只能发这<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
