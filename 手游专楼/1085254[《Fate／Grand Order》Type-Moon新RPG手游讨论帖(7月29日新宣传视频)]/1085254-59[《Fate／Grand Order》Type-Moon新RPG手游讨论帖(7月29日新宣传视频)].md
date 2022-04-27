@@ -8473,3 +8473,60 @@ fgo实装孙渣了？
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87743#       发表于 2022-4-27 20:01
+
+ 本帖最后由 Jamaisvu 于 2022-4-27 20:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/27/195937wrks7ilh736pl3aa.jpg" referrerpolicy="no-referrer">
+
+<strong>1651060715697.jpg</strong> (345.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/195938vzldsumzlp919p0u.jpg" referrerpolicy="no-referrer">
+
+<strong>1651060718645.jpg</strong> (302.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/195938ytt3t7ttzbotteb9.jpg" referrerpolicy="no-referrer">
+
+<strong>1651060721255.jpg</strong> (302.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 19:59 上传
+
+卡面画的都不错啊，兔子和局长也太修长了，不做成卡有点可惜...（但是太危险了，一个生前就敢跟资本巨头爱迪生要版权，一个特务头子...和美国神话生物挤挤算了...）
+
+大黑天的满破挺萌的，厨房流水线，美食总动员并感。（乍一看还以为是视觉误差楼层233）
+
+玛丽安宁的三破可太好看了，一介村妇，只手还原恐龙时代盛景...wait，月世界的恐龙时代是克苏鲁活跃期吗...
+
+（金色蛇眼好戳我XP啊，想起了苍翼默示录的hazama）
+
+*****
+
+####  xiongxingyu  
+##### 87744#       发表于 2022-4-27 20:02
+
+330发了，依然没出大黑天，为什么四星没有保底，再下去我班杨都要满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87745#       发表于 2022-4-27 20:09
+
+<blockquote>xiongxingyu 发表于 2022-4-27 20:02
+330发了，依然没出大黑天，为什么四星没有保底，再下去我班杨都要满宝了 ...</blockquote>
+冷静下不要上头了，我国服抽恐龙抽到小王子四宝了才出，从那之后五星四星都在的池子，只要五星先出了我马上就停手，某些四星的出率太魔幻了
+
