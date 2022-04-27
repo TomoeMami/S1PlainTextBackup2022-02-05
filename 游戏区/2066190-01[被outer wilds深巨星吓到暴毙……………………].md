@@ -998,3 +998,17 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 初见连间歇泉底都怕，沉迷之后就什么都不怕了
 
+
+
+*****
+
+####  第贰个十年1  
+##### 105#       发表于 2022-4-28 00:31
+
+ 本帖最后由 第贰个十年1 于 2022-4-28 00:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55587548&amp;ptid=2066190" target="_blank">fuochai 发表于 2022-4-26 03:14</a>
+实在不懂在游戏里受怕是什么心理 除了丢档和封号这种影响到现实的 在游戏里从来没怕过什么 它再nb能把我怎 ...</blockquote>
+在一个按方向键是给“加速度”而不是“速度”的拟真游戏里，代入感还是很强的。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -15208,3 +15208,102 @@ liella是一个组合，新来的四个又是新的组合，然后三年级的�
 
 已经有人根据nako的关注猜cv了…………羊宫妃那啥的
 
+
+
+*****
+
+####  仟音一心  
+##### 7084#       发表于 2022-4-28 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611972&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-4-28 00:29</a>
+
+已经有人根据nako的关注猜cv了…………羊宫妃那啥的</blockquote>
+不太靠谱，看看就行
+
+F9703971-0013-4B0E-8166-72AF4D3D533C.jpeg
+(390.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/003534efstct91mxrppzve.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9BDE973A-F26D-49DC-BD72-0094B54F6C8F.jpeg
+(320.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/003534lg3qk6oeo2r338oz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+85E15DE6-01EF-4B4A-BC57-D07B680593C3.jpeg
+(292.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/003534jszrcz4nudbzzrum.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  甩不出去的黄牌  
+##### 7085#       发表于 2022-4-28 00:35
+
+夏美杂志那张图好像小千换发型啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 7086#       发表于 2022-4-28 00:36
+
+我现在已经原谅花田写烂恋恋回了，我现在只想对他说快跑，这个企划的大人物都几把疯了。
+京极也快点跑吧，河村和田中仁做完虹团也快跑，这都在乱来。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 7087#       发表于 2022-4-28 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612018&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 00:35</a>
+不太靠谱，看看就行</blockquote>
+确实，印象中企划就没用过青二的人
+
+*****
+
+####  仟音一心  
+##### 7088#       发表于 2022-4-28 00:38
+
+个人简介汉化
+
+4912C793-C632-4F83-B05B-E437A7BE6B0C.jpeg
+(313.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:38 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/003820b7h71ddd57lv2dz2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+605A434E-15C5-46AB-9F52-BA340A888F63.jpeg
+(321.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:38 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/003820t0kq4dczxyvwbbzj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7089#       发表于 2022-4-28 00:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我现在只能用鲤鱼的后宫又增加这样的傻逼理由麻醉自己……
+
