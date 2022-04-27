@@ -15951,3 +15951,34 @@ liella词条上了美国趋势...
 —— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
 鲤鱼知道还是不知道都不可能说的啊，还是别难为她了
 
+
+
+*****
+
+####  JustW_2  
+##### 7154#       发表于 2022-4-28 06:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612211&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 01:00</a>
+五角星下四方砖是吧，这可是伏笔呢
+
+我现在阴暗的怀疑花田写成香音传就是因为知道要多塞人。</blockquote>
+后面会加人这种事花田99%是被告知了的，毕竟大的走向本来就不受他控制，当然不能让他第一季就把剧本的口堵死
+
+*****
+
+####  JustW_2  
+##### 7155#       发表于 2022-4-28 06:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612120&amp;ptid=2036367" target="_blank">名津流 发表于 2022-4-28 00:49</a>
+我往好处想的话，老实说本来大部分观众应该都会觉得按部就班的拍第二季估计也就那样？应该没几个人认为一期 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一季开播前大伙觉得只有五个人的剧本肯定有什么新活吧，结果……我感觉花田是有能力把各种胡来的东西全写成一个味儿的
+
+*****
+
+####  JustW_2  
+##### 7156#       发表于 2022-4-28 06:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612061&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 00:42</a>
+还有人说可能骂早了，三期再加三个也说不准</blockquote>
+可能性很高吧，最后还是要回到一个田团里高一高二高三都有人
+
