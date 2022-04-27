@@ -15034,3 +15034,80 @@ liella是一个组合，新来的四个又是新的组合，然后三年级的�
 
 真的，反正都要转个人推的，不如趁现在转个人推吧。
 
+
+
+*****
+
+####  屈江鸟  
+##### 7063#       发表于 2022-4-28 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田大先生5个人都写的费劲，9个人我想都不敢想
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7064#       发表于 2022-4-28 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笔仁SaSaSa  
+##### 7065#       发表于 2022-4-28 00:14
+
+这姿势加着衣裸体挺色的……
+
+看实际声优的业务水平吧，要是能有现在五人这档的能力我也认了……
+
+*****
+
+####  alexwu  
+##### 7066#       发表于 2022-4-28 00:15
+
+人设其实还行吧，就是那个米女的风格感觉跟香音有点撞了
+
+*****
+
+####  仟音一心  
+##### 7067#       发表于 2022-4-28 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611575&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-4-27 23:50</a>
+这是之前公布的结丘轻音部吧，一定是吧。</blockquote>
+很遗憾也不是！你再看一下若菜四季的个人简介，就是『学园偶像部』。
+
+*****
+
+####  iuhehc  
+##### 7068#       发表于 2022-4-28 00:17
+
+绝对会各种拆cp新老贴贴剧情然后让人真香吧，想到这个就想yue
+
+*****
+
+####  甩不出去的黄牌  
+##### 7069#       发表于 2022-4-28 00:18
+
+四季不错
+先老婆➕1了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其他等更多情报出来再说
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  SBpencil  
+##### 7070#       发表于 2022-4-28 00:18
+
+看第二季吧，要是能做的好，还是有人真香的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+虽然在我印象里LL 系列好像第二季都不好看
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  keasen  
+##### 7071#       发表于 2022-4-28 00:19
+
+心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+第二季还能有可可个人回吗？
+
