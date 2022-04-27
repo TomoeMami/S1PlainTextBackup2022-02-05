@@ -8745,3 +8745,15 @@ fgo实装孙渣了？
 
 居然还有人写活动带龙娘玩，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87760#       发表于 2022-4-27 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55610876&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-4-27 22:38</a>
+
+这老鼠的满破卡面怎么看都是礼装混进去了OTZ</blockquote>
+因为老鼠是一大群啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
