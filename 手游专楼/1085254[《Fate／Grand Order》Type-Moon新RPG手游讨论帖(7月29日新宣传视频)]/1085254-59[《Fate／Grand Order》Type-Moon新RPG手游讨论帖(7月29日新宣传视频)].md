@@ -8757,3 +8757,12 @@ fgo实装孙渣了？
 这老鼠的满破卡面怎么看都是礼装混进去了OTZ</blockquote>
 因为老鼠是一大群啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87761#       发表于 2022-4-27 23:04
+
+感觉大黑天才是这次卡池的大奖
+
