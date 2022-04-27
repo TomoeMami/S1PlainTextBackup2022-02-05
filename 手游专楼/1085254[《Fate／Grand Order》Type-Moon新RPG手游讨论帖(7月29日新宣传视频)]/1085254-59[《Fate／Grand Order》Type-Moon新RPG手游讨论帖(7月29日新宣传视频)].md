@@ -8736,3 +8736,12 @@ fgo实装孙渣了？
 </blockquote>
 这老鼠的满破卡面怎么看都是礼装混进去了OTZ
 
+
+
+*****
+
+####  里村紅葉  
+##### 87759#       发表于 2022-4-27 22:43
+
+居然还有人写活动带龙娘玩，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
