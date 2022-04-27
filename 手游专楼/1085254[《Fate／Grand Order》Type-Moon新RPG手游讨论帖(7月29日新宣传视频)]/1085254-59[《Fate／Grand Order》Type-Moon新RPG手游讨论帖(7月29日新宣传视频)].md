@@ -8226,3 +8226,56 @@ WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
 
 珍 妮
 
+
+
+*****
+
+####  rooarr  
+##### 87715#       发表于 2022-4-27 19:05
+
+居然真的出低星卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87716#       发表于 2022-4-27 19:05
+
+又要抽友情池了。。。
+
+*****
+
+####  シャル  
+##### 87717#       发表于 2022-4-27 19:05
+
+ 本帖最后由 シャル 于 2022-4-27 19:07 编辑 
+
+新一星梅阿莉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+四星老鼠大黑天<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+五星超级班杨<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87718#       发表于 2022-4-27 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级保罗还行
+
+*****
+
+####  シャル  
+##### 87719#       发表于 2022-4-27 19:08
+
+局长和导演还是没啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 87720#       发表于 2022-4-27 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55608508&amp;ptid=1085254" target="_blank">シャル 发表于 2022-4-27 19:08</a>
+
+局长和导演还是没啊</blockquote>
+难道不敢实装吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
