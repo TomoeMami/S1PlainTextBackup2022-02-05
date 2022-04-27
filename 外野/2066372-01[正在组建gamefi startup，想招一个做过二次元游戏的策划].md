@@ -620,3 +620,19 @@ gamefi啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" r
 想问一下，这种gamefi打金之后如何变现呢，必须肉身翻墙么？</blockquote>
 换成u就行了
 
+
+
+*****
+
+####  superkidx  
+##### 69#       发表于 2022-4-27 13:05
+
+编辑
+
+*****
+
+####  superkidx  
+##### 70#       发表于 2022-4-27 13:08
+
+音游这个概念 结合现在偶像综艺不能搞 是不是可以联动？
+
