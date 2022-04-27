@@ -13380,3 +13380,12 @@ ps：希望我可以入典
 
 刚好说起来 我觉得asoul是最假的 以虚拟感以rp为名 说了多少谎话 另外我投降 au不要冲我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 5916#       发表于 2022-4-27 13:23
+
+千鸟运营私信回复说的“我们主打真实”哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
