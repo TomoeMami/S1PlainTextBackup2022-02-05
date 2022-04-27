@@ -8568,3 +8568,15 @@ fgo实装孙渣了？
 
 忽然感觉漫画活动也许还有二期，毕竟一星乌冬从者还少个绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  シャル  
+##### 87748#       发表于 2022-4-27 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55609168&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-4-27 20:02</a>
+
+330发了，依然没出大黑天，为什么四星没有保底，再下去我班杨都要满宝了 ...</blockquote>
+一护肤下去就金圈大黑鼠了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
