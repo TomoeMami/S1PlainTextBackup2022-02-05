@@ -8580,3 +8580,18 @@ fgo实装孙渣了？
 330发了，依然没出大黑天，为什么四星没有保底，再下去我班杨都要满宝了 ...</blockquote>
 一护肤下去就金圈大黑鼠了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 87749#       发表于 2022-4-27 21:47
+
+这炒鸡班杨简直浑身是毒啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+1技能只有一半全体化
+
+2技能的宝具OC居然不是次数型是1T限定
+
+3技能那全体红卡集星更加莫名其妙了
+
