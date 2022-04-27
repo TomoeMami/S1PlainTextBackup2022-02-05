@@ -184,3 +184,26 @@ mea可以跟他多联动吗
 
 2022-4-27 18:22 上传
 
+
+
+*****
+
+####  路人庚  
+##### 10518#       发表于 2022-4-27 18:27
+
+你咩姐也是喜欢狼人杀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且不要忘了之前没事就跟绿熊野男人通宵达旦玩宇宙人狼啊（
+
+*****
+
+####  古战场亡魂  
+##### 10519#       发表于 2022-4-27 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55608074&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-4-27 18:27</a>
+
+你咩姐也是喜欢狼人杀的
+
+而且不要忘了之前没事就跟绿熊野男人通宵达旦玩宇宙人狼啊（ ...</blockquote>
+宇宙人狼能打几把，你猜猜这个月lol打了70把了……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

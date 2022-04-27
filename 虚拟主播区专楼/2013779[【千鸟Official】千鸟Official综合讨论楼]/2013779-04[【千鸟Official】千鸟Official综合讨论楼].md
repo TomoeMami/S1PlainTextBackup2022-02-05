@@ -13481,3 +13481,14 @@ ps：希望我可以入典
 隔壁黄乌龟说的好，吹个牛逼而已，那么认真搞毛啊40岁老逼吹来吹去就那么些事情，像文静这种20多的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">404什么时候说过艾瑞思骚?
 
+
+
+*****
+
+####  袜子  
+##### 5924#       发表于 2022-4-27 18:24
+
+害，别太入脑了，冷无缺一点，没必要的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
