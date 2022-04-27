@@ -8401,3 +8401,75 @@ fgo史上最大最恶的沉船事件，280发没出大黑天，果然联动4星�
 
 玛丽•安宁，可以说是我非常喜欢的历史人物了，做成一星也是运营希望恐龙迷们人手一个吧，蛮好的。宝具也很有趣，不过被称为闪电是啥梗啊？！
 
+
+
+*****
+
+####  angelooo  
+##### 87736#       发表于 2022-4-27 19:50
+
+<blockquote>Jamaisvu 发表于 2022-4-27 19:49
+胡佛，梅里爱，万奈莫宁，这三个乌冬从者没有实装，难不成在暗示明年还有漫画活动的第二期？
+
+大黑天是四星 ...</blockquote>
+局长和导演在保罗三破之后的模组里，声优也有，基本不会单独落地了
+
+*****
+
+####  Jamaisvu  
+##### 87737#       发表于 2022-4-27 19:53
+
+玛丽安宁宝具动画最后的小狗非常还原：
+
+<img src="https://img.saraba1st.com/forum/202204/27/195320zzhrbhtiinhvzjmm.jpg" referrerpolicy="no-referrer">
+
+<strong>19214a4e4f55419cadd0cd5225e1188f_th.jpg</strong> (68.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 19:53 上传
+
+*****
+
+####  Jamaisvu  
+##### 87738#       发表于 2022-4-27 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55609036&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-4-27 19:50</a>
+
+局长和导演在保罗三破之后的模组里，声优也有，基本不会单独落地了</blockquote>
+原来是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+那芬兰孕妇是怕二创引起争议才规避实装吗...可惜了，如果漫画不整新活，乌冬从者估计就是一锅端了...我还挺想看看导演和局长这两个近代从者的技能组的....<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 87739#       发表于 2022-4-27 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">礼貌一发11连，童谣+1礼装齐了，收手收手……
+
+*****
+
+####  Jamaisvu  
+##### 87740#       发表于 2022-4-27 19:59
+
+靠！活动竟然开了吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我下午更新完清了体力就出去吃饭了...希望礼品卡别涨价太快...
+
+*****
+
+####  風卷豹  
+##### 87741#       发表于 2022-4-27 19:59
+
+fgo实装孙渣了？
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  阿提拉  
+##### 87742#       发表于 2022-4-27 20:00
+
+大暴死，抽到吃保底
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
