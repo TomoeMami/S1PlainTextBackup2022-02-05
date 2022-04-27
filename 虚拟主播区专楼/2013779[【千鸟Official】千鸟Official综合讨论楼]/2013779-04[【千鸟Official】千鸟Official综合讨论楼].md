@@ -13470,3 +13470,14 @@ ps：希望我可以入典
 1.还以为有什么核中核信息使得坛友扭曲，发挥一下论坛基本 ...</blockquote>
 你说对了，这个号两个人用
 
+
+
+*****
+
+####  夜潇箫  
+##### 5923#       发表于 2022-4-27 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55601648&amp;ptid=2013779" target="_blank">Yerish 发表于 2022-4-27 10:05</a>
+隔壁黄乌龟说的好，吹个牛逼而已，那么认真搞毛啊40岁老逼吹来吹去就那么些事情，像文静这种20多的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">404什么时候说过艾瑞思骚?
+
