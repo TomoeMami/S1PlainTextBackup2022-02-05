@@ -15991,3 +15991,33 @@ liella词条上了美国趋势...
 
 草，居然还能这样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TCone  
+##### 7158#       发表于 2022-4-28 07:30
+
+咳…tui！
+
+*****
+
+####  nerugigannte  
+##### 7159#       发表于 2022-4-28 07:32
+
+ 本帖最后由 nerugigannte 于 2022-4-28 07:34 编辑 
+
+鉴于目前场外绑定过与牢固，能不能这样写，新老成员各自都是小团队
+
+*****
+
+####  JustW_2  
+##### 7160#       发表于 2022-4-28 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55613032&amp;ptid=2036367" target="_blank">nerugigannte 发表于 2022-4-28 07:32</a>
+鉴于目前场外绑定过与牢固，能不能这样写，新老成员各自都是小团队</blockquote>
+<img src="https://p.sda1.dev/5/00c4e5da0d4222bb2b0055e7cbae6145/CMP_20220428073424895.jpg" referrerpolicy="no-referrer">
+首先看这张宣传图，我觉得就很明白了
+
+再看一眼新人的设定，我已经脑补出要和前辈之间整什么活儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比如那个Ltuber，和可可肯定要整一出
+
