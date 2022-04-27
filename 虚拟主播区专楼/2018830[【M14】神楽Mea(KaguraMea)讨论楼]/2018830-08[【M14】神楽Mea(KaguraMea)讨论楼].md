@@ -155,3 +155,32 @@ mea可以跟他多联动吗
 
 人狼这种当人当狼游戏体验和试听体验都是两极分化的。尤其是前期作为平民被一刀捅死观看体验极差。人气高的主播被快刀粉丝甚至会炎上，昨天如果mea一秒躺，你楼早骂街了，这种游戏少玩好。
 
+
+
+*****
+
+####  掉头学姐  
+##### 10516#       发表于 2022-4-27 18:19
+
+讲真，作为一个现充，咩还是喜欢玩这种社交游戏的
+
+*****
+
+####  古战场亡魂  
+##### 10517#       发表于 2022-4-27 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55607975&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-4-27 18:19</a>
+
+讲真，作为一个现充，咩还是喜欢玩这种社交游戏的</blockquote>
+你以为的社交游戏 宇宙人狼X
+
+实际上的社交游戏lol……
+
+<img src="https://img.saraba1st.com/forum/202204/27/182210dhpqknldib9ohljy.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220427182153799.jpg</strong> (14.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 18:22 上传
+
