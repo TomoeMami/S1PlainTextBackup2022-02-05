@@ -14417,3 +14417,14 @@ sayu：我感觉我回复的还挺勤快的~~
 Nagi：下次如果第二天还没回复我的话，就发大量line消息轰炸你。 
 Nagi回复pay那条熬夜的推：没事可以睡哦。
 
+
+
+*****
+
+####  乙山法純  
+##### 7006#       发表于 2022-4-27 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55551541&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-23 07:27</a>
+可能很多人已经买了但还是提下，liyuu的首本写真各大国家队（各个天猫店）都有上架423各店也有300-100的卷 ...</blockquote>
+按以前200-100拆单130包邮，现在定价250还得凑本漫画
+
