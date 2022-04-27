@@ -8595,3 +8595,12 @@ fgo实装孙渣了？
 
 3技能那全体红卡集星更加莫名其妙了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87750#       发表于 2022-4-27 21:55
+
+150抽解决战斗，第二个十连就两宝，然后第三、第九、第十五个十连分别一个，还附赠了两个四星狗粮、两个三星狗粮和一个哈贝喵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
