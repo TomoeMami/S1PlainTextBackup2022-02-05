@@ -15307,3 +15307,121 @@ F9703971-0013-4B0E-8166-72AF4D3D533C.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我现在只能用鲤鱼的后宫又增加这样的傻逼理由麻醉自己……
 
+
+
+*****
+
+####  离心  
+##### 7090#       发表于 2022-4-28 00:40
+
+cnm，一天不关注给我整这个sb玩意是吧，凭啥子？
+
+*****
+
+####  仟音一心  
+##### 7091#       发表于 2022-4-28 00:42
+
+还有人说可能骂早了，三期再加三个也说不准
+
+16176185-7C47-406D-B923-C8FE493FD882.jpeg
+(134.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:42 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/004208d9hl3nc5lnlyyys1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 7092#       发表于 2022-4-28 00:42
+
+正在玩游戏呢，听闻整了个大新闻，直接垂死病中惊坐起
+
+突然想起到问题，当年要出水团的时候，日本那边的抵制反应是不是没国内那么激烈？
+
+*****
+
+####  we89623  
+##### 7093#       发表于 2022-4-28 00:43
+
+啪啪啪！！
+
+<img src="https://img.saraba1st.com/forum/202204/28/004355f3cgpcc595444hgy.png" referrerpolicy="no-referrer">
+
+<strong>foymVga.png</strong> (260.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:43 上传
+
+*****
+
+####  Skyline_R  
+##### 7094#       发表于 2022-4-28 00:45
+
+还是来看看远方的整活吧家人们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+TX_{QT[6X@67`I){`5PBY$1.jpg
+(69.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 00:45 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/004528fl1mud1bgib5t1zg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 7095#       发表于 2022-4-28 00:45
+
+我还感动liella的应援色连起来是五角星呢，sb策划
+
+*****
+
+####  克里斯蒂娜  
+##### 7096#       发表于 2022-4-28 00:46
+
+反正我只关心唐诱第二季<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 7097#       发表于 2022-4-28 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612068&amp;ptid=2036367" target="_blank">名津流 发表于 2022-4-28 00:42</a>
+正在玩游戏呢，听闻整了个大新闻，直接垂死病中惊坐起
+
+突然想起到问题，当年要出水团的时候，日本那边的抵 ...</blockquote>
+因为缪真的到了要结束的时候了。
+
+但是liella才刚开始。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 7098#       发表于 2022-4-28 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612081&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 00:43</a>
+啪啪啪！！</blockquote>
+是五人啊，没给你保证第二季还是五人啊。你看，大人物总是狡猾的不是吗。
+
+顺便星配音在虹播出的时候应该已经开始了，所以鲤鱼她们应该也知道了，说不定从一开始就知道要加人，啊真的是，负面情绪都要喷涌而出了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名津流  
+##### 7099#       发表于 2022-4-28 00:49
+
+我往好处想的话，老实说本来大部分观众应该都会觉得按部就班的拍第二季估计也就那样？应该没几个人认为一期反响不佳的剧本能在二期有档次上的提升或者神反转吧？
+
+结果现在突然出现了重大的意料之外的变动，感觉这二期反倒有了一丝“不破不立”的可能性，稍微比一眼就能料到接下来二期的发展要增加了上下限的宽度
+
