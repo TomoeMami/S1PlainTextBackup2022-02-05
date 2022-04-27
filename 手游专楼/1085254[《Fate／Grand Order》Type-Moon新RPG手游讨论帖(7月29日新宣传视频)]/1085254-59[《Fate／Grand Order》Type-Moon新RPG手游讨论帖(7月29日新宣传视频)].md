@@ -8358,3 +8358,46 @@ FBI上门<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" r
 
 兔子和局长塞在超级保罗三破和满破里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cckuku  
+##### 87731#       发表于 2022-4-27 19:42
+
+怎么感觉这期活动这么混<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87732#       发表于 2022-4-27 19:44
+
+导演和局长单独落地估计是寄了，这期最喜欢的是考古学家的三破卡面，老鼠的满破给我看傻了
+
+*****
+
+####  angelooo  
+##### 87733#       发表于 2022-4-27 19:45
+
+<blockquote>katun 发表于 2022-4-27 19:27
+别的地方看到拿riyo来踩竹老师的，我对你游玩家的精神状况很担心</blockquote>
+保不定就是玩散装游戏的睿智玩意
+
+*****
+
+####  xiongxingyu  
+##### 87734#       发表于 2022-4-27 19:49
+
+fgo史上最大最恶的沉船事件，280发没出大黑天，果然联动4星才是最难抽的吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">强烈要求实装盘子换4星的机能。
+
+*****
+
+####  Jamaisvu  
+##### 87735#       发表于 2022-4-27 19:49
+
+胡佛，梅里爱，万奈莫宁，这三个乌冬从者没有实装，难不成在暗示明年还有漫画活动的第二期？
+
+大黑天是四星陪跑，而卡池五星是御姐班扬，看来运营也不太确定乌冬从者的人气，就拿已经有充足人气的班扬亚种来试试深浅，希望强度别拉胯...这算不算卡面换强度？
+
+玛丽•安宁，可以说是我非常喜欢的历史人物了，做成一星也是运营希望恐龙迷们人手一个吧，蛮好的。宝具也很有趣，不过被称为闪电是啥梗啊？！
+
