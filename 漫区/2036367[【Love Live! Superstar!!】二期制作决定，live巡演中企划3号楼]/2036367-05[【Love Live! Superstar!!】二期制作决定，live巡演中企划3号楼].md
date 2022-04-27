@@ -14927,3 +14927,110 @@ D03CFECF-A32E-4577-BF38-2F91889D83CF.jpeg
 
 懂了，做成毕业制偶像是吧一年毕业新一年加进来
 
+
+
+*****
+
+####  we89623  
+##### 7052#       发表于 2022-4-28 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611409&amp;ptid=2036367" target="_blank">dozen 发表于 2022-4-27 23:34</a>
+
+加人是不意外，意外是这就齐9人了，到三年级时还继续加吗
+
+新4人初见倒是没多少拉拉里的即视感 ...</blockquote>
+如果有第三季那么也有可能不会加人，而是把重心放到老五人毕业（其中包括可可回国），类似水二季那样.
+
+*****
+
+####  iuhehc  
+##### 7053#       发表于 2022-4-28 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611689&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 00:00</a>
+
+如果有第三季那么也有可能不会加人，而是把重心放到老五人毕业（其中包括可可回国），类似水二季那样. ...</blockquote>
+我也觉得是这样
+
+*****
+
+####  starring  
+##### 7054#       发表于 2022-4-28 00:02
+
+提前放一个寄字，运营有本事就打粉丝的脸。
+
+Liella五人过去一年努力拼搏取得的成绩，就这样凭空被夺舍分一杯羹，运营简直有病
+
+尽早转个人推好让自己轻松点吧
+
+*****
+
+####  ads147147  
+##### 7055#       发表于 2022-4-28 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611599&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-27 23:52</a>
+花田京极也只是打工的罢了。</blockquote>
+谁不是呢。现在这四位的cv是最可怜的了。
+
+除非这四个就是之前那个管人企划的，单纯并入星来讲。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dozen  
+##### 7056#       发表于 2022-4-28 00:03
+
+后知后觉，新对手团也要搞的吧
+
+*****
+
+####  we89623  
+##### 7057#       发表于 2022-4-28 00:05
+
+说实话，挺替老五人不值的，三次元拼死拼活大半年巡演...最后换来啥了...
+
+*****
+
+####  Acatv  
+##### 7058#       发表于 2022-4-28 00:06
+
+看到星团加人 第一反应是利好某二创（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7059#       发表于 2022-4-28 00:06
+
+还真的偶像大师那种形式了吧，一次性加一个组合，这个组合和那个组合互动。直接把观众投小队的权利收走，省的变数。
+
+liella是一个组合，新来的四个又是新的组合，然后三年级的时候还可以再塞三个。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 7060#       发表于 2022-4-28 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611721&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 00:03</a>
+谁不是呢。现在这四位的cv是最可怜的了。
+
+除非这四个就是之前那个管人企划的，单纯并入星来讲。。</blockquote>
+当然不是，你再看图，6789的成员编号都有。
+
+*****
+
+####  你妈的为什么  
+##### 7061#       发表于 2022-4-28 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下寄了  妹想到把 还是9人大拼盘
+
+都写liella新member了，ls别做梦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7062#       发表于 2022-4-28 00:09
+
+真的，反正都要转个人推的，不如趁现在转个人推吧。
+

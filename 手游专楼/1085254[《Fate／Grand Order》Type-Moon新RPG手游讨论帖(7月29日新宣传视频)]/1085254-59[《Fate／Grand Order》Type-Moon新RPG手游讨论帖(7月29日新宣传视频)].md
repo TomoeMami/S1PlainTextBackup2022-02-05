@@ -8766,3 +8766,12 @@ fgo实装孙渣了？
 
 感觉大黑天才是这次卡池的大奖
 
+
+
+*****
+
+####  rooarr  
+##### 87762#       发表于 2022-4-28 00:01
+
+限定4星难抽，1宝80级差不多是5宝90级一半的伤害，还是比较难用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
