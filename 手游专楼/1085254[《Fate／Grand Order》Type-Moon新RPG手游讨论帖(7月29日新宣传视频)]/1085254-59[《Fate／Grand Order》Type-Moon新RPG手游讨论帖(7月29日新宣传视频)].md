@@ -8184,3 +8184,18 @@ WYS到底是谁至今没人知道的样子 是不是怕被人打死</blockquote>
 
 4/27〜5/18全卡面riyo化
 
+
+
+*****
+
+####  fireship  
+##### 87711#       发表于 2022-4-27 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这次春泳活动是我这么多年来FGO第一个完全没打通的活动。
+
+再临道具没拿满，宝具本一个都没打，建筑也只开了一条线。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

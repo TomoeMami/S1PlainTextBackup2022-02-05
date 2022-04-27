@@ -13407,3 +13407,14 @@ ps：希望我可以入典
 
 我能咋办，贴吧、nga的sb太多，讲不得道理，评论区全是和谐，我只能发这<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  帽子戏法马夏尔  
+##### 5919#       发表于 2022-4-27 14:20
+
+就这破企划一代后面闹得沸沸扬扬，二代上来整个文静炒作有了讨论度，说句不好听的，千鸟二期生过了开始的新鲜感后，除了艾瑞思有几个凭良心说是在认真播的，不还是个摆烂心态就那么混着呢，都没人家底边个人或者社团势认真，岁月史书是写的真妙，整的好像之前一切都好是内鬼害了千鸟逼走大救星了，知道的是千鸟，不知道的还以为是穆鸟，我这进曼联专楼了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
