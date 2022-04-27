@@ -13322,3 +13322,14 @@ syl，文静这肯定假的啊。一个主杂谈这么久了还这么多经历�
 —— 来自 HUAWEI L ...</blockquote>
 也许有人就是图这个呀。我看V就图乐放松心情，具体到静女妖就是绿茶味和直播观众拉扯
 
+
+
+*****
+
+####  Yerish  
+##### 5911#       发表于 2022-4-27 10:05
+
+隔壁黄乌龟说的好，吹个牛逼而已，那么认真搞毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">40岁老逼吹来吹去就那么些事情，像文静这种20多的能有多少人生经历能天天讲。
+
+以及本来就都是rp，五个人粉色看起来最真，还能被co暗示作息烂了，被404暗示烧来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
