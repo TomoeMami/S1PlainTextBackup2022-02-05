@@ -15554,3 +15554,103 @@ celticwhite也破防了，看着有点心疼<img src="https://static.saraba1st.c
 我往好处想的话，老实说本来大部分观众应该都会觉得按部就班的拍第二季估计也就那样？应该没几个人认为一期 ...</blockquote>
 从看看有没有机会翻盘到完了烂定了差不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7112#       发表于 2022-4-28 01:10
+
+新角色，红蓝是捆绑销售的，新金毛是vtb，双马尾是北海道扮演乡下人。
+
+花田会搞什么土味情节我似乎都能嗅到了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  musicat  
+##### 7113#       发表于 2022-4-28 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">才看到这个消息，只能是这个表情。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7114#       发表于 2022-4-28 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这4个人对学院偶像的态度和最初5人可不一样啊，花田这能写好吗
+
+*****
+
+####  dozen  
+##### 7115#       发表于 2022-4-28 01:14
+
+比起新人我倒是在想旧5人的2年级ver和3年级ver人设会不会有大变化
+
+*****
+
+####  甩不出去的黄牌  
+##### 7116#       发表于 2022-4-28 01:15
+
+堇和夏美两个口癖角色带一个酷女孩mei组一队类似bb和gk
+恋和千一个大和抚子和一个姐系（？）带一个有点土包子樱小路组一队类似llw和aaa
+leader香音带高人气角色可可和软性格后辈四季（？）组成最后一队
+完美啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  糖尔  
+##### 7117#       发表于 2022-4-28 01:15
+
+不追真人巡演对加人倒也还好，但是肉眼可见动画肯定一泻千里要拉到底了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wxc060302  
+##### 7118#       发表于 2022-4-28 01:15
+
+如果是新的对手团或者是同校另外一个偶像团体，那运营的🐴可以暂时回归近地轨道，咬打火机都比这强
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吹雪桑大胜利  
+##### 7119#       发表于 2022-4-28 01:16
+
+到第三季再加3个人是吧，从青铜五小强降级为12黄金了属于是
+
+*****
+
+####  水莲寺流歌  
+##### 7120#       发表于 2022-4-28 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">所以第一季拿不到冠军是因为五只不行吗
+
+*****
+
+####  七倾梦  
+##### 7121#       发表于 2022-4-28 01:18
+
+无语了，又整烂活
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 7122#       发表于 2022-4-28 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612294&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-4-28 01:11</a>
+第一季最后香音库亚西库亚西的，我冠军呢？新4人：我不到啊
+
+这4个人对学院偶像的态度和最初5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一败再败准备等到第三季三年级翻盘
+结果整个ll因为搞的皮套人企划吃了大屎嗷的一声暴毙了  
+夺冠？ 下辈子吧
+
