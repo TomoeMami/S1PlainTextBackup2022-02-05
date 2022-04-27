@@ -8787,3 +8787,23 @@ fgo实装孙渣了？
 限定4星难抽，1宝80级差不多是5宝90级一半的伤害，还是比较难用的</blockquote>
 1宝能有5宝一半伤害已经很厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87764#       发表于 2022-4-28 02:00
+
+果然这次有问题
+
+混沌恶出现了
+
+4C470ECC-CB1D-4903-8EB7-A043E3E57032.png
+(382.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 02:00 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/020036yq6pfgbkgly9zpbx.png" referrerpolicy="no-referrer">
+

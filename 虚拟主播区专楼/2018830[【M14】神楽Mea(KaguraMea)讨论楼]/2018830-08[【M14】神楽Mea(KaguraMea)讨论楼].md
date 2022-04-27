@@ -236,3 +236,98 @@ mea可以跟他多联动吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉是兰太郎喜欢半夜狼人杀，拉你咩凑数的
 
+
+
+*****
+
+####  T_Hb  
+##### 10523#       发表于 2022-4-28 02:20
+
+<img src="https://p.sda1.dev/5/cb4fdd6e5b60bf68e4c5a6f023711915/IMG_20220428_021936.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10524#       发表于 2022-4-28 02:26
+
+今晚是夕刻，明天是vcp，后天是VTuber Fes Japan 2022 day2 加上组长频道<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10525#       发表于 2022-4-28 02:28
+
+天开司之前还放了一个pokerchase的预告，30号晚8点组长罗贝尔松本，不知道是写错了还是啥
+
+*****
+
+####  古战场亡魂  
+##### 10526#       发表于 2022-4-28 02:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612599&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-4-28 02:28</a>
+
+天开司之前还放了一个pokerchase的预告，30号晚8点组长罗贝尔松本，不知道是写错了还是啥 ...</blockquote>
+和组长一个活动，两个频道罢了。
+
+<img src="https://img.saraba1st.com/forum/202204/28/023214qjpwjfqbcxf3bbef.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428023112115.jpg</strong> (167.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 02:32 上传
+
+*****
+
+####  T_Hb  
+##### 10527#       发表于 2022-4-28 02:39
+
+ 本帖最后由 T_Hb 于 2022-4-28 02:44 编辑 
+
+<img src="https://p.sda1.dev/5/6e6e18e0d14606779a421751b5fd49c2/CMP_20220428023905363.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/5/034af975081f7067d2dcbed3bc33d553/IMG_20220425_103734.jpg" referrerpolicy="no-referrer">
+
+看来他自己就把成员写错了，然后非公式推搬运又把时间写错了，两个都不一样搞的我以为是不同的练习会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">失真严重
+
+*****
+
+####  古战场亡魂  
+##### 10528#       发表于 2022-4-28 03:01
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 03:09 编辑 
+
+现在mea在英文区的全是夕刻的切片，不用夕刻本人出场提到就切和翻译比如之前神乐mea王那次。
+
+日文区切片全在组长和犬山那边，她们自己就切，还有其他专门切苔箱组的因幡组的。
+
+国内b站现在的认知基本靠vcp了。
+
+以前国内外的认知差距就很离谱了，现在更离谱了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10529#       发表于 2022-4-28 03:08
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 03:26 编辑 
+
+<strong>VTuber Fes Japan2022 主题曲 / DAY2版</strong>
+挺好听的，不过mea只有几句，油管22号发的，到现在也就8万不到播放。为什么nico的活动会去油管发啊？？好家伙油管3300再生??
+[https://www.bilibili.com/video/BV1WS4y1c7D8](https://www.bilibili.com/video/BV1WS4y1c7D8)
+
+*****
+
+####  往世雷书  
+##### 10530#       发表于 2022-4-28 05:03
+
+ 本帖最后由 往世雷书 于 2022-4-28 05:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612672&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-4-28 03:01</a>
+现在mea在英文区的全是夕刻的切片，不用夕刻本人出场提到就切和翻译比如之前神乐mea王那次。
+
+日文区切片全 ...</blockquote>
+挺好的，每个地方的观众都只能捕捉到一部分侧影，合在一起才是本体，这种感觉多酷多虚拟<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+每个人都有一个属于自己的神
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

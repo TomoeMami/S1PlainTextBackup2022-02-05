@@ -13541,3 +13541,17 @@ ps：希望我可以入典
 
 早知道，还是白子
 
+
+
+*****
+
+####  Yerish  
+##### 5930#       发表于 2022-4-28 05:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55606556&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2022-4-27 16:32</a>
+
+404什么时候说过艾瑞思骚?</blockquote>
+就404近期唯一的直播，大概就是说她觉得粉色比自己烧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然女人眼中的烧可能不太一样，尤其像404和粉色这种大概率合不来的。
+

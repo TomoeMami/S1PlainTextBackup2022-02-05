@@ -15736,3 +15736,196 @@ q娃一年加1个都有追加破坏观感的问题，这一次加4个动画不�
 
 恋恋要是从人气第5变成了人气第9可就最大受害者了
 
+
+
+*****
+
+####  we89623  
+##### 7130#       发表于 2022-4-28 01:54
+
+外面看了一圈，好像英文圈，日文圈全在骂..
+
+*****
+
+####  cybernetics31  
+##### 7131#       发表于 2022-4-28 01:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能让reddit 那帮宅也骂，只能说运营sb ，企划zz了
+
+*****
+
+####  普之舜舜  
+##### 7132#       发表于 2022-4-28 02:05
+
+星团为什么要加人和塞人呀？你花田能写好吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nufawneafg  
+##### 7133#       发表于 2022-4-28 02:07
+
+其实有点心疼背锅位花田了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7134#       发表于 2022-4-28 02:13
+
+半夜占两个趋势了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Cushaw  
+##### 7135#       发表于 2022-4-28 02:15
+
+謝罪しろ！<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  player3960  
+##### 7136#       发表于 2022-4-28 02:18
+
+对动画早就没有期待了，只关心三次元部分，准确说只关心鲤鱼，从今天开始我只在鲤鱼个人活动上花钱了，如果她和新成员互动有趣有梗，看看切片还是可以的，ll别的相关是真不想太关注了，这鸟系列就没一个团让人粉的舒坦过…
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  loley  
+##### 7137#       发表于 2022-4-28 02:31
+
+看到前面楼层有人说第一个妹子有点眼熟，我仔细看了下，感觉越看越像是换了恋柱头发颜色的小千。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Arccueid  
+##### 7138#       发表于 2022-4-28 02:37
+
+我服了 什么玩意啊
+
+*****
+
+####  Jobtownb  
+##### 7139#       发表于 2022-4-28 02:41
+
+ 本帖最后由 Jobtownb 于 2022-4-28 02:43 编辑 
+
+完了，全寄了
+
+*****
+
+####  renkan119  
+##### 7140#       发表于 2022-4-28 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612626&amp;ptid=2036367" target="_blank">Jobtownb 发表于 2022-4-28 02:41</a>
+
+我觉得新人没准还真是结丘轻音部，一部动画两个团的操作。
+
+但是不管企划怎么办，剧情肯定是已经寄了，花田 ...</blockquote>
+已经明确说了是9人裂啦
+
+
+
+*****
+
+####  Jobtownb  
+##### 7141#       发表于 2022-4-28 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612628&amp;ptid=2036367" target="_blank">renkan119 发表于 2022-4-28 02:42</a>
+
+已经明确说了是9人裂啦</blockquote>
+那完了，全寄了
+
+*****
+
+####  Jobtownb  
+##### 7142#       发表于 2022-4-28 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612120&amp;ptid=2036367" target="_blank">名津流 发表于 2022-4-28 00:49</a>
+
+我往好处想的话，老实说本来大部分观众应该都会觉得按部就班的拍第二季估计也就那样？应该没几个人认为一期 ...</blockquote>
+不期望上限，只有下限会更低
+
+*****
+
+####  we89623  
+##### 7143#       发表于 2022-4-28 03:00
+
+日本人连推特这种表面礼貌场所都不装了那他们的确是很生气了.
+
+*****
+
+####  长日留痕  
+##### 7144#       发表于 2022-4-28 03:08
+
+如果企划开始前就说九人团并且会分批次入团的话可能还是个好活，大家在看第一季的时候还会期待一下下一季新成员的加入。但是这样突然加入只会激起粉丝的不满吧，毕竟感情已经完全投入到这五个角色身上了，后来的怎么看都会不顺眼。
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  deeplar  
+##### 7145#       发表于 2022-4-28 03:18
+
+什么玩意啊，动画二期还有救吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  we89623  
+##### 7146#       发表于 2022-4-28 03:32
+
+liella词条上了美国趋势...
+
+*****
+
+####  aoaoaodedede  
+##### 7147#       发表于 2022-4-28 03:33
+
+反正个人感觉还是摸不着头脑，按理说这种计划加人的事不可能是一两天就从脑子里蹦出来的，
+
+但是嘛，当时二期制作决定的视频里没发现什么线索，而且大概这个位置只有她们原来五个人应援色的色带[https://www.bilibili.com/video/BV1u3411k7GT?t=23](https://www.bilibili.com/video/BV1u3411k7GT?t=23)
+
+这就不知道到底这个加人是什么时候准备开始的事了，假如二期动画要上新的4个人，那么这前期的铺垫未免太少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山岚夜雨  
+##### 7148#       发表于 2022-4-28 04:01
+
+ 本帖最后由 山岚夜雨 于 2022-4-28 04:07 编辑 
+
+不是太少，是单纯完全没铺垫，动画和三次元都是，现在说这四个人是动画第一期完结后才想到要加的我都信了，正常思路是，你一期动画结尾放些四人铺垫伏笔，四个人都露个剪影或者脸，留爆点给粉丝自己猜还能拉满二期期待值，然后三次元有意无意让四个新人在live露面，粉丝都绝对不会是现在这个反应了吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">现在是把粉丝当厕所了属于是觉的拉啥粉丝就照单全收了，我建议花田和京极直接润吧
+
+*****
+
+####  凡人  
+##### 7149#       发表于 2022-4-28 04:19
+
+合着星1.0是LL的“史上最弱是吧，今年能冲出东京就算成功。红蓝捆绑销售，剩下两个能给恋恋找个cp吗
+
+*****
+
+####  secretgarnet  
+##### 7150#       发表于 2022-4-28 04:29
+
+我人傻了……还可以这样的？鲤鱼之前新年还写了「五人の絆」如何如何，现在一下子变成9个人，实在无法接受
+
+*****
+
+####  Erikas  
+##### 7151#       发表于 2022-4-28 04:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看概念图这是还要演新人超越前辈的戏？那得挤占旧五人多少空间啊
+
