@@ -13371,3 +13371,12 @@ ps：希望我可以入典
 你哪个眼看见我是陈珺孝子了？
 我冲陈珺，冲官号的时候你干什么呢？
 
+
+
+*****
+
+####  龙娘777  
+##### 5915#       发表于 2022-4-27 13:21
+
+刚好说起来 我觉得asoul是最假的 以虚拟感以rp为名 说了多少谎话 另外我投降 au不要冲我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
