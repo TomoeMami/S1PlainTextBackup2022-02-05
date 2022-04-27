@@ -14534,3 +14534,117 @@ E6B8172F-899E-4D58-9D6C-CF7DACDF884C.jpeg
 
 看到LL D的图透，要加入新成员了
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 7011#       发表于 2022-4-27 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还加人啊
+
+T1HCLOSWGMEONM$Y[FCWEIS.jpg
+(179.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/231033arz4mr649m59v3ci.jpg" referrerpolicy="no-referrer">
+
+D1Z0BWJK~H6Z75__~P2MMH5.jpg
+(183.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/231039gor77wrvco72h27w.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 7012#       发表于 2022-4-27 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这五个人都没写明白就加人啊
+
+*****
+
+####  we89623  
+##### 7013#       发表于 2022-4-27 23:13
+
+我人傻了????
+
+*****
+
+####  ayangsu  
+##### 7014#       发表于 2022-4-27 23:14
+
+感觉第二季他整不明白啊，写不好就寄了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a92063256  
+##### 7015#       发表于 2022-4-27 23:14
+
+什么东西？？？这么搞真的可以吗
+
+*****
+
+####  kos_mos  
+##### 7016#       发表于 2022-4-27 23:15
+
+还是要凑9吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7017#       发表于 2022-4-27 23:15
+
+心情复杂
+
+839FD6F7-848D-469B-B36E-AAD90CEBD6BA.jpeg
+(465.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/231549u1gdudg0wqowdu44.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D03CFECF-A32E-4577-BF38-2F91889D83CF.jpeg
+(408.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/231549da3fnhpbhxng4b11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7018#       发表于 2022-4-27 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得，寄了啊兄弟们，这企划突出一个随便啊
+
+*****
+
+####  we89623  
+##### 7019#       发表于 2022-4-27 23:19
+
+新四人肯定要有人个人回分走剧情。
+
+恋人气基本时真的没救了。
+
+新加四个一年前，是不是代表第三年还要加新人？？ 往好处想第三季概率很大...
+
+*****
+
+####  starring  
+##### 7020#       发表于 2022-4-27 23:19
+
+硬是加人啊，连我都要骂企划了
+
