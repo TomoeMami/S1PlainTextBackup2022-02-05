@@ -583,3 +583,12 @@ gm 看在都是坛友的份上给个wl
 想问问楼主说的“风口”是啥，是指在国内做游戏吗？</blockquote>
 gamefi啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jannine  
+##### 66#       发表于 2022-4-27 11:54
+
+想问一下，这种gamefi打金之后如何变现呢，必须肉身翻墙么？
+
