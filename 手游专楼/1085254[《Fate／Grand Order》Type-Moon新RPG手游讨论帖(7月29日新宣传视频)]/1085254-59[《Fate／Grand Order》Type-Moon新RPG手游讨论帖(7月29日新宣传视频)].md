@@ -8541,3 +8541,30 @@ fgo实装孙渣了？
 卡面画的都不错啊，兔子和局长也太修长了，不做成卡有点可惜...（但是太危险了，一个生前就敢跟资本 ...</blockquote>
 握手，这个三破是真的好看，有喂杯子的冲动（不
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87747#       发表于 2022-4-27 20:32
+
+ 本帖最后由 Jamaisvu 于 2022-4-27 20:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55609293&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-4-27 20:12</a>
+
+握手，这个三破是真的好看，有喂杯子的冲动（不</blockquote>
+就强度而言，
+
+宝具是蓝光炮、发动前蓝卡+10、释放后赋予强化无效，
+
+一技能全体女性攻击力和蓝卡+15、NP获得率+10，持续三回合，
+
+二技能给三十星扣500血，冷却四回合，
+
+三技能敌方全体减充能、我方全体+10NP和30暴击。
+
+如果说班扬是小梅林的话，安宁大概可以算...小C呆？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+总之，如果不是想用她打输出的话，60级当个挂件或百重塔打工人已经够用了，圣杯只推荐为爱而喂<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+忽然感觉漫画活动也许还有二期，毕竟一星乌冬从者还少个绿拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
