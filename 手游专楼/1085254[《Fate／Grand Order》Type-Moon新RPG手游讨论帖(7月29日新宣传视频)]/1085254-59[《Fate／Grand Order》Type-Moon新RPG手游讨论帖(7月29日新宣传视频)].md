@@ -8708,3 +8708,31 @@ fgo实装孙渣了？
 
 （话虽如此，但我还是得氪金了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  シャル  
+##### 87757#       发表于 2022-4-27 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55610777&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-4-27 22:30</a>
+
+速趴班扬作为一个三红丑阶，攻击力排名全五星66，甚至没用杰克高，生命值排行全五星78，数值并不出众。
+
+轮 ...</blockquote>
+三破好玩
+
+三破宝具最速<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87758#       发表于 2022-4-27 22:38
+
+<blockquote>シャル 发表于 2022-4-27 22:01
+一发护符金圈之后加了40次免费石头
+
+全了这次
+</blockquote>
+这老鼠的满破卡面怎么看都是礼装混进去了OTZ
+
