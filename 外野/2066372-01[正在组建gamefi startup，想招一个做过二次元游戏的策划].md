@@ -592,3 +592,31 @@ gamefi啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" r
 
 想问一下，这种gamefi打金之后如何变现呢，必须肉身翻墙么？
 
+
+
+*****
+
+####  厨具战士  
+##### 67#       发表于 2022-4-27 12:53
+
+ 本帖最后由 厨具战士 于 2022-4-27 12:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55601735&amp;ptid=2066372" target="_blank">ahyyk 发表于 2022-4-27 10:13</a>
+
+这种链游……和梦幻西游，有啥区别?
+
+梦幻西游至少还有一定游戏性的呀</blockquote>
+能用链币钱包，游戏道具也是上链的。
+
+粗浅理解，上链了就能保证去中心化，意味着道具什么的都是能留存的，打金网游经常调侃的“万一哪天服务器关了怎么办”“万一哪天官方脑抽乱删数据怎么办”类似的问题有了解决的途径。
+
+不过吐槽一下，现在圈子文化很诡异。游戏不叫游戏，都叫“项目”，玩家也金融术语不绝于口。本来想认真玩玩卡牌游戏，结果中文环境就没几个关心的。
+
+*****
+
+####  zypyong  
+##### 68#       发表于 2022-4-27 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55603176&amp;ptid=2066372" target="_blank">jannine 发表于 2022-4-27 11:54</a>
+想问一下，这种gamefi打金之后如何变现呢，必须肉身翻墙么？</blockquote>
+换成u就行了
+
