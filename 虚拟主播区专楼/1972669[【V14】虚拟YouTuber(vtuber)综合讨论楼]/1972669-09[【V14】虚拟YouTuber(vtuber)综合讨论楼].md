@@ -5683,3 +5683,13 @@ en v最协selen有考虑过办<img src="https://static.saraba1st.com/image/smile
 
 继selen痛打xqc车队后，噗也开始玩ow2测试了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 12523#       发表于 2022-4-27 11:30
+
+所以ow2到底配叫2吗
+我看来看去最多算得上是dlc
+
