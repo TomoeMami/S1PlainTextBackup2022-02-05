@@ -16021,3 +16021,17 @@ liella词条上了美国趋势...
 
 再看一眼新人的设定，我已经脑补出要和前辈之间整什么活儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比如那个Ltuber，和可可肯定要整一出
 
+
+
+*****
+
+####  ads147147  
+##### 7161#       发表于 2022-4-28 07:44
+
+干，大晚上睡不着。做梦还梦到新人最终选角的画面，cv追梦没错，那tm万代到底在做什么，到底是临时起意加人还是早有预谋，这个企划里充满了欺骗那还粉个毛？
+看到别人就发了四个字：未来如风
+就破防了，还如风个毛。
+也难怪2单一直没谱，这tm加四个人，你敢开投票2单？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
