@@ -14673,3 +14673,78 @@ D03CFECF-A32E-4577-BF38-2F91889D83CF.jpeg
 
 可惜到动画就是另一回事了
 
+
+
+*****
+
+####  Enakina  
+##### 7024#       发表于 2022-4-27 23:30
+
+谢邀，人和挨了一锤子一样，现在还是蒙蒙的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  wsdbyh  
+##### 7025#       发表于 2022-4-27 23:30
+
+老实说这四个新人造型不是很抓眼球啊。
+
+另外夏美这个角色有好重的既视感，但一时间又说不出来像谁
+
+*****
+
+####  cybernetics31  
+##### 7026#       发表于 2022-4-27 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">龙歌他们烤肉人都被气得说不烤第二季了
+
+*****
+
+####  安瓦尔阿明  
+##### 7027#       发表于 2022-4-27 23:33
+
+动作真是快。把新四人给不拉的朋友看，他们普遍比较喜欢蓝毛，不过也觉得偏朴素。看动起来怎么样。
+
+*****
+
+####  kata魂  
+##### 7028#       发表于 2022-4-27 23:33
+
+我已经不知道对这个企划抱什么态度了
+
+*****
+
+####  dozen  
+##### 7029#       发表于 2022-4-27 23:34
+
+ 本帖最后由 dozen 于 2022-4-27 23:38 编辑 
+
+加人是不意外，意外是这就齐9人了，到三年级时还继续加吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+新4人初见倒是没多少拉拉里的即视感
+
+*****
+
+####  三明治  
+##### 7030#       发表于 2022-4-27 23:37
+
+怕不是该开个这企划好烂楼了
+
+*****
+
+####  stygian  
+##### 7031#       发表于 2022-4-27 23:40
+
+南万日升NMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSLNMSL
+
+艹！
+
+*****
+
+####  llllife  
+##### 7032#       发表于 2022-4-27 23:40
+
+之前二次元有这种硬往组合里加人的操作吗...虹那个还好吧，毕竟是solo和团并行的
+
