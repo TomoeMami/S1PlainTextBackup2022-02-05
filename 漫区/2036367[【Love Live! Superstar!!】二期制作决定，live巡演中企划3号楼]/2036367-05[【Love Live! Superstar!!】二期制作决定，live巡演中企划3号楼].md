@@ -14748,3 +14748,67 @@ D03CFECF-A32E-4577-BF38-2F91889D83CF.jpeg
 
 之前二次元有这种硬往组合里加人的操作吗...虹那个还好吧，毕竟是solo和团并行的
 
+
+
+*****
+
+####  仟音一心  
+##### 7033#       发表于 2022-4-27 23:41
+
+我加的群开始批量换头像了。
+
+烂铁寄
+
+86BFCDD9-923B-43E8-A2DC-B133828F0B05.jpeg
+(78.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-27 23:41 上传
+
+<img src="https://img.saraba1st.com/forum/202204/27/234101vorjt7ojy2xjr4ou.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Cryogenian  
+##### 7034#       发表于 2022-4-27 23:42
+
+ 本帖最后由 Cryogenian 于 2022-4-27 23:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么这么激动，等新人亮相了再说啊
+
+其实当年裂啦刚公布全员一年级的时候我就猜到会有这个玩法了，现在还蛮期待的
+
+*****
+
+####  iuhehc  
+##### 7035#       发表于 2022-4-27 23:43
+
+真的是给整的流大汗了..........
+
+*****
+
+####  cybernetics31  
+##### 7036#       发表于 2022-4-27 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘛，欢迎大家来隔壁虹玩玩，solo好玩的
+
+*****
+
+####  wsdbyh  
+##### 7037#       发表于 2022-4-27 23:48
+
+还是看第二季动画剧情怎么写吧。
+
+要是走上了偶活第三季那种新旧角色间剧情处理不好的问题，星这个企划别说目标是上新国立开LIVE了。搞不好星这个企划整个都要寄掉
+
+*****
+
+####  Skyline_R  
+##### 7038#       发表于 2022-4-27 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55611465&amp;ptid=2036367" target="_blank">llllife 发表于 2022-4-27 23:40</a>
+
+之前二次元有这种硬往组合里加人的操作吗...虹那个还好吧，毕竟是solo和团并行的 ...</blockquote>
+别学肥秋给你来个空降C位算是不错了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
