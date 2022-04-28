@@ -17339,3 +17339,119 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 
 裂广播和生放肯定会加人，选择性观看。双N广播大概率会邀请嘉宾，只要保持这两人主持，影响还不算大。以后的Live这些选择性观看
 
+
+
+*****
+
+####  寒风夜  
+##### 7296#       发表于 2022-4-28 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618539&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:08</a>
+
+其实就销量来说，国内星厨的消费能力是目前拉拉里最高的
+
+但是在日本来说，星的业绩是拉拉最低的，就演唱会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">3线一起运营不低有鬼了
+
+*****
+
+####  Enakina  
+##### 7297#       发表于 2022-4-28 15:13
+
+Nako转推点赞，其她人也就这个程度吧，得等正式公布cv在发声了
+夢ですか？真的是场梦就好了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  红焖菠菜  
+##### 7298#       发表于 2022-4-28 15:13
+
+ 本帖最后由 红焖菠菜 于 2022-4-28 15:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618539&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:08</a>
+其实就销量来说，国内星厨的消费能力是目前拉拉里最高的
+
+但是在日本来说，星的业绩是拉拉最低的，就演唱会 ...</blockquote>
+动画做成那德行能引流多少人，成绩差我觉得是必然的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我都是先看到二创才回头看动画补广播剧逐渐入坑的。
+
+*****
+
+####  优妮可  
+##### 7299#       发表于 2022-4-28 15:13
+
+鲤鱼都不用发表啥，动态评论早就一堆发泄的了，再发动态控不住了
+
+*****
+
+####  li463900160  
+##### 7300#       发表于 2022-4-28 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618590&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-4-28 15:12</a>
+
+3线一起运营不低有鬼了</blockquote>
+拉拉本质上还是背后投资方太多，各种利益牵扯在里面，都想靠这个ip赚钱
+
+*****
+
+####  仟音一心  
+##### 7301#       发表于 2022-4-28 15:15
+
+真的快啊
+
+B38FEEAC-5FCD-4A78-99B0-D633F4B4608A.jpeg
+(53.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151509l43t1o3vtzuqvtlu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3918A60F-90F9-4B84-94DF-A80408D76A43.jpeg
+(62.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151509ewzpowi0jj02yo1d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E39060D5-3F18-43D4-953E-4513CD78C9FA.jpeg
+(49.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151509baj9dj938trjcdad.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3F94CD53-0DA8-46C4-A74B-0FBA73AEA6FC.jpeg
+(54.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151511q8esmrp686q888r2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2AB931D3-608D-466A-A05F-088C1E2E1BB6.jpeg
+(324.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151515prc0rcztit0idoi4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  红焖菠菜  
+##### 7302#       发表于 2022-4-28 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618620&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 15:15</a>
+真的快啊</blockquote>
+鬼佬不管acgn发表啥新闻基本都是狂喜。
+我印象中唯一一次没狂喜的就是暗黑手游<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

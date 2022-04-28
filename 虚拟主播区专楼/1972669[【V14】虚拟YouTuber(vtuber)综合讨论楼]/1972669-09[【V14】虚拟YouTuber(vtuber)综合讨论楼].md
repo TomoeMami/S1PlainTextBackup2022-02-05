@@ -5993,3 +5993,21 @@ yhm真的逊啊，活该jp待遇被en踩在头上，enkr这傻逼运营2022了�
 
 谷子生产订单已经下了的话应该一时半会儿改不了吧，这场戏的走向还得看5月后续其他人的货如何<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 12558#       发表于 2022-4-28 15:19
+
+总营业额比我想象的少很多，但是利润率不错，相比之下股票发少了啊。
+
+*****
+
+####  rzrbtk  
+##### 12559#       发表于 2022-4-28 15:20
+
+可惜推没法转发抽奖什么的，cn吃谷人武德注入<img src="https://static.saraba1st.com/image/smiley/face2017/258.png" referrerpolicy="no-referrer">
+
+就是哈哥被流弹攻击有点倒霉，通知栏都爆了吧
+
