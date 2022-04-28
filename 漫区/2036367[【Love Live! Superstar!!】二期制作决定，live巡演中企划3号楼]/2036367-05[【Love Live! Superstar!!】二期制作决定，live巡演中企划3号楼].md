@@ -17171,3 +17171,21 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 
 赌国运这项操作立本一向是不值得期待的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  we89623  
+##### 7278#       发表于 2022-4-28 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617948&amp;ptid=2036367" target="_blank">lj205 发表于 2022-4-28 14:24</a>
+我这么说吧，L管人的设定我第一眼印象就不好的</blockquote>
+但墙外好像她的二次创作挺多的 就这不到一天的时间
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7279#       发表于 2022-4-28 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这一看就是新的吃瘪人
+

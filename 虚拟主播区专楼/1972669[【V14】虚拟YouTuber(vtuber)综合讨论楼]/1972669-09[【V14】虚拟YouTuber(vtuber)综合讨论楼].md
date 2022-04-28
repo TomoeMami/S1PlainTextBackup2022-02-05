@@ -5937,3 +5937,14 @@ yhm真的逊啊，活该jp待遇被en踩在头上，enkr这傻逼运营2022了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹官推下面那些回复很多都是国人啊，所以在樱花妹看来的确是cn又暴动了
 
+
+
+*****
+
+####  fastary  
+##### 12552#       发表于 2022-4-28 14:39
+
+ 本帖最后由 fastary 于 2022-4-28 14:40 编辑 
+
+正好ankr今天通过申请上市了(大概)，有没有懂哥分析下看起来咋样  [申请用证明文件？](https://t.co/Bvye0zqBAh)
+

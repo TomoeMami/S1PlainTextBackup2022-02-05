@@ -561,3 +561,14 @@ holo star的男v
 
 明晚22点
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10551#       发表于 2022-4-28 14:37
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 14:40 编辑 
+
+时间倒是挺充足的。和吸血鬼幸存者的团建不撞。就是赤坂真的看得气，刚在漫区骂过他。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
