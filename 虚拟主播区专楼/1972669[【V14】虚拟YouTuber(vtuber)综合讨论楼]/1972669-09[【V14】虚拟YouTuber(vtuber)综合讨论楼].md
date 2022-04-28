@@ -6655,3 +6655,17 @@ en厕好像是在一个[https://nyfco.org/category/vtuber/](https://bbs.saraba1s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tsm怎么签完哈弟就签crylix的，这下当初鞭尸射盒子和不想解说的两个正主都齐了
 
+
+
+*****
+
+####  wuzhengkai  
+##### 12623#       发表于 2022-4-29 04:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621562&amp;ptid=1972669" target="_blank">free 发表于 2022-4-28 19:01</a>
+
+哇这个利润率，管人痴真的人傻钱多
+
+田角哥哥第一大股东43%，为啥没有岩永哥哥，真给踢出去了吗 ...</blockquote>
+里面有个slee的分拆 应该是踢走了
+

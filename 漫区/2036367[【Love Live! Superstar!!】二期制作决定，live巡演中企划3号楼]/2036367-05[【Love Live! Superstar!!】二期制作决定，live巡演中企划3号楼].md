@@ -18967,3 +18967,46 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 个人觉得这东西看个乐呵就行了，我不觉得LoveLive!Superstar!!企划方对待这种东西有多细节
 
+
+
+*****
+
+####  FMIC  
+##### 7438#       发表于 2022-4-29 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55626798&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-4-29 01:39</a>
+个人觉得这种是有细节又没细节的</blockquote>
+我不是说它画这个东西是为了预告，我只是看到有些潭友未免太高看日本人的效率，小看花在运作这些破东西上的时间。
+
+*****
+
+####  aoaoaodedede  
+##### 7439#       发表于 2022-4-29 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55627031&amp;ptid=2036367" target="_blank">FMIC 发表于 2022-4-29 02:10</a>
+
+我不是说它画这个东西是为了预告，我只是看到有些潭友未免太高看日本人的效率，小看花在运作这些破东西上 ...</blockquote>
+好吧，反正我觉得这种细节说服力不够，而且有些其他地方反而没有细节了
+
+*****
+
+####  iuhehc  
+##### 7440#       发表于 2022-4-29 02:44
+
+ 本帖最后由 iuhehc 于 2022-4-29 02:58 编辑 
+
+反正确定第二季有新人的话，那么其他几个人估计至少在那次访谈（鲤佩提及可堇二期话题那次）就知道了【仅作推理】
+但我个人还是感觉这个加人不是一开始就定的，从头到尾一点有意思的蛛丝马迹都没有，都以为2期要补设定要补1期锅展开5人细节剧情的时候，却可能要走篇幅不轻的攻略新生剧情（实际上也是打怪升级呢）
+1期12话kanon在那库亚西库亚西的时候我是真觉得要写5人夺冠之路剧情的，如果加人就能夺冠能赢sunnypa，那无话可说了，说好点就是丰富团内色彩使整体实力变更强，直接说就是最好实力也赢不过来摇人了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  lanslort  
+##### 7441#       发表于 2022-4-29 03:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 历代撕逼也都是粉丝自我感动自以为是罢了，替声优苦大仇深还是算了吧。
+
