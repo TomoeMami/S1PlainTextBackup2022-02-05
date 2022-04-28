@@ -18474,3 +18474,28 @@ E724784E-3DB8-4C3B-ADBC-6E7F7F40BF20.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/28/211644w889zejarx309i20.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 7395#       发表于 2022-4-28 21:34
+
+鲤鱼在微博发了一个抱抱的表情，我也不揣摩多的含义了，就当是在这一堆声音盾后，给我们唯一的一点安慰吧，唉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 7396#       发表于 2022-4-28 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">反正不管怎样，她还是会支持下去的
+
+*****
+
+####  甘蓝巧克力  
+##### 7397#       发表于 2022-4-28 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">经历过才知道有多痛
+
