@@ -18580,3 +18580,25 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  catenarygong  
+##### 7406#       发表于 2022-4-28 22:25
+
+怎么感觉这几个新人的人设越来越偶活star了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  ads147147  
+##### 7407#       发表于 2022-4-28 22:31
+
+打了一堆负面情绪，感觉自己傻了。该看看，该乐子人乐子人。
+
+也难怪鲤鱼会说那句只是碰巧这个时候喜欢她那句话了。豁达点。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
