@@ -815,3 +815,14 @@ Roberu Ch. 夕刻ロベル本人的名字也是ru，mea用他名字接龙了。
 
 除去联动者是个野男人...节目效果还是不错的...
 
+
+
+*****
+
+####  往世雷书  
+##### 10573#       发表于 2022-4-28 22:08
+
+是不是又要有一堆切片和二创在路上了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

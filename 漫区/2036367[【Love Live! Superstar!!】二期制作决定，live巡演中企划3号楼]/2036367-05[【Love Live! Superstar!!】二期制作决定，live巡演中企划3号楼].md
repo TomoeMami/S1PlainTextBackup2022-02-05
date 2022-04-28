@@ -18543,3 +18543,22 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 7402#       发表于 2022-4-28 22:01
+
+妈的，怎么看的我更难受了。就现在这个心态去看新人，难受的绝对只是自己啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 7403#       发表于 2022-4-28 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55623892&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 21:43</a></blockquote>
+尽在不言中<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
