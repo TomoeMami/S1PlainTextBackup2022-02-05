@@ -18713,3 +18713,29 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 还有剧场版呢
 
+
+
+*****
+
+####  catenarygong  
+##### 7418#       发表于 2022-4-28 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625348&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-4-28 23:18</a>
+这样子肯定有三期，二期我不觉得他写得完</blockquote>
+写不完还加人，怕不是有病
+
+当然企划一直有病<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  catenarygong  
+##### 7419#       发表于 2022-4-28 23:29
+
+一期至少是人设公布了一年多才出动画
+
+二期这七月份就要上了来这出，怕不是动画都开始做了
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
