@@ -459,3 +459,39 @@ holo star的男v
 
 2022-4-28 12:22 上传
 
+
+
+*****
+
+####  clvan_  
+##### 10542#       发表于 2022-4-28 12:25
+
+说明你麻引领了新的人设潮流（雾）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+拉拉怎么都开始搞这套了，不是一向都是挺正经的人设
+
+*****
+
+####  やト  
+##### 10543#       发表于 2022-4-28 12:26
+
+ 变通啊
+
+*****
+
+####  zc1996zc  
+##### 10544#       发表于 2022-4-28 12:27
+
+<blockquote>古战场亡魂 发表于 2022-4-28 12:20
+这不是发色渐变吗，讲道理一点相似度都没有啊。这好死不死设计生日是8月13号，唐可可还设定是上海人。以后 ...</blockquote>
+阿这，我一直以为这种发梢跟发根颜色不一样的都叫挑染
+
+*****
+
+####  Cushaw  
+##### 10545#       发表于 2022-4-28 12:31
+
+合理怀疑新人cv就是小麻本体<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

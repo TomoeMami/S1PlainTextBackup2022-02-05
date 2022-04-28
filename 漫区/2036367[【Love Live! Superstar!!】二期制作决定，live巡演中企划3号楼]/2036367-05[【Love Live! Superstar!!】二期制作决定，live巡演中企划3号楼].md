@@ -16721,3 +16721,27 @@ FMT就开始带新人…………………………………………………�
 别闹了，虹星的企划性质本来就有区别不说，as加人也是慢慢来，到动画都有缓冲期了；这边一下子丢个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">这个属实突兀，
 
+
+
+*****
+
+####  cybernetics31  
+##### 7233#       发表于 2022-4-28 12:21
+
+虹菜宝从选上到上台表演等了得3年吧，星这个加人真就直接扔炸弹了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官推下面中文回复一堆问候企划运营亲妈的
+
+*****
+
+####  soranoguiji  
+##### 7234#       发表于 2022-4-28 12:23
+
+累了，这企划赶紧死吧，反正烂铁挂在油管免费放的PV国内都不给过，后面的管人出来估计更是群魔乱舞
+
+*****
+
+####  caupollen  
+##### 7235#       发表于 2022-4-28 12:26
+
+建议日本人出角色先学习一遍抗日所有事件日期，那有多少天不能用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

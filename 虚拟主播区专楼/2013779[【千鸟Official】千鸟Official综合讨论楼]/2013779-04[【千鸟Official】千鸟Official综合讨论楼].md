@@ -13778,3 +13778,14 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 讲真看下来我都不明白文静到底有什么错？莫名其妙</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有粉丝破防就是错误啊。即使大家都知道是假的你也不能让大家彻底明白这都是假的。当然我不这么看就是了
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 5953#       发表于 2022-4-28 12:24
+
+别的啥错不说，屎一样的公关能力大问题没跑，去大专挑一个市场营销的学生都比这几具尸体强
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
