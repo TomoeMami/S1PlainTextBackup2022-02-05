@@ -18670,3 +18670,46 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 — from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 7414#       发表于 2022-4-28 23:17
+
+如果是轻音女配四人组那种戏份，酱油以上，主团未满，我觉得我还可以接受。
+
+轻音演唱会，老师，妹妹，眼镜和卷毛也是有solo的，但典型的上5下4，不会喧宾夺主。
+
+尼玛毫无铺垫就空降和主团一起推，我不信staff不知道自己这么没节操，节奏这么大，还不如让桑妮帕合团。
+
+希望是走轻音模式，不然ll这个企划毫无底线，也走到头了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  wsdbyh  
+##### 7415#       发表于 2022-4-28 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625238&amp;ptid=2036367" target="_blank">catenarygong 发表于 2022-4-28 23:09</a>
+
+搞不好还有第三季呢
+
+就第一季这个水平，九个人怕是来个年番都不够写</blockquote>
+真要来个年番搞不好就是偶活第二了，剧情注水注得飞起那种
+
+*****
+
+####  ViyViy  
+##### 7416#       发表于 2022-4-28 23:18
+
+这样子肯定有三期，二期我不觉得他写得完
+
+*****
+
+####  iuhehc  
+##### 7417#       发表于 2022-4-28 23:20
+
+还有剧场版呢
+

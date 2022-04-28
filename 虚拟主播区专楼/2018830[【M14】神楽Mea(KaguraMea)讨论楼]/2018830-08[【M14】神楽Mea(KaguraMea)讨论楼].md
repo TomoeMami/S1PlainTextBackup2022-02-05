@@ -873,3 +873,21 @@ mea这次直播用的毛衣，新的联动fanart应该有的。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10579#       发表于 2022-4-28 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625264&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-28 23:12</a>
+
+麻将妹注意看直播和投入精力张弛有度，最近忽然爆发式发帖，怕你哪天一下看够了不想看
+
+不过老天狗应该不用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我弃坑都弃好多几次了，每次都是默默退坑的。
+
+如果有我特别喜欢玩的游戏，我也会游戏优先的。
+
+没问题。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等疫情好了就会忙起来了。
+
