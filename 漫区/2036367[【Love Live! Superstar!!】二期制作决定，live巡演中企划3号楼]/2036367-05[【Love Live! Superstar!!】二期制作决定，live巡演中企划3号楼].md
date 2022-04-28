@@ -18842,3 +18842,23 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 要出第三季的话加不加人先不说，敌团怎么办呢。第二季收掉SunnyPa的话第三季重新在搞个敌团？还是SunnyPa不死星团不出？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7429#       发表于 2022-4-29 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625903&amp;ptid=2036367" target="_blank">凡人 发表于 2022-4-29 00:01</a>
+要出第三季的话加不加人先不说，敌团怎么办呢。第二季收掉SunnyPa的话第三季重新在搞个敌团？还是SunnyPa不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不给敌团也加两个
+
+*****
+
+####  mithrandir0120  
+##### 7430#       发表于 2022-4-29 00:07
+
+我现在只想当乐子人了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
