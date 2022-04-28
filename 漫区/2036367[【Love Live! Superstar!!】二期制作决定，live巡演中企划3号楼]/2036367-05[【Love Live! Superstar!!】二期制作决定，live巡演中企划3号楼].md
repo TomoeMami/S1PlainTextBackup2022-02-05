@@ -17262,3 +17262,58 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 新黄毛那介绍也够离谱，涨粉啥的还能接受，闻到了金钱的味道是不是有点过了，这人设很难讨喜啊 ...</blockquote>
 这种爱财设定用「很穷」or「曾经很穷」的路数反而很好写吧，屡试不爽的剧本我都能一时想起好几套
 
+
+
+*****
+
+####  player3960  
+##### 7287#       发表于 2022-4-28 14:51
+
+声优盾来咯，立德顶住啊，希望鲤鱼别淌浑水，发扬从不转ll工商的摆烂精神，保持沉默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红焖菠菜  
+##### 7288#       发表于 2022-4-28 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618129&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 14:35</a>
+但墙外好像她的二次创作挺多的 就这不到一天的时间</blockquote>
+鬼佬就这样的，只要人设好看他们就喜欢。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7289#       发表于 2022-4-28 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">声优盾真好用啊真好用
+
+*****
+
+####  cybernetics31  
+##### 7290#       发表于 2022-4-28 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正个人活动多，多转转个人工商就行。
+
+
+
+*****
+
+####  lanslort  
+##### 7291#       发表于 2022-4-28 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 水的时候也是全网骂啊，而且连声优盾都没。要不是杏树在FL之后的生放提了一嘴缪而她本身确实可以考证是铁杆缪缪人，估计后面也没那么顺利。而且事实上不管是国内还是日本不接受的人还是挺多的，欧美反而好一点因为缪的时代在那边没有太火
+
+*****
+
+####  寒风夜  
+##### 7292#       发表于 2022-4-28 14:57
+
+传统艺能
+
+*****
+
+####  lj205  
+##### 7293#       发表于 2022-4-28 14:58
+
+鱼专心宣传自己的活动吧，FMT、BD、写真都要忙呢，我就等着写真的宣传搞起来，企划那边反正也不少她这个，继续保持佛系转发企划工商习惯就好
+

@@ -5957,3 +5957,14 @@ yhm真的逊啊，活该jp待遇被en踩在头上，enkr这傻逼运营2022了�
 
 净利润20%，皮套人行业再续500年。
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 12554#       发表于 2022-4-28 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617747&amp;ptid=1972669" target="_blank">lor 发表于 2022-4-28 14:09</a>
+ 然而yhm就是没出息还在说cn又暴动了，en还一轮没出呢前辈出过几轮了改也可以吧。真的逆来顺受，关注的yhm全 ...</blockquote>
+应该是因为哈哥发推说他不知道谷子改了三天前发图给他的时候他只看了插图没注意谷子，然后运营觉得图上明明有新谷子他发推意思在甩锅（？）吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推下面都说运营没告诉所属管人改谷子的事，其实只是哈哥没细看（不过看不看又不能怎么样就是了，这事管人也没决定权）
+
