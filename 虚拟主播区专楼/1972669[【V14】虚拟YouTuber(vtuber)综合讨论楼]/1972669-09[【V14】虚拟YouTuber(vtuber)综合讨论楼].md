@@ -5793,3 +5793,19 @@ vspo啥时候才能被授权可以直播<img src="https://static.saraba1st.com/i
 
 请尊重嗯男粉，不要加虹那个字了谢谢
 
+
+
+*****
+
+####  fastary  
+##### 12535#       发表于 2022-4-28 08:56
+
+有一说一嗯男粉是认虹的，只是不认jp分部而已
+
+*****
+
+####  cckuku  
+##### 12536#       发表于 2022-4-28 09:02
+
+是我我也不认，en粉都武德充沛，面对jp粉这一群上来就对你指手画脚的人能有什么好脸色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

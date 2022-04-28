@@ -16108,3 +16108,53 @@ Liella两季动画之间间隔史上最短，再考虑一下动画的制作周�
 
 上热搜了笑死，谁买的呀，印象中就鲤鱼上过
 
+
+
+*****
+
+####  lanslort  
+##### 7169#       发表于 2022-4-28 08:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 讲道理，第一季透露要加人就没意思了。而且透露不透露你liella一期史上最弱都是注定的
+
+不过这剧本怎么跟水水那么像啊，水水的三年级是退赛了还是输了来着 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7170#       发表于 2022-4-28 08:52
+
+现在最庆幸的是都各自开展个人活动了，就是最诟病的妈妈也要发写真。
+
+那么，烂铁赶紧给我找个好点的TIE让鲤鱼出3单。
+
+
+
+*****
+
+####  JustW_2  
+##### 7171#       发表于 2022-4-28 08:53
+
+竟然还上微博热搜了
+
+*****
+
+####  adw667  
+##### 7172#       发表于 2022-4-28 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55613054&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 07:37</a>
+
+首先看这张宣传图，我觉得就很明白了
+
+再看一眼新人的设定，我已经脑补出要和前辈之间整什么活儿了[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">真就小千当妈呗
+
+说起来会长这位置是不是有点上不去下不来卡在那了<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 7173#       发表于 2022-4-28 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">没活了可以让可可去虹咲
+
