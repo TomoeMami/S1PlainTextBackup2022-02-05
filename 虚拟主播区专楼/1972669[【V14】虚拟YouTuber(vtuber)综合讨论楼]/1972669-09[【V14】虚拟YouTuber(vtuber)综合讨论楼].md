@@ -5921,3 +5921,19 @@ shu有跟教授联动过，yugo日本人，sonny在日本生活过日语应该�
 
 然而yhm就是没出息还在说cn又暴动了，en还一轮没出呢前辈出过几轮了改也可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">也就这次是营业拿哈哥开刀，换king不和cn一样冲死
 
+
+
+*****
+
+####  fastary  
+##### 12550#       发表于 2022-4-28 14:18
+
+yhm真的逊啊，活该jp待遇被en踩在头上，enkr这傻逼运营2022了还是这个废物样在座的逆来顺受yhm没一个无辜的
+
+*****
+
+####  ヒトニナル  
+##### 12551#       发表于 2022-4-28 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹官推下面那些回复很多都是国人啊，所以在樱花妹看来的确是cn又暴动了
+
