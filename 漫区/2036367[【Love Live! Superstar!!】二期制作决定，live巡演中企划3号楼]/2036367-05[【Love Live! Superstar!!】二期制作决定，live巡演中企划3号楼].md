@@ -17759,3 +17759,92 @@ ADD2569E-7938-4F14-B9F7-70CCBC0B102C.jpeg
 希望这个谜能在他们毕业之后毫无顾忌地说出来</blockquote>
 缪团都没散呢，有的等了。
 
+
+
+*****
+
+####  寒风夜  
+##### 7333#       发表于 2022-4-28 16:41
+
+绝了 商品都出来了 真难看啊  吃相
+
+*****
+
+####  一个陆仁贾  
+##### 7334#       发表于 2022-4-28 16:45
+
+说真的如果五人组是一开始就知情的那我心里还好受一点，起码她们没有被骗
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 7335#       发表于 2022-4-28 16:48
+
+立德声优盾
+
+31508151-C2D9-4519-8790-57A9590CCE8A.jpeg
+(247.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/164800ciivemejoxzodkik.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7336#       发表于 2022-4-28 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619699&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-4-28 16:41</a>
+
+绝了 商品都出来了 真难看啊  吃相</blockquote>
+起码等中之人公布呢
+
+EC8650D1-60C7-4E5D-A294-6B1E88D53F78.jpeg
+(133.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/164849xoruj8jght7hmzjb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+11B5CD97-C2F3-469D-B760-25530239F65F.jpeg
+(105.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/164849ek92m62ah7wx37da.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0D8EC125-13D0-4D3F-881B-641D8B89FEF3.jpeg
+(107.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/164849ok58qw7qe8w7wzgy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2E0C1D50-D108-4993-AB70-02AE5CE447C2.jpeg
+(92.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/164849cdwe9llb9aevla5a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4B5F7130-1171-4278-A8F2-DB022EAE7E64.jpeg
+(103.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/164849rsb9tf06f55lsthz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
