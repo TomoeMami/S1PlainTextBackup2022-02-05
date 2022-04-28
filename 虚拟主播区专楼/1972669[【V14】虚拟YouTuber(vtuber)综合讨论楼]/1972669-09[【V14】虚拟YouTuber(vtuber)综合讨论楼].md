@@ -6517,3 +6517,36 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 那至少回本没什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心垂万刃  
+##### 12610#       发表于 2022-4-28 18:56
+
+木口出个pcr那样的换皮手游完全没问题，甚至可能比pcr更赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 12611#       发表于 2022-4-28 19:01
+
+哇这个利润率，管人痴真的人傻钱多
+
+田角哥哥第一大股东43%，为啥没有岩永哥哥，真给踢出去了吗
+
+*****
+
+####  free  
+##### 12612#       发表于 2022-4-28 19:02
+
+[https://www.youtube.com/playlist ... _qdPFixNX07KFmok-jd](https://www.youtube.com/playlist?list=PLQntWbrycbJeap_qdPFixNX07KFmok-jd)
+
+<img src="https://img.saraba1st.com/forum/202204/28/190212o6as6ruscssr0a24.jpg" referrerpolicy="no-referrer">
+
+<strong>油管.jpg</strong> (152.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 19:02 上传
+
