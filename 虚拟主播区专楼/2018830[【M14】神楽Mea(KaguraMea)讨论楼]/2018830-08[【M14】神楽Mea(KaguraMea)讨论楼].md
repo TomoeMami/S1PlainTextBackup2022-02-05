@@ -438,3 +438,24 @@ holo star的男v
 
 无限接龙，感觉还挺有意思
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10541#       发表于 2022-4-28 12:20
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616127&amp;ptid=2018830" target="_blank">zc1996zc 发表于 2022-4-28 11:59</a>
+
+补充一个还是粉色挑染</blockquote>
+这不是发色渐变吗。
+
+<img src="https://img.saraba1st.com/forum/202204/28/122210p2uhj52l4m04rjhi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>095942q2yees10de6fqykk.jpeg</strong> (247.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 12:22 上传
+

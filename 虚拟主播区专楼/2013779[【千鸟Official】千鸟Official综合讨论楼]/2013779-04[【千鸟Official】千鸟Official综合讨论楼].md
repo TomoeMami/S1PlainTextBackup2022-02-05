@@ -13731,3 +13731,50 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 🙋‍不抽两个耳机我不是很认可。
 
+
+
+*****
+
+####  虾籽馄饨  
+##### 5949#       发表于 2022-4-28 12:14
+
+楼里有些人搞得文静跟杀了他们马一样，如果真的受了很大的精神创伤，这边建议跟郡圣一起回家玉玉去，别出来喷粪污人眼球了成吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 夜之中道崩殂|-1|别骂娘|
+
+查看全部评分
+
+*****
+
+####  藤原银  
+##### 5950#       发表于 2022-4-28 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4ID这么一说也对，可以再抽点东西
+
+*****
+
+####  龙娘777  
+##### 5951#       发表于 2022-4-28 12:17
+
+ 本帖最后由 龙娘777 于 2022-4-28 12:18 编辑 
+
+讲真看下来我都不明白文静到底有什么错？莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">哦 对了 错在她这两天没按时直播
+
+*****
+
+####  藤原银  
+##### 5952#       发表于 2022-4-28 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616382&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-4-28 12:17</a>
+
+讲真看下来我都不明白文静到底有什么错？莫名其妙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有粉丝破防就是错误啊。即使大家都知道是假的你也不能让大家彻底明白这都是假的。当然我不这么看就是了
+

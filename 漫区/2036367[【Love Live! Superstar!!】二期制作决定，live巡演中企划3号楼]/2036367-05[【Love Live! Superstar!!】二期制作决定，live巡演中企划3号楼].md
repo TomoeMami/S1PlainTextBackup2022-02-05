@@ -16670,3 +16670,54 @@ FMT就开始带新人…………………………………………………�
 
 欧美宅那边不少人对加新人也是疑惑[https://www.jizhazha.com/jv1421](https://www.jizhazha.com/jv1421)
 
+
+
+*****
+
+####  ViyViy  
+##### 7227#       发表于 2022-4-28 12:11
+
+那个夏美，究极矛盾体，正着和堇冲突，反着和可可冲突，企划是真相信花田阿，这能给你处理好啊？
+
+*****
+
+####  寒风夜  
+##### 7228#       发表于 2022-4-28 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">7月还是看kai的那部偶像吧
+
+*****
+
+####  笋狐  
+##### 7229#       发表于 2022-4-28 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">别闹了，虹星的企划性质本来就有区别不说，as加人也是慢慢来，到动画都有缓冲期了；这边一下子丢个深水炸弹下来，赶鸭子上架的动画先不说，看着之前爆肝到处巡演卖力的那五个姑娘，虹原始9人都有粉丝排斥R3，你告诉我星的5+4新老粉不来几波ttk，可能吗
+
+*****
+
+####  仟音一心  
+##### 7230#       发表于 2022-4-28 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616218&amp;ptid=2036367" target="_blank">qty 发表于 2022-4-28 12:05</a>
+问题是之前没有中国人角色啊，这个新角色看介绍让人感觉就是要和可可唱对台戏的，选个淞沪会战的日期正好 ...</blockquote>
+有意个锤子，真有意就没有改生日了，少带节奏。
+
+
+
+*****
+
+####  型月重工  
+##### 7231#       发表于 2022-4-28 12:17
+
+本来神蛆不知道这个日子，然后你们提了，它们知道了，它们感觉你们很在意，然后开始带节奏，所以很难不认为楼上某些傻X跟神蛆不是一伙的
+
+*****
+
+####  寒风夜  
+##### 7232#       发表于 2022-4-28 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616340&amp;ptid=2036367" target="_blank">笋狐 发表于 2022-4-28 12:13</a>
+
+别闹了，虹星的企划性质本来就有区别不说，as加人也是慢慢来，到动画都有缓冲期了；这边一下子丢个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">这个属实突兀，
+
