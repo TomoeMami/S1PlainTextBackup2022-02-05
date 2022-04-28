@@ -16167,3 +16167,20 @@ Liella两季动画之间间隔史上最短，再考虑一下动画的制作周�
 
 希望能写个好的剧本出来吧。只能这样希望了
 
+
+
+*****
+
+####  lj205  
+##### 7175#       发表于 2022-4-28 09:13
+
+二期别再把可可当工具人，还让她做铺垫给四新人走，但是我真的预感会这样，他妈的啊
+
+*****
+
+####  Londemon  
+##### 7176#       发表于 2022-4-28 09:16
+
+<img src="https://p.sda1.dev/5/ad25aec28841b48f7fd3fe979dfe46fc/CMP_20220428091501182.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">图转群
+
