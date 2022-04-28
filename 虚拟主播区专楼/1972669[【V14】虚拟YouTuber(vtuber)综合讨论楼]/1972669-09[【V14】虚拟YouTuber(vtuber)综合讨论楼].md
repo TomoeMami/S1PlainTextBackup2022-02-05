@@ -6442,3 +6442,32 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 副站长：彩虹两个月后上市，木口年底上市</blockquote>
 副站长牛逼！
 
+
+
+*****
+
+####  wuzhengkai  
+##### 12602#       发表于 2022-4-28 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620878&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-4-28 18:05</a>
+
+管人和enkr是委托契约，不是雇用合同</blockquote>
+嗯我知道 我的疑问是里面写的很清楚streaming有关的收入是从google来的 想知道这个是怎么到管人手上的 现在想来这个列的streaming收入已经是分成过后的了 只是写成从google来的 并不一定是直接从油管账号payout的
+
+*****
+
+####  wuzhengkai  
+##### 12603#       发表于 2022-4-28 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620850&amp;ptid=1972669" target="_blank">我取流年 发表于 2022-4-28 18:03</a>
+
+请问一下，油管加入会员按钮突然无了是什么情况</blockquote>
+傻逼油管bug
+
+*****
+
+####  IDIDIDID  
+##### 12604#       发表于 2022-4-28 18:23
+
+从公司的角度看SC和会员确实不是好生意，直播员主动权过大不说，毛利就三成，扣掉运营工资房租水电鬼知道净利剩下几个点。
+

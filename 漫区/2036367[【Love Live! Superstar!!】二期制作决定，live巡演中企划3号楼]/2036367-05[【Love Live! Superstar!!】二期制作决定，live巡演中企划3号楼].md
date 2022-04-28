@@ -18172,3 +18172,43 @@ md傻逼万代你赶nm呢，cast也没公布，人也没见着，周边先上了
 
 <img src="https://img.saraba1st.com/forum/202204/28/180838nzfzfmrfkgeefye5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  damian-wade  
+##### 7368#       发表于 2022-4-28 18:11
+
+中之人我觉得你们想太多，以后会红会糊，和在企划占资源比份其实关系不大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  离心  
+##### 7369#       发表于 2022-4-28 18:12
+
+鲤鱼的推……唉
+
+<img src="https://img.saraba1st.com/forum/202204/28/181204hyms79z8yezsyf3e.jpg" referrerpolicy="no-referrer">
+
+<strong>890F552EA8A88C4777FBCDBA0E041A9D.jpg</strong> (106.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 18:12 上传
+
+*****
+
+####  starring  
+##### 7370#       发表于 2022-4-28 18:14
+
+既然用上CV盾，不想发推也肯定会被安排任务
+
+*****
+
+####  we89623  
+##### 7371#       发表于 2022-4-28 18:19
+
+不是，你们还真想让鲤鱼咋样啊，人家怎么说是新同事，关系肯定不能闹僵啊...
+
