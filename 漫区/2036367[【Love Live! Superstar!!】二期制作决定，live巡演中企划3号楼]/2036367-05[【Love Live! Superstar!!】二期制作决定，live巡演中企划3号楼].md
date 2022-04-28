@@ -16567,3 +16567,45 @@ FMT就开始带新人…………………………………………………�
 
 别没事上纲上线了 跟77不一样 813你不提大部分人都不知道啥日子 你们这么在意反倒是在给敌人送弹药
 
+
+
+*****
+
+####  笋狐  
+##### 7216#       发表于 2022-4-28 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一期写成那样，现在还tm加人，花大师我不黑你样板戏了，二期我只想化身立派乐子人
+
+*****
+
+####  adw667  
+##### 7217#       发表于 2022-4-28 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55615947&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 11:46</a>
+
+别没事上纲上线了 跟77不一样 813你不提大部分人都不知道啥日子 你们这么在意反倒是在给敌人送弹药 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">迟早要炸不如早炸
+
+*****
+
+####  寒风夜  
+##### 7218#       发表于 2022-4-28 11:53
+
+该d啥d啥吧
+
+*****
+
+####  a92063256  
+##### 7219#       发表于 2022-4-28 11:53
+
+八月十三上百度搜甚至都不能很快的搜到淞沪会战，我觉得就没必要关联了吧
+
+*****
+
+####  we89623  
+##### 7220#       发表于 2022-4-28 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616032&amp;ptid=2036367" target="_blank">adw667 发表于 2022-4-28 11:52</a>
+迟早要炸不如早炸</blockquote>
+想多了 不可能炸 这个又不是中国人角色的生日 你拉还有7月7日生日的角色，你拉现在炸了吗？
+

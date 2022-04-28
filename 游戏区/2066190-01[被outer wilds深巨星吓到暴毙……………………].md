@@ -1043,3 +1043,14 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 实在不懂在游戏里受怕是什么心理 除了丢档和封号这种影响到现实的 在游戏里从来没怕过什么 它再nb能把我怎 ...</blockquote>
 说得好！那您看恐怖片吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fuochai  
+##### 109#       发表于 2022-4-28 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616011&amp;ptid=2066190" target="_blank">若闲 发表于 2022-4-28 11:51</a>
+说得好！那您看恐怖片吗？</blockquote>
+虽然不会害怕但还算喜欢看吧 大部分当搞笑片看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
