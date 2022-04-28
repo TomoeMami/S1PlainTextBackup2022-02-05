@@ -1032,3 +1032,14 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 能把这游戏打通的绝对就把深海恐惧治好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  若闲  
+##### 108#       发表于 2022-4-28 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55587548&amp;ptid=2066190" target="_blank">fuochai 发表于 2022-4-26 03:14</a>
+实在不懂在游戏里受怕是什么心理 除了丢档和封号这种影响到现实的 在游戏里从来没怕过什么 它再nb能把我怎 ...</blockquote>
+说得好！那您看恐怖片吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
