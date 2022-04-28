@@ -18890,3 +18890,24 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 7434#       发表于 2022-4-29 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55626060&amp;ptid=2036367" target="_blank">mithrandir0120 发表于 2022-04-29 00:14:35</a>
+我还是比较担心之后三次元live的。一旦上台演出了，肯定就要有比较。但新人偶像要怎么和经历了魔鬼巡演的5 ...</blockquote>要么四个人天赋异灵，可真那么牛逼，当初5个人怎么不选你？或者其实4个人一直在和5人秘密特训，不过这不脱裤子放屁吗，练了也不能上场，谁乐意啊？我想不出第三种了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 7435#       发表于 2022-4-29 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55626060&amp;ptid=2036367" target="_blank">mithrandir0120 发表于 2022-4-29 00:14</a>
+我还是比较担心之后三次元live的。一旦上台演出了，肯定就要有比较。但新人偶像要怎么和经历了魔鬼巡演的5 ...</blockquote>
+舞台经验可能会不足，但按以往经验和当今偶像界的内卷程度来看，中之人的素质可能是最不需要担心的一环。这企划哪次不是运营不做人单纯靠中之人一点一点努力慢慢挽回的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
