@@ -18367,3 +18367,14 @@ pay盾尚未
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也用不着揣测鲤鱼心情吧？说不定人家早知道了。
 
+
+
+*****
+
+####  川陀  
+##### 7386#       发表于 2022-4-28 19:19
+
+说不定这几个新人都是企划开始就选上的。但是突然搞这一出，一点铺垫都没有真的不好接受。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
