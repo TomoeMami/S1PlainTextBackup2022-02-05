@@ -16414,3 +16414,62 @@ fmt就把新人拉上来，铁定第二季有不少戏了吧，这么着急啊�
 
 只希望能写好点。新人能多带点团粉来。
 
+
+
+*****
+
+####  寒风夜  
+##### 7199#       发表于 2022-4-28 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55614970&amp;ptid=2036367" target="_blank">ces轴承仨 发表于 2022-4-28 10:40</a>
+
+只希望能写好点。新人能多带点团粉来。</blockquote>
+那还是别期待了
+
+*****
+
+####  adw667  
+##### 7200#       发表于 2022-4-28 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55614214&amp;ptid=2036367" target="_blank">lj205 发表于 2022-4-28 09:51</a>
+
+FMT就开始带新人………………………………………………………………………… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">FMT上有人没粉要现场吸真是好活
+
+
+
+*****
+
+####  cybernetics31  
+##### 7201#       发表于 2022-4-28 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得了吧，花田估计要骂娘了都，能写好的话怕不是都能拿台长最佳编剧了，关键是他不能啊
+
+*****
+
+####  寒风夜  
+##### 7202#       发表于 2022-4-28 10:56
+
+想让花田溜了
+
+*****
+
+####  JustW_2  
+##### 7203#       发表于 2022-4-28 10:57
+
+饶了花田吧，你这天王老子都难救
+
+*****
+
+####  稀勢のささ  
+##### 7204#       发表于 2022-4-28 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打工人罢了  样板戏糊弄糊弄就过去了 反正不是第一次挨喷
+
+*****
+
+####  寒风夜  
+##### 7205#       发表于 2022-4-28 10:59
+
+麻，，关键这新人我感觉只有蓝毛能看 
+
