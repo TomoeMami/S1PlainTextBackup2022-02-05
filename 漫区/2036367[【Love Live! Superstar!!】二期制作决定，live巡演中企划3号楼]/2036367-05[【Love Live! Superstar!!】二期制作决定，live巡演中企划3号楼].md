@@ -18212,3 +18212,62 @@ md傻逼万代你赶nm呢，cast也没公布，人也没见着，周边先上了
 
 不是，你们还真想让鲤鱼咋样啊，人家怎么说是新同事，关系肯定不能闹僵啊...
 
+
+
+*****
+
+####  仟音一心  
+##### 7372#       发表于 2022-4-28 18:20
+
+倒不如说，鱼现在都没发微博，什么心情不用想也知道了。
+
+*****
+
+####  we89623  
+##### 7373#       发表于 2022-4-28 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621081&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 18:20</a>
+
+倒不如说，鱼现在都没发微博，什么心情不用想也知道了。</blockquote>
+不发是对的，不管鲤鱼内心是欢迎还是反对下面评论肯定不好看。
+
+*****
+
+####  仟音一心  
+##### 7374#       发表于 2022-4-28 18:23
+
+sayu新工作
+
+363F4B28-68E2-4AA2-8E6F-F224DCACB3AB.jpeg
+(143.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 18:23 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/182309jmm1f8abzoee1mvf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW_2  
+##### 7375#       发表于 2022-4-28 18:24
+
+刚说完就发微博了
+https://share.api.weibo.cn/share/301907007,4763294781671890.html?weibo_id=4763294781671890
+
+#Liyuu[超话]# 🌸9人。作为Liella!的「唐可可前辈」要继续加油了！！ ​​​
+
+*****
+
+####  cybernetics31  
+##### 7376#       发表于 2022-4-28 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总是要来的 
+
+*****
+
+####  稀勢のささ  
+##### 7377#       发表于 2022-4-28 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“人在日本 刚下班 发两条推/微博”
+

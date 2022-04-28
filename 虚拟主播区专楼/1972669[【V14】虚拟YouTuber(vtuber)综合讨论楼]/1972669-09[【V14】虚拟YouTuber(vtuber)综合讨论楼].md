@@ -6471,3 +6471,21 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 从公司的角度看SC和会员确实不是好生意，直播员主动权过大不说，毛利就三成，扣掉运营工资房租水电鬼知道净利剩下几个点。
 
+
+
+*****
+
+####  lor  
+##### 12605#       发表于 2022-4-28 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620850&amp;ptid=1972669" target="_blank">我取流年 发表于 2022-4-28 18:03</a>
+请问一下，油管加入会员按钮突然无了是什么情况</blockquote>
+换个梯子节点试试
+
+*****
+
+####  格林卡罗尔  
+##### 12606#       发表于 2022-4-28 18:29
+
+既然上市是真的，杏找国人做换皮手游会不会也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
