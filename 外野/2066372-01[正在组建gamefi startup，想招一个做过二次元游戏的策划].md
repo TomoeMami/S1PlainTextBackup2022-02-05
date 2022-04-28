@@ -927,3 +927,17 @@ gamefi可是基本啥都没有 ...</blockquote>
 
 4页了还不知道白名单是什么意思，感觉很重要大家都想要<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 97#       发表于 2022-4-28 18:05
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2022-4-28 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620647&amp;ptid=2066372" target="_blank">phorcys02 发表于 2022-4-28 17:48</a>
+你这理解太肤浅了....
+
+如果真是这种，那gamefi还反而有搞头了</blockquote>
+啊，这不就xx私服那种，买vip就是相当于基础门槛，也太low了吧
+

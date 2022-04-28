@@ -6412,3 +6412,33 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 另外这账目里event终止损失1.6e<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我取流年  
+##### 12599#       发表于 2022-4-28 18:03
+
+请问一下，油管加入会员按钮突然无了是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 12600#       发表于 2022-4-28 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620478&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-4-28 17:37</a>
+ 为什么这个报表现金流量表里没有付给管人工资一项</blockquote>
+管人和enkr是委托契约，不是雇用合同
+
+
+
+*****
+
+####  OldGlory  
+##### 12601#       发表于 2022-4-28 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54674823&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-2-14 01:16</a>
+
+副站长：彩虹两个月后上市，木口年底上市</blockquote>
+副站长牛逼！
+

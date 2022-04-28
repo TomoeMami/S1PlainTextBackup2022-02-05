@@ -14010,3 +14010,28 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 黑幕直播念稿，承认部分事实，比如千里走单骑和10页ppt都是炒作，但 ...</blockquote>
 主要问题是以现在文静的观众群体，红地毯可能铺不出来啊，这操作可行性要打问号<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Alfie劉  
+##### 5976#       发表于 2022-4-28 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616382&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-4-28 12:17</a>
+讲真看下来我都不明白文静到底有什么错？莫名其妙哦 对了 错在她这两天没按时直播 ...</blockquote>
+这几天公关方式不太明智，但除非她现在确实是正儿八经的副运营，不然主要是运营的问题。
+律师函站在公司角度也不太明智，但得证明确实有她的撺掇成分。
+去年的故事如果是假的，不说错没错，但观众的观感肯定不好。
+去年直播说千鸟企划要寄，这从公司角度看属于管不住嘴，但观众不见得在意。
+
+*****
+
+####  Alfie劉  
+##### 5977#       发表于 2022-4-28 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55593810&amp;ptid=2013779" target="_blank">yvy2222 发表于 2022-4-26 15:58</a>
+哪天贴吧里回复的真是珺圣？我一直当n87⛵烂炒呢
+
+—— 来自 S1Fun</blockquote>
+有没有可能珺子就只有n8水平
+
