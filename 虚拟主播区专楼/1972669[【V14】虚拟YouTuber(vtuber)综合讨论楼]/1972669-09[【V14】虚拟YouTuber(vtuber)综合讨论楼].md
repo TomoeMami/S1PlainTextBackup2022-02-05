@@ -5887,3 +5887,12 @@ shu有跟教授联动过，yugo日本人，sonny在日本生活过日语应该�
 
 所以虹现在不叫ankr改叫enkr了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12546#       发表于 2022-4-28 13:56
+
+这yhm不给他enkr冲滑跪了我宣布从此彩虹社更名ENkr
+

@@ -17058,3 +17058,66 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 
 回到这个企划本身说一句，二期唐突的加四个人真是究极烂活。花田要真把这九个人整明白了那他就是我爹
 
+
+
+*****
+
+####  ads147147  
+##### 7267#       发表于 2022-4-28 13:50
+
+鬼塚那个，网红，当偶像要引流，台词不离钱。这种角色写进去就特么离谱，这个明显越界了。花田要是写的好才见鬼，所以我说花田赶紧跑。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  7sevenseven  
+##### 7268#       发表于 2022-4-28 13:51
+
+国内外全是骂声为主的情况，愈演愈烈，登上热搜
+官方真厉害啊
+
+*****
+
+####  寒风夜  
+##### 7269#       发表于 2022-4-28 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617519&amp;ptid=2036367" target="_blank">7sevenseven 发表于 2022-4-28 13:51</a>
+
+国内外全是骂声为主的情况，愈演愈烈，登上热搜
+
+官方真厉害啊</blockquote>
+令人感叹
+
+*****
+
+####  寒风夜  
+##### 7270#       发表于 2022-4-28 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617519&amp;ptid=2036367" target="_blank">7sevenseven 发表于 2022-4-28 13:51</a>
+
+国内外全是骂声为主的情况，愈演愈烈，登上热搜
+
+官方真厉害啊</blockquote>
+
+*****
+
+####  JustW_2  
+##### 7271#       发表于 2022-4-28 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617400&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 13:40</a>
+反正我可以确定写一期时花田肯定不知道加人的事情，脚本就突出一个不急。 ...</blockquote>
+我倾向于他知道。我看第一季动画比较明显的一个感受是剧中时间流逝很快，从春天开学到酷暑到冬天，最后以再度开春结尾，差不多过了一年。第二季按第一季节奏继续走就行，只是现在的五人不会有更多的塑造了。
+
+当然要是花田写第一季的时候不知道，那企划就更离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 7272#       发表于 2022-4-28 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617568&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 13:55</a>
+
+我倾向于他知道。我看第一季动画比较明显的一个感受是剧中时间流逝很快，从春天开学到酷暑到冬天，最后以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">可以草台论了
+
