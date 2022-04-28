@@ -17189,3 +17189,76 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这一看就是新的吃瘪人
 
+
+
+*****
+
+####  7sevenseven  
+##### 7280#       发表于 2022-4-28 14:42
+
+ 本帖最后由 7sevenseven 于 2022-4-28 14:45 编辑 
+
+星团优势就是人少，本来一季收人了，二季就可以深入塑造了，怎么说12集扣去最后两三集大场还有9、10集塑造空间，去掉日常回，个人回足足的
+
+现在呢，直接加了一半人，扣去最后两三集大场还有9、10集，每个新人物都要讲一集吧，还有5、6集，再来日常回，友情回，塑造老人的还有几集？只能按上一季塑造的延伸，恋恋很可能又被边缘化
+
+提前开香槟庆死吧
+
+*****
+
+####  CharlieZ-  
+##### 7281#       发表于 2022-4-28 14:43
+
+新黄毛那介绍也够离谱，涨粉啥的还能接受，闻到了金钱的味道是不是有点过了，这人设很难讨喜啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7282#       发表于 2022-4-28 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618129&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 14:35</a>
+
+但墙外好像她的二次创作挺多的 就这不到一天的时间</blockquote>
+她那个设定肯定很戳不少人XP，但是不妨碍我反感她，就是后期她的对戏角色希望别是可可，其他的我无所谓
+
+*****
+
+####  寒风夜  
+##### 7283#       发表于 2022-4-28 14:48
+
+别想啦
+
+*****
+
+####  wxc060302  
+##### 7284#       发表于 2022-4-28 14:49
+
+二期真要是插进来怕不是这个效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/a1cefd29a417cafd290ac0bb39e63379/mmexport1651128505283.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  优妮可  
+##### 7285#       发表于 2022-4-28 14:49
+
+<img src="https://img.saraba1st.com/forum/202204/28/144902fyglzjlmd5yedxx0.jpg" referrerpolicy="no-referrer">
+
+<strong>-2b359bbb2740aa8e.jpg</strong> (45.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 14:49 上传
+
+开盾
+
+*****
+
+####  dozen  
+##### 7286#       发表于 2022-4-28 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618234&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-4-28 14:43</a>
+新黄毛那介绍也够离谱，涨粉啥的还能接受，闻到了金钱的味道是不是有点过了，这人设很难讨喜啊 ...</blockquote>
+这种爱财设定用「很穷」or「曾经很穷」的路数反而很好写吧，屡试不爽的剧本我都能一时想起好几套
+
