@@ -18924,3 +18924,46 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 大家都说星五人难得没有明显短板谁也不拖后腿，新四人如果能力跟不上就非常尴尬了，不但会破坏原来良好的舞台表现，团体的割裂感还更重了。到时候又用养成系偶像以后会进步的理由搪塞，不知道又有多少人能接受。
 等公布cv后再观望，就寄望选人方面烂铁就给点力
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7437#       发表于 2022-4-29 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55626055&amp;ptid=2036367" target="_blank">FMIC 发表于 2022-4-29 00:14</a>
+
+有时候看潭友说话还挺有意思的</blockquote>
+个人觉得这种是有细节又没细节的
+
+如果确实在<strong>很早很早就开始准备</strong>9个角色模式，
+那么首先新加的四个角色在最初五个角色出现的图里貌似是找不到的，这个就<strong>不细节</strong>
+
+<img src="https://img.saraba1st.com/forum/202204/29/013154rv7gbyyvkvsjorym.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (537.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 01:31 上传
+
+然后是二期动画制作决定的小视频里，我截了俩图，我是没看到明显的与新加入的四人有关的应援色，个人认为这个也<strong>不细节</strong>
+
+<img src="https://img.saraba1st.com/forum/202204/29/013447ifafdsecq48098vw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 01:34 上传
+
+<img src="https://img.saraba1st.com/forum/202204/29/013509lwvi1v8lw98bmlms.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 01:35 上传
+
+个人觉得这东西看个乐呵就行了，我不觉得LoveLive!Superstar!!企划方对待这种东西有多细节
+
