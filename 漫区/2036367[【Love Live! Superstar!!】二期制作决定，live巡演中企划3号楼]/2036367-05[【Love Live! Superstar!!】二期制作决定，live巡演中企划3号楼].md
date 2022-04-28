@@ -16079,3 +16079,23 @@ Liella两季动画之间间隔史上最短，再考虑一下动画的制作周�
 
 星团加人只能接受现实了。我现在就希望这4位的中之人都比鲤鱼矮，起码这样身高梗还能玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 7166#       发表于 2022-4-28 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55612551&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2022-4-28 02:07</a>
+其实有点心疼背锅位花田了</blockquote>
+这事还真得花田背锅。一开始的专楼都有人通过新学校只有一年级这点推测出后面要加人，那花田更不可能不知道这事。如果第一季里做出一些有新成员的明示或者暗示，大家绝不至于反应这么激烈。你看外野正在五期生真香的乃木坂专楼，我真的不信追二次元偶像的人真就比追三次元偶像的专情<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 7167#       发表于 2022-4-28 08:35
+
+睡一觉起来还是决定半退观望转支持个人活动了
+
