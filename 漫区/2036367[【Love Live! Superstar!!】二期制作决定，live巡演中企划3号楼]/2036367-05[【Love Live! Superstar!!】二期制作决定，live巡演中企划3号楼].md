@@ -16745,3 +16745,22 @@ FMT就开始带新人…………………………………………………�
 
 建议日本人出角色先学习一遍抗日所有事件日期，那有多少天不能用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  1096beam  
+##### 7236#       发表于 2022-4-28 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616505&amp;ptid=2036367" target="_blank">caupollen 发表于 2022-4-28 12:26</a>
+
+建议日本人出角色先学习一遍抗日所有事件日期，那有多少天不能用啊</blockquote>
+你别带个中国妹子没人管你的
+
+*****
+
+####  涙目爆発音  
+##### 7237#       发表于 2022-4-28 12:35
+
+从大清开始算的话一年里估计能有小半年都不能用
+

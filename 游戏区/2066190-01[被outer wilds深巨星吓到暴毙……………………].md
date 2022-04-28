@@ -1075,3 +1075,16 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 这个星球设计确实很厉害
 
+
+
+*****
+
+####  KyonSuzumiya  
+##### 111#       发表于 2022-4-28 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55587548&amp;ptid=2066190" target="_blank">fuochai 发表于 2022-4-26 03:14</a>
+实在不懂在游戏里受怕是什么心理 除了丢档和封号这种影响到现实的 在游戏里从来没怕过什么 它再nb能把我怎 ...</blockquote>
+我一开始玩这个把音响的低音开得很大，第一次掉进黑洞的时候整个房间都在狂震，最要命的是家里还有几扇玻璃门，全程咣啷咣啷作响，代入感极强，好一会儿才缓过来，还有掉进深巨星的时候那音效就好像我真的溺水了似的。这算影响到现实吗？不过倒也没怎么怕，不如说是更兴奋了，低音再开大一点！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

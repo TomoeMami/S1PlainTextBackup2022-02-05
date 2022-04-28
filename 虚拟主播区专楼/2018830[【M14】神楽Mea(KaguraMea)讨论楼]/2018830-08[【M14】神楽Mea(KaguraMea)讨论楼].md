@@ -495,3 +495,28 @@ holo star的男v
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Lotis  
+##### 10546#       发表于 2022-4-28 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616549&amp;ptid=2018830" target="_blank">Cushaw 发表于 2022-4-28 12:31</a>
+
+合理怀疑新人cv就是小麻本体
+
+—— 来自 S1Fun</blockquote>
+那岂不是要露脸了（肥肥本质要暴露力
+
+*****
+
+####  Cushaw  
+##### 10547#       发表于 2022-4-28 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616558&amp;ptid=2018830" target="_blank">Lotis 发表于 2022-4-28 12:32</a>
+那岂不是要露脸了（肥肥本质要暴露力</blockquote>
+爱麻信麻等麻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
