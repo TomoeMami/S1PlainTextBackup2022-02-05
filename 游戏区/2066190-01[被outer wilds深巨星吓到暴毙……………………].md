@@ -1106,3 +1106,15 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 看到一堆水龙卷还好，回身发现背后一个大型水龙卷的感觉更可怕
 
+
+
+*****
+
+####  kimihung  
+##### 114#       发表于 2022-4-28 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55572708&amp;ptid=2066190" target="_blank">ぽんぽこ仮面 发表于 2022-4-24 21:32</a>
+
+没有玩dlc，原来比本体还恐怖吗</blockquote>
+本体恐怖程度是5分的话,DLC 外面恐怖程度是5.5(主要是诡异),里面就是10了
+
