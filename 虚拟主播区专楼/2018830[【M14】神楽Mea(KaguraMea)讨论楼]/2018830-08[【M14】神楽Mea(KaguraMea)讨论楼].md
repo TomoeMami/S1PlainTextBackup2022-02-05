@@ -766,3 +766,52 @@ holo star的男v
 
 Roberu Ch. 夕刻ロベル本人的名字也是ru，mea用他名字接龙了。
 
+
+
+*****
+
+####  时间在我手中  
+##### 10568#       发表于 2022-4-28 21:52
+
+这两人是不是跟ru过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10569#       发表于 2022-4-28 21:57
+
+不过日式英语真奇怪啊，逆转是loser final这个词。
+
+现在攻守逆转了，虽然mea现在吃瘪，不过观众喜欢看逆转。
+
+<img src="https://img.saraba1st.com/forum/202204/28/215705u1b0tbj564fv8v6t.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428215358866.jpg</strong> (2.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 21:57 上传
+
+*****
+
+####  T_Hb  
+##### 10570#       发表于 2022-4-28 21:58
+
+ 本帖最后由 T_Hb 于 2022-4-28 22:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">噜噜噜噜，已经玩不下去了
+
+*****
+
+####  古战场亡魂  
+##### 10571#       发表于 2022-4-28 22:00
+
+已经开始小学生拳击了……
+
+*****
+
+####  呓亘  
+##### 10572#       发表于 2022-4-28 22:02
+
+除去联动者是个野男人...节目效果还是不错的...
+
