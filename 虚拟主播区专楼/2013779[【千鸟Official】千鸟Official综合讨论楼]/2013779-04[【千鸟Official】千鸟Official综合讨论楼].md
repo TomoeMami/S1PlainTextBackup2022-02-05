@@ -13634,3 +13634,16 @@ ps：希望我可以入典
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全程卖惨、回避企划资源核心问题、推脱和攻击点无佐证，说一句恶毒的好似喵不过分吧
 
+
+
+*****
+
+####  rgauss  
+##### 5940#       发表于 2022-4-28 10:07
+
+屁事真多
+
+cj这不就是打太极，你问他资源去哪了，我不造啊 
+
+打起来，快打起来
+

@@ -1021,3 +1021,14 @@ subnautica好像有2作，一个男主角一个女主角，两个一样吗？推
 
 只对鹿头人感到害怕，以至于dlc都没打完
 
+
+
+*****
+
+####  prattwhitney  
+##### 107#       发表于 2022-4-28 10:08
+
+深海恐惧症为什么不提SOMA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能把这游戏打通的绝对就把深海恐惧治好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
