@@ -5878,3 +5878,12 @@ KR都死了
 
 shu有跟教授联动过，yugo日本人，sonny在日本生活过日语应该是交流水准，uki好像日语也还可以，剩下的除了fu和vox完全不懂都是二次元看多了会那么两句这样吧。我看vox和alban还直播过多邻国学日语，会不会日语不重要，单纯是因为不跟jp联动单纯是没兴趣一起玩又没血吸呗。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 12545#       发表于 2022-4-28 13:32
+
+所以虹现在不叫ankr改叫enkr了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

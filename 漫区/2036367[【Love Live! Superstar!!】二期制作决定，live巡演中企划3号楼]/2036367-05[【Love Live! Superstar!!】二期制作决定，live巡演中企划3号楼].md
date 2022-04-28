@@ -16967,3 +16967,55 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  寒风夜  
+##### 7259#       发表于 2022-4-28 13:32
+
+ 本帖最后由 寒风夜 于 2022-4-28 13:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617268&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 13:28</a>
+
+六月声优盾下来，怎么办，leader带头说欢迎小妹妹。只能说市场会教育烂铁什么是残酷。
+
+—— 来自 Xiaomi ...</blockquote>
+看乐子，哪怕铺垫一点呢
+
+*****
+
+####  寒风夜  
+##### 7260#       发表于 2022-4-28 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617268&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 13:28</a>
+
+六月声优盾下来，怎么办，leader带头说欢迎小妹妹。只能说市场会教育烂铁什么是残酷。
+
+—— 来自 Xiaomi ...</blockquote>
+
+
+
+*****
+
+####  寒风夜  
+##### 7261#       发表于 2022-4-28 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617268&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 13:28</a>
+
+六月声优盾下来，怎么办，leader带头说欢迎小妹妹。只能说市场会教育烂铁什么是残酷。
+
+—— 来自 Xiaomi ...</blockquote>
+
+*****
+
+####  红焖菠菜  
+##### 7262#       发表于 2022-4-28 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617268&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 13:28</a>
+六月声优盾下来，怎么办，leader带头说欢迎小妹妹。只能说市场会教育烂铁什么是残酷。
+
+—— 来自 Xiaomi ...</blockquote>
+<img src="https://p.sda1.dev/5/633f3973e6a1adec02ae413657f8cef6/CMP_20220428133538952.jpg" referrerpolicy="no-referrer">
+没有星q我不是很认可。
+5人，星星，会唱歌跳舞。
+
