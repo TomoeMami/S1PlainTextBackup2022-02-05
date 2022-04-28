@@ -6344,3 +6344,31 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 还是第一季效果真的很好？
 
+
+
+*****
+
+####  wuzhengkai  
+##### 12592#       发表于 2022-4-28 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619272&amp;ptid=1972669" target="_blank">qq845629713 发表于 2022-4-28 16:10</a>
+
+这个top你们确定是按订阅来的？应该理解成营业额top10的liver占据了整体的30%吧。
+
+成营业额top25的liver占 ...</blockquote>
+正确的
+
+*****
+
+####  wuzhengkai  
+##### 12593#       发表于 2022-4-28 17:37
+
+为什么这个报表现金流量表里没有付给管人工资一项
+
+*****
+
+####  IDIDIDID  
+##### 12594#       发表于 2022-4-28 17:40
+
+因为本来就不是员工
+

@@ -13969,3 +13969,22 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 刚子别装了</blockquote>
 别尬黑，我对🌰的感情不如小金刚一根
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5972#       发表于 2022-4-28 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619472&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-4-28 16:26</a>
+
+我现在只想知道分家是粉色1T4还是绿色带着小团体4T1</blockquote>
+有没有可能4T1是文静被踢了呢
+
+*****
+
+####  丢了五块钱  
+##### 5973#       发表于 2022-4-28 17:38
+
+大思的王阳明梗真是在珺圣/文静的衬托下熠熠生辉了，不亏是1t4之女，熟读心学知行合一的女人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
