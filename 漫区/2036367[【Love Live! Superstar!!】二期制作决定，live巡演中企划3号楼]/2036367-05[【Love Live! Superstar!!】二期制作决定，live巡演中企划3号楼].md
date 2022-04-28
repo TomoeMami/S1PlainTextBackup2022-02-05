@@ -16048,3 +16048,25 @@ liella词条上了美国趋势...
 
 Liella两季动画之间间隔史上最短，再考虑一下动画的制作周期，那么最晚也在第一季动画播出前动画staff就知道后面会发生什么了。
 
+
+
+*****
+
+####  nerugigannte  
+##### 7163#       发表于 2022-4-28 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55613054&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 07:37</a>
+
+首先看这张宣传图，我觉得就很明白了
+
+再看一眼新人的设定，我已经脑补出要和前辈之间整什么活儿了[f:06 ...</blockquote>
+那不抱幻想了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这图要是具体到个人的话，是不是官网在迫害小千，怎么这么快就被追い越される了。不过目前5人团最适合带新人的就是小千，学姐两位两位混血，会长太忙，kanon可能还会畏场。鲤鱼的诱惑又会新素材啦
+
+*****
+
+####  乙山法純  
+##### 7164#       发表于 2022-4-28 08:04
+
+8人份的妈和现实梗，nako脑壳疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
