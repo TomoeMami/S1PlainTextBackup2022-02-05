@@ -826,3 +826,25 @@ Roberu Ch. 夕刻ロベル本人的名字也是ru，mea用他名字接龙了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10574#       发表于 2022-4-28 22:13
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 22:17 编辑 
+
+mea这次直播用的毛衣，新的联动fanart应该有的。
+
+切片应该日文英文都有些吧，今晚上节目效果比兔子人强太多了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+哎，对比着想想vcp就来气，那个什么万物皆可画图排名，还有几个连翻译都没翻的企划，只能说企划之间亦有差距。
+
+*****
+
+####  T_Hb  
+##### 10575#       发表于 2022-4-28 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

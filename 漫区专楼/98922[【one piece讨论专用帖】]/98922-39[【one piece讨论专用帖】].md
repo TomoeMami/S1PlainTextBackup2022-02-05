@@ -11896,3 +11896,31 @@ BIG MOM的那些儿女们除了佩罗斯佩罗以外还都在海里泡着呢？�
 天雷憋了两个礼拜，然后被凯多一个闪避就躲了 ...</blockquote>
 尾田现在只会整这些噱头
 
+
+
+*****
+
+####  小野寺熊介  
+##### 57989#       发表于 2022-4-28 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55529065&amp;ptid=98922" target="_blank">yario 发表于 2022-4-21 13:09</a>
+
+凯多的强度太大了，觉醒了 打  还是不能五五开，感觉尾田的设计有点问题。 ...</blockquote>
+和之国打到现在就是翻牌回合制
+
+凯多到现在都翻了好几个牌子了，对比第一次出手，战斗力更是蹭蹭蹭地暴涨<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">（**、霸缠、预知未来、酒龙八卦、五大明王）
+
+别的不说，就他那个穿岛热息，只要飞起来一个劲地用，屋顶战的五超拿他根本没办法……<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+为了应对这种情况，五黄也只能仰卧起坐，拼命升级，从登岛到现在也是连升三级了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小野寺熊介  
+##### 57990#       发表于 2022-4-28 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">不得不吐槽凯多在强度上的确非常有问题，以往打BOSS哪有这么原地仰卧起坐，不都得隔一段时间再接着打，到了他这里就是躺趴昏轮着来，每次都带一次升级。
+
+这也就算了，结果两边跟斗法一样，每次都要掏点新东西出来，表示比之前的自己更牛逼，五黄有升级，凯多就把藏招拿出来用，用到现在都还没用完<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这种对对子的情况只有贴吧斗兽人狂喜了，因为蝗吹都天天骑在酱吹头上拉屎了。
+

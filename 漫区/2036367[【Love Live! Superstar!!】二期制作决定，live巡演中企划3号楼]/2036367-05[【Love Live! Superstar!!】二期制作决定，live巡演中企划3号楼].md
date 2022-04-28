@@ -18562,3 +18562,21 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55623892&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 21:43</a></blockquote>
 尽在不言中<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 7404#       发表于 2022-4-28 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">现在更难受了
+
+*****
+
+####  Enakina  
+##### 7405#       发表于 2022-4-28 22:15
+
+不过差不多已经定论了，有的人觉得不想接受，退坑也好，观望也罢。有的人很开心的在期待新的小妹妹，思考该d谁了。大家各有想法吧，收拾好思绪，未来还很长，活的就久一点，你还能看见运营更骚的操作呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
