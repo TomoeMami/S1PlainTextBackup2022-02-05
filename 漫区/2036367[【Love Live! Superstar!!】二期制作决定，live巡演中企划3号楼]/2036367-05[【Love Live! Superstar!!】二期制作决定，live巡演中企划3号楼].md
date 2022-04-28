@@ -17705,3 +17705,57 @@ ADD2569E-7938-4F14-B9F7-70CCBC0B102C.jpeg
 无论什么时候知道，都只有现在才能说。本质上，成员是最没有自主权的。 ...</blockquote>
 哎，说到底，都只是大人赚钱的工具。
 
+
+
+*****
+
+####  ads147147  
+##### 7328#       发表于 2022-4-28 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619456&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 16:25</a>
+
+这么多年我早看明白声优盾之类的东西了，她们什么时候知道的对于她们能做什么没有任何影响，我们也没有任 ...</blockquote>
+知乎看了。工业制品。一般人看的是偶像，企划方看的是投入产出比。
+
+可笑的事，就在隔壁，虹还在认认真真的给你玩大家一起实现的愿望。cd背面还印着侑，这落差感。
+
+想不通透，想不通透啊啊啊
+
+*****
+
+####  kxh007458  
+##### 7329#       发表于 2022-4-28 16:32
+
+<blockquote>Cryogenian 发表于 2022-4-28 13:10
+数字狩小鬼差不多得了，真不知道自己有多惹人厌</blockquote>
+跟文字狱差不多了，“人人都知道清朝姓清，为什么你要写清风不识字，心里肯定是有鬼。”
+
+*****
+
+####  kimibsb  
+##### 7330#       发表于 2022-4-28 16:33
+
+水和这次还不一样
+水接缪是知道是后续 换了人 也换了团名 可以算是新的一个企划（虽然衔接做得确实emmmmm）
+但是后来星发布时喷的怕是比当年少多了 大家都知道又是一个新团 新设定 新企划 只是大背景差不多而已
+结果现在呢 一年多来 一单加动画然后辛辛苦苦一巡二巡各种活动搞到现在 结果空降四个吃现成的是吧
+
+*****
+
+####  adw667  
+##### 7331#       发表于 2022-4-28 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619205&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 16:04</a>
+
+无论什么时候知道，都只有现在才能说。本质上，成员是最没有自主权的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希望这个谜能在他们毕业之后毫无顾忌地说出来
+
+*****
+
+####  仟音一心  
+##### 7332#       发表于 2022-4-28 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619643&amp;ptid=2036367" target="_blank">adw667 发表于 2022-4-28 16:37</a>
+希望这个谜能在他们毕业之后毫无顾忌地说出来</blockquote>
+缪团都没散呢，有的等了。
+
