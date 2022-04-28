@@ -16609,3 +16609,64 @@ FMT就开始带新人…………………………………………………�
 迟早要炸不如早炸</blockquote>
 想多了 不可能炸 这个又不是中国人角色的生日 你拉还有7月7日生日的角色，你拉现在炸了吗？
 
+
+
+*****
+
+####  qty  
+##### 7221#       发表于 2022-4-28 12:05
+
+<blockquote>we89623 发表于 2022-4-28 11:54
+想多了 不可能炸 这个又不是中国人角色的生日 你拉还有7月7日生日的角色，你拉现在炸了吗？ ...</blockquote>
+问题是之前没有中国人角色啊，这个新角色看介绍让人感觉就是要和可可唱对台戏的，选个淞沪会战的日期正好对应角色和声优的家乡很难不让人联想是有意为之。
+
+*****
+
+####  damian-wade  
+##### 7222#       发表于 2022-4-28 12:07
+
+星的运营是真喜欢突然丢大新闻，这种行事手法真是不敢恭维<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+作为没粉三次元只看动画的路人粉，都不好意思像以前那样黑制作组了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二期动画和虹连着播，大家都是追加成员的任务，妥妥的公开处刑，能做好那真是神仙操作，不过看看乐子应该是蛮有趣的
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  we89623  
+##### 7223#       发表于 2022-4-28 12:07
+
+ 本帖最后由 we89623 于 2022-4-28 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616218&amp;ptid=2036367" target="_blank">qty 发表于 2022-4-28 12:05</a>
+
+问题是之前没有中国人角色啊，这个新角色看介绍让人感觉就是要和可可唱对台戏的，选个淞沪会战的日期正好 ...</blockquote>
+可可之前，钟岚珠，在之前兰花，谁告诉你之前没中国人角色。真是看什么都辱华呗。内心别太敏感了。
+
+*****
+
+####  HACHIMAN  
+##### 7224#       发表于 2022-4-28 12:09
+
+直接谷歌813日维写的也很清楚了<blockquote>1937年 - 第二次上海事変勃発。</blockquote>
+很难不联想
+
+*****
+
+####  寒风夜  
+##### 7225#       发表于 2022-4-28 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616244&amp;ptid=2036367" target="_blank">damian-wade 发表于 2022-4-28 12:07</a>
+
+星的运营是真喜欢突然丢大新闻，这种行事手法真是不敢恭维
+
+作为没粉三次元只看动画的路人粉，都不好 ...</blockquote>
+图一乐
+
+*****
+
+####  cybernetics31  
+##### 7226#       发表于 2022-4-28 12:10
+
+日期真没啥，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以多数人的历史水平一下子是想不到这个的
+
+欧美宅那边不少人对加新人也是疑惑[https://www.jizhazha.com/jv1421](https://www.jizhazha.com/jv1421)
+
