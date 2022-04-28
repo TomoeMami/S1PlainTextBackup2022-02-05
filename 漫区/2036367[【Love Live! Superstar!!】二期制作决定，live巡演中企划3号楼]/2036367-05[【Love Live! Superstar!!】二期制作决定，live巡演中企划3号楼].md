@@ -18807,3 +18807,38 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再拜金又不可能把她写出去援交，你一个学院偶像团体又不进行商业活动，拜金这种属性也只能停留在嘴上了。不过倒是本子的好题材就是了
 
+
+
+*****
+
+####  仟音一心  
+##### 7425#       发表于 2022-4-28 23:53
+
+注意6789的顺序应该是入团的顺序，所以拜金主播是最后入团的，然后也就是说极有可能又要扮演对立面的角色……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 7426#       发表于 2022-4-28 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625485&amp;ptid=2036367" target="_blank">catenarygong 发表于 2022-4-28 23:29</a>
+
+一期至少是人设公布了一年多才出动画
+
+二期这七月份就要上了来这出，怕不是动画都开始做了</blockquote>
+可能上海疫情的关系，卡审核了吧
+
+*****
+
+####  优妮可  
+##### 7427#       发表于 2022-4-28 23:56
+
+画师有稍微透露的，第二季有这四人
+
+*****
+
+####  凡人  
+##### 7428#       发表于 2022-4-29 00:01
+
+要出第三季的话加不加人先不说，敌团怎么办呢。第二季收掉SunnyPa的话第三季重新在搞个敌团？还是SunnyPa不死星团不出？
+
