@@ -606,3 +606,30 @@ holo star的男v
 
 当然不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂蓮華  
+##### 10556#       发表于 2022-4-28 17:17
+
+ 本帖最后由 上坂蓮華 于 2022-4-28 17:20 编辑 
+
+碧蓝航线新船，军服白发红蓝异色瞳，可以把红的换黄色当代餐）
+
+<img src="https://img.saraba1st.com/forum/202204/28/171956h5rmfu5kiimivfl2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 17:19 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/172019zlyj93f1semsytj0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 17:20 上传
+

@@ -782,3 +782,25 @@ web4.0都元宇宙了嘛，官方跑了道具还在，最极端的情况下你�
 
 ----发送自 [realme RMX3366,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 86#       发表于 2022-4-28 17:13
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2022-4-28 17:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619263&amp;ptid=2066372" target="_blank">厨具战士 发表于 2022-4-28 16:09</a>
+web4.0都元宇宙了嘛，官方跑了道具还在，最极端的情况下你甚至可以重新开一个游戏，让这些道具在新世界里 ...</blockquote>
+那不就是把挖币的过程包装成游戏罢了，而且还有个可以随意控制物价变化的官方，玩崩分分钟的事 ，到时全是垃圾。
+猪场这么多年试图再复刻一个梦幻西游，全部失败了，一个稳定的金融体系可遇不可求。
+
+*****
+
+####  游蜓  
+##### 87#       发表于 2022-4-28 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偶像大师相关
+
+虽然我没工作经验不过见者有份
+
