@@ -18006,3 +18006,38 @@ md傻逼万代你赶nm呢，cast也没公布，人也没见着，周边先上了
 
 连个pv都不出，光给几张图就开始卖谷<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 7355#       发表于 2022-4-28 17:40
+
+哎，nako怕不是最亏的，本身个人活动就少，holy pig给点作用啊
+
+*****
+
+####  寒风夜  
+##### 7356#       发表于 2022-4-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620447&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-4-28 17:33</a>
+
+按理来说不是应该先出个动画番外篇之类的吗，至少先出个场，现在这种连面都没见到就卖东西真的会有人买吗 ...</blockquote>
+出不了吧，，估计工期堪忧u
+
+*****
+
+####  寒风夜  
+##### 7357#       发表于 2022-4-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620447&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-4-28 17:33</a>
+
+按理来说不是应该先出个动画番外篇之类的吗，至少先出个场，现在这种连面都没见到就卖东西真的会有人买吗 ...</blockquote>
+
+*****
+
+####  car123  
+##### 7358#       发表于 2022-4-28 17:45
+
+说句跑题的，爬了几页就感觉步女士不是立德真是太好了，想夹就夹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
