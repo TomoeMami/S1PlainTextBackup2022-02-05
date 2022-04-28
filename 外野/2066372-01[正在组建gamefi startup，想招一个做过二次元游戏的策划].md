@@ -804,3 +804,65 @@ web4.0都元宇宙了嘛，官方跑了道具还在，最极端的情况下你�
 
 虽然我没工作经验不过见者有份
 
+
+
+*****
+
+####  脊骨  
+##### 88#       发表于 2022-4-28 17:24
+
+总之蹲一个白名单
+
+*****
+
+####  Tienx  
+##### 89#       发表于 2022-4-28 17:27
+
+所以到底啥是白名单，怎么3l一来就要这玩意，能给我一个吗？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phorcys02  
+##### 90#       发表于 2022-4-28 17:28
+
+注意啊各位，，GameFi
+
+区块链 传销  挖矿游戏...
+
+不是实在没坑了，别跳啊
+
+
+
+*****
+
+####  phorcys02  
+##### 91#       发表于 2022-4-28 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55588327&amp;ptid=2066372" target="_blank">苏西踩我了 发表于 2022-4-26 08:27</a>
+
+国内gamefi可不是蓝海，是一片红海啊，去年不发版号有不知多少团队去做了gamefi。
+
+我不碰这玩意儿，但一直 ...</blockquote>
+鬼的，金融，就是传销...
+
+去年下半年每周都要听这帮人忽悠
+
+*****
+
+####  phorcys02  
+##### 92#       发表于 2022-4-28 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619326&amp;ptid=2066372" target="_blank">perfaceNext 发表于 2022-4-28 16:14</a>
+
+查了一下资料没看懂这个gamefi。把自己游戏数据做成类比特币的玩意，然后交易这些“比特币”？ ...</blockquote>
+本质上就是庞氏骗局，毕竟比特币以太坊好歹还有全世界无数显卡和烧掉的电费背书
+
+gamefi可是基本啥都没有
+
+*****
+
+####  godoway  
+##### 93#       发表于 2022-4-28 17:31
+
+怎么这么多人在求白名单，那我也要
+

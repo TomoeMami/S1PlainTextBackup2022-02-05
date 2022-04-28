@@ -17924,3 +17924,69 @@ md傻逼万代你赶nm呢，cast也没公布，人也没见着，周边先上了
 
 万代家里死人了急着赚棺材本是吧。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7346#       发表于 2022-4-28 17:20
+
+<img src="https://img.saraba1st.com/forum/202204/28/172006p0qfu0f84pqr9j4q.jpg" referrerpolicy="no-referrer">
+
+<strong>cf4923d3d539b600d9cd7f61ac50352ac75cb769.jpg</strong> (54.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 17:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 7347#       发表于 2022-4-28 17:22
+
+唯一的办法只有虹式234分组法了，至于这23怎么分嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甩不出去的黄牌  
+##### 7348#       发表于 2022-4-28 17:22
+
+好丑啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">卖谷能不能有点诚意啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋狐  
+##### 7349#       发表于 2022-4-28 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">流程都tm一样样的，nt操作-强行推进-粉丝炎上-开声优盾-过段时间就可以号召立派企划厨控评把所有不接受的都打成前朝遗老；这下乐子人了
+
+*****
+
+####  hijack997  
+##### 7350#       发表于 2022-4-28 17:27
+
+影响最大的应该是声优的个人事业了，资源不够分。
+
+
+
+*****
+
+####  Enakina  
+##### 7351#       发表于 2022-4-28 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620366&amp;ptid=2036367" target="_blank">hijack997 发表于 2022-04-28 17:27:54</a>
+影响最大的应该是声优的个人事业了，资源不够分。</blockquote>小百合就该找机会出道了，后面企划未必能给她带来更大的加成了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 7352#       发表于 2022-4-28 17:29
+
+这个夏美70%的可能性要插进可堇里搞三角吧，想想就觉得怪。。
+
