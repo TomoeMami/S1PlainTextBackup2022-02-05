@@ -16811,3 +16811,75 @@ FMT就开始带新人…………………………………………………�
 本来神蛆不知道这个日子，然后你们提了，它们知道了，它们感觉你们很在意，然后开始带节奏，所以很难不认为 ...</blockquote>
 懂了，SI有蛆
 
+
+
+*****
+
+####  三杉酸宁碱  
+##### 7243#       发表于 2022-4-28 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616770&amp;ptid=2036367" target="_blank">adw667 发表于 2022-4-28 12:49</a>
+这就叫脱敏，以后再提这个日期第一反应都是这位的生日而不是别的</blockquote>
+笑死了，你觉得ll影响力有这么大？看到个日期就敏感真是玻璃心
+
+*****
+
+####  微雨轻风  
+##### 7244#       发表于 2022-4-28 12:53
+
+我寻思淞沪会战不是中学历史课本就有的内容吗，强行不知道？
+
+*****
+
+####  三杉酸宁碱  
+##### 7245#       发表于 2022-4-28 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616836&amp;ptid=2036367" target="_blank">微雨轻风 发表于 2022-4-28 12:53</a>
+我寻思淞沪会战不是中学历史课本就有的内容吗，强行不知道？</blockquote>
+对不起，接受过义务教育的我还真不知道
+
+*****
+
+####  adw667  
+##### 7246#       发表于 2022-4-28 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616833&amp;ptid=2036367" target="_blank">三杉酸宁碱 发表于 2022-4-28 12:53</a>
+
+笑死了，你觉得ll影响力有这么大？看到个日期就敏感真是玻璃心</blockquote>
+我寻思为了洗这个你连整个企划的知名度都要否定了可还行
+
+*****
+
+####  仓岛千百合  
+##### 7247#       发表于 2022-4-28 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616773&amp;ptid=2036367" target="_blank">qty 发表于 2022-4-28 12:49</a>
+
+之前那些哪怕岚珠目前也只是把中国血统相对单纯的当成背景设定和标签化的角色特征来设置的，对整体的剧情 ...</blockquote>
+乳了 乳了 我好像听见玻璃碎掉的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 7248#       发表于 2022-4-28 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616556&amp;ptid=2036367" target="_blank">1096beam 发表于 2022-4-28 12:31</a>
+你别带个中国妹子没人管你的</blockquote>
+我发现之前正常讨论没有你们，这事把你们炸出来了，有何目的有何居心？
+
+*****
+
+####  甩不出去的黄牌  
+##### 7249#       发表于 2022-4-28 13:02
+
+开新楼记得叫我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  li463900160  
+##### 7250#       发表于 2022-4-28 13:02
+
+这种日期我以前就说过，应该是运营内部蛙人搞的鬼，你真叫鬼子搞这种他们还想不起来，但是蛙人是最喜欢暗戳戳搞的
+

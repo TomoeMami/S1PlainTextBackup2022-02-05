@@ -13807,3 +13807,30 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 直播员被公司（姑且算）同事泼脏水了要直播员出面公关，那这公司屁用没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yvy2222  
+##### 5956#       发表于 2022-4-28 12:59
+
+给家人们抽个To签吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lada2104  
+##### 5957#       发表于 2022-4-28 13:01
+
+<blockquote>藤原银 发表于 2022-4-28 12:18
+有粉丝破防就是错误啊。即使大家都知道是假的你也不能让大家彻底明白这都是假的。当然我不这么看 ...</blockquote>
+问题这是离职的内部人员背刺戳破的，又不是文静自己主动说破的？看了这几天，文静除了没写to签，最大的错误就是不应该把千鸟这个烂企划拉起来，让他和1.0一样完蛋，让陈珺该干嘛干嘛去不好吗
+
+*****
+
+####  夜潇箫  
+##### 5958#       发表于 2022-4-28 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">抽“唇”印吧
+
