@@ -18911,3 +18911,16 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 我还是比较担心之后三次元live的。一旦上台演出了，肯定就要有比较。但新人偶像要怎么和经历了魔鬼巡演的5 ...</blockquote>
 舞台经验可能会不足，但按以往经验和当今偶像界的内卷程度来看，中之人的素质可能是最不需要担心的一环。这企划哪次不是运营不做人单纯靠中之人一点一点努力慢慢挽回的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 7436#       发表于 2022-4-29 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55626060&amp;ptid=2036367" target="_blank">mithrandir0120 发表于 2022-4-29 00:14</a>
+我还是比较担心之后三次元live的。一旦上台演出了，肯定就要有比较。但新人偶像要怎么和经历了魔鬼巡演的5 ...</blockquote>
+新成员除了天赋异禀或者本身就有丰富的演出经验，否则很难想象能跟得上经历过巡演的五人。
+大家都说星五人难得没有明显短板谁也不拖后腿，新四人如果能力跟不上就非常尴尬了，不但会破坏原来良好的舞台表现，团体的割裂感还更重了。到时候又用养成系偶像以后会进步的理由搪塞，不知道又有多少人能接受。
+等公布cv后再观望，就寄望选人方面烂铁就给点力
+
