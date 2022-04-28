@@ -17648,3 +17648,60 @@ FBB7FF22-7F7F-4098-B580-31E896763A83.jpeg
 12集，新人物一人一集，再加日常回和最终大场回，现在的花田
 能好？
 
+
+
+*****
+
+####  仟音一心  
+##### 7323#       发表于 2022-4-28 16:20
+
+ニードロ(NiiDORO677901)老师破防锁推
+
+ADD2569E-7938-4F14-B9F7-70CCBC0B102C.jpeg
+(64 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:20 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/162045wo933360zco0o7z9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 7324#       发表于 2022-4-28 16:24
+
+ 本帖最后由 we89623 于 2022-4-28 16:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618690&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:20</a>
+
+日本那边主要本来竞争就激烈，看星团的大多是都是企划厨，所有LL都看的，单纯的星团厨很少，毕竟事不过三 ...</blockquote>
+醒醒，觉得这个星这个企划不挣钱正确的做法应该是放养或者冷藏在另起炉灶，而不是继续往里面砸人砸钱砸资源。你当资本家是傻子吗？
+
+*****
+
+####  JustW_2  
+##### 7325#       发表于 2022-4-28 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619166&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 16:01</a>
+所以说，cv们到底什么时候知道的。我可以接受偶像是贩卖梦想，也可以接受高价赎罪卷，但是这个傻逼企划骗人 ...</blockquote>
+这么多年我早看明白声优盾之类的东西了，她们什么时候知道的对于她们能做什么没有任何影响，我们也没有任何可以确定的办法
+
+*****
+
+####  仟音一心  
+##### 7326#       发表于 2022-4-28 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619456&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 16:25</a>
+这么多年我早看明白声优盾之类的东西了，她们什么时候知道的对于她们能做什么没有任何影响，我们也没有任 ...</blockquote>
+本质上成员就是摆上货架的商品，企划怎么捆绑怎么销售，和商品自己怎么想毫无关系。
+
+*****
+
+####  ads147147  
+##### 7327#       发表于 2022-4-28 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619205&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 16:04</a>
+
+无论什么时候知道，都只有现在才能说。本质上，成员是最没有自主权的。 ...</blockquote>
+哎，说到底，都只是大人赚钱的工具。
+
