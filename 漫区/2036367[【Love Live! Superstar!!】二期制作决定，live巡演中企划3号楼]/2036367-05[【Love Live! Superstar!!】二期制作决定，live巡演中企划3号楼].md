@@ -18271,3 +18271,15 @@ https://share.api.weibo.cn/share/301907007,4763294781671890.html?weibo_id=476329
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“人在日本 刚下班 发两条推/微博”
 
+
+
+*****
+
+####  仟音一心  
+##### 7378#       发表于 2022-4-28 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621141&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 18:24</a>
+刚说完就发微博了
+https://share.api.weibo.cn/share/301907007,4763294781671890.html?weibo_id=476329478 ...</blockquote>
+行吧，感谢打脸，就是字数差得有点多。
+

@@ -6489,3 +6489,22 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 既然上市是真的，杏找国人做换皮手游会不会也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 12607#       发表于 2022-4-28 18:35
+
+木口要是真做个放置类手游我会去蝗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我取流年  
+##### 12608#       发表于 2022-4-28 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621171&amp;ptid=1972669" target="_blank">lor 发表于 2022-4-28 18:27</a>
+
+换个梯子节点试试</blockquote>
+不行，等到期我换个试试吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
