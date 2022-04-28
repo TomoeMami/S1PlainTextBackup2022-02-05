@@ -17455,3 +17455,83 @@ E39060D5-3F18-43D4-953E-4513CD78C9FA.jpeg
 鬼佬不管acgn发表啥新闻基本都是狂喜。
 我印象中唯一一次没狂喜的就是暗黑手游<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  li463900160  
+##### 7303#       发表于 2022-4-28 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618600&amp;ptid=2036367" target="_blank">红焖菠菜 发表于 2022-4-28 15:13</a>
+
+动画做成那德行能引流多少人，成绩差我觉得是必然的
+
+我都是先看到二创才回头看动画补广播剧逐渐入 ...</blockquote>
+日本那边主要本来竞争就激烈，看星团的大多是都是企划厨，所有LL都看的，单纯的星团厨很少，毕竟事不过三，你这都第三回了还是那三板斧再好的冷饭也吃不下去。。。
+
+*****
+
+####  player3960  
+##### 7304#       发表于 2022-4-28 15:21
+
+我倒真想看看第二季的成绩，到底提纯后的空缺和新粉哪边多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7305#       发表于 2022-4-28 15:21
+
+CV盾已开，sayu只能硬抗了，Nako也点赞了那条官推，其他三人暂时没有任何动作。
+
+希望他们私底下支撑一下sayu吧，不然这么大压力一个19岁的小姑娘很难扛得住
+
+*****
+
+####  lj205  
+##### 7306#       发表于 2022-4-28 15:21
+
+鱼转推了……………………
+
+*****
+
+####  YQMY  
+##### 7307#       发表于 2022-4-28 15:21
+
+声优盾真是典中典，能不能来点新活啊
+
+*****
+
+####  plok201  
+##### 7308#       发表于 2022-4-28 15:23
+
+其实第一季结尾的时候就猜想新学年新人露个脸啥的，结果什么都没有，还觉得挺奇怪的
+
+没想到现在来个突然公布...运营你起码来个一集的特别篇铺垫一下吧
+
+*****
+
+####  红焖菠菜  
+##### 7309#       发表于 2022-4-28 15:23
+
+ 本帖最后由 红焖菠菜 于 2022-4-28 15:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618690&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:20</a>
+日本那边主要本来竞争就激烈，看星团的大多是都是企划厨，所有LL都看的，单纯的星团厨很少，毕竟事不过三 ...</blockquote>
+星团动画的问题不是三板斧，是纯粹拉胯。
+他要真复刻三板斧让小千大比兜然后香音追飞机说不定效果还好些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7310#       发表于 2022-4-28 15:23
+
+CelticWhite老师破防之际还是出了新图
+
+4CD210EE-D04A-40ED-A46D-8C491B850A5B.jpeg
+(286.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:23 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/152347gp9rsq7saq637nrx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
