@@ -18378,3 +18378,42 @@ pay盾尚未
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 7387#       发表于 2022-4-28 19:21
+
+穿的都是普通科校服，音乐科不行
+
+*****
+
+####  sjbssd  
+##### 7388#       发表于 2022-4-28 19:23
+
+还好五个人都有新工作了，真的是垃圾，气死
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7389#       发表于 2022-4-28 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了我才发现，现在音乐课现在是不是只存在于设定里了？和第一季前半部分内容制造矛盾冲突
+
+*****
+
+####  山岚夜雨  
+##### 7390#       发表于 2022-4-28 19:24
+
+我就疑惑了，动画一期结尾但凡铺垫一下，我心情都不会是现在这样
+
+*****
+
+####  7sevenseven  
+##### 7391#       发表于 2022-4-28 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620911&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 18:08</a>
+这张让我破防了</blockquote>
+伏笔，绝对的伏笔，明明白白写着五人9绊。
+
