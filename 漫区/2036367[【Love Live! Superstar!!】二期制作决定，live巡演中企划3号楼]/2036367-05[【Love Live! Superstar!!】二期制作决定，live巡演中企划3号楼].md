@@ -16035,3 +16035,16 @@ liella词条上了美国趋势...
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JustW_2  
+##### 7162#       发表于 2022-4-28 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55613084&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 07:44</a>
+干，大晚上睡不着。做梦还梦到新人最终选角的画面，cv追梦没错，那tm万代到底在做什么，到底是临时起意加人 ...</blockquote>
+我认为不可能是临时起意。
+
+Liella两季动画之间间隔史上最短，再考虑一下动画的制作周期，那么最晚也在第一季动画播出前动画staff就知道后面会发生什么了。
+
