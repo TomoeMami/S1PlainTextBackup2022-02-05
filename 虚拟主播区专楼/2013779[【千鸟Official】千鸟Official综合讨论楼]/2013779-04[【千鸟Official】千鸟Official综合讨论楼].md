@@ -13875,3 +13875,25 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 评论区里要看小耳兔自残刀口的实在没绷住
 
+
+
+*****
+
+####  古战场亡魂  
+##### 5963#       发表于 2022-4-28 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617129&amp;ptid=2013779" target="_blank">nishazhiyang 发表于 2022-4-28 13:15</a>
+
+评论区里要看小耳兔自残刀口的实在没绷住</blockquote>
+自残也不一定是刀啊，鸟p们也太不仔细了。这不是去看骨科了吗，不过说到底受伤不一定对标自残，自残也不一定和这有关。
+
+文静现在也回应个差不多的病历单就是了。
+
+<img src="https://img.saraba1st.com/forum/202204/28/132609gs2fzhwch4fslj9o.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428132509833.jpg</strong> (52.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 13:26 上传
+

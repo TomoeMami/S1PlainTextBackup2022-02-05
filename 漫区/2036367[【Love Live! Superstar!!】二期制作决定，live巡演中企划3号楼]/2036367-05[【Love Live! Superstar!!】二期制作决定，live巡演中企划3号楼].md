@@ -16947,3 +16947,23 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 越骂官方越开心，观众算个什么玩意
 黑红也是红
 
+
+
+*****
+
+####  三杉酸宁碱  
+##### 7257#       发表于 2022-4-28 13:25
+
+我寻思这个日期不是更敏感？怎么没见你们去骂蘑菇<img src="https://p.sda1.dev/5/059a2e69d81a9feade2dccc5e926724f/CMP_20220428132526944.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7258#       发表于 2022-4-28 13:28
+
+<img src="https://p.sda1.dev/5/e50086bfe3303dc76a360c745c11dfb0/CMP_20220428132731948.jpg" referrerpolicy="no-referrer">
+
+六月声优盾下来，怎么办，leader带头说欢迎小妹妹。只能说市场会教育烂铁什么是残酷。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
