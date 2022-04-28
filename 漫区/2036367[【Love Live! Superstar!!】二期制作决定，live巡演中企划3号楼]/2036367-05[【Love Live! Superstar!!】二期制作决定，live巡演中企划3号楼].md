@@ -16344,3 +16344,36 @@ C3D78C7F-9393-4542-B499-A1AE0FA69C56.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/28/095942q2yees10de6fqykk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  缘一  
+##### 7191#       发表于 2022-4-28 10:14
+
+难以接受。我是缪时期入坑的厨子，水团人设出来后我接受良好，在一单出来后也加推了水，因为我知道水是ll这个系列的延续。但新加这四人一想到她们以后要以星的名义活动就让我觉得难以接受，你真的要捞金的话新开一个四人团，二季搞双主角（团）然后九人一起互动不好吗？非要硬塞进星，真是究极烂活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keasen  
+##### 7192#       发表于 2022-4-28 10:15
+
+加人对老人不公平，对新人也尴尬。
+老人戏份被分走，新人被嘲压力山大，真不知道运营脑袋里在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7193#       发表于 2022-4-28 10:18
+
+fmt就把新人拉上来，铁定第二季有不少戏了吧，这么着急啊，整个人就一个尬住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JustW_2  
+##### 7194#       发表于 2022-4-28 10:18
+
+<img src="https://p.sda1.dev/5/7225543bfe808fe44140fcb195c7c027/mmexport1651112292024.jpg" referrerpolicy="no-referrer">
+
