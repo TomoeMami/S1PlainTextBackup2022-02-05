@@ -17019,3 +17019,42 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 没有星q我不是很认可。
 5人，星星，会唱歌跳舞。
 
+
+
+*****
+
+####  仟音一心  
+##### 7263#       发表于 2022-4-28 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55615202&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 10:57</a>
+
+饶了花田吧，你这天王老子都难救</blockquote>
+反正我可以确定写一期时花田肯定不知道加人的事情，脚本就突出一个不急。
+
+*****
+
+####  luciferion  
+##### 7264#       发表于 2022-4-28 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616770&amp;ptid=2036367" target="_blank">adw667 发表于 2022-4-28 12:49</a>
+
+这就叫脱敏，以后再提这个日期第一反应都是这位的生日而不是别的</blockquote>
+那这敏也太好脱了，我一直觉得政治相关内容和娱乐内容在脑子里是不放在一个部分记忆的，不会真有人能混一起吧
+
+*****
+
+####  luciferion  
+##### 7265#       发表于 2022-4-28 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616901&amp;ptid=2036367" target="_blank">adw667 发表于 2022-4-28 12:58</a>
+
+我寻思为了洗这个你连整个企划的知名度都要否定了可还行</blockquote>
+日本偶像企划在国内受众就那么多，还是你指望日本人去记那种内容？
+
+*****
+
+####  三杉酸宁碱  
+##### 7266#       发表于 2022-4-28 13:46
+
+回到这个企划本身说一句，二期唐突的加四个人真是究极烂活。花田要真把这九个人整明白了那他就是我爹
+
