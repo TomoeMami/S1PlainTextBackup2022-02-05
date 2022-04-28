@@ -14129,3 +14129,14 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 不是 大思和2.0们关系不是还可以吗 没住一起不是生活习惯问题吗 和1.0个别人关系不好倒是真的 另外我感觉cj对大思多多少少有点恩情 所以大思才不愿干落井下石的事吧
 
+
+
+*****
+
+####  丢了五块钱  
+##### 5984#       发表于 2022-4-28 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621800&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-4-28 19:18</a>
+大思：乐死了，唱会歌。</blockquote>
+来首《说谎》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
