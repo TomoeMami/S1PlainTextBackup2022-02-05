@@ -18767,3 +18767,43 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 而如果哪怕有三期，二期新4人都过完了，老5人还有缺的甚至一个没动的话，那就史诗级烂活儿，坐等炎上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  catenarygong  
+##### 7422#       发表于 2022-4-28 23:46
+
+ 本帖最后由 catenarygong 于 2022-4-28 23:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625629&amp;ptid=2036367" target="_blank">Skyline_R 发表于 2022-4-28 23:40</a>
+本来想着今儿能不能放平心态尝试着去接受一下（毕竟你拉的乐色运营已经品鉴得够多了），感觉红蓝CP有点好嗑 ...</blockquote>
+炎上这种事情根本不用坐等
+
+拜金这个属性要写好了也不是不行
+要么就变成屑搞笑角色，要么就写贫穷少女独立自强人设
+但是这两种按花田京极第一季的烂活来看，估计够呛
+
+十有八九就是坏女孩感受友情幡然悔悟样板戏
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  catenarygong  
+##### 7423#       发表于 2022-4-28 23:49
+
+ 本帖最后由 catenarygong 于 2022-4-28 23:51 编辑 
+
+当然还有一种可能，直接一转主播女孩重度依赖
+
+令和最绝望电波批判现实主义拉拉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lanslort  
+##### 7424#       发表于 2022-4-28 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再拜金又不可能把她写出去援交，你一个学院偶像团体又不进行商业活动，拜金这种属性也只能停留在嘴上了。不过倒是本子的好题材就是了
+
