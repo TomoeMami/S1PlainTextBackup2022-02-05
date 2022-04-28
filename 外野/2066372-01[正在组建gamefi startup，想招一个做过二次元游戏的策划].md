@@ -759,3 +759,26 @@ gm 看在都是坛友的份上给个wl<img src="https://static.saraba1st.com/ima
 
 蹲一个白名单<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ahyyk  
+##### 84#       发表于 2022-4-28 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619263&amp;ptid=2066372" target="_blank">厨具战士 发表于 2022-4-28 16:09</a>
+
+web4.0都元宇宙了嘛，官方跑了道具还在，最极端的情况下你甚至可以重新开一个游戏，让这些道具在新世界里 ...</blockquote>
+只能说未曾设想的道路，nb
+
+不管咋样，求个白名单！
+
+*****
+
+####  gundamex  
+##### 85#       发表于 2022-4-28 16:56
+
+虽然不知道白名单是啥，也蹲一个白名单。
+
+----发送自 [realme RMX3366,Android 12](http://stage1.5j4m.com/?1.37)
+

@@ -17848,3 +17848,27 @@ EC8650D1-60C7-4E5D-A294-6B1E88D53F78.jpeg
 
 <img src="https://img.saraba1st.com/forum/202204/28/164849rsb9tf06f55lsthz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_2  
+##### 7337#       发表于 2022-4-28 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就差说人傻钱多速来了
+
+*****
+
+####  nufawneafg  
+##### 7338#       发表于 2022-4-28 16:52
+
+md傻逼万代你赶nm呢，cast也没公布，人也没见着，周边先上了
+赶着去投胎呢吧
+
+*****
+
+####  cckuku  
+##### 7339#       发表于 2022-4-28 16:54
+
+怎么这么丑……这种丑谷也能上啊？
+
