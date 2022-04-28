@@ -16225,3 +16225,122 @@ Liella两季动画之间间隔史上最短，再考虑一下动画的制作周�
 
 <img src="https://img.saraba1st.com/forum/202204/28/094037w447m4a9l2z1h2lw.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7181#       发表于 2022-4-28 09:51
+
+FMT就开始带新人…………………………………………………………………………
+
+*****
+
+####  JustW_2  
+##### 7182#       发表于 2022-4-28 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55613793&amp;ptid=2036367" target="_blank">lj205 发表于 2022-4-28 09:13</a>
+二期别再把可可当工具人，还让她做铺垫给四新人走，但是我真的预感会这样，他妈的啊 ...</blockquote>
+看Ltuber那位的设定，感觉大概率可可要复刻一期和堇的观念冲突
+
+*****
+
+####  gothicmaid  
+##### 7183#       发表于 2022-4-28 09:53
+
+不就裂啦二期生，我们前48g粉丝完全可以接受的啦
+
+算了不忍了 万代傻逼！！！！！！！
+
+*****
+
+####  JustW_2  
+##### 7184#       发表于 2022-4-28 09:53
+
+草，直接说成是liella的2期生，怕是还有3456789
+
+<img src="https://p.sda1.dev/5/8b4b70bac7987ed690ef18c54002d427/6vutxkfilv36qzkq2ii3axow7.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  口无遮拦  
+##### 7185#       发表于 2022-4-28 09:54
+
+估计会有中国人暴打日本黄毛第二季
+
+*****
+
+####  lj205  
+##### 7186#       发表于 2022-4-28 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55614216&amp;ptid=2036367" target="_blank">JustW_2 发表于 2022-4-28 09:52</a>
+
+看Ltuber那位的设定，感觉大概率可可要复刻一期和堇的观念冲突</blockquote>
+这个重任还是让民警来吧，她自己是过来人更有说服力
+
+*****
+
+####  cckuku  
+##### 7187#       发表于 2022-4-28 09:54
+
+红蓝锁的那么死吗？眼睛都是对方的发色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7188#       发表于 2022-4-28 09:57
+
+列拉48
+
+*****
+
+####  GomezS  
+##### 7189#       发表于 2022-4-28 09:58
+
+一直觉得第二季会加人，但感觉是一个人
+
+加四个也太多了，花田你有这个能力吗
+
+*****
+
+####  仟音一心  
+##### 7190#       发表于 2022-4-28 09:59
+
+个人logo应援色公开
+
+3B4E6DAB-F5E0-4A2A-BA51-9E397A59B896.jpeg
+(265.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/095942jl1acajc480tj64c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C3D78C7F-9393-4542-B499-A1AE0FA69C56.jpeg
+(280.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/095942d6gsvqk3i2mgsj1q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2997EDCA-4366-48AD-B66A-66EF3F70F7D7.jpeg
+(355.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/095942qnl5dnnh0ttlgeen.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+57123C38-555B-430D-B462-075AA877E796.jpeg
+(392.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/095942q2yees10de6fqykk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

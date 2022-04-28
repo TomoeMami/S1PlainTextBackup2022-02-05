@@ -358,3 +358,15 @@ mea可以跟他多联动吗
 
 明天的vcp应该还是播片，希望周末能有一次单人直播
 
+
+
+*****
+
+####  adw667  
+##### 10534#       发表于 2022-4-28 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55613960&amp;ptid=2018830" target="_blank">记莫更寂寞 发表于 2022-4-28 09:28</a>
+
+怎么星团加新人也有把她拖出来批判的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟那人设相似度都比林檎大了
+
