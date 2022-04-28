@@ -17262,3 +17262,276 @@ ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
 新黄毛那介绍也够离谱，涨粉啥的还能接受，闻到了金钱的味道是不是有点过了，这人设很难讨喜啊 ...</blockquote>
 这种爱财设定用「很穷」or「曾经很穷」的路数反而很好写吧，屡试不爽的剧本我都能一时想起好几套
 
+
+
+*****
+
+####  player3960  
+##### 7287#       发表于 2022-4-28 14:51
+
+声优盾来咯，立德顶住啊，希望鲤鱼别淌浑水，发扬从不转ll工商的摆烂精神，保持沉默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红焖菠菜  
+##### 7288#       发表于 2022-4-28 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618129&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 14:35</a>
+但墙外好像她的二次创作挺多的 就这不到一天的时间</blockquote>
+鬼佬就这样的，只要人设好看他们就喜欢。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7289#       发表于 2022-4-28 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">声优盾真好用啊真好用
+
+*****
+
+####  cybernetics31  
+##### 7290#       发表于 2022-4-28 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正个人活动多，多转转个人工商就行。
+
+
+
+*****
+
+####  lanslort  
+##### 7291#       发表于 2022-4-28 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 水的时候也是全网骂啊，而且连声优盾都没。要不是杏树在FL之后的生放提了一嘴缪而她本身确实可以考证是铁杆缪缪人，估计后面也没那么顺利。而且事实上不管是国内还是日本不接受的人还是挺多的，欧美反而好一点因为缪的时代在那边没有太火
+
+*****
+
+####  寒风夜  
+##### 7292#       发表于 2022-4-28 14:57
+
+传统艺能
+
+*****
+
+####  lj205  
+##### 7293#       发表于 2022-4-28 14:58
+
+鱼专心宣传自己的活动吧，FMT、BD、写真都要忙呢，我就等着写真的宣传搞起来，企划那边反正也不少她这个，继续保持佛系转发企划工商习惯就好
+
+
+
+*****
+
+####  li463900160  
+##### 7294#       发表于 2022-4-28 15:08
+
+其实就销量来说，国内星厨的消费能力是目前拉拉里最高的
+
+但是在日本来说，星的业绩是拉拉最低的，就演唱会抽选卷的价格来看，就最近虹的5th卷价格比碟本身都高了，与之相对的星的券的价格比1巡的时候跌了好多。。。
+
+运营肯定觉得星的吸金能力达不到预期，然后觉得加人就能解决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7295#       发表于 2022-4-28 15:10
+
+不会加推，珍惜最后这两个月Liella五人组活动的时间，之后转为这五人的个人推继续支持。
+
+裂广播和生放肯定会加人，选择性观看。双N广播大概率会邀请嘉宾，只要保持这两人主持，影响还不算大。以后的Live这些选择性观看
+
+
+
+*****
+
+####  寒风夜  
+##### 7296#       发表于 2022-4-28 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618539&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:08</a>
+
+其实就销量来说，国内星厨的消费能力是目前拉拉里最高的
+
+但是在日本来说，星的业绩是拉拉最低的，就演唱会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">3线一起运营不低有鬼了
+
+*****
+
+####  Enakina  
+##### 7297#       发表于 2022-4-28 15:13
+
+Nako转推点赞，其她人也就这个程度吧，得等正式公布cv在发声了
+夢ですか？真的是场梦就好了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  红焖菠菜  
+##### 7298#       发表于 2022-4-28 15:13
+
+ 本帖最后由 红焖菠菜 于 2022-4-28 15:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618539&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:08</a>
+其实就销量来说，国内星厨的消费能力是目前拉拉里最高的
+
+但是在日本来说，星的业绩是拉拉最低的，就演唱会 ...</blockquote>
+动画做成那德行能引流多少人，成绩差我觉得是必然的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我都是先看到二创才回头看动画补广播剧逐渐入坑的。
+
+*****
+
+####  优妮可  
+##### 7299#       发表于 2022-4-28 15:13
+
+鲤鱼都不用发表啥，动态评论早就一堆发泄的了，再发动态控不住了
+
+*****
+
+####  li463900160  
+##### 7300#       发表于 2022-4-28 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618590&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-4-28 15:12</a>
+
+3线一起运营不低有鬼了</blockquote>
+拉拉本质上还是背后投资方太多，各种利益牵扯在里面，都想靠这个ip赚钱
+
+*****
+
+####  仟音一心  
+##### 7301#       发表于 2022-4-28 15:15
+
+真的快啊
+
+B38FEEAC-5FCD-4A78-99B0-D633F4B4608A.jpeg
+(53.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151509l43t1o3vtzuqvtlu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3918A60F-90F9-4B84-94DF-A80408D76A43.jpeg
+(62.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151509ewzpowi0jj02yo1d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E39060D5-3F18-43D4-953E-4513CD78C9FA.jpeg
+(49.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151509baj9dj938trjcdad.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3F94CD53-0DA8-46C4-A74B-0FBA73AEA6FC.jpeg
+(54.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151511q8esmrp686q888r2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2AB931D3-608D-466A-A05F-088C1E2E1BB6.jpeg
+(324.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:15 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/151515prc0rcztit0idoi4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  红焖菠菜  
+##### 7302#       发表于 2022-4-28 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618620&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 15:15</a>
+真的快啊</blockquote>
+鬼佬不管acgn发表啥新闻基本都是狂喜。
+我印象中唯一一次没狂喜的就是暗黑手游<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  li463900160  
+##### 7303#       发表于 2022-4-28 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618600&amp;ptid=2036367" target="_blank">红焖菠菜 发表于 2022-4-28 15:13</a>
+
+动画做成那德行能引流多少人，成绩差我觉得是必然的
+
+我都是先看到二创才回头看动画补广播剧逐渐入 ...</blockquote>
+日本那边主要本来竞争就激烈，看星团的大多是都是企划厨，所有LL都看的，单纯的星团厨很少，毕竟事不过三，你这都第三回了还是那三板斧再好的冷饭也吃不下去。。。
+
+*****
+
+####  player3960  
+##### 7304#       发表于 2022-4-28 15:21
+
+我倒真想看看第二季的成绩，到底提纯后的空缺和新粉哪边多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7305#       发表于 2022-4-28 15:21
+
+CV盾已开，sayu只能硬抗了，Nako也点赞了那条官推，其他三人暂时没有任何动作。
+
+希望他们私底下支撑一下sayu吧，不然这么大压力一个19岁的小姑娘很难扛得住
+
+*****
+
+####  lj205  
+##### 7306#       发表于 2022-4-28 15:21
+
+鱼转推了……………………
+
+*****
+
+####  YQMY  
+##### 7307#       发表于 2022-4-28 15:21
+
+声优盾真是典中典，能不能来点新活啊
+
+*****
+
+####  plok201  
+##### 7308#       发表于 2022-4-28 15:23
+
+其实第一季结尾的时候就猜想新学年新人露个脸啥的，结果什么都没有，还觉得挺奇怪的
+
+没想到现在来个突然公布...运营你起码来个一集的特别篇铺垫一下吧
+
+*****
+
+####  红焖菠菜  
+##### 7309#       发表于 2022-4-28 15:23
+
+ 本帖最后由 红焖菠菜 于 2022-4-28 15:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55618690&amp;ptid=2036367" target="_blank">li463900160 发表于 2022-4-28 15:20</a>
+日本那边主要本来竞争就激烈，看星团的大多是都是企划厨，所有LL都看的，单纯的星团厨很少，毕竟事不过三 ...</blockquote>
+星团动画的问题不是三板斧，是纯粹拉胯。
+他要真复刻三板斧让小千大比兜然后香音追飞机说不定效果还好些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7310#       发表于 2022-4-28 15:23
+
+CelticWhite老师破防之际还是出了新图
+
+4CD210EE-D04A-40ED-A46D-8C491B850A5B.jpeg
+(286.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 15:23 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/152347gp9rsq7saq637nrx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

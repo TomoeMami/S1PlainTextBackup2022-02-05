@@ -5957,3 +5957,72 @@ yhm真的逊啊，活该jp待遇被en踩在头上，enkr这傻逼运营2022了�
 
 净利润20%，皮套人行业再续500年。
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 12554#       发表于 2022-4-28 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55617747&amp;ptid=1972669" target="_blank">lor 发表于 2022-4-28 14:09</a>
+ 然而yhm就是没出息还在说cn又暴动了，en还一轮没出呢前辈出过几轮了改也可以吧。真的逆来顺受，关注的yhm全 ...</blockquote>
+应该是因为哈哥发推说他不知道谷子改了三天前发图给他的时候他只看了插图没注意谷子，然后运营觉得图上明明有新谷子他发推意思在甩锅（？）吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推下面都说运营没告诉所属管人改谷子的事，其实只是哈哥没细看（不过看不看又不能怎么样就是了，这事管人也没决定权）
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 12555#       发表于 2022-4-28 15:06
+
+你虹周边部怕不是要开始独走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最赚钱的部门心有异心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 12556#       发表于 2022-4-28 15:08
+
+田角关于上市发推了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 12557#       发表于 2022-4-28 15:11
+
+谷子生产订单已经下了的话应该一时半会儿改不了吧，这场戏的走向还得看5月后续其他人的货如何<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  IDIDIDID  
+##### 12558#       发表于 2022-4-28 15:19
+
+总营业额比我想象的少很多，但是利润率不错，相比之下股票发少了啊。
+
+*****
+
+####  rzrbtk  
+##### 12559#       发表于 2022-4-28 15:20
+
+可惜推没法转发抽奖什么的，cn吃谷人武德注入<img src="https://static.saraba1st.com/image/smiley/face2017/258.png" referrerpolicy="no-referrer">
+
+就是哈哥被流弹攻击有点倒霉，通知栏都爆了吧
+
+
+
+*****
+
+####  alcoholic1000  
+##### 12560#       发表于 2022-4-28 15:39
+
+ 本帖最后由 alcoholic1000 于 2022-4-28 15:41 编辑 
+
+你虹说过很多次了live不赚钱，赤字靠周边商品填补；
+
+就是不知道过去半年高强度出印刷品贩卖是冲业绩为上场做准备，
+
+还是准备将这种频率常态化
+
