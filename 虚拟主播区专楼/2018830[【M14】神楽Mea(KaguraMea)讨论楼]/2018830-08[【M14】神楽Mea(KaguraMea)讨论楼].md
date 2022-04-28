@@ -693,3 +693,49 @@ holo star的男v
 
 无所谓，那个号早就没功能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10563#       发表于 2022-4-28 21:16
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 21:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621007&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-4-28 18:15</a>
+
+无所谓，那个号早就没功能了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202204/28/211601dl9bq1b6dqxttbeh.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428211447239.jpg</strong> (5.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/211850oxvvvr7b1m412tr5.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428211821851.jpg</strong> (10.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/211850hteib6t1msm1cf26.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428211832147.jpg</strong> (8.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 21:18 上传
+
+我看着直播满脑子这集动画……
+[https://www.bilibili.com/bangumi/play/ep80889?spm_id_from=333.337.0.0&amp;from_spmid=666.25.episode.0](https://www.bilibili.com/bangumi/play/ep80889?spm_id_from=333.337.0.0&amp;from_spmid=666.25.episode.0)
+
+*****
+
+####  古战场亡魂  
+##### 10564#       发表于 2022-4-28 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

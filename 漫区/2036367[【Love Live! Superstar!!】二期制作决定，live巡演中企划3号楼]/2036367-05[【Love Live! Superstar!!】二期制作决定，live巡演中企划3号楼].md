@@ -18450,3 +18450,27 @@ pay盾尚未
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 7394#       发表于 2022-4-28 21:16
+
+小堇她们成为前辈了呢～🤟
+
+是堇前辈呢🥰
+
+请不要错过她们4人的梦想和今后的展开哦！
+
+想要把每个人一直重视的事情、最喜欢的事情，汇集在歌声中，成为一颗更大的闪闪发光的星星！#lovelive##liella# 
+
+E724784E-3DB8-4C3B-ADBC-6E7F7F40BF20.jpeg
+(154.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/211644w889zejarx309i20.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
