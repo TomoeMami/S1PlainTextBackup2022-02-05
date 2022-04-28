@@ -13789,3 +13789,21 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5954#       发表于 2022-4-28 12:51
+
+一段时间没看了，没想到还以为在整不出活的时候整了个最大的
+
+顺便毕业得了
+
+*****
+
+####  Finsty  
+##### 5955#       发表于 2022-4-28 12:51
+
+直播员被公司（姑且算）同事泼脏水了要直播员出面公关，那这公司屁用没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

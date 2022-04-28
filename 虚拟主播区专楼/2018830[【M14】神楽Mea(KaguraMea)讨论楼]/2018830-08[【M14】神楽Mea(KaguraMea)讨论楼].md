@@ -520,3 +520,27 @@ holo star的男v
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 10548#       发表于 2022-4-28 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  古战场亡魂  
+##### 10549#       发表于 2022-4-28 12:51
+
+<img src="https://img.saraba1st.com/forum/202204/28/125021s0z640ytro08cyre.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220428125003729.jpg</strong> (138.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 12:50 上传
+
