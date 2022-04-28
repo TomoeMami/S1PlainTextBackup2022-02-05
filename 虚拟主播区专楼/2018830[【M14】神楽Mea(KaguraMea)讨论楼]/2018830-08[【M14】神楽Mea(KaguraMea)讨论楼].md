@@ -739,3 +739,30 @@ holo star的男v
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashero  
+##### 10565#       发表于 2022-4-28 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的节目效果多少有点精心计算了
+
+*****
+
+####  T_Hb  
+##### 10566#       发表于 2022-4-28 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不计划一下流程，一个词一个词蹦才是真的很无聊
+
+*****
+
+####  古战场亡魂  
+##### 10567#       发表于 2022-4-28 21:26
+
+ 本帖最后由 古战场亡魂 于 2022-4-28 21:31 编辑 
+
+跟这动画的操作基本一模一样……我绷不住了，不过mea比较强的是，玩接龙中间还加杂谈的。mea基本上词汇量完爆夕刻同志。使用ru字结尾疯狂攻击，还记了几个首尾都是ru的防止对方用ru结尾反击。
+
+Roberu Ch. 夕刻ロベル本人的名字也是ru，mea用他名字接龙了。
+

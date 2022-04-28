@@ -6621,3 +6621,19 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 二哥这两套新皮里还真有一套是黑黑皮<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12620#       发表于 2022-4-28 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55622682&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-4-28 20:19</a>
+
+黑客老姐最近在推sonny吗，我在某串了解到了一些sonnyverse 的挖掘机 doxx ARG，包括brisko、frog、kuzko ...</blockquote>
+也没有在推，就是买音声然后刷刷切片，他多账号rp的事还是看en厕了解的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过我也觉得挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+en厕好像是在一个[https://nyfco.org/category/vtuber/](https://bbs.saraba1st.com/2b/整理中之人的网站)上讨论和追新挖的消息，我自己没有仔细看过，你没看过的话可以去瞅瞅有没有新东西
+
