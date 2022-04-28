@@ -18041,3 +18041,79 @@ md傻逼万代你赶nm呢，cast也没公布，人也没见着，周边先上了
 
 说句跑题的，爬了几页就感觉步女士不是立德真是太好了，想夹就夹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7359#       发表于 2022-4-28 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620447&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-4-28 17:33</a>
+按理来说不是应该先出个动画番外篇之类的吗，至少先出个场，现在这种连面都没见到就卖东西真的会有人买吗 ...</blockquote>
+日升早就是连轴转做虹2和星2了，连星pv2都没空做。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 7360#       发表于 2022-4-28 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620602&amp;ptid=2036367" target="_blank">car123 发表于 2022-4-28 17:45</a>
+说句跑题的，爬了几页就感觉步女士不是立德真是太好了，想夹就夹</blockquote>
+步女士是立德啊，只不过动画的时候她作为立德的部分会分裂成侑这个半身。四格游戏啥的，她就回收回来成为完美dd。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  li463900160  
+##### 7361#       发表于 2022-4-28 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619444&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 16:24</a>
+
+醒醒，觉得星这个企划不挣钱正确的做法应该是放养或者冷藏在另起炉灶，而不是继续往里面砸人砸钱砸资源。 ...</blockquote>
+没说不挣钱，拉拉的整个企划都是挣钱的，摇钱树好么，要不然资本挤破头都想过来掺一脚？
+
+只不过有的挣得多有的挣得少，有的挣的没有到自己的预期而已
+
+*****
+
+####  ykyin09  
+##### 7362#       发表于 2022-4-28 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">现在不敢看之前那几期外景了，尤其是bbq来自: iPhone客户端
+
+*****
+
+####  离心  
+##### 7363#       发表于 2022-4-28 18:00
+
+<blockquote>car123 发表于 2022-4-28 17:45
+说句跑题的，爬了几页就感觉步女士不是立德真是太好了，想夹就夹</blockquote>
+步梦不是立德，但大西是啊。她在岚米入队的生放时的发言，让我真的很感动。其他成员也一直在讲大西已经是成熟的立德了
+
+<img src="https://img.saraba1st.com/forum/202204/28/175734if8vfav62ayyi6gw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220428_175413.jpg</strong> (645.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 17:57 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/175738pfzv3tfc3pcdex3m.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220428_175437.jpg</strong> (660.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 17:57 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/175744neoggx4uuxo6xoq7.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220428_175446.jpg</strong> (677.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 17:57 上传
+

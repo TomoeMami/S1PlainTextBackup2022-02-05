@@ -6401,3 +6401,14 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 
 我认为甚至也不是合同工，liver是客户。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12598#       发表于 2022-4-28 17:58
+
+看起来很难查，不过从谷歌收到的钱倒是写得明明白白
+
+另外这账目里event终止损失1.6e<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

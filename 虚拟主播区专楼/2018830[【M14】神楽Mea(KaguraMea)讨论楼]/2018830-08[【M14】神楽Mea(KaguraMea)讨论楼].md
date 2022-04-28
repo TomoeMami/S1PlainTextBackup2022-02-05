@@ -646,3 +646,21 @@ holo star的男v
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10558#       发表于 2022-4-28 17:57
+
+无妨，她现在都已经不办多少万粉纪念了。这种买假粉尴尬就尴尬在多少万纪念后跌了。不理的话过段时间就被叔叔打掉了
+
+*****
+
+####  往世雷书  
+##### 10559#       发表于 2022-4-28 17:59
+
+谁给她买的，真闲的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
