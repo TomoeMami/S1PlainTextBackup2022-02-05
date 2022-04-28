@@ -18657,3 +18657,16 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  catenarygong  
+##### 7413#       发表于 2022-4-28 23:09
+
+搞不好还有第三季呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就第一季这个水平，九个人怕是来个年番都不够写
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
