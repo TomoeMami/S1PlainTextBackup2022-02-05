@@ -18602,3 +18602,23 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  catenarygong  
+##### 7408#       发表于 2022-4-28 22:33
+
+没太想通，为啥半截唐突加人
+
+和虹团那种又不太一样
+
+— from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  优妮可  
+##### 7409#       发表于 2022-4-28 22:39
+
+虹有游戏缓冲的，星这个动画杂志都没有暗示，唐突就出来了
+
