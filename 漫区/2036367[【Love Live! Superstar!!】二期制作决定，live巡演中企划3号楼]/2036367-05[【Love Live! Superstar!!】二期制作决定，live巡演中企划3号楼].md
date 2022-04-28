@@ -19010,3 +19010,12 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 历代撕逼也都是粉丝自我感动自以为是罢了，替声优苦大仇深还是算了吧。
 
+
+
+*****
+
+####  ViyViy  
+##### 7442#       发表于 2022-4-29 06:27
+
+三月那个采访就nagi鲤pay说的能推两点（前提是她们真看过且说的是实话）：恋会找补；可可有难处的时候是堇主导解决的
+
