@@ -17562,3 +17562,54 @@ CelticWhite老师破防之际还是出了新图
 CelticWhite老师破防之际还是出了新图</blockquote>
 估计都是画好了，然后被背刺。
 
+
+
+*****
+
+####  仟音一心  
+##### 7314#       发表于 2022-4-28 16:00
+
+声优盾＋1
+
+FBB7FF22-7F7F-4098-B580-31E896763A83.jpeg
+(99.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-28 16:00 上传
+
+<img src="https://img.saraba1st.com/forum/202204/28/160044nlllolmoqjq50une.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7315#       发表于 2022-4-28 16:01
+
+所以说，cv们到底什么时候知道的。我可以接受偶像是贩卖梦想，也可以接受高价赎罪卷，但是这个傻逼企划骗人藏东西，那还说个毛，真诚呢，诚信呢。
+
+*****
+
+####  寒风夜  
+##### 7316#       发表于 2022-4-28 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619141&amp;ptid=2036367" target="_blank">AeonsTorn 发表于 2022-4-28 15:59</a>
+
+我觉得可行</blockquote>
+涩谷大街是吧
+
+*****
+
+####  仟音一心  
+##### 7317#       发表于 2022-4-28 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55619166&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-28 16:01</a>
+所以说，cv们到底什么时候知道的。我可以接受偶像是贩卖梦想，也可以接受高价赎罪卷，但是这个傻逼企划骗人 ...</blockquote>
+无论什么时候知道，都只有现在才能说。本质上，成员是最没有自主权的。
+
+*****
+
+####  cybernetics31  
+##### 7318#       发表于 2022-4-28 16:07
+
+成员没办法的，真喜欢还是多支持她们的个人活动吧。
+
