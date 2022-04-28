@@ -16883,3 +16883,50 @@ FMT就开始带新人…………………………………………………�
 
 这种日期我以前就说过，应该是运营内部蛙人搞的鬼，你真叫鬼子搞这种他们还想不起来，但是蛙人是最喜欢暗戳戳搞的
 
+
+
+*****
+
+####  1096beam  
+##### 7251#       发表于 2022-4-28 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616931&amp;ptid=2036367" target="_blank">we89623 发表于 2022-4-28 13:01</a>
+
+我发现之前正常讨论没有你们，这事把你们炸出来了，有何目的有何居心？ ...</blockquote>
+一号楼我还是在的，动画结束我对三次元又没兴趣而已
+
+*****
+
+####  三杉酸宁碱  
+##### 7252#       发表于 2022-4-28 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616901&amp;ptid=2036367" target="_blank">adw667 发表于 2022-4-28 12:58</a>
+我寻思为了洗这个你连整个企划的知名度都要否定了可还行</blockquote>
+ll企划知名度有高到能脱敏的程度？你就硬拿这个说事
+
+*****
+
+####  三杉酸宁碱  
+##### 7253#       发表于 2022-4-28 13:09
+
+一张图送给小粉红<img src="https://p.sda1.dev/5/4a8359ee8a0b1c74ac8cc5ddf20ddea4/CMP_20220428130857709.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| we89623|-2|正常说话|
+
+查看全部评分
+
+*****
+
+####  Cryogenian  
+##### 7254#       发表于 2022-4-28 13:10
+
+数字狩小鬼差不多得了，真不知道自己有多惹人厌
+

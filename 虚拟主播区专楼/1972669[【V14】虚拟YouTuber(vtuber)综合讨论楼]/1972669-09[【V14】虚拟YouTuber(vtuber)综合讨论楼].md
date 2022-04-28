@@ -5854,3 +5854,27 @@ vspo啥时候才能被授权可以直播<img src="https://static.saraba1st.com/i
 
 KR都死了
 
+
+
+*****
+
+####  ヒトニナル  
+##### 12542#       发表于 2022-4-28 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你虹又整活，牛逼
+
+*****
+
+####  IDIDIDID  
+##### 12543#       发表于 2022-4-28 13:09
+
+<blockquote>2022年4月より誕生日グッズ&amp;ボイスの展開を開始したNIJISANJI EN所属ライバーについては、グッズラインナップの変更はございません。</blockquote>
+你虹运营真的嗯！cover运营膝盖刚度不如彩虹一根。
+
+*****
+
+####  fastary  
+##### 12544#       发表于 2022-4-28 13:11
+
+shu有跟教授联动过，yugo日本人，sonny在日本生活过日语应该是交流水准，uki好像日语也还可以，剩下的除了fu和vox完全不懂都是二次元看多了会那么两句这样吧。我看vox和alban还直播过多邻国学日语，会不会日语不重要，单纯是因为不跟jp联动单纯是没兴趣一起玩又没血吸呗。
+

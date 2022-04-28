@@ -13834,3 +13834,35 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">抽“唇”印吧
 
+
+
+*****
+
+####  IDIDIDID  
+##### 5959#       发表于 2022-4-28 13:04
+
+ 本帖最后由 IDIDIDID 于 2022-4-28 13:07 编辑 
+
+我不信有脑子的人看不出文静满嘴谎话，关键是活好就行。现在被对线就装死还是活不行。
+
+我更关心co宝润了这件事到底为什么要装死。
+
+*****
+
+####  灰色的狐狸  
+##### 5960#       发表于 2022-4-28 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55616970&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-4-28 13:04</a>
+
+我不信有脑子的人看不出文静满嘴谎话，关键是活好就行。现在被对线就装死还是活不行。
+
+我更关心co宝润了这 ...</blockquote>
+问问运营？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 5961#       发表于 2022-4-28 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能coco真的被文静她们三个恰了吧
+
