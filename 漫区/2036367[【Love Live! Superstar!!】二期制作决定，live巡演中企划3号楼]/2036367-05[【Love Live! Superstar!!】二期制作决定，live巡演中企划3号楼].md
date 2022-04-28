@@ -18283,3 +18283,46 @@ https://share.api.weibo.cn/share/301907007,4763294781671890.html?weibo_id=476329
 https://share.api.weibo.cn/share/301907007,4763294781671890.html?weibo_id=476329478 ...</blockquote>
 行吧，感谢打脸，就是字数差得有点多。
 
+
+
+*****
+
+####  car123  
+##### 7379#       发表于 2022-4-28 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620809&amp;ptid=2036367" target="_blank">离心 发表于 2022-4-28 18:00</a>
+
+步梦不是立德，但大西是啊。她在岚米入队的生放时的发言，让我真的很感动。其他成员也一直在讲大西已经是 ...</blockquote>
+的确很棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 7380#       发表于 2022-4-28 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621123&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 18:23</a>
+
+sayu新工作</blockquote>
+挺好
+
+
+
+*****
+
+####  寒风夜  
+##### 7381#       发表于 2022-4-28 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621123&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-4-28 18:23</a>
+
+sayu新工作</blockquote>
+挺好
+
+*****
+
+####  不能摸的屁屁  
+##### 7382#       发表于 2022-4-28 18:47
+
+醉了，刚下班就看到这个，服气<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=745b0c0b6b738bd4c421b2399189876c/d05677d9f2d3572cbf30ef0acf13632760d0c39a.jpg?tbpicau=2022-04-30-05_cc5a8a7dd94807ad8528ab772ef46c21" id="aimg_kttc3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

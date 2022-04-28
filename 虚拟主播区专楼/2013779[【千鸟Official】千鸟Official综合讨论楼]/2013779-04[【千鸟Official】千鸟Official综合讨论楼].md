@@ -14035,3 +14035,14 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 —— 来自 S1Fun</blockquote>
 有没有可能珺子就只有n8水平
 
+
+
+*****
+
+####  夜潇箫  
+##### 5978#       发表于 2022-4-28 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620495&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2022-4-28 17:38</a>
+大思的王阳明梗真是在珺圣/文静的衬托下熠熠生辉了，不亏是1t4之女，熟读心学知行合一的女人 ...</blockquote>
+王阳明是什么梗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
