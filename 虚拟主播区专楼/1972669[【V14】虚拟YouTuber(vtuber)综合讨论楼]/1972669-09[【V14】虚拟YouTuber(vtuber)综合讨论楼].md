@@ -5836,3 +5836,21 @@ vspo啥时候才能被授权可以直播<img src="https://static.saraba1st.com/i
 
 因为日本人的平均英语水平令人扼腕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 12540#       发表于 2022-4-28 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">EN不能学日语吗，一点都不尊重本社，看看人家KR
+
+
+
+*****
+
+####  IDIDIDID  
+##### 12541#       发表于 2022-4-28 11:38
+
+KR都死了
+

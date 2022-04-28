@@ -16500,3 +16500,50 @@ FMT就开始带新人…………………………………………………�
 
 草，8月13这个着实恶心，日本人到底想干嘛？倒时候角色生日的时候鲤鱼要怎么搞？表态还是不表态？
 
+
+
+*****
+
+####  寒风夜  
+##### 7209#       发表于 2022-4-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55615609&amp;ptid=2036367" target="_blank">qty 发表于 2022-4-28 11:23</a>
+
+草，8月13这个着实恶心，日本人到底想干嘛？倒时候角色生日的时候鲤鱼要怎么搞？表态还是不表态？ ...</blockquote>
+813我不查还真不知道什么日子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 7210#       发表于 2022-4-28 11:36
+
+唐突的批爆
+
+*****
+
+####  qty  
+##### 7211#       发表于 2022-4-28 11:36
+
+<blockquote>寒风夜 发表于 2022-4-28 11:33
+813我不查还真不知道什么日子</blockquote>
+日本人真是爱搞这些暗搓搓的小动作，之前索尼也搞过类似的烂活
+
+*****
+
+####  cybernetics31  
+##### 7212#       发表于 2022-4-28 11:37
+
+相信鱼，再说了，一个后辈角色生日罢了，不表态也没啥。
+
+*****
+
+####  飞天意面怪  
+##### 7213#       发表于 2022-4-28 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55615755&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-4-28 11:33</a>
+
+813我不查还真不知道什么日子</blockquote>
+813日寇在上海打了仗，江南国土遭沦亡——沙家浜选段
+
+这个应该挺有名的吧……
+
