@@ -594,3 +594,27 @@ boss战感觉确实可以称为对只狼拙劣的模仿了，如果你是高玩�
 
 我在nga发过统计帖，环里的怪物不算换皮（就是所有换皮飞龙只算一种这种算法）就有230多种了，这个数量还是让人觉得重复度高说明放怪确实不够讲究
 
+
+
+*****
+
+####  白银の心  
+##### 63#       发表于 2022-4-28 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55614906&amp;ptid=2066764" target="_blank">jf8350143 发表于 2022-04-28 10:37:05</a>
+不是说环的boss少，而是没有必要。
+
+雪山矿坑你随便换个别的boss不行么，为啥就非得放个黑暗繁星呢，另外 ...</blockquote>其实可以放两个白色弱化版艾斯提，给一部分弃子的招式，但估计开发时间不足
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  415452356  
+##### 64#       发表于 2022-4-28 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55622906&amp;ptid=2066764" target="_blank">spec 发表于 2022-4-28 20:33</a>
+
+我在nga发过统计帖，环里的怪物不算换皮（就是所有换皮飞龙只算一种这种算法）就有230多种了，这个数量还是 ...</blockquote>
+  说白了还是因为玩家不需要根据不同敌人转换战斗策略，按实际游戏性挂钩这点来看最多勉强20个
+

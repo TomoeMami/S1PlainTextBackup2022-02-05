@@ -18435,3 +18435,18 @@ pay盾尚未
 
 <img src="https://img.saraba1st.com/forum/202204/28/193339lriqe002222a2o99.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7393#       发表于 2022-4-28 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55621885&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-4-28 19:24</a>
+说了我才发现，现在音乐课现在是不是只存在于设定里了？和第一季前半部分内容制造矛盾冲突 ...</blockquote>
+花田氏工具设定是这样的，需要就用，不需要就不存在。
+
+说到底这次加人，我就是不信任京极花田，我现在就等着7月笑话。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

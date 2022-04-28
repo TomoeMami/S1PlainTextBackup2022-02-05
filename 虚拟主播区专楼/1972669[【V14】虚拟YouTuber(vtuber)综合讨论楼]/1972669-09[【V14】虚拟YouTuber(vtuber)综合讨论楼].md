@@ -6605,3 +6605,19 @@ yqqx只要想随时能和黑黑杏爱三排，这份权力折现一亿日元不�
 饭屋只有黑客最拉胯甚至根本没有赚钱的意思，怪不得有rfm和rd之后再也没见过饭屋谷(貌似) ...</blockquote>
 黑客老姐最近在推sonny吗，我在某串了解到了一些sonnyverse 的挖掘机 doxx ARG，包括brisko、frog、kuzkots、negi/bobu4u、bugchewer、sketchek，太巨魔了，感觉非常有趣（他的PL甚至在其中一个账号rp了ESL的日本人），请问除了nyfco整理的这些相关讨论[https://www.protectedtext.com/vsffromthepast](https://www.protectedtext.com/vsffromthepast)（321vsffromthepast.），在哪里能看到更多信息吗<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12618#       发表于 2022-4-28 20:58
+
+一个六年前在自己的ARG环节诈死三年的人，再加上斗士nina，我宣布nijien的质秒杀本社
+
+*****
+
+####  ヒトニナル  
+##### 12619#       发表于 2022-4-28 21:02
+
+二哥这两套新皮里还真有一套是黑黑皮<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
