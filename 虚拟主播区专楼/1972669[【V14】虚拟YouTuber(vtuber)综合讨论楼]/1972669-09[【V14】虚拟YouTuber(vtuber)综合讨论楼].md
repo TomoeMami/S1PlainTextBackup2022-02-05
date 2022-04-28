@@ -5968,3 +5968,28 @@ yhm真的逊啊，活该jp待遇被en踩在头上，enkr这傻逼运营2022了�
  然而yhm就是没出息还在说cn又暴动了，en还一轮没出呢前辈出过几轮了改也可以吧。真的逆来顺受，关注的yhm全 ...</blockquote>
 应该是因为哈哥发推说他不知道谷子改了三天前发图给他的时候他只看了插图没注意谷子，然后运营觉得图上明明有新谷子他发推意思在甩锅（？）吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推下面都说运营没告诉所属管人改谷子的事，其实只是哈哥没细看（不过看不看又不能怎么样就是了，这事管人也没决定权）
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 12555#       发表于 2022-4-28 15:06
+
+你虹周边部怕不是要开始独走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最赚钱的部门心有异心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 12556#       发表于 2022-4-28 15:08
+
+田角关于上市发推了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 12557#       发表于 2022-4-28 15:11
+
+谷子生产订单已经下了的话应该一时半会儿改不了吧，这场戏的走向还得看5月后续其他人的货如何<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
