@@ -16184,3 +16184,26 @@ Liella两季动画之间间隔史上最短，再考虑一下动画的制作周�
 <img src="https://p.sda1.dev/5/ad25aec28841b48f7fd3fe979dfe46fc/CMP_20220428091501182.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">图转群
 
+
+
+*****
+
+####  ViyViy  
+##### 7177#       发表于 2022-4-28 09:20
+
+这个新黄毛，本就在和可可可能有理念冲突的设定上生日是813？真的很难不多想。
+
+*****
+
+####  iuhehc  
+##### 7178#       发表于 2022-4-28 09:22
+
+官推出消息了，nako和小百合已经转了
+
+*****
+
+####  L-JoeW  
+##### 7179#       发表于 2022-4-28 09:27
+
+这人数一下翻倍了啊，怎么想的，五人都写不好还想写九人
+
