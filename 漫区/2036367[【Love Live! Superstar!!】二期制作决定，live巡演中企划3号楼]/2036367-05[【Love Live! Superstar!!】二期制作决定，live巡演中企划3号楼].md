@@ -18739,3 +18739,31 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 — from OnePlus NE2210, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7420#       发表于 2022-4-28 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是肯定在做了 难道5个月做12集吗
+
+*****
+
+####  Skyline_R  
+##### 7421#       发表于 2022-4-28 23:40
+
+本来想着今儿能不能放平心态尝试着去接受一下（毕竟你拉的乐色运营已经品鉴得够多了），感觉红蓝CP有点好嗑，蓝毛阴角＋直球想象中会很有意思；但是想到第二季马上要播，两位得被花田大老师“塑造一遍”，还有以前水二期CP配平的骚操作，又感觉膈应<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+只能说加人这档事真的是四处不讨巧吧；趁动画没播，她俩还没"被塑造"，赶紧嗑两个月先；<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在反应过来的还是核心粉丝居多，大的骂战搞不好还在后面呢（还有夏美这个不改拜金设定巨容易爆的大雷）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要真出第三季，最理想的情况，跟765/虹那样先把个人回规规整整地全过掉，再整那点儿王道俗气的主线
+
+但不太可能，拉扯、入团、注水过渡回大概是少不掉的，还有SunnyPa的那点对手戏，但愿新老交替地补完吧；留点人到第三季，跟第三季加可能的新人一块儿凑也还行。这可能是比较理想的解法了。
+
+但经验主义地说，就一期京极花田他们那个胡搞摆烂，只能讲是不比水二期烂就算赢。
+
+而如果哪怕有三期，二期新4人都过完了，老5人还有缺的甚至一个没动的话，那就史诗级烂活儿，坐等炎上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
