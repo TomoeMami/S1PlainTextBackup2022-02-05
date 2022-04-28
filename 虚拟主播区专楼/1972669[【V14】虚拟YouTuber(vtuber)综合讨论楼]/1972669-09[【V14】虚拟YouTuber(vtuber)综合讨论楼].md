@@ -5896,3 +5896,28 @@ shu有跟教授联动过，yugo日本人，sonny在日本生活过日语应该�
 
 这yhm不给他enkr冲滑跪了我宣布从此彩虹社更名ENkr
 
+
+
+*****
+
+####  Suny08  
+##### 12547#       发表于 2022-4-28 14:03
+
+就该这样，谁声音大谁说话，en现在最牛逼那en现在做什么都是对的，好日子还在后面呢
+
+*****
+
+####  真飞鸟i  
+##### 12548#       发表于 2022-4-28 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹官推下面中文好多。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lor  
+##### 12549#       发表于 2022-4-28 14:09
+
+然而yhm就是没出息还在说cn又暴动了，en还一轮没出呢前辈出过几轮了改也可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">也就这次是营业拿哈哥开刀，换king不和cn一样冲死
+
