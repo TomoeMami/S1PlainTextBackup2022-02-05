@@ -1113,3 +1113,15 @@ mea联动时间有点紧张了。
 是不是之后有和舞元的麻将联动？？</blockquote>
 是 用辉夜角色打牌
 
+
+
+*****
+
+####  我单推副会长  
+##### 10601#       发表于 2022-4-29 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55638769&amp;ptid=2018830" target="_blank">ashero 发表于 2022-4-29 23:01</a>
+
+是 用辉夜角色打牌</blockquote>
+在苔苔那边看到了，5月7号，现在三个加上舞元打雀魂。
+
