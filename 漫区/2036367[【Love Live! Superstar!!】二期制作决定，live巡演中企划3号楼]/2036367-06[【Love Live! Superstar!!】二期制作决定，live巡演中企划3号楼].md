@@ -130,3 +130,15 @@
 上周五看了他聊，就动画方面。他最喜欢的是缪，但觉得虹团最好看，人设方面喜欢缪的人设，比较有特点。水动 ...</blockquote>
 这评价感觉差不多是年一拉路人观众用户画像了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小阪千寻  
+##### 7515#       发表于 2022-4-29 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55637840&amp;ptid=2036367" target="_blank">平稳落地 发表于 2022-04-29 21:31:47</a>
+有数字梗的也不止是孔明呢</blockquote>好像去年上海夏日祭就是那天，应该不算敏感吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
