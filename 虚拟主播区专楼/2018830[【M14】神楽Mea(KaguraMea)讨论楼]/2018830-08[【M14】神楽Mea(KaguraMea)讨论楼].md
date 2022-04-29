@@ -979,3 +979,12 @@ mea这次直播用的毛衣，新的联动fanart应该有的。
 
 毕竟是b站的企划，那名字不是想改就改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  やト  
+##### 10589#       发表于 2022-4-29 18:55
+
+感觉到期后也要长期当义务宣传员？
+
