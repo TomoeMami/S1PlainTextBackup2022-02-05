@@ -19321,3 +19321,25 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 企划制作人是若林悠纪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">制作人的话语权 高于 企划制作人吧？
 
+
+
+*****
+
+####  寒风夜  
+##### 7470#       发表于 2022-4-29 16:13
+
+ 本帖最后由 寒风夜 于 2022-4-29 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55633952&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-4-29 15:55</a>
+
+企划制作人是若林悠纪</blockquote>
+那人纯瞎扯啊，若林是日升企划部门的，只负责做动画 而田中是升职了他说成下放
+
+
+
+*****
+
+####  lanslort  
+##### 7471#       发表于 2022-4-29 16:15
+
+虽然我是缪缪人水黑，但水团公布和FL的时候我是很支持的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
