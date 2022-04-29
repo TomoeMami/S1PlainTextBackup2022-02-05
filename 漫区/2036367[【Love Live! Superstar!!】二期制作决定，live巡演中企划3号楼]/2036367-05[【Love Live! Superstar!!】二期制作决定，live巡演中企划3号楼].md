@@ -19121,3 +19121,28 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
  ...</blockquote>
 挺蓝的啦！
 
+
+
+*****
+
+####  仟音一心  
+##### 7452#       发表于 2022-4-29 12:43
+
+ 本帖最后由 仟音一心 于 2022-4-29 12:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55631307&amp;ptid=2036367" target="_blank">musicat 发表于 2022-4-29 12:26</a>
+
+你说当年水团公布的时候，根本没有这样的恶心感啊，水团说到底是一种继承，也就是我上楼说的“友团后辈团” ...</blockquote>
+
+那个……缪水大战当年好歹算是经历过（没入坑），炎上程度之高以及官方吃相之难看，现在是完全不能与之相提并论的。
+
+现在这个加人操作本身是比当年还要生硬，但要说没有恶心感那就是岁月史书了。
+
+*****
+
+####  Cryogenian  
+##### 7453#       发表于 2022-4-29 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55631307&amp;ptid=2036367" target="_blank">musicat 发表于 2022-4-29 12:26</a>
+
+你说当年水团公布的时候，根本没有这样的恶心感啊，水团说到底是一种继承，也就是我上楼说的“友团后辈团” ...</blockquote><blockquote>你说当年水团公布的时候，根本没有这样的恶心感啊</blockquote>啊？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
