@@ -19146,3 +19146,32 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 你说当年水团公布的时候，根本没有这样的恶心感啊，水团说到底是一种继承，也就是我上楼说的“友团后辈团” ...</blockquote><blockquote>你说当年水团公布的时候，根本没有这样的恶心感啊</blockquote>啊？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  musicat  
+##### 7454#       发表于 2022-4-29 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55631638&amp;ptid=2036367" target="_blank">Cryogenian 发表于 2022-4-29 12:46</a>
+
+啊？</blockquote>
+水团公布的时候，个人是开开心心的接受。
+
+因为知道LL这个企划一开始的声优兼职的μ‘s，经历过一些事情之后，在如日中天的时候结束是有其中一些大人的原因的。
+
+然后是LL企划做大了，必然会让延续下去，推出的新团，就算我前面口中说的继承。
+
+加上一直觉得μ‘s并不会完全的消失，周年活动之类的，作为前辈的方式回归。
+
+当然我非常理解，核心粉那种被摘了果实的恶心感，
+
+但是现在这种硬生生的插入4人的方式，是不管如何接受不了。
+
+*****
+
+####  Cryogenian  
+##### 7455#       发表于 2022-4-29 12:56
+
+给萌新朋友的介绍：缪斯官宣final lovelive的时间点是2015年12月5日，并且生放送全程不提水团，水团宣布动画化的时间点是2016年1月11日，而生放送也同样全程不提缪斯。这前后脚的组合拳砸下去的第二天lovelive贴吧是个什么疯批样，如果你没经历过也不妨自行想象<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
