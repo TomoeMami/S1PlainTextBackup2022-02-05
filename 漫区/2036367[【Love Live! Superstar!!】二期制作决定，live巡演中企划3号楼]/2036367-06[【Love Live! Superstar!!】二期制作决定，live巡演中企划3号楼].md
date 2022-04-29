@@ -118,3 +118,15 @@
 
 上周五看了他聊，就动画方面。他最喜欢的是缪，但觉得虹团最好看，人设方面喜欢缪的人设，比较有特点。水动画不太行，虹团动画爆鲨星团。没记错大概是这样，这符合路人粉丝动画方面评价嘛？他不关注三次元，但星团有鲤鱼可能会关注一点。
 
+
+
+*****
+
+####  D麦林  
+##### 7514#       发表于 2022-4-29 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55638960&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-4-29 23:21</a>
+
+上周五看了他聊，就动画方面。他最喜欢的是缪，但觉得虹团最好看，人设方面喜欢缪的人设，比较有特点。水动 ...</blockquote>
+这评价感觉差不多是年一拉路人观众用户画像了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
