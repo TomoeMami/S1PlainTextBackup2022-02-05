@@ -8892,3 +8892,15 @@ fgo实装孙渣了？
 误会了 好久没new过了  上个new还是去年11月的事情</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新根本不缺这个NEW
 
+
+
+*****
+
+####  alucardcz  
+##### 87772#       发表于 2022-4-29 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55635454&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-29 18:01</a>
+
+萌新根本不缺这个NEW</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">误会了 new当然越多越好
+
