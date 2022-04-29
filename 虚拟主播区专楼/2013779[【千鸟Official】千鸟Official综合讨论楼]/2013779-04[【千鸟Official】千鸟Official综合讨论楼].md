@@ -14236,3 +14236,14 @@ cj这不就是打太极，你问他资源去哪了，我不造啊
 
 如果文静就此毕业了，白子能不能改用本音直播啊
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 5995#       发表于 2022-4-29 19:11
+
+还不播，难绷。这吊样cj再写个小作文说文静是男的都行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
