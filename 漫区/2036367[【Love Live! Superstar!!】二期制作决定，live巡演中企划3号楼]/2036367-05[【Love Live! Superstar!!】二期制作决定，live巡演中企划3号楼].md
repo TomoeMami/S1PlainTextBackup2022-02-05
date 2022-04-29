@@ -19355,3 +19355,23 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 制作人的话语权 高于 企划制作人吧？</blockquote>
 执行p&gt;企划p&gt;p
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7473#       发表于 2022-4-29 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55633820&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-4-29 15:43</a>
+应该说，甚至都开了个1st，毫无遗憾了吧，本来LL就是极度依赖动画来展开活动的，圣雪不但捞到张专 ...</blockquote>
+毕业？是说结婚的事吗？
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 7474#       发表于 2022-4-29 16:39
+
+雪团现场够hi，中之人给力，发展的好太正常了。
+
