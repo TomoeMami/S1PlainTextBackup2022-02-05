@@ -970,3 +970,12 @@ mea这次直播用的毛衣，新的联动fanart应该有的。
 
 企划所属，b站怎么连id后缀都给改了
 
+
+
+*****
+
+####  路人庚  
+##### 10588#       发表于 2022-4-29 18:39
+
+毕竟是b站的企划，那名字不是想改就改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
