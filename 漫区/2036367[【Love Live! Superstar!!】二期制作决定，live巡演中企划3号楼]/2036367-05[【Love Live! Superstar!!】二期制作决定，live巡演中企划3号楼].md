@@ -19246,3 +19246,45 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 知乎上有看到了若林悠纪团队路线问题…………但说实话这企划的运营真的就是这样了………………
 
+
+
+*****
+
+####  星降る森  
+##### 7464#       发表于 2022-4-29 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55627971&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-4-29 08:01</a>
+
+今早听歌突然想起来，圣之雪开1st就没什么活动了
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 7465#       发表于 2022-4-29 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55633585&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-4-29 15:23</a>
+
+知乎上有看到了若林悠纪团队路线问题…………但说实话这企划的运营真的就是这样了……………… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不是大塚大的路线？记得原来水团时候制作人是平山理志 水团剧场结束后...制作人位置就又大塚大接任了 然后虹裂的动画化就开始了
+
+*****
+
+####  星降る森  
+##### 7466#       发表于 2022-4-29 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55631307&amp;ptid=2036367" target="_blank">musicat 发表于 2022-4-29 12:26</a>
+
+你说当年水团公布的时候，根本没有这样的恶心感啊，水团说到底是一种继承，也就是我上楼说的“友团后辈团” ...</blockquote>
+缪水对于某些粉丝的感受的是卸磨杀驴，刚上过红白巅峰毕业，赶鸭子上架推后一个团。属于操作上可以理解但很难接受的问题。
+
+你要说有没有恶心到人那是因人而异。
+
+回过头来说这废话，虽然星二期加人从我来看是个极度傻逼的操作，但对某些人也是因人而异。
+
+共通点都是感情越深伤的越深，不同点是粉丝基础还有点区别。
+
+当年纯靠数量都是可以压死人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
