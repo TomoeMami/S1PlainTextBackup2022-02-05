@@ -142,3 +142,14 @@
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 7516#       发表于 2022-4-30 01:20
+
+你们和那摆明了进来引战挑事的讨论个毛线啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
