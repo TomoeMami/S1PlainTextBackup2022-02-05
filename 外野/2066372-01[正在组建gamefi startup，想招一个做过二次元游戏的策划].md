@@ -941,3 +941,17 @@ gamefi可是基本啥都没有 ...</blockquote>
 如果真是这种，那gamefi还反而有搞头了</blockquote>
 啊，这不就xx私服那种，买vip就是相当于基础门槛，也太low了吧
 
+
+
+*****
+
+####  chotong  
+##### 98#         楼主| 发表于 2022-4-30 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620870&amp;ptid=2066372" target="_blank">月珊瑚与紫鸢尾 发表于 2022-4-28 18:05</a>
+
+啊，这不就xx私服那种，买vip就是相当于基础门槛，也太low了吧</blockquote>
+赚钱就行，婆罗门都没钱赚。
+
+做生意才发现核心玩家真是屎中屎，钱少事多，我做东西肯定离核心用户远远的。
+
