@@ -19288,3 +19288,36 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 当年纯靠数量都是可以压死人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 7467#       发表于 2022-4-29 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55633825&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-4-29 15:44</a>
+不是大塚大的路线？记得原来水团时候制作人是平山理志 水团剧场结束后...制作人位置就又大塚大接 ...</blockquote>
+企划制作人是若林悠纪
+
+*****
+
+####  星降る森  
+##### 7468#       发表于 2022-4-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625485&amp;ptid=2036367" target="_blank">catenarygong 发表于 2022-4-28 23:29</a>
+
+一期至少是人设公布了一年多才出动画
+
+二期这七月份就要上了来这出，怕不是动画都开始做了</blockquote>
+一期在人设出来前只有一个标题的时候就宣布动画化了，比涩谷街头的长图出来的还早，只是被疫情影响延期了很久，日升在水剧场版后一直没动作，本来都是猜那时候一直在做星动画，结果实际进度并没有那么快。
+
+*****
+
+####  梶原ひかり  
+##### 7469#       发表于 2022-4-29 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55633952&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-4-29 15:55</a>
+
+企划制作人是若林悠纪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">制作人的话语权 高于 企划制作人吧？
+
