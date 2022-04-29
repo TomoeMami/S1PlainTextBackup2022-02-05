@@ -8880,3 +8880,15 @@ fgo实装孙渣了？
 
 我是已经开始攒＃等周年和泳装了，手里护符零零碎碎丢进去都不听响儿……
 
+
+
+*****
+
+####  qixinno2  
+##### 87771#       发表于 2022-4-29 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55635299&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-29 17:47</a>
+
+误会了 好久没new过了  上个new还是去年11月的事情</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新根本不缺这个NEW
+
