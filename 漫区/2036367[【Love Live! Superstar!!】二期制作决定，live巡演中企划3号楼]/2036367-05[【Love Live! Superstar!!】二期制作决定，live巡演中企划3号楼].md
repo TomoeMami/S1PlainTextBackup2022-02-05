@@ -19343,3 +19343,15 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 虽然我是缪缪人水黑，但水团公布和FL的时候我是很支持的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  寒风夜  
+##### 7472#       发表于 2022-4-29 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634001&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-4-29 16:00</a>
+
+制作人的话语权 高于 企划制作人吧？</blockquote>
+执行p&gt;企划p&gt;p
+
