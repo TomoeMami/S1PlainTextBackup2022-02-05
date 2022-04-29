@@ -6740,3 +6740,18 @@ en厕好像是在一个[https://nyfco.org/category/vtuber/](https://bbs.saraba1s
 
 旅团这个ff瘾是真大……
 
+
+
+*****
+
+####  rzrbtk  
+##### 12631#       发表于 2022-4-29 21:13
+
+少女レイ ver.EMA 
+
+youtu.be/GYsCb0n-xjA 
+
+artwork：yohji (@yh020443)
+
+れい是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

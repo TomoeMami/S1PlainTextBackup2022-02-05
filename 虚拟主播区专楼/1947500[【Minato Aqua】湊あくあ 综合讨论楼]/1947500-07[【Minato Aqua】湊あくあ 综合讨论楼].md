@@ -1186,3 +1186,16 @@ Q：日々の活動のなかで大事にしている、"自分らしさ"は？
 
 ただ、いまとなっては"ゲーム配信とアイドル活動の両立"といった部分が自分のアイデンティティのひとつだと思っています。同時に、コミュ障キャラ的な部分も、"自分らしさ"として受け止めています」(湊あくあ)
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 9129#       发表于 2022-4-29 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55631910&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-4-29 13:05</a>
+[https://www.redbull.com/jp-ja/interview-minato-aqua](https://www.redbull.com/jp-ja/interview-minato-aqua)
+
+Q：日々の活動のなかで大事にしている、"自分らし ...</blockquote>
+洋葱的核心竞争力：44.5，傻笑，只狼RTA，派派单排大师。搞爱抖露活动其实才是泯然众人矣。
+
