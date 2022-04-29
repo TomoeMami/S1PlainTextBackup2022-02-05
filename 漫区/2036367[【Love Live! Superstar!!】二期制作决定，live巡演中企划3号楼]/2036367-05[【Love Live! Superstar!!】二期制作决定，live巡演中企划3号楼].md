@@ -19517,3 +19517,48 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 瓶子直播开冲了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7489#       发表于 2022-4-29 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55637049&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-4-29 20:27</a>
+瓶子直播开冲了</blockquote>
+这位就没看过多少拉拉吧，冲啥子
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  D麦林  
+##### 7490#       发表于 2022-4-29 20:35
+
+ 本帖最后由 D麦林 于 2022-4-29 20:38 编辑 
+
+瓶皇就别来蹭了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+就会开顺风团的能锐评出什么东西来
+
+*****
+
+####  cybernetics31  
+##### 7491#       发表于 2022-4-29 20:36
+
+ 本帖最后由 cybernetics31 于 2022-4-29 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55637156&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-4-29 20:35</a>
+
+这位就没看过多少拉拉吧，冲啥子
+
+—— 来自 Xiaomi 2106118C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画还是看过的，搁那说这几天的各种屁事呢
+
+*****
+
+####  nufawneafg  
+##### 7492#       发表于 2022-4-29 20:37
+
+一旦成为话题就别想独善其身了，大伙不都得来评两句
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
