@@ -6680,3 +6680,16 @@ en厕好像是在一个[https://nyfco.org/category/vtuber/](https://bbs.saraba1s
 确实立派apex主播了啊
 难道女粉也要复刻当年男粉经历过的女主播沉迷apex后痛不欲生的管人痴生活？
 
+
+
+*****
+
+####  fastary  
+##### 12625#       发表于 2022-4-29 13:03
+
+ 本帖最后由 fastary 于 2022-4-29 13:07 编辑 
+
+那倒没有，是跟成濑和suha一起参加了电竞学校搞的练习赛，娱乐性质所以死得比较早观战而已(x)
+
+他根本看不出来沉迷APEX啊，主要是最近日本持续低气压总是头疼所以没法直播(自称)，又刚好最协后首先的直播是APEX练习赛……现在不就在播我并列第一喜欢的独立游戏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
