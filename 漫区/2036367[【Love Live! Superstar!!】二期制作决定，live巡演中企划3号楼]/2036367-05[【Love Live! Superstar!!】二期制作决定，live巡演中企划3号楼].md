@@ -19225,3 +19225,15 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初被气到退坑的人肯定都不存在吧
 
+
+
+*****
+
+####  ads147147  
+##### 7462#       发表于 2022-4-29 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55631774&amp;ptid=2036367" target="_blank">Cryogenian 发表于 2022-4-29 12:56</a>
+
+给萌新朋友的介绍：缪斯官宣final lovelive的时间点是2015年12月5日，并且生放送全程不提水团，水团宣布动 ...</blockquote>
+缪fl后，文春放炮后，我就完全理解了为什么。从此闭嘴。
+

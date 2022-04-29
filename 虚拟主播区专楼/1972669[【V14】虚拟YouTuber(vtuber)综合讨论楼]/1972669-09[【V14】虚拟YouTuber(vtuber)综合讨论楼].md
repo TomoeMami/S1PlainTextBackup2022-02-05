@@ -6693,3 +6693,12 @@ en厕好像是在一个[https://nyfco.org/category/vtuber/](https://bbs.saraba1s
 
 他根本看不出来沉迷APEX啊，主要是最近日本持续低气压总是头疼所以没法直播(自称)，又刚好最协后首先的直播是APEX练习赛……现在不就在播我并列第一喜欢的独立游戏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 12626#       发表于 2022-4-29 13:51
+
+郡说要上雀豪才发新衣，那得多久…果然再给田角打三年工是真心话啊
+
