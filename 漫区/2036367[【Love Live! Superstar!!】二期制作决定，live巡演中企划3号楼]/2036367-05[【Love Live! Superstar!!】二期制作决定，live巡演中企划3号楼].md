@@ -19562,3 +19562,39 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 一旦成为话题就别想独善其身了，大伙不都得来评两句
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 7493#       发表于 2022-4-29 20:43
+
+阴阳瓶还能把星视为热度来蹭，你星实火啊
+不该这么想吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  JustW_2  
+##### 7494#       发表于 2022-4-29 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瓶子就是占据这个生态位的，很多人想喷一个东西，他就负责总结一个文案帮大家喷，也就是俗称的开顺风团，吃的就是这口饭
+
+*****
+
+####  JustW_2  
+##### 7495#       发表于 2022-4-29 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55636463&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-4-29 19:35</a>
+
+这事儿日本那边好像接受了啊，也就这样吧。</blockquote>
+日本见过的离谱操作那可太多了，V圈始皇帝那事可不是加人而是要直接换人，那也用了超长时间才让日本有点反应
+
+*****
+
+####  starring  
+##### 7496#       发表于 2022-4-29 20:51
+
+过了一天推上就有大量新角色的图，关注的那几个画师除了泥老师都释然了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
