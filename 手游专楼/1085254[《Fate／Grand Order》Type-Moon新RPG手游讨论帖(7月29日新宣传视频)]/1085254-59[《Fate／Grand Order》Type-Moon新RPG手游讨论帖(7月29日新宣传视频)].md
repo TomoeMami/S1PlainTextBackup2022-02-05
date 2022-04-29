@@ -8818,3 +8818,20 @@ fgo实装孙渣了？
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 87766#       发表于 2022-4-29 17:13
+
+<img src="https://img.saraba1st.com/forum/202204/29/171326yzxexx2cy1ic5715.png" referrerpolicy="no-referrer">
+
+<strong>555555555.png</strong> (248.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 17:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">单抽出奇迹 好起来了
+
