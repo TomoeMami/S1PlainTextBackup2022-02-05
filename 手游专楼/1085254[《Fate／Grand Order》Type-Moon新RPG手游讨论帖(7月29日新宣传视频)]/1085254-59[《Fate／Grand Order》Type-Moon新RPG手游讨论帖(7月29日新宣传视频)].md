@@ -8869,3 +8869,14 @@ fgo实装孙渣了？
 狗萌新又在豹跳了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">误会了 好久没new过了  上个new还是去年11月的事情
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 87770#       发表于 2022-4-29 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">不是单抽双黄，还有继续豹的可能性
+
+我是已经开始攒＃等周年和泳装了，手里护符零零碎碎丢进去都不听响儿……
+
