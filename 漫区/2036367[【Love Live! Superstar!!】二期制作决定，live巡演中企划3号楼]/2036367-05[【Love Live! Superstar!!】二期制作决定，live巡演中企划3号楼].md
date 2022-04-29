@@ -19216,3 +19216,12 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出，哪来这么多撕逼
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7461#       发表于 2022-4-29 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初被气到退坑的人肯定都不存在吧
+
