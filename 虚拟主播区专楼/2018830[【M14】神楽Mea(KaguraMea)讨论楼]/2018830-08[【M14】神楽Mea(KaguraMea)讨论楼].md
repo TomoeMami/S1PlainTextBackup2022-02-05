@@ -1005,3 +1005,56 @@ mea这次直播用的毛衣，新的联动fanart应该有的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我单推副会长  
+##### 10591#       发表于 2022-4-29 20:53
+
+mea这攻略型玩家
+
+*****
+
+####  やト  
+##### 10592#       发表于 2022-4-29 20:55
+
+ 本帖最后由 やト 于 2022-4-29 20:56 编辑 
+
+<img src="https://img.saraba1st.com/forum/202204/29/205458xqo6bwde9qa6xrar.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 20:54 上传
+
+这个立绘好微妙
+
+<img src="https://img.saraba1st.com/forum/202204/29/205622mjidoljofhzzgx7x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 20:56 上传
+
+立绘切错了？
+
+*****
+
+####  我单推副会长  
+##### 10593#       发表于 2022-4-29 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55637404&amp;ptid=2018830" target="_blank">やト 发表于 2022-4-29 20:55</a>
+
+这个立绘好微妙立绘切错了？</blockquote>
+刚才薄荷的绿屏图跑到左边了。
+
+*****
+
+####  gongge666  
+##### 10594#       发表于 2022-4-29 21:01
+
+感觉日本人的笑声和中国人的笑声区别还蛮大的，一眼就能看出谁是假yhm
+

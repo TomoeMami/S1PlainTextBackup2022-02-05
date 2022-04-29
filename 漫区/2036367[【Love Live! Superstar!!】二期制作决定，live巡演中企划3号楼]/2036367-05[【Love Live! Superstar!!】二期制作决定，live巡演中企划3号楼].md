@@ -19598,3 +19598,12 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 过了一天推上就有大量新角色的图，关注的那几个画师除了泥老师都释然了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 7497#       发表于 2022-4-29 20:59
+
+说实在这一波我最可惜的就泥老师
+
