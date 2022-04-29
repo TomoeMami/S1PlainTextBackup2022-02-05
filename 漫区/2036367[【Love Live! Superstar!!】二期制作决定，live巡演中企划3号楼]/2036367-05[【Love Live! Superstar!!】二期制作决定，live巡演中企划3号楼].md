@@ -19486,3 +19486,34 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 7486#       发表于 2022-4-29 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55636826&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-4-29 20:09</a>
+
+乐，对新人无感但是运营往死里骂，逆来顺受傻逼运营只会一步步打破底线，他不让我舒服那我也不让他舒服，[f ...</blockquote>
+开骂是伤害运营吗 我不觉得他们会被这骂几下就伤害到
+
+到处乌烟瘴气伤害粉丝倒是真的
+
+*****
+
+####  cybernetics31  
+##### 7487#       发表于 2022-4-29 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瓶子直播开冲了
+
+*****
+
+####  寒风夜  
+##### 7488#       发表于 2022-4-29 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55637049&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-4-29 20:27</a>
+
+瓶子直播开冲了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
