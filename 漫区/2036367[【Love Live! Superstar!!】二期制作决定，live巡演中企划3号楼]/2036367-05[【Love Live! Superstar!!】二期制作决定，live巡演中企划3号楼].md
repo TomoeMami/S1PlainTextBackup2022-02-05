@@ -19033,3 +19033,37 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 二期这七月份就要上了来这出，怕不是动画都开始做了</blockquote>
 何止现在都开始做了，按动画制作周期来说，第一季没播完的时候第二季这边的早期工作肯定就该展开了，现在可能前几集都做完了，后面每一集也在逐个走流程，花田大老师的第二季剧本估计也差不多了
 
+
+
+*****
+
+####  ads147147  
+##### 7444#       发表于 2022-4-29 07:58
+
+虹2期都是虹1快做完的时候就决定了，哪怕这样都拖了一年才公布说有2期，这才符合一个正常的创作流程，13人的剧本哪有那么好写。
+
+星从一开始就是分割放松的味道，估计从一开始京极和花田就知道要写9人乃至12人，绝不可能是高层临时起意的。
+
+阴暗的说，当年海选的时候就不存在所谓了因为nagi素质好所以破格和sayu一起保留的说法，而是本来就有大量的空位，nagi获得的是早期登场权罢了。甚至这个早期登场到底是不是好事，也得两说。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 7445#       发表于 2022-4-29 08:01
+
+今早听歌突然想起来，圣之雪开1st就没什么活动了
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adw667  
+##### 7446#       发表于 2022-4-29 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625775&amp;ptid=2036367" target="_blank">lanslort 发表于 2022-4-28 23:52</a>
+
+再拜金又不可能把她写出去援交，你一个学院偶像团体又不进行商业活动，拜金这种属性也只能停留在嘴 ...</blockquote>
+可惜圆光榜倒了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
