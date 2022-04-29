@@ -8835,3 +8835,15 @@ fgo实装孙渣了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">单抽出奇迹 好起来了
 
+
+
+*****
+
+####  qixinno2  
+##### 87767#       发表于 2022-4-29 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634903&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-29 17:13</a>
+
+单抽出奇迹 好起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新又在豹跳了
+

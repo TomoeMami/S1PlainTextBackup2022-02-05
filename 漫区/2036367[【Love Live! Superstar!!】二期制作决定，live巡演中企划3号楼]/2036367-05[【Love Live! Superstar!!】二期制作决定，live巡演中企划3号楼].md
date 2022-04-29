@@ -19418,3 +19418,16 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 三次元断联，二次元狂蹭，不把粉丝搞精神分裂不罢休</blockquote>
 当年还不如**方方
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7479#       发表于 2022-4-29 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634561&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-4-29 16:45</a>
+指动画里的设定啊，剧场版的时候理亚都组新团了，圣雪随着圣良毕业都解散了。这种情况下用资源去推一个动 ...</blockquote>
+草水剧场版除了歌其他的我都忘了
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
