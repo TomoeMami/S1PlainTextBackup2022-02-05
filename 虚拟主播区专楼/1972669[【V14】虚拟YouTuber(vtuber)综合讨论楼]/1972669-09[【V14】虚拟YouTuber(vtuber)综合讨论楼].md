@@ -6731,3 +6731,12 @@ en厕好像是在一个[https://nyfco.org/category/vtuber/](https://bbs.saraba1s
 
 葵噗是和好了么
 
+
+
+*****
+
+####  Kokichi  
+##### 12630#       发表于 2022-4-29 20:04
+
+旅团这个ff瘾是真大……
+
