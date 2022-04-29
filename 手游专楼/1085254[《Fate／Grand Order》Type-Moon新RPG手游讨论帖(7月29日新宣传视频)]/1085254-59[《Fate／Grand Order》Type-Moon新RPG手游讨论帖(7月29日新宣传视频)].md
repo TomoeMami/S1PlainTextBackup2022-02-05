@@ -8847,3 +8847,25 @@ fgo实装孙渣了？
 单抽出奇迹 好起来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗萌新又在豹跳了
 
+
+
+*****
+
+####  wyq5486  
+##### 87768#       发表于 2022-4-29 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634903&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-4-29 17:13</a>
+
+单抽出奇迹 好起来了</blockquote>
+刚沉船心情有点复杂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87769#       发表于 2022-4-29 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55635022&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-4-29 17:23</a>
+
+狗萌新又在豹跳了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">误会了 好久没new过了  上个new还是去年11月的事情
+
