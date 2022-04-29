@@ -19396,3 +19396,25 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞这些 骚操作是想再战10年么？真喜欢赌哦
 
+
+
+*****
+
+####  Cryogenian  
+##### 7477#       发表于 2022-4-29 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634171&amp;ptid=2036367" target="_blank">lanslort 发表于 2022-4-29 16:15</a>
+
+虽然我是缪缪人水黑，但水团公布和FL的时候我是很支持的  而且我是真不觉得让马上就要结束活动的缪 ...</blockquote>
+三次元断联，二次元狂蹭，不把粉丝搞精神分裂不罢休<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 7478#       发表于 2022-4-29 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634812&amp;ptid=2036367" target="_blank">Cryogenian 发表于 2022-4-29 17:06</a>
+
+三次元断联，二次元狂蹭，不把粉丝搞精神分裂不罢休</blockquote>
+当年还不如**方方
+
