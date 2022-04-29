@@ -19375,3 +19375,24 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 雪团现场够hi，中之人给力，发展的好太正常了。
 
+
+
+*****
+
+####  星降る森  
+##### 7475#       发表于 2022-4-29 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634442&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-4-29 16:35</a>
+
+毕业？是说结婚的事吗？
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+指动画里的设定啊，剧场版的时候理亚都组新团了，圣雪随着圣良毕业都解散了。这种情况下用资源去推一个动画里的非主角团怎么都没可能的
+
+*****
+
+####  寒风夜  
+##### 7476#       发表于 2022-4-29 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞这些 骚操作是想再战10年么？真喜欢赌哦
+

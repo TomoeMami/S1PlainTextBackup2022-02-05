@@ -927,3 +927,37 @@ mea这次直播用的毛衣，新的联动fanart应该有的。
 
 这怎么账号名字改了？？
 
+
+
+*****
+
+####  T_Hb  
+##### 10584#       发表于 2022-4-29 16:45
+
+推特油管没改阿
+
+*****
+
+####  我单推副会长  
+##### 10585#       发表于 2022-4-29 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55634564&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-4-29 16:45</a>
+
+推特油管没改阿</blockquote>
+推特其实倒是改的更早些，只是之前联动的时候还是无所属。
+
+<img src="https://img.saraba1st.com/forum/202204/29/164648mpfeg3gx375cw7ow.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220429164637685.jpg</strong> (31.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 16:46 上传
+
+*****
+
+####  T_Hb  
+##### 10586#       发表于 2022-4-29 16:48
+
+企划所属而已
+
