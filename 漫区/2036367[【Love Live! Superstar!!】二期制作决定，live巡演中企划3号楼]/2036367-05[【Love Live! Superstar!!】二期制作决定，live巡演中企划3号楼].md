@@ -19175,3 +19175,35 @@ AE0F0E04-A653-4C07-BF88-D13E6368DC6B.jpeg
 
 给萌新朋友的介绍：缪斯官宣final lovelive的时间点是2015年12月5日，并且生放送全程不提水团，水团宣布动画化的时间点是2016年1月11日，而生放送也同样全程不提缪斯。这前后脚的组合拳砸下去的第二天lovelive贴吧是个什么疯批样，如果你没经历过也不妨自行想象<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 7456#       发表于 2022-4-29 13:16
+
+属于是不断提纯了，财团b你还是pua大师呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7457#       发表于 2022-4-29 13:18
+
+确实很像pua<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  we89623  
+##### 7458#       发表于 2022-4-29 13:19
+
+我说句公道话，谷子这个星团当时还没公布五位声优时也已经在卖角色谷子了。并不是现在才有的
+
+*****
+
+####  JustW_2  
+##### 7459#       发表于 2022-4-29 13:23
+
+同样的操作在不同的时机当然会起到不同的效果。孩子回回考试成绩不错向我要零花钱没什么，挂了几科还把同学脑袋敲破了再要零花钱我难道能不想给个大逼斗吗
+
