@@ -19618,3 +19618,32 @@ LL早就应该走每年追加战士的老路了，老人带新人再慢慢退出
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7499#       发表于 2022-4-29 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55637035&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-4-29 20:26</a>
+
+开骂是伤害运营吗 我不觉得他们会被这骂几下就伤害到
+
+到处乌烟瘴气伤害粉丝倒是真的 ...</blockquote>
+这几天国人在官推下中文骂运营都已经被立本死宅在拉板里吐槽嘲笑了，既然国情不同文化认知不同为什么要顺着这帮小日子过得不错的软蛋，官推发一次相关我就在下面骂一次，但不会冲声优开火，让立本死宅去阴沟里瞎逼逼吧，什么年头了还玩友邦惊诧这套<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平稳落地  
+##### 7500#       发表于 2022-4-29 21:31
+
+<img src="https://img.saraba1st.com/forum/202204/29/213123nwgdsssskdtgdsir.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220429223014.png</strong> (70.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-29 21:31 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">有数字梗的也不止是孔明呢
+
