@@ -7245,3 +7245,16 @@ ngo一中层虹男也能美美赚大米，不是虹不行，是臭底边们不�
 虹推男v从商业前景来说没啥问题，毕竟现在虹男v比女v赚钱，而且在女v方面和杏竞争还不如走差别化路线继续推男v
 当套皮人播不播毕不毕业很多时候也就是中之人自己心境的问题，哪天哈哥被开了我就信虹开始清理底边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12680#       发表于 2022-5-1 01:38
+
+我也觉得enkr没打算清理底边，只打算专注推头部v给自己赚米，底边爱摆摆爱跑跑也不管了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">（虽然申请书上睁眼说胡话表示自己不依赖特定liver，哈哈
+
+只是无论头部还是底边，觉得跟公司方向不同自然会想润吧
+
+我还挺怕黑客润的，感觉他毕业的话绝对会回去当他的ymen不再沾任何管相关了……以前说过好几次感谢enkr给他机会所以想报答，现在摆烂得自己钱都懒得赚更不用提给公司创造利益<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
