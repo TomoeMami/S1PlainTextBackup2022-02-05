@@ -1190,3 +1190,19 @@ mea也是爆发式联动，珍惜现在吧，802后到年末的三四个月应�
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">联动啊，认识人啊。她自己频道找不到去组长和犬山频道找呗，绿熊那边也有点，
 
+
+
+*****
+
+####  gongge666  
+##### 10607#       发表于 2022-4-30 10:53
+
+官组挺尴尬的，自己频道没啥东西能发，别人都频道又不能去偷切片，如果只看官号的话，神乐mea基本从2020年开始就没什么优质切片了。我已经很久没点开官号的视频了，今天为了看昨天的游戏稍微看了一下
+
+*****
+
+####  clvan_  
+##### 10608#       发表于 2022-4-30 10:58
+
+反正早无所谓了，官号的存在意义大于他的实用意义，你麻的核心粉丝也早就不依赖这个渠道了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
