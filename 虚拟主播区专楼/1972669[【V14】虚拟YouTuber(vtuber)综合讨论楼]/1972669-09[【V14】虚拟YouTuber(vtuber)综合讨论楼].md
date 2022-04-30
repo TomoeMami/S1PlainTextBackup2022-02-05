@@ -6795,3 +6795,12 @@ youtu.be/GYsCb0n-xjA </blockquote>
 [TS/11.1GB]VTuber Fes Japan 2022 DAY1【429】Supported by Paidy@ニコニコ超会議2022 - 20220429(金) 1430開始 - ニコニコ生放送_1651238286756.ts
 [https://gofile.io/d/0VybXO](https://gofile.io/d/0VybXO)
 
+
+
+*****
+
+####  ヒトニナル  
+##### 12635#       发表于 2022-4-30 09:48
+
+你二哥这波被炎的莫名其妙，白皮的zzzq就是屎
+
