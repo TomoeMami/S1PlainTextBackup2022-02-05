@@ -1348,3 +1348,23 @@ ubiquitous db
 
 再怎么自信也得看看人气和歌力，hololive的有人气压的住场子，不在前面，难道想去后面和花谱比划比划？？
 
+
+
+*****
+
+####  clvan_  
+##### 10621#       发表于 2022-4-30 15:43
+
+有一说一，按人气说的话时雨羽衣也被丢前面去了，还是歌力说好像靠谱点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这顺序其实也没啥所谓的
+
+*****
+
+####  往世雷书  
+##### 10622#       发表于 2022-4-30 15:45
+
+如果业界没有企业势多好<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
