@@ -1311,3 +1311,40 @@ ubiquitous db
 
 艹死看到现在改想你麻怎么还没出现，发现她是点前登场的(ﾉಥ益ಥ)
 
+
+
+*****
+
+####  我单推副会长  
+##### 10618#       发表于 2022-4-30 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55645031&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-4-30 15:27</a>
+
+艹死看到现在改想你麻怎么还没出现，发现她是点前登场的(ﾉಥ益ಥ)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202204/30/153547edvjc03oy3pypd3p.png" referrerpolicy="no-referrer">
+
+<strong>FRk1SqPVEAAS1Cs.png</strong> (145.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-30 15:35 上传
+
+*****
+
+####  YoMico  
+##### 10619#       发表于 2022-4-30 15:37
+
+麻这种人气的肯定要放在前面热场的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过最后合唱也算站在C位了，虽然没几句词
+
+*****
+
+####  我单推副会长  
+##### 10620#       发表于 2022-4-30 15:40
+
+ 本帖最后由 我单推副会长 于 2022-4-30 15:41 编辑 
+
+再怎么自信也得看看人气和歌力，hololive的有人气压的住场子，不在前面，难道想去后面和花谱比划比划？？
+
