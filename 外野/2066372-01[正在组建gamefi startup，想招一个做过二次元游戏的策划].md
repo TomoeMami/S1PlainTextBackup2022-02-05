@@ -987,3 +987,12 @@ gamefi可是基本啥都没有 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真就没人说白名单是啥呗，那我也想要一个
 
+
+
+*****
+
+####  XIEGC  
+##### 102#       发表于 2022-4-30 15:13
+
+虽然也不知道gamifi什么的，但也求一个白名单<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
