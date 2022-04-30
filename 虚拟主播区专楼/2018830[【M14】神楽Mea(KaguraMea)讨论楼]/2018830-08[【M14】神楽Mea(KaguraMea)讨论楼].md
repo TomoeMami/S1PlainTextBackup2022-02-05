@@ -1155,3 +1155,38 @@ mea也是爆发式联动，珍惜现在吧，802后到年末的三四个月应�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  我单推副会长  
+##### 10604#       发表于 2022-4-30 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55640210&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-30 03:00</a>
+
+mea也是爆发式联动，珍惜现在吧，802后到年末的三四个月应该是一点动静都没有平淡度过了
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你在说啥啊，去年年末几个月联动也不少吧？你把vcp活动去了和去年差不了多少。
+
+*****
+
+####  往世雷书  
+##### 10605#       发表于 2022-4-30 09:10
+
+她去年下半年做了什么我完全没印象了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我单推副会长  
+##### 10606#       发表于 2022-4-30 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55640952&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-4-30 09:10</a>
+
+她去年下半年做了什么我完全没印象了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">联动啊，认识人啊。她自己频道找不到去组长和犬山频道找呗，绿熊那边也有点，
+
