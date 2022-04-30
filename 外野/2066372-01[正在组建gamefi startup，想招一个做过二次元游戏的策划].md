@@ -955,3 +955,14 @@ gamefi可是基本啥都没有 ...</blockquote>
 
 做生意才发现核心玩家真是屎中屎，钱少事多，我做东西肯定离核心用户远远的。
 
+
+
+*****
+
+####  acejoe  
+##### 99#       发表于 2022-4-30 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55620720&amp;ptid=2066372" target="_blank">外骨骼 发表于 2022-4-28 17:54</a>
+4页了还不知道白名单是什么意思，感觉很重要大家都想要</blockquote>
+内测员，又称“封弊者”！
+
