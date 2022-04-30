@@ -7267,3 +7267,49 @@ ngo一中层虹男也能美美赚大米，不是虹不行，是臭底边们不�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我看小蜜蜂和mashiro还搞radio搞的开开心心的呢，虽然摆了很久但也不至于吧。
 
+
+
+*****
+
+####  雨井绫  
+##### 12682#       发表于 2022-5-1 01:57
+
+久违地问一句：彩虹社什么时候死啊。
+
+*****
+
+####  我单推副会长  
+##### 12683#       发表于 2022-5-1 02:45
+
+原本你楼曾经说过兔头没了你虹就差不多没了。
+
+但是现在这个情况，你彩虹jp全g了，彩虹也亡不了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 12684#       发表于 2022-5-1 03:10
+
+上市当天5ch看到「当社は特定のVTuberへの依存が低いと認識しており」这一句就都在说现在的你虹，King润了也不会寄
+
+杏gura兔皇独走了照样世一箱，vshojo没了铁鼠也不会怎么样，四五年的公司了这点鲁棒性还是有的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 12685#       发表于 2022-5-1 03:16
+
+虹杏已经把盘子吃死了，只要v这玩意还在就不会死
+
+僵硬而无趣的管人社区
+
+*****
+
+####  结晶の雨  
+##### 12686#       发表于 2022-5-1 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55638056&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-4-30 01:50</a>
+
+真正的爱马人士.jpg</blockquote>
+可惜这企划遇到个弱智作家+弱智艺人，都炎上一周了今晚又浇了一把油，一手好牌全打烂不说还把V给拖下水，真tm服了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
