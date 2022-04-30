@@ -6780,3 +6780,18 @@ youtu.be/GYsCb0n-xjA </blockquote>
 
 真正的爱马人士.jpg
 
+
+
+*****
+
+####  NBXX  
+##### 12634#       发表于 2022-4-30 08:31
+
+以下内容需要积分高于 1000 才可浏览
+
+[MP4/8.6 GB]VTuber Fes Japan 2022 Supported by Paidy DAY1.1080P.WEB-DL.niconico.mp4
+[https://gofile.io/d/lOmME4](https://gofile.io/d/lOmME4)
+
+[TS/11.1GB]VTuber Fes Japan 2022 DAY1【429】Supported by Paidy@ニコニコ超会議2022 - 20220429(金) 1430開始 - ニコニコ生放送_1651238286756.ts
+[https://gofile.io/d/0VybXO](https://gofile.io/d/0VybXO)
+
