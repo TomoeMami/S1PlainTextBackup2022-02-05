@@ -1427,3 +1427,31 @@ ubiquitous db
 
 今晚6点跟黄兔子联动，10点唱歌
 
+
+
+*****
+
+####  我单推副会长  
+##### 10629#       发表于 2022-4-30 16:52
+
+ 本帖最后由 我单推副会长 于 2022-4-30 16:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55645836&amp;ptid=2018830" target="_blank">clvan_ 发表于 2022-4-30 16:41</a>
+
+倒不用那么麻烦，估计之后b站就有人传了，我看day1昨天就有人传了</blockquote>
+那你点进去看看啊，只有之前的免费版本。，不错了，一首独唱，一首合唱，一首大合唱。不可能更多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202204/30/165801icwf5kxam5kr4ara.jpg" referrerpolicy="no-referrer">
+
+<strong>FRlBCJyacAIg6le.jpg</strong> (368.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-30 16:58 上传
+
+*****
+
+####  路人庚  
+##### 10630#       发表于 2022-4-30 16:59
+
+你咩姐今天动的好勤，这就是黄金周吗
+
