@@ -1368,3 +1368,37 @@ ubiquitous db
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  我单推副会长  
+##### 10623#       发表于 2022-4-30 16:09
+
+<img src="https://img.saraba1st.com/forum/202204/30/160934jzh031h1rbm5ghbd.jpg" referrerpolicy="no-referrer">
+
+<strong>FRk7yDcXwAAUCMn.jpg</strong> (344.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-4-30 16:09 上传
+
+*****
+
+####  我单推副会长  
+##### 10624#       发表于 2022-4-30 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55645212&amp;ptid=2018830" target="_blank">clvan_ 发表于 2022-4-30 15:43</a>
+
+有一说一，按人气说的话时雨羽衣也被丢前面去了，还是歌力说好像靠谱点
+
+不过这顺序其实也没啥所谓的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不按人气按歌力的话，她星街和花谱合唱不是被干碎？不过以前和床合唱也是被干碎，没差。
+
+*****
+
+####  时间在我手中  
+##### 10625#       发表于 2022-4-30 16:11
+
+这东西有录播吗
+
