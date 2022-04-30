@@ -1233,3 +1233,14 @@ mea也是爆发式联动，珍惜现在吧，802后到年末的三四个月应�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看她频道会以为她根本不直播
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 10612#       发表于 2022-4-30 12:44
+
+<img src="https://p.sda1.dev/5/1e95854d22c1ec99868ea03c975f4d04/CMP_20220430124254695.jpg" referrerpolicy="no-referrer">这宣传图，怎么被⭕簇拥了
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
