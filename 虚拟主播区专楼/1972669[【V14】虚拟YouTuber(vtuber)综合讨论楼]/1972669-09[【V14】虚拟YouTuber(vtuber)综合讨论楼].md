@@ -6804,3 +6804,14 @@ youtu.be/GYsCb0n-xjA </blockquote>
 
 你二哥这波被炎的莫名其妙，白皮的zzzq就是屎
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 12636#       发表于 2022-4-30 09:58
+
+ 本帖最后由 渡鸦骑士 于 2022-4-30 10:00 编辑 
+
+？叶也被烧了？终于，这下政治正确了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
