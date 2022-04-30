@@ -7017,3 +7017,19 @@ maisondes作曲比msm大众且能火多了，能多有机会合作那就去吧�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">菜
 
+
+
+*****
+
+####  fastary  
+##### 12658#       发表于 2022-4-30 21:54
+
+感觉有一万年没看过黑客主演企划类节目了……因为他还没摆烂到企划都不做而感动的我是不是真的被pua成功了啊()
+
+*****
+
+####  lor  
+##### 12659#       发表于 2022-4-30 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">菜
+

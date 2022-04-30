@@ -1528,3 +1528,23 @@ gw我唯一的愿望就是只要自频道别一大堆vcp企划就行<img src="ht
 
 [https://www.bilibili.com/video/BV1ou41167gS](https://www.bilibili.com/video/BV1ou41167gS)<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 10638#       发表于 2022-4-30 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐最后合唱站的可真靠中间，还以为主办方会给扔到最后一排的角落里去来着
+
+*****
+
+####  我单推副会长  
+##### 10639#       发表于 2022-4-30 22:00
+
+ 本帖最后由 我单推副会长 于 2022-4-30 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55648987&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-4-30 21:54</a>
+
+你咩姐最后合唱站的可真靠中间，还以为主办方会给扔到最后一排的角落里去来着 ...</blockquote>
+想多了，就算丢边上，犬山白雪时雨总归还是在一起的，方便打光。最后合唱打光VWP的时候对不齐了，轮到花谱找不到了，镜头跑mea那边了，挺迷惑的。
+
