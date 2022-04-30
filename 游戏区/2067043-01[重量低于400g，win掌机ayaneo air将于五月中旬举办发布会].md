@@ -536,3 +536,14 @@ aya定制720p比用库存1080贵吧
 
 搜了搜还有给树莓派用的，说不定这才是真正的来源 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沧兰殇  
+##### 62#       发表于 2022-5-1 07:06
+
+用这个掌机开模拟器玩xb2可以吊打lite上的xb2不<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，不知道有没有吃螃蟹的试一下
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
