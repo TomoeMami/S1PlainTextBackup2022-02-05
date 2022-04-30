@@ -1652,3 +1652,29 @@ gw我唯一的愿望就是只要自频道别一大堆vcp企划就行<img src="ht
 
 五月有没有公布了日程，除了5月7的雀魂
 
+
+
+*****
+
+####  我单推副会长  
+##### 10652#       发表于 2022-5-1 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55650755&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-5-1 00:34</a>
+
+五月有没有公布了日程，除了5月7的雀魂</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202205/01/004454h127sclz2cfd0uj4.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220501004444917.jpg</strong> (97.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-1 00:44 上传
+
+*****
+
+####  T_Hb  
+##### 10653#       发表于 2022-5-1 00:46
+
+哦，这个忘了，还早的很，可以再来一次练习会
+
