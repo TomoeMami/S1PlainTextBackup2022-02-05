@@ -6981,3 +6981,14 @@ MAISONdes搞不好就是0介绍进去的，0你罪大恶极。
 
 maisondes作曲比msm大众且能火多了，能多有机会合作那就去吧！要去了神椿我也只能说花谱大概真的手握虹歌势生死簿。
 
+
+
+*****
+
+####  OldGlory  
+##### 12654#       发表于 2022-4-30 21:17
+
+[https://www.youtube.com/watch?v=yW8CPRnHocE](https://www.youtube.com/watch?v=yW8CPRnHocE)
+
+尘归尘，土归土
+
