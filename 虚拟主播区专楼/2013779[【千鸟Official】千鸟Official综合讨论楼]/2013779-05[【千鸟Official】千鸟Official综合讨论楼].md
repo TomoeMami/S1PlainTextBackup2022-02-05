@@ -182,3 +182,19 @@ coco照片
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nishazhiyang  
+##### 6021#       发表于 2022-4-30 14:47
+
+来个好心人发发
+
+*****
+
+####  龙娘777  
+##### 6022#       发表于 2022-4-30 14:53
+
+核对核是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
