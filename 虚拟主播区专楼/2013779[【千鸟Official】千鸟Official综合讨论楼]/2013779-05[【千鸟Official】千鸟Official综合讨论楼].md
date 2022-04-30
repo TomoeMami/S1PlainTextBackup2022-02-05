@@ -171,3 +171,14 @@
 1.0 几个. 404稍微差点,白和CO好看的.但是404 工作音恰一下挺舒服.</blockquote>
 coco照片
 
+
+
+*****
+
+####  Finsty  
+##### 6020#       发表于 2022-4-30 14:29
+
+想看捏想看捏想看捏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
