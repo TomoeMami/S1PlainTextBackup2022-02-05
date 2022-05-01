@@ -323,3 +323,12 @@ Kitori869
 哈哈哈哈哈哈哈哈哈
 草 总结过于精辟
 
+
+
+*****
+
+####  stygian  
+##### 7530#       发表于 2022-5-1 18:56
+
+自己给偶像立人设靶子然后掉过头来自己打，其实这样人挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
