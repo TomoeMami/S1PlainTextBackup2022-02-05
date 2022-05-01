@@ -8418,3 +8418,28 @@ vox国内粉丝开始攻击彩虹，彩虹没办法停了另一个en男的直播
 
 au装扮一直有人当臊皮表情包用的
 
+
+
+*****
+
+####  cckuku  
+##### 12801#       发表于 2022-5-1 21:14
+
+本社赚的钱不是被开演唱户亏掉了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 12802#       发表于 2022-5-1 21:17
+
+怎么还贷款乳上了，你们是从来没见过能老老实实规规矩矩在中国活动赚钱的国外艺人吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 12803#       发表于 2022-5-1 21:21
+
+因为有前科嘛<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">。
+
+省一楼，感觉你楼和yagoo田角一样爱男人。
+
