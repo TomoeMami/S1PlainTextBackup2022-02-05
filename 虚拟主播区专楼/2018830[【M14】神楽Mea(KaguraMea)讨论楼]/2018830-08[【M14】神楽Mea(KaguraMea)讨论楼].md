@@ -1722,3 +1722,19 @@ b博大量回复中
 
 刚才NB团的雨音月奈首播，提到自己喜欢玩lol，常玩上单，而且也是熬夜玩游戏的类型，最长可以连续玩8小时，感觉可以期待下和mea的脑死双排了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dualist彩  
+##### 10658#       发表于 2022-5-1 19:27
+
+呃呃，纯纯的宦官罢了，天狗何必自甘下贱，不如阿夸一根批毛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 10659#       发表于 2022-5-1 19:31
+
+有一说一mea还真不缺一起lol的，五人匹配有车位的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
