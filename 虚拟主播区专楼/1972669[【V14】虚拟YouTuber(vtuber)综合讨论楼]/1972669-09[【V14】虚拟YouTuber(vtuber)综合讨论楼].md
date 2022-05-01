@@ -7313,3 +7313,30 @@ ngo一中层虹男也能美美赚大米，不是虹不行，是臭底边们不�
 真正的爱马人士.jpg</blockquote>
 可惜这企划遇到个弱智作家+弱智艺人，都炎上一周了今晚又浇了一把油，一手好牌全打烂不说还把V给拖下水，真tm服了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真飞鸟i  
+##### 12687#       发表于 2022-5-1 09:14
+
+ 本帖最后由 真飞鸟i 于 2022-5-1 09:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是高估了箱力低估了v的重要性。虹没有毕业头牌暂且不说。木口是实实在在毕业了tskk和润润俩个头牌，没有影响吗？tskk毕业后，木口粉丝打钱的积极性下降，几乎所有v的sc收入都下滑了一档。润润算是自己问题爆炸了影响较小，但也没v补上她毕业带来的sc缺口，她的sc收入占比也到了木口月sc的十分之一。到现在导致的结果就是以前很难想象的月sc上虹大于杏成了现实。
+木口en现在就已经没有以前的压制力，gura如果真毕业，木口en当然不会结束，但衰退至同接不过w的水平也很有可能。兔皇可能相对影响小点，高同接选手木口还有几个，但是野兔子作为木口粉丝第一大团体，兔皇毕业的话会引发怎样的骚动不得而知，活跃粉丝减少也会导致数据上限降低。
+大箱有大箱的基础，所以确实不会因为某个v的毕业而崩溃，但弱体化是会发生的，不断失血不断衰退，最终走向平庸。当然在那之前vtb圈子没了的可能性也有。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  poipanchao  
+##### 12688#       发表于 2022-5-1 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55652794&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2022-5-1 09:14</a>
+
+那还是高估了箱力低估了v的重要性。虹没有毕业头牌暂且不说。木口是实实在在毕业了tskk和润润俩个头 ...</blockquote>
+很简单一个道理，现在某种意义上，虹杏就是V圈
+
+那么虹杏根本不可能死在v圈完蛋之前
+
