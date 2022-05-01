@@ -7913,3 +7913,85 @@ Luxiem 的Vox Akuma 将会在中国时间 5 月 6 日(五)19:00 进行 B 站限�
 原来之前mysta发的我爱你是预告vr有人在看吗，上点心学学国v搞舰长礼物，万舰说不定也不是不可以哦 ...</blockquote>
 维阿舰长礼物搞了好久了，然而臭底边就是臭底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cckuku  
+##### 12748#       发表于 2022-5-1 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658885&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-5-1 18:41</a>
+ 已经虚空91舰了好吧 不要小看呀</blockquote>
+已经虚空97舰了，甚至还tm有两个提督，是我格局小了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 12749#       发表于 2022-5-1 18:45
+
+好了好了已经百舰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不要小瞧集美呀
+
+*****
+
+####  lor  
+##### 12750#       发表于 2022-5-1 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658889&amp;ptid=1972669" target="_blank">Finaa 发表于 2022-5-1 18:42</a>
+维阿舰长礼物搞了好久了，然而臭底边就是臭底边</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">这可是今天就能虚空百舰的en男
+syl 编辑 我去太快了已经俩提督了，还不连夜🏳🏳🏳
+
+
+
+*****
+
+####  我单推副会长  
+##### 12751#       发表于 2022-5-1 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658872&amp;ptid=1972669" target="_blank">cckuku 发表于 2022-5-1 18:40</a>
+
+千舰开玩笑的吧我怎么觉得最多就百舰呢？</blockquote>这还没播呢。
+
+<img src="https://img.saraba1st.com/forum/202205/01/184623g1uw13jecr2n22wy.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220501184542863.jpg</strong> (10.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-1 18:46 上传
+
+*****
+
+####  _Ra1nMaker  
+##### 12752#       发表于 2022-5-1 18:47
+
+搞B限又不是什么好事，规矩多限制多，万一以后b限频率低了反而又让人嘴
+
+*****
+
+####  Finaa  
+##### 12753#       发表于 2022-5-1 18:48
+
+没想到你虹也有一天能开启收租时代，嗯男确实是虹的福气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 12754#       发表于 2022-5-1 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658872&amp;ptid=1972669" target="_blank">cckuku 发表于 2022-5-1 18:40</a>
+
+千舰开玩笑的吧我怎么觉得最多就百舰呢？</blockquote>
+已经百舰了
+
+*****
+
+####  我单推副会长  
+##### 12755#       发表于 2022-5-1 18:50
+
+hololive当年遇到的问题你虹全会遇到。
+
+不过你虹和叔叔利益高度绑定，应该真出问题了问题也不会多大。
+
+如果holocn采取和vr一样的方针和利益划分，很多事可能不会发生。
+
