@@ -267,3 +267,25 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  龙娘777  
+##### 6030#       发表于 2022-5-1 18:15
+
+有没有核中核 今晚文静能不能播 是不是已经被吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6031#       发表于 2022-5-1 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658567&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-1 18:15</a>
+有没有核中核 今晚文静能不能播 是不是已经被吃了</blockquote>
+到现在直播日程表还没出来，装死装到底了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -7782,3 +7782,53 @@ vtuber这行虽说播什么内容都行但实际上主要还是杂谈+游戏这�
 
 虹en的要来b限了？
 
+
+
+*****
+
+####  rzrbtk  
+##### 12734#       发表于 2022-5-1 18:14
+
+ 本帖最后由 rzrbtk 于 2022-5-1 18:23 编辑 
+
+火热嗯男将于今日抵达他忠实的b站
+
+盒长得也挺像神秘博士的，未来就由他来乳吧
+
+*****
+
+####  lor  
+##### 12735#       发表于 2022-5-1 18:15
+
+真是大的来了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+syl 主流进出的基础还是稳固的人设和直播活动曝光度，能保证的情况下难说会怎么样。原创曲虹杏都还算重视的，不过公司牵头主导的原创曲质量金的似乎不多？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 12736#       发表于 2022-5-1 18:19
+
+[https://www.bilibili.com/read/cv16311221](https://www.bilibili.com/read/cv16311221)
+
+【Luxiem登陆】NIJISANJI EN英语系虚拟主播组合Luxiem频道登陆B站！
+
+【B限纪念直播】
+
+同时为了纪念本次 NIJISANJI EN 的首次进入bilibili!
+
+Luxiem 的Vox Akuma 将会在中国时间 5 月 6 日(五)19:00 进行 B 站限定纪念直播! 届时大家不要错过!
+
+直播预约地址:后续公开
+[https://live.bilibili.com/24731541](https://live.bilibili.com/24731541) 
+
+*****
+
+####  shuipiao520  
+##### 12737#       发表于 2022-5-1 18:21
+
+好奇 脱皮后她能发簪到哪一步 歌手这条路在霓虹不好走啊  
+
+而且她明显是录音室（修音）类的歌手 听过直播里的唱歌 和视频差太多。。  而且她这种唱法。。和我追了15年的歌姬 滨崎步那种耗嗓子的唱法感觉挺接近的 担忧 
+
+希望她之后能找到她的圆满之路把
+
