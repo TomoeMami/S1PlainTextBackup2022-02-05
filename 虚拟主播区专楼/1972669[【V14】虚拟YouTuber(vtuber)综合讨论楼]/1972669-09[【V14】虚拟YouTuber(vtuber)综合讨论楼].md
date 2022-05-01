@@ -8516,3 +8516,27 @@ au装扮一直有人当臊皮表情包用的
  播个一两年还没有人气，不是早就死了的V吗×  我感觉V圈可以说是出道半年就基本可以分生死，播两年再火已 ...</blockquote>
 现在en红这么快让我觉得可能人家只是一时间玩玩扮偶像游戏正在劲头没有踏踏实实做下去的耐性……其实管人这行不说做几年了，能坚持一年多内容质量不下降都很难，所以我还是比较佩服能长期坚持的，半年都不到实在看不清一个人到底什么态度，不过这也可能是因为我之前追过的不论是管人还是别的什么领域大多都是长期选手才有这种感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lor  
+##### 12812#       发表于 2022-5-1 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开局因为人设声音营业爆火抓住机会总归是好的，之后播的路线久不久也看本人了
+syl 看了眼上次生日谷jp官推下去冲的评论还不到这次en官号宣布b官号的评论
+
+*****
+
+####  alcoholic1000  
+##### 12813#       发表于 2022-5-1 22:06
+
+重大发表，要结婚了！（想得美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  Ketestrait  
+##### 12814#       发表于 2022-5-1 22:10
+
+二哥这发表一说是好消息不是坏消息，同接瞬间掉了5千，太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
