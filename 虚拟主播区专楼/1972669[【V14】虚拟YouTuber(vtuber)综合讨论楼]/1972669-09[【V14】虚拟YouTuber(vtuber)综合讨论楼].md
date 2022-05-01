@@ -8020,3 +8020,87 @@ b站虚拟区看来又要变天了，收租转播号霸榜泥哥们又得抱怨�
 
 其次集美战斗力比宅男强多了，就算出事了也能给你表演一个不乳不看。
 
+
+
+*****
+
+####  Suny08  
+##### 12759#       发表于 2022-5-1 19:03
+
+虹女仿佛像个小丑一样，华裔虹女不让来让白皮来，真的搞笑
+
+*****
+
+####  渡鸦骑士  
+##### 12760#       发表于 2022-5-1 19:04
+
+ 本帖最后由 渡鸦骑士 于 2022-5-1 19:07 编辑 
+
+问题来了，在油管都能吵起来的两岸太太在b站能平稳下来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+嘛，反正啊b有你虹7%的股份。他们自己折腾去吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 12761#       发表于 2022-5-1 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55659202&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-5-1 19:04</a>
+
+问题来了，在油管都能吵起来的两岸太太在b站能平稳下来嘛</blockquote>
+看上去ww已经炸锅咯 不过可能又是个提纯过程 集美肯定能想好各种理由的吧
+
+*****
+
+####  cckuku  
+##### 12762#       发表于 2022-5-1 19:06
+
+两岸太太？指tw人？tw人来b站干嘛呀？以前holob限的时候有台湾人过来看吗？
+
+*****
+
+####  IDIDIDID  
+##### 12763#       发表于 2022-5-1 19:06
+
+去隔壁看了一眼为什么嗯男来B，B综比杏奴还跳脚，很迷。
+
+*****
+
+####  rzrbtk  
+##### 12764#       发表于 2022-5-1 19:06
+
+低品味观众我恨你们——————！！！月之现在天天做弱智小视频<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">！！
+
+不过这回谜兔的复用素材很有弱智结课作业感，说不定月之的大学作业也是这味道。
+
+*****
+
+####  渡鸦骑士  
+##### 12765#       发表于 2022-5-1 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55659222&amp;ptid=1972669" target="_blank">cckuku 发表于 2022-5-1 19:06</a>
+两岸太太？指tw人？tw人来b站干嘛呀？以前holob限的时候有台湾人过来看吗？</blockquote>
+有一些，不过台湾人大规模看holo的时间点主要在20年中。
+
+Vox这次有很多以前不看V的湾湾集美入场，事情不可能简单
+
+*****
+
+####  lor  
+##### 12766#       发表于 2022-5-1 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55659224&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-5-1 19:06</a>
+去隔壁看了一眼为什么嗯男来B，B综比杏奴还跳脚，很迷。</blockquote>
+试着代入了一下，不说粉丝冲突，自己推在b站自己这地盘认真经营很久，比不过一下子集美们年一v一次入驻，是不好受<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+syl ww妹节奏还是会有的，这波应该可以发展成利好杏星<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 12767#       发表于 2022-5-1 19:11
+
+集美和男观众最大区别就是男观众入脑很难出脑，女观众虽然喜欢上之后出再多事也愿意洗地的很多，相对的更多人存在大量地雷一踩就判死刑还要踩到地心
+
+变成一次B限后纯收租号的话骂最狠肯定是简中粉，遇到的问题类似但肯定没法套杏剧本
+
+现在最想看的是经历杏和A之后再看到前排几个“狗都不看的男V”的转播泥哥又会怎么指点江山<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

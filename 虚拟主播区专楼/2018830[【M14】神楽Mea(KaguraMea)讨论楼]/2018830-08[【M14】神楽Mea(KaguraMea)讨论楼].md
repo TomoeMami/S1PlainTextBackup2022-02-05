@@ -1713,3 +1713,12 @@ b博大量回复中
 
 （好像溜了
 
+
+
+*****
+
+####  汇聚群光  
+##### 10657#       发表于 2022-5-1 19:07
+
+刚才NB团的雨音月奈首播，提到自己喜欢玩lol，常玩上单，而且也是熬夜玩游戏的类型，最长可以连续玩8小时，感觉可以期待下和mea的脑死双排了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
