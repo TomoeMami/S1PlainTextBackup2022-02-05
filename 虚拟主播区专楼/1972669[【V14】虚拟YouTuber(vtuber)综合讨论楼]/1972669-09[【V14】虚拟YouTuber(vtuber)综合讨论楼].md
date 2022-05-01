@@ -7711,3 +7711,15 @@ vtuber这行虽说播什么内容都行但实际上主要还是杂谈+游戏这�
 
 觉得被企业剥削，那就出来单干呗，和皮套又没关系。没皮套的歌手被公司剥削的也多了去了。
 
+
+
+*****
+
+####  noHentai  
+##### 12727#       发表于 2022-5-1 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55656723&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-5-1 15:15</a>
+
+怎么到最后才想到这个问题，当年签合同的时候就没想到吗</blockquote>
+去当套皮人的小年轻要是能在签合同的时候能够想到，要么就是企业成绩太拉，要么就是画饼水平太拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
