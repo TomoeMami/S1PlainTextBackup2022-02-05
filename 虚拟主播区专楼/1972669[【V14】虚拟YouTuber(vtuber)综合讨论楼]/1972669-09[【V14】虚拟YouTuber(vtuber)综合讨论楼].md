@@ -8149,3 +8149,56 @@ SSK谈恋爱了就换了个成熟发型是吧
 
 这个最可爱
 
+
+
+*****
+
+####  我单推副会长  
+##### 12772#       发表于 2022-5-1 19:42
+
+好狠，已经有人在微博给en男p遗照了，你们微博的虹人真的是一种神奇的生物，不论是jp还是en。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  藤原银  
+##### 12773#       发表于 2022-5-1 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好快地打！不得不说粉丝生态改变的时刻也是最有趣的时刻
+
+*****
+
+####  越动天下  
+##### 12774#       发表于 2022-5-1 19:44
+
+这就200舰五个提督了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这6号前能不能虚空千舰
+
+*****
+
+####  alcoholic1000  
+##### 12775#       发表于 2022-5-1 19:49
+
+vup.darkflame是不是还没更新en男团的信息，想看看内部斗虫没找到
+
+*****
+
+####  fastary  
+##### 12776#       发表于 2022-5-1 19:51
+
+难道在看泥哥乐子前能先看到jp和en粉打起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我是觉得还好吧，本来不也很多jp粉觉得主播硬来B限不如油管自由播，而且粉丝多的先入驻自黑黑起不一直这样吗，微博jp和en女粉一副enkr罪该万死的样子给我看笑了
+
+*****
+
+####  我单推副会长  
+##### 12777#       发表于 2022-5-1 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">en女的粉丝在和en男的粉丝打，JP的粉丝在和en的打。en的粉丝内部也在自己打。神奇的虹人……
+
+*****
+
+####  渡鸦骑士  
+##### 12778#       发表于 2022-5-1 19:53
+
+虹人自19年年初开始就一直是这个b样啦 再神奇看了三年还是腻歪了，只想看他们笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
