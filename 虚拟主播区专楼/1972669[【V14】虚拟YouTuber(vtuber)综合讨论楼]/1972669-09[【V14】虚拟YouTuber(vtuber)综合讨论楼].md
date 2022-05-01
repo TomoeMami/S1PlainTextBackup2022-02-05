@@ -7364,3 +7364,15 @@ ngo一中层虹男也能美美赚大米，不是虹不行，是臭底边们不�
 
 2022-5-1 10:43 上传
 
+
+
+*****
+
+####  winda  
+##### 12691#       发表于 2022-5-1 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55652794&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2022-5-1 09:14</a>
+那还是高估了箱力低估了v的重要性。虹没有毕业头牌暂且不说。木口是实实在在毕业了tskk和润润俩个头 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大惊小怪，杏看来还是毕业太少了才反应这么大吧
+分析了半天就这点影响?
+

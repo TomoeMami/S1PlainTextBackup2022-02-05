@@ -608,3 +608,23 @@ aya定制720p比用库存1080贵吧
 
 —— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  hellgate77  
+##### 69#       发表于 2022-5-1 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55650222&amp;ptid=2067043" target="_blank">医生狼多 发表于 2022-4-30 23:46</a>
+一个是模拟器，一个是win游戏库肯定比ns大，另外ns上很多游戏加载都不如人意，有ssd好很多 ...</blockquote>
+这个cpu能跑什么级别地位模拟器呢<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 70#         楼主| 发表于 2022-5-1 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55653831&amp;ptid=2067043" target="_blank">hellgate77 发表于 2022-5-1 10:54</a>
+这个cpu能跑什么级别地位模拟器呢</blockquote>
+之前用1165是能跑到ps3模拟器的，不知道这个怎么样
+
