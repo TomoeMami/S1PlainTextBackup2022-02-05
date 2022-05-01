@@ -565,3 +565,16 @@ aya定制720p比用库存1080贵吧
 
 "之前从未出现在过Windows掌机上的U"我感觉大概率就是steam deck上的那个的小改甚至完全不改，毕竟sd不能算是windows掌机，而且aya也没啥能力定制。
 
+
+
+*****
+
+####  汤圆です  
+##### 65#       发表于 2022-5-1 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55652131&amp;ptid=2067043" target="_blank">沧兰殇 发表于 2022-5-1 07:06</a>
+用这个掌机开模拟器玩xb2可以吊打lite上的xb2不，不知道有没有吃螃蟹的试一下
+
+—— 来自 Xiaomi Re ...</blockquote>
+就这些pc游戏的测试数据来看，应该连标题也进不去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
