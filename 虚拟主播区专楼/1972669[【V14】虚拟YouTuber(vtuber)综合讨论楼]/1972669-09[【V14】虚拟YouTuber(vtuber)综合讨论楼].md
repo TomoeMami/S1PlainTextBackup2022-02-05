@@ -8327,3 +8327,41 @@ SYL：
 
 现在就怕这EN和JP一样一群懒人，连租都收不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 12792#       发表于 2022-5-1 20:54
+
+喷了，怎么还有au拱火的
+
+*****
+
+####  小小雪空  
+##### 12793#       发表于 2022-5-1 20:58
+
+我感觉AS装扮在国V圈应该是人人都有的东西，很多时候不能真正反映身份（虽然这结论很违反直觉）
+
+*****
+
+####  IDIDIDID  
+##### 12794#       发表于 2022-5-1 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/01/205849ppc5ca5j5oa8462o.jpg" referrerpolicy="no-referrer">
+
+<strong>-zue37Q7i87-81qpK12T1kShs-6x.jpg</strong> (22.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-1 20:58 上传
+
+*****
+
+####  _Ra1nMaker  
+##### 12795#       发表于 2022-5-1 21:02
+
+额 说得不是很对嘛 EN男确实赚钱啊 比本社能赚多了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
