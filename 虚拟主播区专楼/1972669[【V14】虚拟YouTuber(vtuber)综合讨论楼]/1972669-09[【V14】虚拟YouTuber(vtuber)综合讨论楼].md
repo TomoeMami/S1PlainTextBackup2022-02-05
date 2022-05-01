@@ -8626,3 +8626,14 @@ king是哪家厂牌发行？</blockquote>
 
 目前头部能出道的基本都出道了吧，该开盘下一步是新男人出道还是thrz携二军出新男团还是专心搞en了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12823#       发表于 2022-5-1 22:41
+
+en要出道能不能把猫鸟打包了，再把Masae姐贵solo出道一下，重新圆姐贵被乐队抛弃过的梦想，正好人在JP商谈方便，跳离同期排挤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+reimu就算了，继续当pex批吧
+
