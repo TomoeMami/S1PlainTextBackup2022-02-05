@@ -666,3 +666,16 @@ aya定制720p比用库存1080贵吧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  翼宿一  
+##### 74#       发表于 2022-5-1 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55654402&amp;ptid=2067043" target="_blank">allenz3 发表于 2022-5-1 11:43</a>
+老任就是400多啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2-play</blockquote>
+所以 Switch 原版就是刑具啊，轻量化的 Lite 明显更接近掌机标准，只是 Lite 阉割太猛没法替代原版的很多功能。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
