@@ -8615,3 +8615,14 @@ king是哪家厂牌发行？</blockquote>
 
 查看全部评分
 
+
+
+*****
+
+####  fastary  
+##### 12822#       发表于 2022-5-1 22:26
+
+叶solo出道说是重大发表确实是，但又有种大家早知道了就这啊的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+目前头部能出道的基本都出道了吧，该开盘下一步是新男人出道还是thrz携二军出新男团还是专心搞en了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
