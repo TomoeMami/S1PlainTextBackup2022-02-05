@@ -8365,3 +8365,56 @@ SYL：
 
 额 说得不是很对嘛 EN男确实赚钱啊 比本社能赚多了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rosefinch  
+##### 12796#       发表于 2022-5-1 21:06
+
+好久没留意了，虹本社现在还b限吗，频率怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 12797#       发表于 2022-5-1 21:08
+
+ 本帖最后由 我单推副会长 于 2022-5-1 21:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55660713&amp;ptid=1972669" target="_blank">plok201 发表于 2022-5-1 20:50</a>
+
+收租不是问题啊，杏一直收租都没出问题，撑死有怨气罢了，tskk事件如果杏姿态低一点，再找几个人来收租七天 ...</blockquote>
+不不不，应该这样子类比holo事件。
+
+vox本来一个礼拜要来几次b限的，结果另一个en男言论出了问题，导致vox来不了了。
+
+vox国内粉丝开始攻击彩虹，彩虹没办法停了另一个en男的直播，让他修养。这一停en的粉丝也急了，开始攻击彩虹。
+
+彩虹被逼得没办法开始发个公告，用词上中英版本有差异，再翻译一下然后直接炸了。
+
+最后彩虹滚出b站，本社、en、vr全部gg，可喜可贺可喜可贺。
+
+*****
+
+####  caupollen  
+##### 12798#       发表于 2022-5-1 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55660836&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-5-1 20:59</a></blockquote>
+每次看见人民币香这个观点就好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播不都是赚钱还分什么高低贵贱
+
+*****
+
+####  caupollen  
+##### 12799#       发表于 2022-5-1 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55660983&amp;ptid=1972669" target="_blank">Rosefinch 发表于 2022-5-1 21:06</a>
+
+好久没留意了，虹本社现在还b限吗，频率怎么样</blockquote>
+爱丽丝 阿胜 叶 每周固定一次
+
+*****
+
+####  lor  
+##### 12800#       发表于 2022-5-1 21:10
+
+au装扮一直有人当臊皮表情包用的
+
