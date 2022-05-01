@@ -8287,3 +8287,13 @@ syl 还有两小时就到重大发表了
 
 jp总代表叶师和en总代表vox，好像秒了（指cn话题度
 
+
+
+*****
+
+####  Kokichi  
+##### 12789#       发表于 2022-5-1 20:39
+
+crcup有darusaka看了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好耶
+syl，犬山哥对谈又是旅团
+
