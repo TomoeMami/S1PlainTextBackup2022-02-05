@@ -295,3 +295,19 @@ Kitori869
 级别:学徒 威望:1 发帖:543</blockquote>
 属实是陰キャ自画像了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 7528#       发表于 2022-5-1 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55655501&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-1 13:21</a>
+
+隔壁看见的，挺有趣的转一下，因为发不了图，就复制了
+
+Kitori869
+
+级别:学徒 威望:1 发帖:543</blockquote>
+懂了，鲤鱼在他看来是个管人
+
