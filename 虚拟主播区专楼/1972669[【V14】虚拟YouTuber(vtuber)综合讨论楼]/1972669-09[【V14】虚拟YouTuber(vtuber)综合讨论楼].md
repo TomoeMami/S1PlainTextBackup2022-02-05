@@ -8540,3 +8540,78 @@ syl 看了眼上次生日谷jp官推下去冲的评论还不到这次en官号宣
 
 二哥这发表一说是好消息不是坏消息，同接瞬间掉了5千，太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 12815#       发表于 2022-5-1 22:13
+
+骗会费呢，
+
+省一楼，感觉最近的v界好热闹，大物们都动了，偷偷喜欢了很久的人和组合都有了新发展，真不错
+
+*****
+
+####  oceanneo  
+##### 12816#       发表于 2022-5-1 22:13
+
+不管你男v女v皮好看有特点就是有吸引力
+
+而且女生之间传播喜好速度我是觉得比男的快很多的
+
+*****
+
+####  IDIDIDID  
+##### 12817#       发表于 2022-5-1 22:15
+
+烂铁出道
+
+*****
+
+####  ヒトニナル  
+##### 12818#       发表于 2022-5-1 22:15
+
+烂铁怎么什么都收<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 12819#       发表于 2022-5-1 22:15
+
+king是哪家厂牌发行？
+
+*****
+
+####  藤原银  
+##### 12820#       发表于 2022-5-1 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55661855&amp;ptid=1972669" target="_blank">oceanneo 发表于 2022-5-1 22:13</a>
+
+不管你男v女v皮好看有特点就是有吸引力
+
+而且女生之间传播喜好速度我是觉得比男的快很多的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">与其说是传播速度快，不如说是新的爱好传播到了一个与之高度匹配但却还没有参与的小圈子里，自然看上去瞬间就很火了
+
+*****
+
+####  alcoholic1000  
+##### 12821#       发表于 2022-5-1 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55661873&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-5-1 22:15</a>
+
+king是哪家厂牌发行？</blockquote>
+ユニバーサルミュージック Virgin Music
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|👍|
+
+查看全部评分
+
