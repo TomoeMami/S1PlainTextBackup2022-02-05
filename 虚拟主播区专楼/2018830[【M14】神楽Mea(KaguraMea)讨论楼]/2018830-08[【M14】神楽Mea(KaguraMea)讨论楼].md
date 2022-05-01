@@ -1814,3 +1814,12 @@ b博大量回复中
 现在还不够深夜吗？快动啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">她在打……只是不是在直播的号。可能她的意思是想放松一下……别等了。已经打了1把了11分钟赢了，第二把刚开8分钟。
 
+
+
+*****
+
+####  Klience  
+##### 10668#       发表于 2022-5-2 00:00
+
+说不定到时候1 2点时候直接整个突击直播 不过估计都没有什么人看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
