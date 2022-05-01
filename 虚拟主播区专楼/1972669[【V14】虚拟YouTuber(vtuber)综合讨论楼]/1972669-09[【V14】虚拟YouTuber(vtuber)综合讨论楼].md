@@ -8297,3 +8297,33 @@ jp总代表叶师和en总代表vox，好像秒了（指cn话题度
 crcup有darusaka看了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好耶
 syl，犬山哥对谈又是旅团
 
+
+
+*****
+
+####  IDIDIDID  
+##### 12790#       发表于 2022-5-1 20:47
+
+ 本帖最后由 IDIDIDID 于 2022-5-1 20:50 编辑 
+
+去彩虹B站官号下面看了下本社粉的话比当年尼哥喷cover还过分，哈人。
+
+SYL：
+
+<img src="https://img.saraba1st.com/forum/202205/01/205027rnyhyxovxaoyvhp2.jpg" referrerpolicy="no-referrer">
+
+<strong>7bb9f785ly1h1t7102s2ij20hs17r75v.jpg</strong> (72.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-1 20:50 上传
+
+*****
+
+####  plok201  
+##### 12791#       发表于 2022-5-1 20:50
+
+收租不是问题啊，杏一直收租都没出问题，撑死有怨气罢了，tskk事件如果杏姿态低一点，再找几个人来收租七天乐，那妥妥的回旋
+
+现在就怕这EN和JP一样一群懒人，连租都收不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
