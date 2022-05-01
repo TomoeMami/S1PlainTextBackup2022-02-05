@@ -1892,3 +1892,19 @@ mea作为打野居然带动全场，全局乱杀，含金量。<img src="https:/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Klience  
+##### 10676#       发表于 2022-5-2 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55664607&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2022-5-2 02:58</a>
+
+对面三白金1钻石，钻石是辅助，1级就把我方下路干碎了。
+
+mea作为打野居然带动全场，全局乱杀，含金量。[f:0 ...</blockquote>
+波比的加强也就减了W的冷却和大招的未蓄力击飞时间和取消引导的冷却时间 也没有什么伤害技能的改动
+
+对面没有拿出卢娜组合算友善了 帝国一出来 给卢仙个buff 一套技能伤害直接看不懂
+
