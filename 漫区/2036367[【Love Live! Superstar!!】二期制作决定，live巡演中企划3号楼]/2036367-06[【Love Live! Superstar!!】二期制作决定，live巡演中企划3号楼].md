@@ -311,3 +311,15 @@ Kitori869
 级别:学徒 威望:1 发帖:543</blockquote>
 懂了，鲤鱼在他看来是个管人
 
+
+
+*****
+
+####  D麦林  
+##### 7529#       发表于 2022-5-1 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55657830&amp;ptid=2036367" target="_blank">adw667 发表于 2022-5-1 17:07</a>
+懂了，鲤鱼在他看来是个管人</blockquote>
+哈哈哈哈哈哈哈哈哈
+草 总结过于精辟
+

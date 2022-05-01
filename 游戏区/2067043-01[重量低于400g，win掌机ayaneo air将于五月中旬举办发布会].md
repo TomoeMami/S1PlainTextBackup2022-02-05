@@ -739,3 +739,15 @@ steam的就是定制的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  shit002  
+##### 80#       发表于 2022-5-1 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55656953&amp;ptid=2067043" target="_blank">lubo 发表于 2022-5-1 15:38</a>
+
+怎么可能，这最少也得4200</blockquote>
+那就没意义了，只提重量和性能不提价钱就是耍流氓。
+
