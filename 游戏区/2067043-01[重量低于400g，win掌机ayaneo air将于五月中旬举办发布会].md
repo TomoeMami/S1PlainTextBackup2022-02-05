@@ -679,3 +679,12 @@ aya定制720p比用库存1080贵吧
 —— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2-play</blockquote>
 所以 Switch 原版就是刑具啊，轻量化的 Lite 明显更接近掌机标准，只是 Lite 阉割太猛没法替代原版的很多功能。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shit002  
+##### 75#       发表于 2022-5-1 15:13
+
+价格也和老版NS一样看齐299美金吗？
+
