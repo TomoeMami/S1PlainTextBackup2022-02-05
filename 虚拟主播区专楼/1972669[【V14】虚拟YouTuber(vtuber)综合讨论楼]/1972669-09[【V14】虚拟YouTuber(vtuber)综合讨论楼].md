@@ -7749,3 +7749,36 @@ vtuber这行虽说播什么内容都行但实际上主要还是杂谈+游戏这�
 
 4月SC出来了，你虹不带把儿的全裁了都没事。
 
+
+
+*****
+
+####  wuzhengkai  
+##### 12731#       发表于 2022-5-1 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55656976&amp;ptid=1972669" target="_blank">我单推副会长 发表于 2022-5-1 15:41</a>
+
+远大理想能有啥远大理想，96猫套皮直播不也玩的挺开心的，活动也参加，也不影响去给动画唱歌。
+
+觉得被企业 ...</blockquote>
++1 你虹也不是不让你本体活动啊 （应该是吧
+
+*****
+
+####  AloissiolA  
+##### 12732#       发表于 2022-5-1 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55655200&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-5-1 12:51</a>
+
+这也是最闹不明白的，就算去了MAISONdes那歌曲版权也不是自己的啊，难道想单飞 ...</blockquote>
+她只给MAISONdes做feat，没供曲
+
+而且MAISONdes更像中间人，约一个写曲的，约一个唱的，然后做曲子，本身又不是什么事务所
+
+*****
+
+####  cckuku  
+##### 12733#       发表于 2022-5-1 18:13
+
+虹en的要来b限了？
+
