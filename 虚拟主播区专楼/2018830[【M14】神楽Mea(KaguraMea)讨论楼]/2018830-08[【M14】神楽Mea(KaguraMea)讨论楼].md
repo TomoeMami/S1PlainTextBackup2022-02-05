@@ -1687,3 +1687,16 @@ gw我唯一的愿望就是只要自频道别一大堆vcp企划就行<img src="ht
 
 看了一遍你麻出场，真活泼<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我单推副会长  
+##### 10655#       发表于 2022-5-1 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">除了中间和时雨妈妈对话部分太台本有点尬之外还好。
+
+能有这么厉害乐队进行现场伴奏的live不多了，ubiquitous db这选曲也比管人水平良莠不齐的原创曲好多了。
+
+版权是sony的，不知道能选这歌有没有vcp的因素。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

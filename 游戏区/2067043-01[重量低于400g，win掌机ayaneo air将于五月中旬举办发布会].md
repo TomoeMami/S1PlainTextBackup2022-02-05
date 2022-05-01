@@ -688,3 +688,15 @@ aya定制720p比用库存1080贵吧
 
 价格也和老版NS一样看齐299美金吗？
 
+
+
+*****
+
+####  lubo  
+##### 76#       发表于 2022-5-1 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55656709&amp;ptid=2067043" target="_blank">shit002 发表于 2022-5-1 15:13</a>
+
+价格也和老版NS一样看齐299美金吗？</blockquote>
+怎么可能，这最少也得4200
+
