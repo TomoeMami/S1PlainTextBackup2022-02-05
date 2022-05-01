@@ -639,3 +639,18 @@ aya定制720p比用库存1080贵吧
 
 400g 对掌机来说是刑具重量，但对 win 掌机来说却是值得一吹的数值，真讽刺
 
+
+
+*****
+
+####  allenz3  
+##### 72#       发表于 2022-5-1 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55653968&amp;ptid=2067043" target="_blank">翼宿一 发表于 2022-5-1 11:04</a>
+和 lite 一样的屏幕尺寸，我为什么不选能点对点渲染还无频闪的 LCD（
+
+400g 对掌机来说是刑具重量，但对 win ...</blockquote>
+老任就是400多啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
