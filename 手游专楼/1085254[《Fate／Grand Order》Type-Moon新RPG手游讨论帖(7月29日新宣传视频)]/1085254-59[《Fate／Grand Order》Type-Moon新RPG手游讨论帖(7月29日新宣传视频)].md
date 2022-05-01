@@ -8933,3 +8933,15 @@ fgo实装孙渣了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">票子抽小碧池全沉了啊
 
+
+
+*****
+
+####  alucardcz  
+##### 87776#       发表于 2022-5-1 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55650035&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-4-30 23:30</a>
+
+票子抽小碧池全沉了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 不羡慕
+
