@@ -700,3 +700,15 @@ aya定制720p比用库存1080贵吧
 价格也和老版NS一样看齐299美金吗？</blockquote>
 怎么可能，这最少也得4200
 
+
+
+*****
+
+####  83913536  
+##### 77#       发表于 2022-5-1 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55652219&amp;ptid=2067043" target="_blank">rak1 发表于 2022-5-1 07:40</a>
+
+"之前从未出现在过Windows掌机上的U"我感觉大概率就是steam deck上的那个的小改甚至完全不改，毕竟sd不能算 ...</blockquote>
+steam的就是定制的
+
