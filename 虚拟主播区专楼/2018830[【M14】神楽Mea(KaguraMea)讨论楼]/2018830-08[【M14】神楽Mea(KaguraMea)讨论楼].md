@@ -1879,3 +1879,16 @@ mea作为打野居然带动全场，全局乱杀，含金量。<img src="https:/
 
 这把蜘蛛打的好啊，操作很极限。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10675#       发表于 2022-5-2 06:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55664307&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2022-5-2 01:53</a>
+恭喜你说对了。感觉mea 14年开始积累的lol圈人脉比管人人脉强……啥鬼临时车队啊，一个上赛季最强王者一个 ...</blockquote>
+14年不是13岁？她的最早可追溯记录又往前提了一年吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
