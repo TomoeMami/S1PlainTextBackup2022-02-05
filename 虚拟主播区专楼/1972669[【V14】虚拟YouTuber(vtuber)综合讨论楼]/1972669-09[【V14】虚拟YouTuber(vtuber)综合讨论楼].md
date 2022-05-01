@@ -7595,3 +7595,14 @@ syl，三枝是杂谈说过先干两年，往后没有考虑过的主，当时�
 
 这下搞音乐的都看清了，利好anmr
 
+
+
+*****
+
+####  shuipiao520  
+##### 12714#       发表于 2022-5-1 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有一说一 你就是唱片公司出道的正规歌手 你见过几个能拿到自己的歌曲版权能带走的。。
+
+不过 起码也算好聚好散了 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 就是可惜被删掉的那些歌了 哎
+
