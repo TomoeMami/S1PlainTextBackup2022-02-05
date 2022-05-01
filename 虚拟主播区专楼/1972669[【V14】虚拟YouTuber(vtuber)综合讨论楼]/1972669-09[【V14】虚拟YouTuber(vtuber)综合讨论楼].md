@@ -7864,3 +7864,52 @@ Luxiem 的Vox Akuma 将会在中国时间 5 月 6 日(五)19:00 进行 B 站限�
 
 看看能不能快进到虚空千舰再演，我先投降了
 
+
+
+*****
+
+####  OldGlory  
+##### 12742#       发表于 2022-5-1 18:37
+
+2022年彩虹终于开窍了
+
+*****
+
+####  lor  
+##### 12743#       发表于 2022-5-1 18:38
+
+原来之前mysta发的我爱你是预告<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">vr有人在看吗，上点心学学国v搞舰长礼物，万舰说不定也不是不可以哦。
+总觉得接着会有标准的zz节奏，噗浪炎上简中妹怒而打钱……哦已经开始了啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 12744#       发表于 2022-5-1 18:39
+
+草，千舰？怕不是要万舰了……
+
+*****
+
+####  cckuku  
+##### 12745#       发表于 2022-5-1 18:40
+
+千舰开玩笑的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么觉得最多就百舰呢？
+
+*****
+
+####  越动天下  
+##### 12746#       发表于 2022-5-1 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658872&amp;ptid=1972669" target="_blank">cckuku 发表于 2022-5-1 18:40</a>
+千舰开玩笑的吧我怎么觉得最多就百舰呢？</blockquote>
+已经虚空91舰了好吧 不要小看呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Finaa  
+##### 12747#       发表于 2022-5-1 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55658845&amp;ptid=1972669" target="_blank">lor 发表于 2022-5-1 18:38</a>
+原来之前mysta发的我爱你是预告vr有人在看吗，上点心学学国v搞舰长礼物，万舰说不定也不是不可以哦 ...</blockquote>
+维阿舰长礼物搞了好久了，然而臭底边就是臭底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
