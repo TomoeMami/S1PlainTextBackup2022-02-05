@@ -7573,3 +7573,25 @@ syl 草，频道都删了。不想让管人痴缠着自己是吧
 
 自己不可分割的分身，但是版权在别人手上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 12712#       发表于 2022-5-1 13:57
+
+ 本帖最后由 winda 于 2022-5-1 13:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底梅丽莎这个形象的版权都不在她手上，这个形象的所有东西都是想带但带不走的，要他认同就是要在彩虹一条路走到黑，难度有点高
+菅原圭也相当于他网上的虚拟形象，但这就是属于他的
+怎么兜兜转转感觉又兜回版权上了
+
+syl，三枝是杂谈说过先干两年，往后没有考虑过的主，当时要是毕业了也不奇怪，不过最后还是续了
+
+*****
+
+####  rzrbtk  
+##### 12713#       发表于 2022-5-1 14:00
+
+这下搞音乐的都看清了，利好anmr
+

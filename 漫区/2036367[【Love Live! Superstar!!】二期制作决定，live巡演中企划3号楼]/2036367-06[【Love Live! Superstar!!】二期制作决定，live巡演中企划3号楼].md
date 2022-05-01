@@ -266,3 +266,19 @@ Kitori869
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7526#       发表于 2022-5-1 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55655501&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-1 13:21</a>
+
+隔壁看见的，挺有趣的转一下，因为发不了图，就复制了
+
+Kitori869
+
+级别:学徒 威望:1 发帖:543</blockquote>
+这也太戏精了，真把人当是属于自己一个人的偶像，这和推上破防骂anju重心不在拉拉缺席fmt的立本死宅有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
