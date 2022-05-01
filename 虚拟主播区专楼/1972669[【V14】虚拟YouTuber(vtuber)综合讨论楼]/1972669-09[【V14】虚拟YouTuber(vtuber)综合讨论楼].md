@@ -8646,3 +8646,35 @@ reimu就算了，继续当pex批吧
 
 有火畜够了，还要加量恩男女粉……
 
+
+
+*****
+
+####  ヒトニナル  
+##### 12825#       发表于 2022-5-1 22:52
+
+怎么把尾崎搞来了，这就是主流的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 12826#       发表于 2022-5-1 23:00
+
+en 5期的Sonny Brisko=wiifreakozoid，新特到的早期小号
+
+一半亚洲一半澳洲，父亲外交工作的原因在日本住过几年
+
+以下是吹比环节 <blockquote>My dad works for the Department of Foreign Affairs for Australia. Back then he had a posting for Tokyo so he accepted and took my mum and sister. After a year I was born. Eventually when I started eating solid food, I was given some sushi and I fell in love with it. At that time my favourite sort was salmon roe but as I grew up I found different sorts of fish. In case you were wondering, I didnt know much about anime at that time, (in fact I still dont) but my favourite shows (if they count for at least half a point) were Doraemon, Anpaman and some of the Sanrio productions (Hello Kitty, Cinnamoroll, Keroppi etc).
+
+END</blockquote><blockquote>Fun fact:A friend of our family used to be Mel Gibson's girlfriend
+
+Another: My dad met Sir Edmund Hillary (first man to climb Mt Everest)
+
+Another: I've been in three TV commercials
+
+Fun fact: I was a mascot for MAMEE noodles in Myanmar
+
+Another: I am part related to the King of Laos
+
+Another: Lets stop bragging about our relations with TV and famous people</blockquote>
+
