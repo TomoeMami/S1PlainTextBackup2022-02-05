@@ -1823,3 +1823,59 @@ b博大量回复中
 
 说不定到时候1 2点时候直接整个突击直播 不过估计都没有什么人看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我单推副会长  
+##### 10669#       发表于 2022-5-2 01:53
+
+ 本帖最后由 我单推副会长 于 2022-5-2 01:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55663130&amp;ptid=2018830" target="_blank">Klience 发表于 2022-5-2 00:00</a>
+
+说不定到时候1 2点时候直接整个突击直播 不过估计都没有什么人看了</blockquote>
+恭喜你说对了。感觉mea 14年开始积累的lol圈人脉比管人人脉强……啥鬼临时车队啊，一个上赛季最强王者一个上赛季超凡大师……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 10670#       发表于 2022-5-2 01:53
+
+twitch没这么亮啊，转播怎么回事？？？
+
+*****
+
+####  Dualist彩  
+##### 10671#       发表于 2022-5-2 01:54
+
+来了来了，还挺有精神的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 10672#       发表于 2022-5-2 02:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哈哈，我直接昏迷
+
+*****
+
+####  我单推副会长  
+##### 10673#       发表于 2022-5-2 02:58
+
+ 本帖最后由 我单推副会长 于 2022-5-2 03:17 编辑 
+
+对面三白金1钻石，钻石是辅助，1级就把我方下路干碎了。
+
+mea作为打野居然带动全场，全局乱杀，含金量。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然还是输了………………………………………………………………
+
+开播前就用上单波比和钻石劲夫打的有来有回，虽然输了，但是波比有加强那么多吗？
+
+*****
+
+####  我单推副会长  
+##### 10674#       发表于 2022-5-2 03:54
+
+ 本帖最后由 我单推副会长 于 2022-5-2 04:13 编辑 
+
+这把蜘蛛打的好啊，操作很极限。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

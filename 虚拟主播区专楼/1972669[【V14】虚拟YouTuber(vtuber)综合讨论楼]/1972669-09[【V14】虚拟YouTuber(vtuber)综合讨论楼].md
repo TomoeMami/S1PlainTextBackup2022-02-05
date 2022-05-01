@@ -8725,3 +8725,39 @@ Another: Lets stop bragging about our relations with TV and famous people</block
 
 好浓一股借喷mmr车杏奴和日v粉的阴湿味儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 12830#       发表于 2022-5-2 02:41
+
+小勾，队安，勿念
+
+这下阵容优化了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 12831#       发表于 2022-5-2 03:41
+
+怎么s1反而是b综讨论最热烈
+
+*****
+
+####  winda  
+##### 12832#       发表于 2022-5-2 04:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cr这积分甚至进不了冠军赛，还得去打lcq2争最后两个赛区名额，ojiji脸色估计很难看
+
+*****
+
+####  空集  
+##### 12833#       发表于 2022-5-2 04:49
+
+<blockquote>lor 发表于 2022-5-1 19:57
+星本来就不少ww观众的，这次入驻那边相关讨论下安利holo的比往jp引的还多。要不yagoo快点把星en男端上来
+
+虹 ...</blockquote>
+噗浪阿姨以前都没有去推星也不会因为这种事情就去推的，如同bxj在杏走了后也最后可能转a最多是一回事
+
