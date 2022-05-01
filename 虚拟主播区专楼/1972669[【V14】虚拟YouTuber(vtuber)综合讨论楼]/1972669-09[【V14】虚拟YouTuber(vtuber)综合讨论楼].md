@@ -8678,3 +8678,26 @@ Another: I am part related to the King of Laos
 
 Another: Lets stop bragging about our relations with TV and famous people</blockquote>
 
+
+
+*****
+
+####  fastary  
+##### 12827#       发表于 2022-5-1 23:19
+
+怎么特出来的，在网络一个个排查提过自己有姐姐+澳混血+小时候在日本+喜欢寿司的推特账号吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+吹比不重要，重要的是吹比怎么不po照片，好想看喜欢开各种小号rp的家伙长什么样x
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|有，我没有贴|
+
+查看全部评分
+
