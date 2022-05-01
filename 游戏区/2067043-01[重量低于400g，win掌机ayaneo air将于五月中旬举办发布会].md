@@ -654,3 +654,15 @@ aya定制720p比用库存1080贵吧
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  魔法酪饼  
+##### 73#       发表于 2022-5-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55653831&amp;ptid=2067043" target="_blank">hellgate77 发表于 2022-05-01 10:54:29</a>
+这个cpu能跑什么级别地位模拟器呢</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">应该是可以通吃到ps3
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

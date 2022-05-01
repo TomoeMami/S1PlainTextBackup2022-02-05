@@ -7474,3 +7474,27 @@ syl 草，频道都删了。不想让管人痴缠着自己是吧
 
 冥府20出道的所以是两年合同吧。今后岂不是明显长期摆烂又2倍数年头的都要担心了……虹现在合同到期说要走也不奇怪的有哪些人这是可以问的吗
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12702#       发表于 2022-5-1 12:27
+
+续约续几年说不太清楚，也就20后能判断准确的合同到期时间。20后看起来东堂是最摆的，20前的好像听说三枝本来打算走的？
+
+*****
+
+####  OldGlory  
+##### 12703#       发表于 2022-5-1 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55653711&amp;ptid=1972669" target="_blank">やト 发表于 2022-5-1 10:43</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202205/01/123014cx4fz9f4m7mofm7y.png" referrerpolicy="no-referrer">
+
+<strong>9A69B68813770AEEBB9385928EF65E02.png</strong> (48.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-1 12:30 上传
+
