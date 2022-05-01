@@ -1749,3 +1749,14 @@ b博大量回复中
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 10661#       发表于 2022-5-1 20:02
+
+我是不懂……啦，不过果然还是得收收味捏。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
