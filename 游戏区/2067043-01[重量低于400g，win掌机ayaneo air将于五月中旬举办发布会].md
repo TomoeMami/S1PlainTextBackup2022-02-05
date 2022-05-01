@@ -712,3 +712,30 @@ aya定制720p比用库存1080贵吧
 "之前从未出现在过Windows掌机上的U"我感觉大概率就是steam deck上的那个的小改甚至完全不改，毕竟sd不能算 ...</blockquote>
 steam的就是定制的
 
+
+
+*****
+
+####  qappip  
+##### 78#       发表于 2022-5-1 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55652219&amp;ptid=2067043" target="_blank">rak1 发表于 2022-5-1 07:40</a>
+
+"之前从未出现在过Windows掌机上的U"我感觉大概率就是steam deck上的那个的小改甚至完全不改，毕竟sd不能算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100%sd那款不是，我用sd玩巫师3原生800p 画质开全高不开环境光 是50+的。 开了环境光变成45+左右。
+
+2077原生800p 自带的deck挡位 需要fsr最高画质模式 固定30. 不过我个不喜欢fsr 最低画质 锁死40帧 很少波动。
+
+性能差的有点远。
+
+*****
+
+####  rak1  
+##### 79#       发表于 2022-5-1 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55657338&amp;ptid=2067043" target="_blank">qappip 发表于 2022-5-1 16:15</a>
+100%sd那款不是，我用sd玩巫师3原生800p 画质开全高不开环境光 是50+的。 开了环境光变成45+左右 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">那就没啥意思了，比sd贵性能还差有什么推出的必要吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
