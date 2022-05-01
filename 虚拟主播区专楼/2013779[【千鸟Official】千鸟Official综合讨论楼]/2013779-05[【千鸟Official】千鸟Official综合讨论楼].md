@@ -306,3 +306,14 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 <img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">那群发散傻逼能不能死啊
 现在直播都没了
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6034#       发表于 2022-5-1 20:01
+
+屁大点事装死这么久，这杀伤力不比小作文弱，只能等不知道什么时候才有的日程表了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -8202,3 +8202,31 @@ vup.darkflame是不是还没更新en男团的信息，想看看内部斗虫没�
 
 虹人自19年年初开始就一直是这个b样啦 再神奇看了三年还是腻歪了，只想看他们笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AKili  
+##### 12779#       发表于 2022-5-1 19:56
+
+看隔壁a手打得越狠，说明越火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lor  
+##### 12780#       发表于 2022-5-1 19:57
+
+ 本帖最后由 lor 于 2022-5-1 19:58 编辑 
+
+星本来就不少ww观众的，这次入驻那边相关讨论下安利holo的比往jp引的还多。要不yagoo快点把星en男端上来
+虹本社国内没水花这事，只会内部搞歧视链的虹太监八分锅不过分吧。隔壁虹楼不就已经因为封面放成叶开始跳脚了，明明是个不错的引流安利机会，瞧不起en粉又只敢自己小圈圈跳脚多少有点可怜<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  OldGlory  
+##### 12781#       发表于 2022-5-1 20:01
+
+所以为啥封面是叶
+
