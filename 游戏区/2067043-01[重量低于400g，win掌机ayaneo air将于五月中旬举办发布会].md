@@ -578,3 +578,12 @@ aya定制720p比用库存1080贵吧
 —— 来自 Xiaomi Re ...</blockquote>
 就这些pc游戏的测试数据来看，应该连标题也进不去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  筒井彩芽  
+##### 66#       发表于 2022-5-1 08:47
+
+只看这些介绍，感觉这个比之前那些win掌机都好好不少，具体咋样还得看是不是吹出来的和价格
+
