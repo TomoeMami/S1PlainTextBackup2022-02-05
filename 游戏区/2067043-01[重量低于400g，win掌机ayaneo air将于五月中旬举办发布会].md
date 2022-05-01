@@ -587,3 +587,24 @@ aya定制720p比用库存1080贵吧
 
 只看这些介绍，感觉这个比之前那些win掌机都好好不少，具体咋样还得看是不是吹出来的和价格
 
+
+
+*****
+
+####  魔法酪饼  
+##### 67#       发表于 2022-5-1 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">6600u的话就买
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ASDZ  
+##### 68#       发表于 2022-5-1 10:33
+
+还行，如果我年轻十岁可能会想要
+因为小时候手小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9 SE, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
