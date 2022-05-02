@@ -938,3 +938,21 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 希望以後不會"誤報"吧</blockquote>
 应该说是还没官宣吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉算比较稳了
 
+
+
+*****
+
+####  g54088  
+##### 99#       发表于 2022-5-2 17:38
+
+好事，se多开发hd2d吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from HUAWEI LYA-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lost-star  
+##### 100#       发表于 2022-5-2 17:40
+
+黑人劳拉要来了？
+
