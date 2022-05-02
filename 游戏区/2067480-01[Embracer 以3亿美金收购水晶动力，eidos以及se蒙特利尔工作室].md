@@ -1154,3 +1154,14 @@ SE也没办法卖贵啊，这几个工作室作品销量和投入大家都知道
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lucky95  
+##### 120#       发表于 2022-5-2 21:53
+
+人类分裂又内购又烂尾，还因为销量差连DLC补完都不做，活该亏死SE <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+快出3吧
+

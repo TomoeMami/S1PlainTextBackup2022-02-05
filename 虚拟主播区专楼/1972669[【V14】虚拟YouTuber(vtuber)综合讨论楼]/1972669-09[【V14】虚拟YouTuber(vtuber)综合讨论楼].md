@@ -8989,3 +8989,17 @@ GW最終日
 
 最高の思い出作るぞ
 
+
+
+*****
+
+####  fastary  
+##### 12852#       发表于 2022-5-2 21:57
+
+公式告知
+
+出演：不破湊/三枝明那
+<strong>亲友</strong>：黛灰
+
+一直开玩笑强调都是business的饭屋终于也有了官方表记亲友的一天，我圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
