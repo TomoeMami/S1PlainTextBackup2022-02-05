@@ -1113,3 +1113,15 @@ se这边也不别想着做服务性游戏了，但是老实说是便宜了<img s
 我说这个公司的老板脑子是有些大冰 ...</blockquote>
 我也觉得是有病，不过这种投资没成之前都看着像大病，你可以评99次都是你对，人家赌对一次就直接飞升了。
 
+
+
+*****
+
+####  D-JoeII  
+##### 116#       发表于 2022-5-2 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55670600&amp;ptid=2067480" target="_blank">大秦男女 发表于 2022-5-2 18:36</a>
+
+古墓丽影工作室不是刚刚宣布要实施上4天休3天制吗？</blockquote>
+瑞典那邊年休更多,沒啥
+
