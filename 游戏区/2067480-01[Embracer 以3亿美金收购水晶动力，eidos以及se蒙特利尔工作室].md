@@ -696,3 +696,49 @@ embrace就是原来thq nordic(不是thq)吧，不看好
 好消息是,Emberacer收購後第一件事是宣佈殺出重圍會出新作
 [https://twitter.com/Nibellion/status/1521035149160460288](https://twitter.com/Nibellion/status/1521035149160460288)
 
+
+
+*****
+
+####  すぴぱら  
+##### 78#       发表于 2022-5-2 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">古墓丽影烂成这样 那是给谁谁都不要了
+
+*****
+
+####  今天不守尸  
+##### 79#       发表于 2022-5-2 16:06
+
+不是，怎么还有说为什么不卖给微软索尼宰一笔的
+
+这些真的要是赚钱se会随便贱卖掉？真当资本家是弱智啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MikawaFumika  
+##### 80#       发表于 2022-5-2 16:07
+
+这几个加起来才三亿美元...ip真的没那么值钱
+
+*****
+
+####  zikimi  
+##### 81#       发表于 2022-5-2 16:09
+
+ 本帖最后由 zikimi 于 2022-5-2 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669152&amp;ptid=2067480" target="_blank">Guildenstern 发表于 2022-5-2 15:59</a>
+
+@zikimi
+
+复联就是SE自己力主要做成gaas的，后来财报里总结不该让单机游戏工作室硬去开发联机游戏。</blockquote>
+
+妇联和银护，都是漫威和SE欧洲合作搞的企划，日本这边还真没管，SE欧洲和日本八杆子打不着，只不过统一同属于SE集团，水晶动力本质上属于SE欧洲的子工作室，和世嘉日本与世嘉欧洲关系一样
+
+*****
+
+####  zayrq  
+##### 82#       发表于 2022-5-2 16:12
+
+前面有很多人可惜古墓丽影的。我寻思玩过暗影都知道有多无聊，这类**游戏已经做到头了。还有说索尼可以收购的，他自家的神秘海域都不做了。
+
