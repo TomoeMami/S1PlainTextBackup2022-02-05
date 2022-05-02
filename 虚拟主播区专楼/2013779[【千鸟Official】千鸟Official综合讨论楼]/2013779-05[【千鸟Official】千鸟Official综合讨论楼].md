@@ -684,3 +684,30 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 
 别走好吗
 
+
+
+*****
+
+####  Finsty  
+##### 6072#       发表于 2022-5-2 22:36
+
+这下CJ能否切腹谢罪喵
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lada2104  
+##### 6073#       发表于 2022-5-2 22:40
+
+回来就好，真是开心
+
+*****
+
+####  冯闵斯特伯格  
+##### 6074#       发表于 2022-5-2 22:42
+
+哎。语气让人不安
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
