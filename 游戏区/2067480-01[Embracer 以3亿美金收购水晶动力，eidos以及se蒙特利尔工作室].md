@@ -742,3 +742,70 @@ embrace就是原来thq nordic(不是thq)吧，不看好
 
 前面有很多人可惜古墓丽影的。我寻思玩过暗影都知道有多无聊，这类**游戏已经做到头了。还有说索尼可以收购的，他自家的神秘海域都不做了。
 
+
+
+*****
+
+####  hentianwuya  
+##### 83#       发表于 2022-5-2 16:15
+
+这3亿美元基本就是古墓丽影的IP价值了吧，你们还真当杀出重围神偷那些还有IP价值呢？
+
+至于员工？就这疫情施虐的当下，那基本就是负资产。
+
+老实说在神海都做不出未来的领域，一个纯单机IP能值3亿已经不错了。
+
+就是蒙特利尔有点可惜了，这个工作室还有点实力的。
+
+*****
+
+####  MikawaFumika  
+##### 84#       发表于 2022-5-2 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669281&amp;ptid=2067480" target="_blank">hentianwuya 发表于 2022-5-2 16:15</a>
+
+这3亿美元基本就是古墓丽影的IP价值了吧，你们还真当杀出重围神偷那些还有IP价值呢？
+
+至于员工？就这疫情施 ...</blockquote>
+员工怎么也不能算负资产啊，不然棒鸡就靠个命运能值那么多钱？
+
+*****
+
+####  zikimi  
+##### 85#       发表于 2022-5-2 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669281&amp;ptid=2067480" target="_blank">hentianwuya 发表于 2022-5-2 16:15</a>
+这3亿美元基本就是古墓丽影的IP价值了吧，你们还真当杀出重围神偷那些还有IP价值呢？
+
+至于员工？就这疫情施 ...</blockquote>
+从最近招聘看，水晶动力估计近乎空壳了，人基本上跑完了，这么多人eidos蒙特利尔和他的卫星工作室估计占大头
+
+*****
+
+####  kidthief  
+##### 86#       发表于 2022-5-2 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669296&amp;ptid=2067480" target="_blank">MikawaFumika 发表于 2022-5-2 16:18</a>
+
+员工怎么也不能算负资产啊，不然棒鸡就靠个命运能值那么多钱？</blockquote>
+得分谁的员工。
+
+棒鸡那是什么水平，SE欧美的这些人又是什么水平。
+
+光环和命运是古墓丽影能比的嘛。
+
+而且命运2是服务型游戏，一直在各种更新，蒸蒸日上。
+
+索尼要的就是大热服务型游戏的员工。
+
+*****
+
+####  医生狼多  
+##### 87#       发表于 2022-5-2 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669186&amp;ptid=2067480" target="_blank">D-JoeII 发表于 2022-5-2 16:02</a>
+好消息是,Emberacer收購後第一件事是宣佈殺出重圍會出新作
+
+https://twitter.com/Nibellion/status/15210351 ...</blockquote>
+是误报，现在已经删了
+
