@@ -857,3 +857,16 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 希望以後不會"誤報"吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DawnGuardian  
+##### 91#       发表于 2022-5-2 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669186&amp;ptid=2067480" target="_blank">D-JoeII 发表于 2022-5-2 16:02</a>
+
+好消息是,Emberacer收購後第一件事是宣佈殺出重圍會出新作
+[https://twitter.com/Nibellion/status/15210351](https://twitter.com/Nibellion/status/15210351) ...</blockquote>
+草，没看到后面的回复<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
