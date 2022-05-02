@@ -8832,3 +8832,12 @@ cr打这季后赛 正面天天被人一碰就碎
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  空集  
+##### 12839#       发表于 2022-5-2 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 话是这么说 转念一想大部分人当管人前做的也只是家里蹲直播一样不能写进履历书啊 而且还是没什么人看的那种，倒不如问问有多少V在互联网活动外还有别的事情做的。
+
