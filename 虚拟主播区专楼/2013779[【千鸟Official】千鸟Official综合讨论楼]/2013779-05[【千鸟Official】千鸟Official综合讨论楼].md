@@ -494,3 +494,14 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 
 账号都被收走了，这几天没看到文静进其他直播间<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6052#       发表于 2022-5-2 13:13
+
+这运营干的真是人事，早点毕业互相解脱吧，真配不上她
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
