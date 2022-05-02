@@ -843,3 +843,17 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 索尼买棒鸡30个亿，其中15亿是买员工的。
 
+
+
+*****
+
+####  D-JoeII  
+##### 90#       发表于 2022-5-2 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669329&amp;ptid=2067480" target="_blank">医生狼多 发表于 2022-5-2 16:23</a>
+
+是误报，现在已经删了</blockquote>
+草
+
+希望以後不會"誤報"吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
