@@ -8774,3 +8774,14 @@ cr打这季后赛 正面天天被人一碰就碎
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lor  
+##### 12835#       发表于 2022-5-2 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55664779&amp;ptid=1972669" target="_blank">空集 发表于 2022-5-2 04:49</a>
+噗浪阿姨以前都没有去推星也不会因为这种事情就去推的，如同bxj在杏走了后也最后可能转a最多是一回事 ...</blockquote>
+这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">感觉uproar新出来那会还是引到一点去看的还以为能行。看来还是得星en
+
