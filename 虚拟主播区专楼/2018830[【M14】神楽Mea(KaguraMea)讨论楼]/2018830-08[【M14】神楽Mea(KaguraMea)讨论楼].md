@@ -1948,3 +1948,19 @@ mea作为打野居然带动全场，全局乱杀，含金量。[f:0 ...</blockqu
 
 之前你人不是说那个后辈喜欢玩101吗 有人挖出来账号吗 我想看看这人战绩怎样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我单推副会长  
+##### 10681#       发表于 2022-5-2 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55665686&amp;ptid=2018830" target="_blank">Klience 发表于 2022-5-2 09:54</a>
+
+之前你人不是说那个后辈喜欢玩101吗 有人挖出来账号吗 我想看看这人战绩怎样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，
+
+mea现在官号67级，私号300级。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+账号名应该已经改了，理论上是比mea更沉迷lol的玩家。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
