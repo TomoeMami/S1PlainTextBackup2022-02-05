@@ -471,3 +471,26 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 
 其他所有的剧本都没办法解释你把观众晾在那里冷暴力七天 以为自己是什么大企业的游戏女仆吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nishazhiyang  
+##### 6049#       发表于 2022-5-2 13:03
+
+一个猜想 这下真的永失我静了
+
+*****
+
+####  lada2104  
+##### 6050#       发表于 2022-5-2 13:06
+
+这下真解脱了，千鸟这烂企划配不上她，希望还能有缘别处再见吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜潇箫  
+##### 6051#       发表于 2022-5-2 13:06
+
+账号都被收走了，这几天没看到文静进其他直播间<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
