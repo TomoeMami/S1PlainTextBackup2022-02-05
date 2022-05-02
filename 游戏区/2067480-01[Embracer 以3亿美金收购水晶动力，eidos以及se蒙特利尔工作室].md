@@ -925,3 +925,16 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 所谓卖得便宜就一个原因，IP变现周期长回报低，工作室绩效差，没有持续稳定的盈利能力，只要能赚，哪怕不多也不至于会被当作包袱，SE衡量过后认为断尾后反而能轻装上阵
 
+
+
+*****
+
+####  医生狼多  
+##### 98#       发表于 2022-5-2 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669479&amp;ptid=2067480" target="_blank">D-JoeII 发表于 2022-5-2 16:42</a>
+草
+
+希望以後不會"誤報"吧</blockquote>
+应该说是还没官宣吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉算比较稳了
+
