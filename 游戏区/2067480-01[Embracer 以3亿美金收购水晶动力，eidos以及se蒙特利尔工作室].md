@@ -645,3 +645,54 @@ embrace在收购上已经花了80亿刀了，然而神奇的是现在市值只�
 embrace在收购上已经花了80亿刀了，然而神奇的是现在市值只有70亿刀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于部分公司来说，市值没什么意义。
 
+
+
+*****
+
+####  zikimi  
+##### 73#       发表于 2022-5-2 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669018&amp;ptid=2067480" target="_blank">scg2017 发表于 2022-5-2 15:44</a>
+微软为啥不买？？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+收购动暴完成前不能继续收购吧
+
+*****
+
+####  scg2017  
+##### 74#       发表于 2022-5-2 15:57
+
+embrace就是原来thq nordic(不是thq)吧，不看好
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fxz1986  
+##### 75#       发表于 2022-5-2 15:57
+
+漫威银河护卫队真心神作，这几年最平衡出彩的3a
+
+*****
+
+####  Guildenstern  
+##### 76#       发表于 2022-5-2 15:59
+
+<blockquote>引用第62楼zikimi于2022-05-02 15:43发表的  :
+
+引用:Guildenstern 发表于 2022-5-2 15:39@Bruce33世嘉好就好在欧美......</blockquote>
+@zikimi
+
+复联就是SE自己力主要做成gaas的，后来财报里总结不该让单机游戏工作室硬去开发联机游戏。
+
+----发送自 [OnePlus MT2110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  D-JoeII  
+##### 77#       发表于 2022-5-2 16:02
+
+好消息是,Emberacer收購後第一件事是宣佈殺出重圍會出新作
+[https://twitter.com/Nibellion/status/1521035149160460288](https://twitter.com/Nibellion/status/1521035149160460288)
+
