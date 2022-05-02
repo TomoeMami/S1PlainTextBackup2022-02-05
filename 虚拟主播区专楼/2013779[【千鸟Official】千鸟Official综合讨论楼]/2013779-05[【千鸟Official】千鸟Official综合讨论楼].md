@@ -817,3 +817,23 @@ cj这b是不是脑子有毛病
 从位子上撸下来可不就是挡人财路杀父之仇</blockquote>
 这.......那陈珺这不是无能狂怒呢
 
+
+
+*****
+
+####  庸necro  
+##### 6087#       发表于 2022-5-2 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55673863&amp;ptid=2013779" target="_blank">alarmAll 发表于 2022-5-2 23:30</a>
+这.......那陈珺这不是无能狂怒呢</blockquote>
+把直播员干沉默一周也不能算无能狂怒了
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  rgauss  
+##### 6088#       发表于 2022-5-2 23:41
+
+真的，我希望我和大家以后身边都不会有这种同事，骨粉茶这种话都能说出来，我看脑子都没了
+
