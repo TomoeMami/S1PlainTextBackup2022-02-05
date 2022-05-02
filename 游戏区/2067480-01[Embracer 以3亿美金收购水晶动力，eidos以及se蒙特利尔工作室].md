@@ -893,3 +893,19 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 这家公司做什么买卖的，160亿刀随便就拿出来， 搞房地产的吗
 
+
+
+*****
+
+####  OldGlory  
+##### 94#       发表于 2022-5-2 17:09
+
+杀出重围搞快点
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 95#       发表于 2022-5-2 17:10
+
+好事，欧美部分早该滚粗se了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
