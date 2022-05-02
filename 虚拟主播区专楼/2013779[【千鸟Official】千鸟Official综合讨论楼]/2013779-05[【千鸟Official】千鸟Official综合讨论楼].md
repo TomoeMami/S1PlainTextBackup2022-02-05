@@ -1654,3 +1654,33 @@ wb翻完有点难受。。。
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Alfie劉  
+##### 6177#       发表于 2022-5-3 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674159&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-5-3 00:01</a>
+这件事最迷的一点是，不管cj和文静哪边是骗子，千鸟现在的运营都可以站出来说清楚的，总不至于千鸟现在都没 ...</blockquote>
+有没有可能cj在原力势力还是很大的，能压制新运营。
+又或者新运营纯新人，根本搞不清去年的事。
+
+*****
+
+####  Alfie劉  
+##### 6178#       发表于 2022-5-3 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674406&amp;ptid=2013779" target="_blank">我单推副会长 发表于 2022-5-3 00:27</a>
+两边一步都退不了了，谁退了基本上是社会性死亡了。</blockquote>
+cj已经社死了，他根本没在怕的
+
+*****
+
+####  Alfie劉  
+##### 6179#       发表于 2022-5-3 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674597&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-5-3 00:50</a>
+事到如今只能说co宝好润</blockquote>
+法硕的含金量!co子这波卧底调查属于是积累实习经验了
+
