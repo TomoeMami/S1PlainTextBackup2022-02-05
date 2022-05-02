@@ -1134,3 +1134,12 @@ se这边也不别想着做服务性游戏了，但是老实说是便宜了<img s
 
 要是能把凯恩的遗产系列拉出来做也算是好事。
 
+
+
+*****
+
+####  plok201  
+##### 118#       发表于 2022-5-2 21:09
+
+SE也没办法卖贵啊，这几个工作室作品销量和投入大家都知道的，有人肯买就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
