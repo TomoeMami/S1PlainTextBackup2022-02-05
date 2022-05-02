@@ -8761,3 +8761,16 @@ Another: Lets stop bragging about our relations with TV and famous people</block
 虹 ...</blockquote>
 噗浪阿姨以前都没有去推星也不会因为这种事情就去推的，如同bxj在杏走了后也最后可能转a最多是一回事
 
+
+
+*****
+
+####  DT.official  
+##### 12834#       发表于 2022-5-2 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55664761&amp;ptid=1972669" target="_blank">winda 发表于 2022-5-2 04:31</a>
+cr这积分甚至进不了冠军赛，还得去打lcq2争最后两个赛区名额，ojiji脸色估计很难看 ...</blockquote>
+cr打这季后赛 正面天天被人一碰就碎
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
