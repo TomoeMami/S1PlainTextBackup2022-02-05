@@ -1022,3 +1022,46 @@ Embracer原本是做二手游戏盘交易起家的，然后做大后它家老总
 Embracer Group将收购水晶动力工作室、Eidos蒙特利尔、SE蒙特利尔，以及来自史克威尔艾尼克斯的一系列IP， ...</blockquote>
 包括员工当然便宜，只买ip不包括员工的话，剩下1100多人手游大厂掏钱养？
 
+
+
+*****
+
+####  ギナ  
+##### 107#       发表于 2022-5-2 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55670191&amp;ptid=2067480" target="_blank">hentianwuya 发表于 2022-5-2 17:57</a>
+这不就是另外一个奶飞？模式一模一样。
+
+下一步是不是还要建立自己的平台？ ...</blockquote>
+说不定真有可能，毕竟Embracer已经具备在欧洲跟御三家掰手腕的底气了。
+另外我觉得Embracer老总声称是thq真爱粉这点应该不是假的，毕竟旧thq的各种IP现在差不多都被Embracer收回来了，而且各种重制版和续作也都做出来，水晶动力能落到他手里也是件大好事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JudgmentEye  
+##### 108#       发表于 2022-5-2 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669623&amp;ptid=2067480" target="_blank">kuker53 发表于 2022-5-2 17:02</a>
+
+瑞典Embracer集团计划80亿美元继续收购游戏公司和工作室
+
+从2020年起，这家瑞典公司做出了62起收购，价值高 ...</blockquote>
+卖二手漫画搞起来的，后来就是投资人热钱往里进的资本游戏了
+[https://www.sohu.com/a/497610823_100136645](https://www.sohu.com/a/497610823_100136645)
+
+*****
+
+####  hypnossz86  
+##### 109#       发表于 2022-5-2 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">se要完了？卖组补窟窿呢这是？
+
+*****
+
+####  415452356  
+##### 110#       发表于 2022-5-2 18:13
+
+  thq倒了之后很多人才发现自己也想成为新的thq，这公司的规模扩张真是大飞跃
+
