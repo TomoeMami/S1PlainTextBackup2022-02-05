@@ -1908,3 +1908,12 @@ mea作为打野居然带动全场，全局乱杀，含金量。[f:0 ...</blockqu
 
 对面没有拿出卢娜组合算友善了 帝国一出来 给卢仙个buff 一套技能伤害直接看不懂
 
+
+
+*****
+
+####  路人庚  
+##### 10677#       发表于 2022-5-2 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨晚看了1点多还没播就睡了，结果似乎是刚睡她就播了，你咩姐的深夜真的很深夜
+
