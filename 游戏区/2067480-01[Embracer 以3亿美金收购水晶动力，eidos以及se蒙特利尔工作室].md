@@ -1208,3 +1208,12 @@ SE也没办法卖贵啊，这几个工作室作品销量和投入大家都知道
 
 Embracer老总真是游戏真爱啊，老IP收集癖，买了一堆不赚钱的经典IP。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 126#       发表于 2022-5-3 06:41
+
+我想看索尼收购SE然后给松田洋祐一巴掌别他妈整天盯着NFT别整天想着撒网式开发垃圾游戏，有那钱还不如集中在中大体量的IP上<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顺便花点钱换了FF14那垃圾祖传土豆服务器
+
