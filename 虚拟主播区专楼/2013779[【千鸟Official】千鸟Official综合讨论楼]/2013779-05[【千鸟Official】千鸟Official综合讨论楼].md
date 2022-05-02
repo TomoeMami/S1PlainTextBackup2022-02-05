@@ -596,3 +596,16 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 
 应该是已经离职了
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6062#       发表于 2022-5-2 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55670300&amp;ptid=2013779" target="_blank">lada2104 发表于 2022-5-2 18:08</a>
+应该是已经离职了</blockquote>
+先别，等下周直播日历，真要死也不差这一周
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
