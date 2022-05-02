@@ -1626,3 +1626,31 @@ wb翻完有点难受。。。
 
 不需要理解啥了，千鸟自求多福吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6175#       发表于 2022-5-3 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674737&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-5-3 01:05</a>
+这就奇怪了。
+
+假设文静没撒谎，那公司直接飞龙骑脸就完事了。
+
+假设文静撒谎但是公司想保，让几个住在一起 ...</blockquote>
+之前看到的版本是cj没有离开公司，只是调离了这个项目，再加上那些微信聊天截图，他在运营/公司肯定是有自己人的，联系到之前的删律师函和一周装死，我更倾向于草台或者说有大的挡了这个事
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  冯闵斯特伯格  
+##### 6176#       发表于 2022-5-3 07:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55675615&amp;ptid=2013779" target="_blank">tankai 发表于 2022-5-3 02:59</a>
+五人之间有内鬼？</blockquote>
+我不好说，这企划啥事都有可能
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
