@@ -8821,3 +8821,14 @@ cr打这季后赛 正面天天被人一碰就碎
 
 本来以为自己愿意再干三年就一定能再干三年，没想到直播设备烂掉、直播掉段雀杰一、几天后就是神域，再加上脆弱魔法期，就开始说不利于团结的话了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12838#       发表于 2022-5-2 14:19
+
+当管人凭什么不能写进履历书(
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
