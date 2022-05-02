@@ -1964,3 +1964,19 @@ mea现在官号67级，私号300级。<img src="https://static.saraba1st.com/ima
 
 账号名应该已经改了，理论上是比mea更沉迷lol的玩家。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 10682#       发表于 2022-5-2 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55665804&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2022-5-2 10:09</a>
+
+新人啊，20年末的时候光日服账号就360级了，
+
+mea现在官号67级，私号300级。
+
+账号名 ...</blockquote>
+玩的久是一回事 打得好不好也是 视频链接来个 我去看看
+
