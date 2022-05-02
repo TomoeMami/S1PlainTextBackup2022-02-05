@@ -1518,3 +1518,23 @@ wb翻完有点难受。。。
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  tn_teana  
+##### 6163#       发表于 2022-5-3 01:42
+
+乐府新号直播间讨论文静，又被允了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  灰色的狐狸  
+##### 6164#       发表于 2022-5-3 01:50
+
+难受的一批
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
