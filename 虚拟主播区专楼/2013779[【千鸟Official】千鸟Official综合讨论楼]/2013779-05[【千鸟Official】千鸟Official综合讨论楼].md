@@ -731,3 +731,26 @@ cj这畜生又开始了
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  伞沢直美  
+##### 6077#       发表于 2022-5-2 23:18
+
+CJ这碧阳德烂完了属于，意思是不把自己给盒了，不把身份证大头照隐私信息全拍网上就不行呗？
+
+*****
+
+####  T型钉宫病毒  
+##### 6078#       发表于 2022-5-2 23:19
+
+看来俩人一定要似一个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Finsty  
+##### 6079#       发表于 2022-5-2 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">文静似了能不能CJ和老婆一起陪葬啊
+
