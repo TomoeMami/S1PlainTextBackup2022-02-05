@@ -870,3 +870,26 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 [https://twitter.com/Nibellion/status/15210351](https://twitter.com/Nibellion/status/15210351) ...</blockquote>
 草，没看到后面的回复<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  minysun  
+##### 92#       发表于 2022-5-2 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55668957&amp;ptid=2067480" target="_blank">Bruce33 发表于 2022-5-2 15:39</a>
+
+就是说还有欧美工作室的日本公司好像就sega了吧，卡普空也早早放弃丧尸围城和失落星球那群欧美工作室了，看 ...</blockquote>
+任手里的NEXT LEVEL GAMES，RETRO
+
+*****
+
+####  kuker53  
+##### 93#       发表于 2022-5-2 17:02
+
+瑞典Embracer集团计划80亿美元继续收购游戏公司和工作室
+
+从2020年起，这家瑞典公司做出了62起收购，价值高达81亿美元。
+
+这家公司做什么买卖的，160亿刀随便就拿出来， 搞房地产的吗
+
