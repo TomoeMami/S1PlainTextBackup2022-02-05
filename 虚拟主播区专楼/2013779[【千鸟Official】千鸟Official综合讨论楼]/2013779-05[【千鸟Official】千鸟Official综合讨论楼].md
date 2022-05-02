@@ -754,3 +754,66 @@ CJ这碧阳德烂完了属于，意思是不把自己给盒了，不把身份证
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">文静似了能不能CJ和老婆一起陪葬啊
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6080#       发表于 2022-5-2 23:22
+
+他1月20几号不早滚蛋了？拿聊天记录吹什么jb
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rgauss  
+##### 6081#       发表于 2022-5-2 23:22
+
+cj这b是不是脑子有毛病
+
+而且工作群能发出用只只骨头磨成粉泡茶喝这种这么傻逼的话来造自己同事米线啊
+
+看来精神确实不正常了
+
+*****
+
+####  IDIDIDID  
+##### 6082#       发表于 2022-5-2 23:23
+
+高价收文静下颌骨，泡茶喝
+
+*****
+
+####  alarmAll  
+##### 6083#       发表于 2022-5-2 23:25
+
+有没有鸟P说下，为什么CJ跟文静那么大仇啊，B综来的，有点好奇
+
+*****
+
+####  Finsty  
+##### 6084#       发表于 2022-5-2 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55673803&amp;ptid=2013779" target="_blank">alarmAll 发表于 2022-5-2 23:25</a>
+
+有没有鸟P说下，为什么CJ跟文静那么大仇啊，B综来的，有点好奇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">从位子上撸下来可不就是挡人财路杀父之仇
+
+*****
+
+####  龙娘777  
+##### 6085#       发表于 2022-5-2 23:26
+
+文静这动态 我感觉有可能见不到了啊……
+
+*****
+
+####  alarmAll  
+##### 6086#       发表于 2022-5-2 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55673815&amp;ptid=2013779" target="_blank">Finsty 发表于 2022-5-2 23:26</a>
+
+从位子上撸下来可不就是挡人财路杀父之仇</blockquote>
+这.......那陈珺这不是无能狂怒呢
+
