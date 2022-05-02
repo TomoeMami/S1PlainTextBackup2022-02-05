@@ -809,3 +809,37 @@ embrace就是原来thq nordic(不是thq)吧，不看好
 https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 是误报，现在已经删了
 
+
+
+*****
+
+####  MikawaFumika  
+##### 88#       发表于 2022-5-2 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669319&amp;ptid=2067480" target="_blank">kidthief 发表于 2022-5-2 16:21</a>
+
+得分谁的员工。
+
+棒鸡那是什么水平，SE欧美的这些人又是什么水平。
+
+光环和命运是古墓丽影能比的嘛。</blockquote>
+这跟绝大部分员工又没关系
+
+最多是管理层水平有差距
+
+*****
+
+####  kidthief  
+##### 89#       发表于 2022-5-2 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669345&amp;ptid=2067480" target="_blank">MikawaFumika 发表于 2022-5-2 16:25</a>
+
+这跟绝大部分员工又没关系
+
+最多是管理层水平有差距</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 朝九晚五的摸鱼员工，和认真工作搞大作的员工就是不一样啊。管理层是制定方向的，又不能亲自写代码。
+
+公司又不是莎比。
+
+索尼买棒鸡30个亿，其中15亿是买员工的。
+
