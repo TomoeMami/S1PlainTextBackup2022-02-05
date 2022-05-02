@@ -983,3 +983,42 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 索软也不是冤大头！
 
+
+
+*****
+
+####  ギナ  
+##### 104#       发表于 2022-5-2 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669623&amp;ptid=2067480" target="_blank">kuker53 发表于 2022-5-2 17:02</a>
+瑞典Embracer集团计划80亿美元继续收购游戏公司和工作室
+
+从2020年起，这家瑞典公司做出了62起收购，价值高 ...</blockquote>
+Embracer原本是做二手游戏盘交易起家的，然后做大后它家老总自称是thq真爱粉，在thq倒闭大甩卖时直接把thq买剩下的连同名字一起买了，还把集团名改成THQ Nordic，后来因为又收购了深银这些发行商后为了避免跟旗下的THQ Nordic GmbH混淆才改成现在这名<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+总得来说就是当年thq没做到的事情现在这个继承者快要做到了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+PS：完美海外部门也是被Embracer买了，欧洲游戏界一哥非它莫属<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hentianwuya  
+##### 105#       发表于 2022-5-2 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55670162&amp;ptid=2067480" target="_blank">ギナ 发表于 2022-5-2 17:55</a>
+
+Embracer原本是做二手游戏盘交易起家的，然后做大后它家老总自称是thq真爱粉，在thq倒闭大甩卖时直接把th ...</blockquote>
+这不就是另外一个奶飞？模式一模一样。
+
+下一步是不是还要建立自己的平台？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JudgmentEye  
+##### 106#       发表于 2022-5-2 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55668429&amp;ptid=2067480" target="_blank">sad6504 发表于 2022-5-2 14:37</a>
+
+Embracer Group将收购水晶动力工作室、Eidos蒙特利尔、SE蒙特利尔，以及来自史克威尔艾尼克斯的一系列IP， ...</blockquote>
+包括员工当然便宜，只买ip不包括员工的话，剩下1100多人手游大厂掏钱养？
+
