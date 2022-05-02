@@ -1199,3 +1199,12 @@ SE也没办法卖贵啊，这几个工作室作品销量和投入大家都知道
 
 出售不良资产抬股价等待被收购的形状
 
+
+
+*****
+
+####  wtf317  
+##### 125#       发表于 2022-5-3 01:53
+
+Embracer老总真是游戏真爱啊，老IP收集癖，买了一堆不赚钱的经典IP。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

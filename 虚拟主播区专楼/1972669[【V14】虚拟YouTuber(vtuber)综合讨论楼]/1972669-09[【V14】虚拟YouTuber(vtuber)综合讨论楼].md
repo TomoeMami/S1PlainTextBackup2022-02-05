@@ -9003,3 +9003,14 @@ GW最終日
 
 一直开玩笑强调都是business的饭屋终于也有了官方表记亲友的一天，我圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 12853#       发表于 2022-5-3 02:50
+
+更新了一部分[Nijisanji EN删档歌回存档12301#](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1972669&amp;page=411#pid55484984)（部分资源来自@ Nolan Crush），其中包括Uki、Mysta、Nina3人共4个删档歌回的资源缺失，如果有哪位楼友愿意帮忙补充将不胜感激<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+我个人推荐reimu的迪士尼歌回和Uki的英语歌回，enna的删档歌回被她保留了，那个也十分推荐
+
