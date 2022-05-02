@@ -8947,3 +8947,45 @@ https://www.bilibili.com/read/cv16311221
 5月8号！不破枝3dlive！！
 myy<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12850#       发表于 2022-5-2 21:35
+
+不破枝线上live还硬找黑客当旁白，明明只是旁白却好好在标题上加了他的名字……饭屋真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 12851#       发表于 2022-5-2 21:35
+
+<img src="https://img.saraba1st.com/forum/202205/02/213511yx1gv8sgeexovfpa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【#ふわぐさ3Dライブ】叶えたかった夢【不破湊:三枝明那:黛灰:にじさんじ 】..jpeg</strong> (303.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-2 21:35 上传
+
+补个图
+
+【#ふわぐさ3Dライブ】叶えたかった夢【不破湊/三枝明那/黛灰/にじさんじ 】 [https://youtu.be/F39v6lc5Onw](https://youtu.be/F39v6lc5Onw) 
+
+日時：5/8(日)21:00~
+
+出演：不破湊、三枝明那
+
+　　　<strong>黛灰(影ナレ)</strong>
+
+会場：不破湊チャンネル
+
+待たせたみんな
+
+GW最終日
+
+夢のふわぐさ3Dライブやります
+
+最高の思い出作るぞ
+

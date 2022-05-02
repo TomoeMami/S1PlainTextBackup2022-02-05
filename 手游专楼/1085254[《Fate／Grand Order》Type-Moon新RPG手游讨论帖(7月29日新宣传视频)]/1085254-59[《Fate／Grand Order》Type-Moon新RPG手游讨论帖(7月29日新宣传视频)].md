@@ -8962,3 +8962,14 @@ fgo实装孙渣了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 87778#       发表于 2022-5-2 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">............这次活动剧情打完我就这表情
+
+哈？这就完了？没了？认真的？我期待着用来压轴的混沌邪恶去哪了.....这种活动不搞捏它不就真成了名副其实的垃圾剧情
+

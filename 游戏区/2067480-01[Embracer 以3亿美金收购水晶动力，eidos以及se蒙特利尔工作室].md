@@ -1143,3 +1143,14 @@ se这边也不别想着做服务性游戏了，但是老实说是便宜了<img s
 
 SE也没办法卖贵啊，这几个工作室作品销量和投入大家都知道的，有人肯买就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liyangnt  
+##### 119#       发表于 2022-5-2 21:41
+
+凯恩的遗产 挑战  当年是真的觉得惊艳
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
