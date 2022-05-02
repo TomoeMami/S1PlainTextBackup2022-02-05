@@ -1127,3 +1127,155 @@ syl，有人发散说，陈珺拿的这份说不定是有内鬼给的
 
 事到如今只能说co宝好润
 
+
+
+*****
+
+####  夜之中道崩殂  
+##### 6122#       发表于 2022-5-3 00:53
+
+太牛了，cj太急了，我现在信文静。律师函删了估计是cj罪名不成立，冷处理估计是再等文静找病历。我说服我自己了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+cj那张聊天记录太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  藤原银  
+##### 6123#       发表于 2022-5-3 00:55
+
+珺圣究竟和文静有何等恩怨
+
+*****
+
+####  rgauss  
+##### 6124#       发表于 2022-5-3 00:55
+
+文静新关注应该是小号
+
+*****
+
+####  我单推副会长  
+##### 6125#       发表于 2022-5-3 00:55
+
+看不明白了
+
+<img src="https://img.saraba1st.com/forum/202205/03/005158kld8dthgdilktllk.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220503005113195.jpg</strong> (44.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 00:51 上传
+
+<img src="https://img.saraba1st.com/forum/202205/03/005158fi9hh365ch6cszhc.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220503005121743.jpg</strong> (68.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 00:51 上传
+
+*****
+
+####  IDIDIDID  
+##### 6126#       发表于 2022-5-3 00:55
+
+我还有个疑问，如果文静没说谎那为什么剩下四个要噤声，是都不想掺和还是公司让闭嘴啊，两种可能都没道理的。
+
+*****
+
+####  yvy2222  
+##### 6127#       发表于 2022-5-3 00:57
+
+<img src="https://img.saraba1st.com/forum/202205/03/005658adjif9jkmh2a2jjj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220503_005647.jpg</strong> (558.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 00:56 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冯闵斯特伯格  
+##### 6128#       发表于 2022-5-3 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674645&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-5-3 00:55</a>
+我还有个疑问，如果文静没说谎那为什么剩下四个要噤声，是都不想掺和还是公司让闭嘴啊，两种可能都没道理的 ...</blockquote>
+堵嘴按手有可能
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rgauss  
+##### 6129#       发表于 2022-5-3 00:57
+
+cj他知道个勾八 怕是只知道自己钱没挣够
+饮水机和空调坏了不见他修 麦克风有问题也不见他弄
+纯纯的🗡️种
+
+*****
+
+####  冯闵斯特伯格  
+##### 6130#       发表于 2022-5-3 00:58
+
+我操，盒
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  逹闾先知  
+##### 6131#       发表于 2022-5-3 00:58
+
+现在是真的看不懂了
+
+*****
+
+####  我单推副会长  
+##### 6132#       发表于 2022-5-3 00:58
+
+我是搞不明白，你要是说文静是造的假图，你后面发个所谓网友的图是啥意思。
+
+两张还一样，说是网络盗图吧，你把盗图的地址给出来早锤死了。
+
+什么鬼？你要开盒吧，贴吧小号直接开就是了，七拐八拐的。
+
+*****
+
+####  IDIDIDID  
+##### 6133#       发表于 2022-5-3 00:59
+
+文静你official拼错了啊😭😭😭😭😭😭我破防了
+
+*****
+
+####  冯闵斯特伯格  
+##### 6134#       发表于 2022-5-3 00:59
+
+cj这崽种
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  本间日阳  
+##### 6135#       发表于 2022-5-3 01:01
+
+万一，万一文静最后真的证明她说的话，千里走单骑和10页PPT，都是真的，该怎么办？
+
+*****
+
+####  yvy2222  
+##### 6136#       发表于 2022-5-3 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674698&amp;ptid=2013779" target="_blank">本间日阳 发表于 2022-5-3 01:01</a>
+万一，万一文静最后真的证明她说的话，千里走单骑和10页PPT，都是真的，该怎么办？ ...</blockquote>
+看我6127楼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
