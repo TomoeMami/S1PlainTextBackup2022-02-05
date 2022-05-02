@@ -1083,3 +1083,12 @@ Embracer Group将收购水晶动力工作室、Eidos蒙特利尔、SE蒙特利�
 本部也不知道如何更好的经营，卖给embracer总比ip烂在手里好
 se这边也不别想着做服务性游戏了，但是老实说是便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨中曲  
+##### 113#       发表于 2022-5-2 18:26
+
+融资并购滚雪球,只能说真不愧是THQ继任者
+
