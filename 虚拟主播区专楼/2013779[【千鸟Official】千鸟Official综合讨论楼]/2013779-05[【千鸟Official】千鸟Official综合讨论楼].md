@@ -720,3 +720,14 @@ md，文静还是别播了，多装死几天说不定半个v圈都给盒泄露�
 
 CJ真是铁贱畜
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6076#       发表于 2022-5-2 23:12
+
+cj这畜生又开始了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
