@@ -1728,3 +1728,12 @@ cj个剑冢滚了，公司里说不定还有多少关系户在呢，然后吹吹
 估计文静的确自卑不想粉丝看自己三次元真容 cjb拿捏到这点核威胁 文静只能选择毕业了 以后有机会再套皮出道 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不管是不是自卑，反正开盒这事肯定是挺膈应的，公司又不保护，心灰意懒很正常
 
+
+
+*****
+
+####  rgauss  
+##### 6184#       发表于 2022-5-3 10:25
+
+这对byd夫妇还真jb般配
+
