@@ -2232,3 +2232,23 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 等一个“一杯奶茶嘻嘻”
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6238#       发表于 2022-5-3 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684382&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-5-3 23:06</a>
+她退圈了能干啥呢，这个时代，这个环境，她除了嘴巴麻利声音好听也没啥特长了也只能当个主播 ...</blockquote>
+拿着文静2.0这个资历混口饭吃应该不难，转运营也好，想继续播也好，哎，折磨
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  龙娘777  
+##### 6239#       发表于 2022-5-3 23:41
+
+问题是她合同铁没到期 也必然交不起违约金 至少要沉寂很长一段时间了 也许就此石沉大海了
+

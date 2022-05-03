@@ -1358,3 +1358,14 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 古墓丽影9其实不管是游戏还是销量都很不错啊，后面两作我也一样打完了，虽然没什么亮眼的地方，但是作为 ...</blockquote>
 一般指的是第三部暗影不行，解谜乏味，爆米花内容不够
 
+
+
+*****
+
+####  火的意志  
+##### 141#       发表于 2022-5-3 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55683401&amp;ptid=2067480" target="_blank">すぴぱら 发表于 2022-5-3 21:28</a>
+一般指的是第三部暗影不行，解谜乏味，爆米花内容不够</blockquote>
+暗影解密我觉得比前两作好多了，反倒是9基本没什么解谜。
+
