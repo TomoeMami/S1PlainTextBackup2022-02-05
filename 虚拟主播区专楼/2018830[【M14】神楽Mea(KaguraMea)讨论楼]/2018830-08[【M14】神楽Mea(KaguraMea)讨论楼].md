@@ -2321,3 +2321,14 @@ hololive的马车呢<img src="https://static.saraba1st.com/image/smiley/face2017
 
 打牌这种事，再强的高手也是打不过掏狗的<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  三つの光  
+##### 10717#       发表于 2022-5-3 22:06
+
+咩咩自从和罗贝尔之后都很开心呢😇
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
