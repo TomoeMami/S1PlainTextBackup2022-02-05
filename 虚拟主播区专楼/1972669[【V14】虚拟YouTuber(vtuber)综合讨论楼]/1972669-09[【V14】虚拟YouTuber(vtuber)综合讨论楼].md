@@ -9054,3 +9054,12 @@ GW最終日
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">怎么vspo这活动主台解说都看不懂游戏的，把观战者当选手在解说
 
+
+
+*****
+
+####  我单推副会长  
+##### 12857#       发表于 2022-5-3 17:57
+
+世界第一apex vtuber不播apex同接就这样子，枪民也太真实了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
