@@ -2393,3 +2393,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 其实有更残酷的一点我没忍心说 cj基本属于被枝挡了财路 那他目的就不难推测 并不是枝滚蛋就算完事了 他想 ...</blockquote>
 直接去四禧丸子当运营算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陈胜  
+##### 6253#       发表于 2022-5-4 07:45
+
+开盒就毕业这承受力有点低啊，不过要是有其他退路也挺好的，这行业整体氛围有点大无语了。
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
