@@ -532,3 +532,44 @@ Kitori869
 我就觉得有人似乎真的认真觉得那个互动不对，不乏一些正常观众， ...</blockquote>
 虹厨带点滤镜的这么想很正常。如果入戏比较重，按照霓虹的前辈后辈思维来看，觉得失礼很正常。阿鱼这标准国人性格，估计她本来也没厨虹团，所以自身不带隔阂的。如果匹的是水水，那应该就是标准营业了。霓虹和国内调侃巨大鲤鱼王的不少，我自己看生肉的时候都觉得完全能理解她吐槽企划这匹配节目🤤，后面她喊了两句打铁我直接笑死了。
 
+
+
+*****
+
+####  仟音一心  
+##### 7543#       发表于 2022-5-3 18:10
+
+<blockquote>リエラジ，关于Liella新成员。
+
+Liyuu：这个人行横道，可堇是怎么回事啊，可酱飞起来了哦。
+
+Liyuu：(关于米女)Liella的第三个团子！ 
+
+Liyuu：(关于鬼塚)看到喜欢的东西是纳豆感觉自己被针对了。
+
+Nako：这段要剪掉！剪掉哦！ 
+
+讨论排练完用舞蹈室的那个把杆来拉伸
+
+Liyuu：那个杆子对小百合来说太高了呢。
+
+Sayuri：那种事情不用说出来噢 ！</blockquote>
+
+DC62AAD3-2CFF-41C9-9E29-CE1F8E51BEDA.jpeg
+(161.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/03/181045kacaza1wbhw9oabs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+99418E03-6665-4EA1-9F7C-951B8575D6DC.jpeg
+(295.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/03/181045v7rnprxi1pzppz1t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

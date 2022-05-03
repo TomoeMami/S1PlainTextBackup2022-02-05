@@ -2033,3 +2033,22 @@ mea现在官号67级，私号300级。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 10688#       发表于 2022-5-3 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话这比赛是真的没啥意思
+
+*****
+
+####  我单推副会长  
+##### 10689#       发表于 2022-5-3 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55681402&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-5-3 18:16</a>
+
+说实话这比赛是真的没啥意思</blockquote>
+怎么可能，凡是和赌博粘关系的就没有没意思的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
