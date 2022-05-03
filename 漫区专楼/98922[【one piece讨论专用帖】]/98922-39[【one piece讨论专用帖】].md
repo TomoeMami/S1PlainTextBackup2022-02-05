@@ -12086,3 +12086,14 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  csd  
+##### 58006#       发表于 2022-5-3 17:22
+
+ 本帖最后由 csd 于 2022-5-3 17:24 编辑 
+
+你贼现在玩无限月读水剧情玩上瘾了是吧？这几话下来战事的进展基本为零。
+
