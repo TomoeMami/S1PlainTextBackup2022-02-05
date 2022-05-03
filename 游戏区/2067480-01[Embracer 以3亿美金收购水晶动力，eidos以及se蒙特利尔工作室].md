@@ -1248,3 +1248,31 @@ Embracer老总真是游戏真爱啊，老IP收集癖，买了一堆不赚钱的�
 https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 删除了？
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 130#       发表于 2022-5-3 18:28
+
+笑死，最新消息是本来这笔交易只值1千万美元，后来加上了Gex这个IP后涨到了3亿美元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贱卖中的贱卖了属于是，这几个组和IP烂成这样真是想不到啊
+
+*****
+
+####  hentianwuya  
+##### 131#       发表于 2022-5-3 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55681503&amp;ptid=2067480" target="_blank">布拉德莱恩 发表于 2022-5-3 18:28</a>
+
+笑死，最新消息是本来这笔交易只值1千万美元，后来加上了Gex这个IP后涨到了3亿美元贱卖中的贱卖了属 ...</blockquote>
+这怎么看都是段子吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 132#       发表于 2022-5-3 18:30
+
+一千五刀都信的多少沾点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
