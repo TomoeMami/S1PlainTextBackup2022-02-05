@@ -1217,3 +1217,12 @@ Embracer老总真是游戏真爱啊，老IP收集癖，买了一堆不赚钱的�
 
 我想看索尼收购SE然后给松田洋祐一巴掌别他妈整天盯着NFT别整天想着撒网式开发垃圾游戏，有那钱还不如集中在中大体量的IP上<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顺便花点钱换了FF14那垃圾祖传土豆服务器
 
+
+
+*****
+
+####  泰坦失足  
+##### 127#       发表于 2022-5-3 09:26
+
+好，支持，希望Konami也尽快投入NFT/Play2Earn这个前途无量的事业中来，大不了就是卖游戏ip嘛
+
