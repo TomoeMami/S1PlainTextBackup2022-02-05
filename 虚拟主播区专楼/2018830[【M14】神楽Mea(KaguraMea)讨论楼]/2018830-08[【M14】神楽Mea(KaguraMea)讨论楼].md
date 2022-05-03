@@ -2222,3 +2222,35 @@ tm的冠军连台都没开……真的好气啊……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随手打打游戏只是休闲，不可能开台的（）
 
+
+
+*****
+
+####  clvan_  
+##### 10706#       发表于 2022-5-3 20:44
+
+惊了，没开台太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lotis  
+##### 10707#       发表于 2022-5-3 20:47
+
+别问。问就是冠军深藏功与名（
+
+*****
+
+####  我单推副会长  
+##### 10708#       发表于 2022-5-3 20:48
+
+没事，她自己不会炒作，有的是人帮她炒，起码这次和日麻界联系深了，以后有的是机会联动。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过没能参加神域麻将太可惜了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 10709#       发表于 2022-5-3 20:49
+
+来了，开歌回庆祝。
+
