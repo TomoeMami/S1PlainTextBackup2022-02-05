@@ -2060,3 +2060,21 @@ cj这样子还能复出到哪 去给勒夫当狗？
 
 他能把洛天依搞臭之后又把一个女孩子搞臭，他就能再把一个女孩子搞臭
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6220#       发表于 2022-5-3 22:45
+
+静的号应该是被收了，把昨天的那条动态删了，也取关了奶绿和上海网警，**傻逼运营
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  The_Ether_  
+##### 6221#       发表于 2022-5-3 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">奶绿的新号直接没了吗，早上关注完，现在找不到了。
+
