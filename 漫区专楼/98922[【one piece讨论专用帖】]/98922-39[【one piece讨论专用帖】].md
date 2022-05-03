@@ -12117,3 +12117,15 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 传次郎来斩？那大蛇挣脱海楼石钉子其实是日和玩脱了？那个惊讶的表情不是演的？233 ...</blockquote>
 应该是没想到吧，记得海楼石设定上几乎难以毁坏来着，不知道为什么这次一烧就变形了
 
+
+
+*****
+
+####  klzxs  
+##### 58009#       发表于 2022-5-3 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55681733&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2022-5-3 18:53</a>
+
+应该是没想到吧，记得海楼石设定上几乎难以毁坏来着，不知道为什么这次一烧就变形了 ...</blockquote>
+石头没事，但地板经不起烧和震
+
