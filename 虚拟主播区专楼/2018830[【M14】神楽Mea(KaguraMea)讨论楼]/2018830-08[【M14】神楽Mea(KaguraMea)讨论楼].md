@@ -2122,3 +2122,20 @@ mea开局18000，胜者组基本稳了。
 
 mea在这组发挥太强了，全程carry，可惜了，一局都能整个精彩剪辑了。
 
+
+
+*****
+
+####  我单推副会长  
+##### 10696#       发表于 2022-5-3 20:07
+
+感觉有机会赢啊
+
+<img src="https://img.saraba1st.com/forum/202205/03/200744e3swjlflzoalgz4f.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220503200733749.jpg</strong> (125.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 20:07 上传
+
