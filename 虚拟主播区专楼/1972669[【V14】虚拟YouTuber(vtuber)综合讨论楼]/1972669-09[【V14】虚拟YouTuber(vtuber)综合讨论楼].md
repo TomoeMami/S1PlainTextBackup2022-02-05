@@ -9045,3 +9045,12 @@ GW最終日
 [20220422] [UNARCHIVED KARAOKECARAOKE] VROOM VROOM I'M IN ME MUM'S CAR  [Nina Kosaka  NIJISANJI EN] [Nina Kosaka 【NIJISANJI EN】 ] (TVcRTvu4MKk)
 [https://disk.yandex.com/d/GiiDepMK2IbJBw](https://disk.yandex.com/d/GiiDepMK2IbJBw)
 
+
+
+*****
+
+####  winda  
+##### 12856#       发表于 2022-5-3 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">怎么vspo这活动主台解说都看不懂游戏的，把观战者当选手在解说
+
