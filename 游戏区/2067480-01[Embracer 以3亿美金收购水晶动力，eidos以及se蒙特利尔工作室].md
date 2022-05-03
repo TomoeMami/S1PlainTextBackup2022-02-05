@@ -1235,3 +1235,16 @@ Embracer老总真是游戏真爱啊，老IP收集癖，买了一堆不赚钱的�
 
 其实也没有很离谱。索尼买失眠好像就2亿，你理解成1.5个失眠就行。至于IP这种东西 开发不出来就是一堆废纸
 
+
+
+*****
+
+####  acejoe  
+##### 129#       发表于 2022-5-3 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669186&amp;ptid=2067480" target="_blank">D-JoeII 发表于 2022-5-2 16:02</a>
+好消息是,Emberacer收購後第一件事是宣佈殺出重圍會出新作
+
+https://twitter.com/Nibellion/status/15210351 ...</blockquote>
+删除了？
+
