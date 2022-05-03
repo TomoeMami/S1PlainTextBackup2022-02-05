@@ -9063,3 +9063,37 @@ GW最終日
 
 世界第一apex vtuber不播apex同接就这样子，枪民也太真实了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 12858#       发表于 2022-5-3 21:05
+
+ 本帖最后由 Ketestrait 于 2022-5-3 21:07 编辑 
+
+<img src="https://tvax2.sinaimg.cn/large/7c16af6bly1h1viq1u272j20xy0it0vv.jpg" referrerpolicy="no-referrer">
+
+没人选对也太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 12859#       发表于 2022-5-3 21:06
+
+<img src="https://img.saraba1st.com/forum/202205/03/210628uykkyzikn0s80ks0.png" referrerpolicy="no-referrer">
+
+<strong>【生放送】A級は誰だ!?ライバー格付けバトル!【にじクイ#22】.png.png</strong> (124.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202205/03/210653vfsis00vitvvpdww.png" referrerpolicy="no-referrer">
+
+<strong>55.png</strong> (56.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 21:06 上传
+
