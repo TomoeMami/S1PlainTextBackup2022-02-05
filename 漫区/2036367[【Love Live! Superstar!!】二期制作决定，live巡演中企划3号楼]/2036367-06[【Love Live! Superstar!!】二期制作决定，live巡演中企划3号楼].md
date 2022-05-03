@@ -599,3 +599,14 @@ DC62AAD3-2CFF-41C9-9E29-CE1F8E51BEDA.jpeg
 </blockquote>
 这新三张比之前公开的舒服多了
 
+
+
+*****
+
+####  仟音一心  
+##### 7546#       发表于 2022-5-3 20:18
+
+<img src="https://p.sda1.dev/5/32366816bc091307aecd7adf15752b78/CMP_20220503201746632.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2139,3 +2139,25 @@ mea在这组发挥太强了，全程carry，可惜了，一局都能整个精彩
 
 2022-5-3 20:07 上传
 
+
+
+*****
+
+####  T_Hb  
+##### 10697#       发表于 2022-5-3 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2组实力差距有点大，全寄了
+
+*****
+
+####  我单推副会长  
+##### 10698#       发表于 2022-5-3 20:22
+
+<img src="https://img.saraba1st.com/forum/202205/03/202244hr5gfirfrw6wswfg.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220503202230249.jpg</strong> (119.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 20:22 上传
+
