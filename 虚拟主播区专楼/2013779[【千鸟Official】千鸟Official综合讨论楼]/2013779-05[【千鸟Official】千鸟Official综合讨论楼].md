@@ -2318,3 +2318,12 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 鸟厕真够冷清的<img src="https://p.sda1.dev/5/67468c5996b6feb06d276542d942672b/CMP_20220504002209818.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 6246#       发表于 2022-5-4 00:58
+
+只是不让套皮那就先一杯奶茶嘻嘻做着呗，如果是主播行业都不允许的话那文静当初签这种合同，智商也算和运营双向奔赴了。
+
