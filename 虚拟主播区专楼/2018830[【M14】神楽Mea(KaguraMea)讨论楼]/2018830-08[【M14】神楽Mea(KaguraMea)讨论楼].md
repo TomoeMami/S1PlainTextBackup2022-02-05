@@ -2161,3 +2161,41 @@ mea在这组发挥太强了，全程carry，可惜了，一局都能整个精彩
 
 2022-5-3 20:22 上传
 
+
+
+*****
+
+####  T_Hb  
+##### 10699#       发表于 2022-5-3 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rem-清曲  
+##### 10700#       发表于 2022-5-3 20:28
+
+刚进来就看到C了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 10701#       发表于 2022-5-3 20:28
+
+赢了
+
+<img src="https://img.saraba1st.com/forum/202205/03/202807jv362sq6v3jsr6p6.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220503202751650.jpg</strong> (137.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 20:28 上传
+
+*****
+
+####  我单推副会长  
+##### 10702#       发表于 2022-5-3 20:29
+
+今天强运和冷静都在
+
