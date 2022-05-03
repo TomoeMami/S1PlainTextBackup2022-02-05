@@ -9102,3 +9102,14 @@ fgo实装孙渣了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次剧情我全跳了
 
+
+
+*****
+
+####  eilot  
+##### 87786#       发表于 2022-5-3 16:07
+
+超級班楊對班楊，原本以為又是必敗一戰，對方狂戰我方又沒加防或根性等BUFF，捱不到被打死，
+
+但被打死時後場突然有學妹等不停鼓勵，之後就滿血復活...
+
