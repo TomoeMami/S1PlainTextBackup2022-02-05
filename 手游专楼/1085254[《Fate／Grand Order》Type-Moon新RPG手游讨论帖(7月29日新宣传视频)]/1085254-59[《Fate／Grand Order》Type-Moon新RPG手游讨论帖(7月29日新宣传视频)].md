@@ -9033,3 +9033,35 @@ fgo实装孙渣了？
 
 【【FGO小故事】玛丽·安宁，这是一张在无声中哭泣的卡，是一张以悲剧为核心的卡-哔哩哔哩】 [https://b23.tv/oZjEZDt](https://b23.tv/oZjEZDt)
 
+
+
+*****
+
+####  khxooo  
+##### 87781#       发表于 2022-5-3 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55679014&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-3 13:33</a>
+这次活动的剧本突出一个随意，“搞笑漫画的事情不需要你们想那么多”，结尾这个鳄鱼反派也加入的莫名其妙， ...</blockquote>
+的确，看到她和她的狗的科普后，看到最终卡面还是有点感动的
+
+*****
+
+####  久井路路  
+##### 87782#       发表于 2022-5-3 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55679014&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-3 13:33</a>
+
+这次活动的剧本突出一个随意，“搞笑漫画的事情不需要你们想那么多”，结尾这个鳄鱼反派也加入的莫名其妙， ...</blockquote>
+完全同意，这次活动之前我完全不认识玛丽安宁这个人，结果看完活动直接喂成金卡了
+
+小市民性格却又温柔独立坚强的女强人角色总能戳爆我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87783#       发表于 2022-5-3 14:46
+
+<blockquote>Jamaisvu 发表于 2022-5-3 13:33
+这次活动的剧本突出一个随意，“搞笑漫画的事情不需要你们想那么多”，结尾这个鳄鱼反派也加入的莫名其妙， ...</blockquote>
+这么弄一张限定五星卡他们是真的觉得班扬人气高到某种地步怎么整都没关系是吧，完全无法理解这剧情，同步推国服偶像剧情观感又是一个天一个地，玛丽安宁原本在漫画里给人的印象就是个深井冰女同，实装之后虽然设定上依然是女同，但卡面、资料补充了很多背景之后人物更饱满了，确实是这活动最大的惊喜了
+
