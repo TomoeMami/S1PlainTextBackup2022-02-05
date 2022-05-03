@@ -9178,3 +9178,31 @@ fgo实装孙渣了？
 
 成功补宝了小达芬奇，就不黑这次活动了，反正全SKIP<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 87792#       发表于 2022-5-3 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们怎么还看剧情的.JPG
+
+上次春游把我看睡着了
+
+这次看了个开头差点又睡着了
+
+直接全程skip
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87793#       发表于 2022-5-3 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55682896&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-5-3 20:39</a>
+
+那边不是樱井就是小太刀，连街机二世薄都想让樱井背锅，我想大帝和二世不是虚渊玄就是成田写的，按照他们 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你是不是……把三田和成田搞混了？
+

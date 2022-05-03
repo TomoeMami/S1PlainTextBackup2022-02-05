@@ -2341,3 +2341,12 @@ hololive的马车呢<img src="https://static.saraba1st.com/image/smiley/face2017
 
 ....?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘栗No.007  
+##### 10719#       发表于 2022-5-3 22:37
+
+让我想起了那次莫名其妙爆头两次青猫的比赛，对pro特攻的强运？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
