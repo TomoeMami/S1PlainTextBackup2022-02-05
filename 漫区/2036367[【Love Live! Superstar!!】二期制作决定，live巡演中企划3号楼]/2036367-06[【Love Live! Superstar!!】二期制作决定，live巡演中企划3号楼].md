@@ -492,3 +492,21 @@ Kitori869
 
 鲤p才是生活
 
+
+
+*****
+
+####  仟音一心  
+##### 7539#       发表于 2022-5-3 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55680147&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-3 15:46</a>
+我也闲了翻了翻，现在被某些人奉为圣经的东西居然是跨年和146的那个互动，隔几天水一次，一堆人叫好，嘲讽 ...</blockquote>
+是先把黑🐟当成圣经，然后才扒这个互动复读。<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 7540#       发表于 2022-5-3 15:57
+
+和146的互动那个我看隔壁nga都讨论烂了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这也还能拿出来说，只能说决心要黑那就什么都能拿出来当论据
+
