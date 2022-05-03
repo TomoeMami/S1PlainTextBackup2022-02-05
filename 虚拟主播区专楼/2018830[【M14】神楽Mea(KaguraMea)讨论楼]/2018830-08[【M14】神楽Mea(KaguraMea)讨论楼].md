@@ -2312,3 +2312,12 @@ hololive的马车呢<img src="https://static.saraba1st.com/image/smiley/face2017
 
 9分运气1分实力的游戏罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lotis  
+##### 10716#       发表于 2022-5-3 21:53
+
+打牌这种事，再强的高手也是打不过掏狗的<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
