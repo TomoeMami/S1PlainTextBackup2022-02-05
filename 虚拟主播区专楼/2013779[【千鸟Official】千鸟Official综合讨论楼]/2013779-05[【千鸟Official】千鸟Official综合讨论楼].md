@@ -2252,3 +2252,26 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 问题是她合同铁没到期 也必然交不起违约金 至少要沉寂很长一段时间了 也许就此石沉大海了
 
+
+
+*****
+
+####  sjbssd  
+##### 6240#       发表于 2022-5-3 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684657&amp;ptid=2013779" target="_blank">冯闵斯特伯格 发表于 2022-5-3 23:33</a>
+
+拿着文静2.0这个资历混口饭吃应该不难，转运营也好，想继续播也好，哎，折磨
+
+—— 来自 vivo V1986A, An ...</blockquote>
+还有种可能，转会到别家，“天降一个大款”把她签走
+
+
+
+*****
+
+####  狂拽猫少  
+##### 6241#       发表于 2022-5-3 23:59
+
+我怎么就不是富哥，我要是富哥就把文静签了再把违约金给她付了😭
+
