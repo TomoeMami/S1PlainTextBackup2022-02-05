@@ -2289,3 +2289,26 @@ asmr好爽
 
 这个讨厌的气氛我曾经在虹日麻大会、虹马车大会上看到。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  thisisaspider  
+##### 10713#       发表于 2022-5-3 21:37
+
+hololive的马车呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 10714#       发表于 2022-5-3 21:41
+
+上一次惊异于这女人天分的是那个扔飞镖的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没想到你麻对于赌这事这么在行的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 10715#       发表于 2022-5-3 21:42
+
+9分运气1分实力的游戏罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

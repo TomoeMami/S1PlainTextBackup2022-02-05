@@ -631,3 +631,14 @@ DC62AAD3-2CFF-41C9-9E29-CE1F8E51BEDA.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">说起来这是称呼定好了叫“liella一期生/二期生”了？感觉怪怪的
 
+
+
+*****
+
+####  ads147147  
+##### 7549#       发表于 2022-5-3 21:38
+
+估计已经知道会有三期了吧。等一个10月播完最后一集出第三季消息。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
