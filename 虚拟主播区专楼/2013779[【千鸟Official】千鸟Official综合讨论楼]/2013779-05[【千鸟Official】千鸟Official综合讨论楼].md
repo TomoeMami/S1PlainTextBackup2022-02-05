@@ -2158,3 +2158,47 @@ b站的号，忘密码的号还在，发动态、后面加下划线的找不到�
 b站的号，忘密码的号还在，发动态、后面加下划线的找不到了</blockquote>
 [https://space.bilibili.com/2132180406/](https://space.bilibili.com/2132180406/)
 
+
+
+*****
+
+####  龙娘777  
+##### 6230#       发表于 2022-5-3 23:03
+
+直接给绿奶打钱不用经过垃圾公司抽成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 6231#       发表于 2022-5-3 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是千鸟吗，真是太厉害了呢
+
+*****
+
+####  sjbssd  
+##### 6232#       发表于 2022-5-3 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684290&amp;ptid=2013779" target="_blank">冯闵斯特伯格 发表于 2022-5-3 22:58</a>
+
+能直接退圈也是一种好事吧
+
+—— 来自 vivo V1986A, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+她退圈了能干啥呢，这个时代，这个环境，她除了嘴巴麻利声音好听也没啥特长了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也只能当个主播
+
+*****
+
+####  砂糖Kazuma  
+##### 6233#       发表于 2022-5-3 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684382&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-5-3 23:06</a>
+她退圈了能干啥呢，这个时代，这个环境，她除了嘴巴麻利声音好听也没啥特长了也只能当个主播 ...</blockquote>
+去喜马拉雅做电台呗，不失为一个小富即安的小日子
+
+*****
+
+####  虾籽馄饨  
+##### 6234#       发表于 2022-5-3 23:10
+
+不管几个女孩还做不做直播了，希望她们以后一切都好
+
