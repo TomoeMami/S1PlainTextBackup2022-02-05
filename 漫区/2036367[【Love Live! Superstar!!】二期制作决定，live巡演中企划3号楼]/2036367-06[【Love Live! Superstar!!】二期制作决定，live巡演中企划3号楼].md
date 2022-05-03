@@ -712,3 +712,19 @@ Sayu经常熬夜
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看起来整个企划还真有点隔代亲呢。
 
+
+
+*****
+
+####  cat1230  
+##### 7557#       发表于 2022-5-4 01:58
+
+<blockquote>引用第7555楼cybernetics31于2022-05-03 23:50发表的  :
+
+不管出几季，动画想想都知道大概率寄，现在看起来整个企划还真有点隔代亲呢。</blockquote>
+@cybernetics31
+
+为啥是隔代亲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没懂。从缪开始算吗
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

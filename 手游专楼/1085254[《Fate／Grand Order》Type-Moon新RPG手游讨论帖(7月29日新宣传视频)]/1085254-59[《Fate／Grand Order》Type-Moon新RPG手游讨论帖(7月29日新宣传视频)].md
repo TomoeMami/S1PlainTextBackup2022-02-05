@@ -9215,3 +9215,15 @@ fgo实装孙渣了？
 
 隔壁整的fgo这两年写手就只有小太刀和樱井一样，其他人都已经离职了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87795#       发表于 2022-5-4 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684060&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-5-3 22:36</a>
+
+你是不是……把三田和成田搞混了？</blockquote>
+哦，是我搞错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

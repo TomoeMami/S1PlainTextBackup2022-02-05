@@ -2327,3 +2327,69 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 只是不让套皮那就先一杯奶茶嘻嘻做着呗，如果是主播行业都不允许的话那文静当初签这种合同，智商也算和运营双向奔赴了。
 
+
+
+*****
+
+####  砂糖Kazuma  
+##### 6247#       发表于 2022-5-4 02:06
+
+ 本帖最后由 砂糖Kazuma 于 2022-5-4 02:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684948&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-4 00:05</a>
+讲真这笔投资铁不亏 吱吱未来现金流富哥们能赚的盆满锅满 我不信没有富哥们看不懂这点 富哥们要还是静栗 ...</blockquote>
+但是有个问题
+
+没有富哥的时候转会费等于零，空降富哥了，以现在运营这股疯劲，不排除喊出天价转会费
+
+薯条当初之所以是薯条，是因为在打磨机体吧，holoCN其他人我印象中都是秒换皮(一个月左右)啊。Cover那边对于CN部的态度基本上是壁虎尾巴，跟文静现在的处境还是差别有点儿大
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 6248#       发表于 2022-5-4 02:08
+
+主播女孩重度依赖，但明前奶绿小姐没有阿P，只能依靠自己<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 6249#       发表于 2022-5-4 02:16
+
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1nU4y1U7as?spm_id_from=333.337.search-card.all.click)
+
+*****
+
+####  龙娘777  
+##### 6250#       发表于 2022-5-4 02:29
+
+ 本帖最后由 龙娘777 于 2022-5-4 03:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55685761&amp;ptid=2013779" target="_blank">砂糖Kazuma 发表于 2022-5-4 02:06</a>
+
+但是有个问题
+
+没有富哥的时候转会费等于零，空降富哥了，以现在运营这股疯劲，不排除喊出天价转会费</blockquote>
+
+其实有更残酷的一点我没忍心说 cj基本属于被枝挡了财路 那他目的就不难推测 并不是枝滚蛋就算完事了 他想的是你别在这行当里营生赚钱了 枝只要有做起来的苗头 cj就会扔核线索 挖掘机就会被吸引过来开动 枝又是那种性格的人开盒就毕业 所以我说枝必须能过自己内心的坎儿 就……挺不是滋味
+
+虽然会苦下粉丝 但我觉得到这局面上策还是走人远离直播这是非之地吧 拿着她文静的简历数据去snh啥的试试 一是这两年在疫情buff下 v这东西的崛起对snh这种倚赖线下活动的商业模式冲击挺大的 刚好属于行业低谷期 但反之未尝不是抄底加入的好时机 二是snh啥的也眼红偶像线上直播这块蛋糕但打造不出什么招牌知名度 亟需出个拳头人物 这都属于时代洪流大背景了 当然她这直播风格肯定不能通吃到偶像这圈子必须有所改变 这就只能相信枝枝自己的能力了 然而 但是 可是 既然脑洞大开了就再为枝枝多想一步 snh啥的是很好的出路很好的归宿吗？并不是 在snh啥的镀层金骑驴找马找更好的下家会更好些 就头脑风暴这些吧 我也是白操心
+
+*****
+
+####  暗黑能乐  
+##### 6251#       发表于 2022-5-4 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55685768&amp;ptid=2013779" target="_blank">阿萨辛艾沃尔 发表于 2022-5-4 02:08</a>
+主播女孩重度依赖，但明前奶绿小姐没有阿P，只能依靠自己</blockquote>
+然而啊p本来也不存在呀
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  狂拽猫少  
+##### 6252#       发表于 2022-5-4 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55685823&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-4 02:29</a>
+其实有更残酷的一点我没忍心说 cj基本属于被枝挡了财路 那他目的就不难推测 并不是枝滚蛋就算完事了 他想 ...</blockquote>
+直接去四禧丸子当运营算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
