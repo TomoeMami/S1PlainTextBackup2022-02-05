@@ -1693,3 +1693,38 @@ cj已经社死了，他根本没在怕的
 
 再感叹一下虚拟主播这层皮有些时候非但保护不了中之人反而还会成为累赘，以及前运营带头盒主播这种行为属实NB
 
+
+
+*****
+
+####  伞沢直美  
+##### 6181#       发表于 2022-5-3 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674737&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-5-3 01:05</a>
+
+这就奇怪了。
+
+假设文静没撒谎，那公司直接飞龙骑脸就完事了。
+
+假设文静撒谎但是公司想保，让几个住在一起 ...</blockquote>
+cj个剑冢滚了，公司里说不定还有多少关系户在呢，然后吹吹风，
+
+这个企划现在也没什么大起色，切割了呗
+
+*****
+
+####  莫洛骑士  
+##### 6182#       发表于 2022-5-3 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把cj打成一个毁了千鸟上升的罪魁祸首真是把我看乐了，我差点以为cj走了千鸟真的要起飞了，产生了舰长礼物to签团歌3D舞蹈声乐早就全部到位的正确记忆
+
+*****
+
+####  伞沢直美  
+##### 6183#       发表于 2022-5-3 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55674289&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-3 00:15</a>
+
+估计文静的确自卑不想粉丝看自己三次元真容 cjb拿捏到这点核威胁 文静只能选择毕业了 以后有机会再套皮出道 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不管是不是自卑，反正开盒这事肯定是挺膈应的，公司又不保护，心灰意懒很正常
+
