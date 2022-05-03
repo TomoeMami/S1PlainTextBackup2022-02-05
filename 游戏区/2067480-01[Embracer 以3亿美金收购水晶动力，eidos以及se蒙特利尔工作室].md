@@ -1318,3 +1318,16 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  eagleearth  
+##### 137#       发表于 2022-5-3 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55669210&amp;ptid=2067480" target="_blank">すぴぱら 发表于 2022-5-2 16:05</a>
+古墓丽影烂成这样 那是给谁谁都不要了</blockquote>
+古墓丽影9其实不管是游戏还是销量都很不错啊，后面两作我也一样打完了，虽然没什么亮眼的地方，但是作为续作我觉得也还行。不知道为什么普遍都觉得烂，我觉得最多就是平庸，但是这个类型好像也没什么其他可选的
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
