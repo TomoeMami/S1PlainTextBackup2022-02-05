@@ -9128,3 +9128,15 @@ fgo实装孙渣了？
 
 （最后这个好，狗狗的声优我都想好了，就是长绳麻理亚的好姬友、野兽声优小泽亚李<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  khxooo  
+##### 87788#       发表于 2022-5-3 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55679924&amp;ptid=1085254" target="_blank">久井路路 发表于 2022-5-3 15:22</a>
+
+说实话，这剧情写得甚至可以说有多喜欢玛丽安宁就会有多嫌弃超级班扬，再说得极端一点，连咕哒玛修都被牵 ...</blockquote>
+幸好我是跳了剧情，如果我看见，怕是当场血压升高，这剧情也就比2.5.2这坨东西好一点，这次剧情的写手自裁吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
