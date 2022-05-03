@@ -1331,3 +1331,12 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  smdzh2  
+##### 138#       发表于 2022-5-3 21:18
+
+好奇古墓怎么编的下去，隔壁德雷克都退休了
+
