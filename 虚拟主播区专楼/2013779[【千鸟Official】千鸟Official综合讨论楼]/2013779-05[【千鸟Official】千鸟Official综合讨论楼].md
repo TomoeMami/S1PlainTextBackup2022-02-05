@@ -1841,3 +1841,23 @@ https://b23.tv/ragY5mz
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  龙娘777  
+##### 6197#       发表于 2022-5-3 11:39
+
+另外我感觉吱吱不会再做v了 或者说很有可能彻底离开网络这是非之地 不知道有没有机会说再见 她还年轻也许拿着文静这简历还能去追她的偶像梦 也许有那么一天能在三次元重逢吧
+
+*****
+
+####  冯闵斯特伯格  
+##### 6198#       发表于 2022-5-3 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55677954&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-3 11:39</a>
+另外我感觉吱吱不会再做v了 或者说很有可能彻底离开网络这是非之地 不知道有没有机会说再见 她还年轻也许拿 ...</blockquote>
+能转生也好，离开这个圈子更好，总比待在这里好
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
