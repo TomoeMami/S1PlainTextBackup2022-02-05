@@ -9093,3 +9093,12 @@ fgo实装孙渣了？
 
 推到这里的时候我实在是忍不了skip了，写这段的人和我之间肯定有一个脑子不正常。
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87785#       发表于 2022-5-3 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次剧情我全跳了
+
