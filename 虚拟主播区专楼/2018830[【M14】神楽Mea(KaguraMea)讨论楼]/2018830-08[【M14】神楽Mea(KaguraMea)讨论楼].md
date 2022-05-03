@@ -2272,3 +2272,20 @@ tm的冠军连台都没开……真的好气啊……
 
 asmr好爽
 
+
+
+*****
+
+####  我单推副会长  
+##### 10712#       发表于 2022-5-3 21:28
+
+ 本帖最后由 我单推副会长 于 2022-5-3 21:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本的读空气真讨厌啊。那个叫松本 吉弘的职业雀士 今天30岁。今天的气氛就应该是他夺冠。
+
+我想德龙送了也和这有关系。
+
+所以mea和他最后1v1单挑的时候，mea优势的时候场外也在糟了的感觉。
+
+这个讨厌的气氛我曾经在虹日麻大会、虹马车大会上看到。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
