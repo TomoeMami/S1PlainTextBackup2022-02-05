@@ -8982,3 +8982,54 @@ fgo实装孙渣了？
 
 班扬推特关联搜索的嫌い、不快、ヘイト挂了好几天了，大师您看这剧本还有救吗.jpg
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87780#       发表于 2022-5-3 13:33
+
+ 本帖最后由 Jamaisvu 于 2022-5-3 13:39 编辑 
+
+这次活动的剧本突出一个随意，“搞笑漫画的事情不需要你们想那么多”，结尾这个鳄鱼反派也加入的莫名其妙，最后更是整了个疑似梦结局的东西（一切都是拍电影......脚本是最近看了炎拳吗？）
+
+不过好在玛丽安宁的塑造还是挺优秀的，和蛇颈龙的故事也很感人（这宠物还有三个不同的立绘和建模），一个人下船打野养活宝宝也颇有离群兽王猎...不对，是新时代自力更生女强人的风范。
+
+人物设定也很用心，衣服颜色，海岸风景，工作伙伴，三破的背景还原了根据玛丽安宁研究成果所画的《更古代的多塞特郡（Duria Antiquior）》（宝具名就是这个）：
+
+<img src="https://img.saraba1st.com/forum/202205/03/133459tshsttptof9tqjkt.jpg" referrerpolicy="no-referrer">
+
+<strong>20210811041910467.jpg</strong> (157.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 13:34 上传
+
+同时三破还把因山体滑坡牺牲的狗狗也做成了盒状，细节真是太到位了。（什么地狱笑话）
+
+其实玛丽带着狗狗工作一方面是因为她最早挖的化石就是被狗找到的，同时也为了自己被塌方土石砸到时能派出去求救，没想到它却先行一步了...不愧是幸运E的枪兵<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">也正如此，满破图中抱着狗狗时眼里含着泪花啊...
+
+<img src="https://img.saraba1st.com/forum/202205/03/133727ifmppy3pcz3puku1.png" referrerpolicy="no-referrer">
+
+<strong>玛丽·安宁满破.png</strong> (92.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 13:37 上传
+
+一技能海百合的领导力虽然看着挺无厘头，但她终身未婚，与女性关系颇为密切，也算是一种佐证吧...外国倒也挺认可这种说法，凯特温斯莱特和西尔莎罗南主演的《菊石》就是一部以玛丽安宁为主角的女同片。（不过好像质量一般）
+
+<img src="https://img.saraba1st.com/forum/202205/03/133917j4jnm4j2jjz9vpvz.jpg" referrerpolicy="no-referrer">
+
+<strong>1222267360.jpg</strong> (272.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-3 13:39 上传
+
+总之这个人物游戏内外我都很喜欢，如果圣杯充裕了的话是一定要喂杯子的，也算是本次活动最大收获了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+最后推荐一个讲解考据FGO玛丽安宁的视频：
+
+【【FGO小故事】玛丽·安宁，这是一张在无声中哭泣的卡，是一张以悲剧为核心的卡-哔哩哔哩】 [https://b23.tv/oZjEZDt](https://b23.tv/oZjEZDt)
+
