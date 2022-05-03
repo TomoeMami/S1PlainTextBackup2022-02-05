@@ -9145,3 +9145,14 @@ rurudo马上上播
 
 —— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  OldGlory  
+##### 12864#       发表于 2022-5-4 01:17
+
+后知后觉，原来p丸也2d化了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
