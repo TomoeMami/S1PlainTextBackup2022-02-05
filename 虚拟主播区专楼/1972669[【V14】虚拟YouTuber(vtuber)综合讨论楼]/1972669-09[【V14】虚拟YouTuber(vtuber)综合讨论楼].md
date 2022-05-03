@@ -9134,3 +9134,14 @@ roha什么贵族大小姐
 
 这还做得挺好看的，很有意思
 
+
+
+*****
+
+####  Yukine_Chris  
+##### 12863#       发表于 2022-5-3 23:45
+
+rurudo马上上播
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

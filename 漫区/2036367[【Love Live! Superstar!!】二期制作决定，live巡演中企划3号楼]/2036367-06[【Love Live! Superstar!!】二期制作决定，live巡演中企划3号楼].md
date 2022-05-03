@@ -694,3 +694,21 @@ Sayu经常熬夜
 
 好吧，又要献祭可可了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 7555#       发表于 2022-5-3 23:40
+
+ 本帖最后由 starring 于 2022-5-3 23:44 编辑 
+
+反正不指望花田大师能爆种写出好剧本，将期望放到最低档，写出什么脑溢血剧情都不觉得奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7556#       发表于 2022-5-3 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看起来整个企划还真有点隔代亲呢。
+
