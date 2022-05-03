@@ -9023,3 +9023,25 @@ GW最終日
 
 请教楼友，两年前liz熊猫人和valkyrie connect这游戏联动是怎么一个形式的，有对应的个人剧情活动剧情吗？liver的配音多吗？
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 12855#       发表于 2022-5-3 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55675570&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-5-3 02:50</a>
+
+更新了一部分Nijisanji EN删档歌回存档12301#（部分资源来自@ Nolan Crush），其中包括Uki、Mysta、Nina3人 ...</blockquote>
+[20220406] 🎙️🎵 ENGLISH SONGS KARAOKE【UNARCHIVED】【NIJISANJI EN _ Mysta Rias】[Mysta Rias 【NIJISANJI EN】] (_7MVUc5WqJc)
+[https://disk.yandex.com/d/8YSHo4ugMC9Zzg](https://disk.yandex.com/d/8YSHo4ugMC9Zzg) 
+
+[20220429]【UNARCHIVED KARAOKE】1, 2, 3 eyes on me, hello I'm Uki Violeta【NIJISANJI EN _ Uki Violeta】[Uki Violeta 【NIJISANJI EN】] (_7BtwnSmQqc)
+[https://disk.yandex.com/d/1llkdo-CyofmDQ](https://disk.yandex.com/d/1llkdo-CyofmDQ)
+
+[20220419]【UNARCHIVED KARAOKE】throwback EN karaoke!!【NIJISANJI EN _ Uki Violeta】[Uki Violeta 【NIJISANJI EN】] (il2iKra7KVE)
+[https://disk.yandex.com/d/eLDVMVf4DB1nTg](https://disk.yandex.com/d/eLDVMVf4DB1nTg)
+
+[20220422] [UNARCHIVED KARAOKECARAOKE] VROOM VROOM I'M IN ME MUM'S CAR  [Nina Kosaka  NIJISANJI EN] [Nina Kosaka 【NIJISANJI EN】 ] (TVcRTvu4MKk)
+[https://disk.yandex.com/d/GiiDepMK2IbJBw](https://disk.yandex.com/d/GiiDepMK2IbJBw)
+
