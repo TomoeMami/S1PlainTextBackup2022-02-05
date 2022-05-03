@@ -9206,3 +9206,12 @@ fgo实装孙渣了？
 那边不是樱井就是小太刀，连街机二世薄都想让樱井背锅，我想大帝和二世不是虚渊玄就是成田写的，按照他们 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你是不是……把三田和成田搞混了？
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 87794#       发表于 2022-5-3 22:53
+
+隔壁整的fgo这两年写手就只有小太刀和樱井一样，其他人都已经离职了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

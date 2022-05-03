@@ -2078,3 +2078,83 @@ cj这样子还能复出到哪 去给勒夫当狗？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">奶绿的新号直接没了吗，早上关注完，现在找不到了。
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6222#       发表于 2022-5-3 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684204&amp;ptid=2013779" target="_blank">The_Ether_ 发表于 2022-5-3 22:49</a>
+奶绿的新号直接没了吗，早上关注完，现在找不到了。</blockquote>
+奶绿还在，只是被取关了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Quark  
+##### 6223#       发表于 2022-5-3 22:54
+
+奶绿号还在的啊
+
+*****
+
+####  sjbssd  
+##### 6224#       发表于 2022-5-3 22:54
+
+你们别关注奶绿小姐了，有竞业协议的，奶绿小姐没这么容易转生
+
+*****
+
+####  冯闵斯特伯格  
+##### 6225#       发表于 2022-5-3 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684259&amp;ptid=2013779" target="_blank">sjbssd 发表于 2022-5-3 22:54</a>
+你们别关注奶绿小姐了，有竞业协议的，奶绿小姐没这么容易转生</blockquote>
+能直接退圈也是一种好事吧
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  The_Ether_  
+##### 6226#       发表于 2022-5-3 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684244&amp;ptid=2013779" target="_blank">冯闵斯特伯格 发表于 2022-5-3 22:53</a>
+
+奶绿还在，只是被取关了
+
+—— 来自 vivo V1986A, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">b站的号，忘密码的号还在，发动态、后面加下划线的找不到了
+
+*****
+
+####  冯闵斯特伯格  
+##### 6227#       发表于 2022-5-3 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684308&amp;ptid=2013779" target="_blank">The_Ether_ 发表于 2022-5-3 22:59</a>
+b站的号，忘密码的号还在，发动态、后面加下划线的找不到了</blockquote>
+【明前奶绿_的个人空间-哔哩哔哩】 https://b23.tv/izMymkB
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  冯闵斯特伯格  
+##### 6228#       发表于 2022-5-3 23:01
+
+奶绿还换了鬼图头像，有点哭笑不得了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ttoady  
+##### 6229#       发表于 2022-5-3 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55684308&amp;ptid=2013779" target="_blank">The_Ether_ 发表于 2022-5-3 22:59</a>
+
+b站的号，忘密码的号还在，发动态、后面加下划线的找不到了</blockquote>
+[https://space.bilibili.com/2132180406/](https://space.bilibili.com/2132180406/)
+
