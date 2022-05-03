@@ -1829,3 +1829,15 @@ cj个剑冢滚了，公司里说不定还有多少关系户在呢，然后吹吹
 
 歇斯底里了，不承认自己是错的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6196#       发表于 2022-5-3 11:27
+
+https://b23.tv/ragY5mz
+放一条传送门，这状态我有点害怕
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
