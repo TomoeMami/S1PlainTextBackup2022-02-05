@@ -1276,3 +1276,21 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 133#       发表于 2022-5-3 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55681517&amp;ptid=2067480" target="_blank">hentianwuya 发表于 2022-5-3 18:29</a>
+这怎么看都是段子吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">诸葛说的，看来是恶搞的笑话
+
+*****
+
+####  吃我大dio  
+##### 134#       发表于 2022-5-3 18:37
+
+把史克威尔也卖了吧
+
