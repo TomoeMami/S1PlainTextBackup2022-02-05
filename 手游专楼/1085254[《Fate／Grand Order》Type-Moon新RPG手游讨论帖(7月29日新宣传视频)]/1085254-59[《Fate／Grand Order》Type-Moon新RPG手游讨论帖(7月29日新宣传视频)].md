@@ -9153,3 +9153,19 @@ fgo实装孙渣了？
 
 但问题是上次活动剧情它也没这次那么烂啊
 
+
+
+*****
+
+####  khxooo  
+##### 87790#       发表于 2022-5-3 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55682766&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-5-3 20:27</a>
+
+隔壁因为上次保罗活动是小太刀写的，正在试图让他背锅
+
+但问题是上次活动剧情它也没这次那么烂啊 ...</blockquote>
+那边不是樱井就是小太刀，连街机二世薄都想让樱井背锅，我想大帝和二世不是虚渊玄就是成田写的，按照他们的“理论”不是应该这两个其中一个背锅吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+上次保罗的剧情毫无问题，整个故事逻辑讲的过去的。也没有多少令人不愉快的东西。这次我单是看别人的剧情总结血压就上来了，什么狗屎东西。等我心情整理好后再补一下吧。
+

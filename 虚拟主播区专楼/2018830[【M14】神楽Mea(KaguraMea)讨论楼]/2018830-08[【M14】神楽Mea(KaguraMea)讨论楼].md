@@ -2199,3 +2199,26 @@ mea在这组发挥太强了，全程carry，可惜了，一局都能整个精彩
 
 今天强运和冷静都在
 
+
+
+*****
+
+####  路人庚  
+##### 10703#       发表于 2022-5-3 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赌神阿咩，原来小钢珠是为了修炼赌技
+
+*****
+
+####  我单推副会长  
+##### 10704#       发表于 2022-5-3 20:37
+
+tm的冠军连台都没开……真的好气啊……
+
+*****
+
+####  路人庚  
+##### 10705#       发表于 2022-5-3 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随手打打游戏只是休闲，不可能开台的（）
+
