@@ -1305,3 +1305,16 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 就是松田怎么老是搞区块链，tmd赶紧滚蛋啊，能不能把重心放到游戏上
 
+
+
+*****
+
+####  eagleearth  
+##### 136#       发表于 2022-5-3 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55675915&amp;ptid=2067480" target="_blank">布拉德莱恩 发表于 2022-5-3 06:41</a>
+我想看索尼收购SE然后给松田洋祐一巴掌别他妈整天盯着NFT别整天想着撒网式开发垃圾游戏，有那钱还不如集中 ...</blockquote>
+集中开发大体量IP可能血亏，集中开发HD-2D是真赚钱
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
