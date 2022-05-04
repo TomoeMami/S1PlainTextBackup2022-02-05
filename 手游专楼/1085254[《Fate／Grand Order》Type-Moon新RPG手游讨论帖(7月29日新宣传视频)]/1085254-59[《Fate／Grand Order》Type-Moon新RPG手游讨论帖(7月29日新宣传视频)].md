@@ -9381,3 +9381,19 @@ fgo实装孙渣了？
 
 太岁快乐本，冲就完事了
 
+
+
+*****
+
+####  UNISONIA  
+##### 87805#       发表于 2022-5-4 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55682766&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-5-3 20:27</a>
+
+隔壁因为上次保罗活动是小太刀写的，正在试图让他背锅
+
+但问题是上次活动剧情它也没这次那么烂啊 ...</blockquote>
+合众国开拓史可是三次官方调查排名都在前十的，满足这个的别的活动只有CCC联动和FZ联动了，更别说社区的评价也很高
+
+这次活动对漂亮国的讽刺性描写很明显不是亲漂亮国的小太刀能干的出来的，卖的梗也都是riyo原作里的，大概率是他本人
+
