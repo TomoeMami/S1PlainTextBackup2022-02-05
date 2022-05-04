@@ -2466,3 +2466,23 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  cyanwow  
+##### 6259#       发表于 2022-5-4 10:05
+
+那我白子呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  冯闵斯特伯格  
+##### 6260#       发表于 2022-5-4 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55687135&amp;ptid=2013779" target="_blank">cyanwow 发表于 2022-5-4 10:05</a>
+那我白子呢</blockquote>
+白子昨晚有点含糊，她可能也没想好吧
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
