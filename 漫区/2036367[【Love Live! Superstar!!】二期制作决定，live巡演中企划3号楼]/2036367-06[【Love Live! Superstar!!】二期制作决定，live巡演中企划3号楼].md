@@ -866,3 +866,25 @@ lovelive的共通点：学生会长的反对，从1到9，幼驯染的存在。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7569#       发表于 2022-5-4 14:16
+
+鱼一个人的fmt笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7570#       发表于 2022-5-4 14:22
+
+<blockquote>鲤鱼：我参加过上海fmt，还在最前排，不知道有没有和大家有眼神对视，你们还记得吗？
+
+emi：你坐第一排啊、好厉害！我们当然记得了，应该看到你了吧
+
+鲤鱼：真的吗？
+
+emi：好厉害啊，台下就是可可</blockquote>
+
