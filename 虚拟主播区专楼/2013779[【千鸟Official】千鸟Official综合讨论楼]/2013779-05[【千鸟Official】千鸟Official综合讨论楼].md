@@ -2495,3 +2495,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 本来是可以保护的，而且有吸引二次元的作用，但是作为内部人员的运营带头开盒，那就是防不胜防了，毕竟虚拟形象是没有法律保护的东西，全靠道德和约定，我的小roa的官司打到现在都还没有个结论，这边就更是难以界定了。
 
+
+
+*****
+
+####  yvy2222  
+##### 6262#       发表于 2022-5-4 11:19
+
+3.4w关注了，能不能到5w<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
