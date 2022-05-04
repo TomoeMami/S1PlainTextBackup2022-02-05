@@ -2524,3 +2524,19 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 主播能不能买个星瞳装扮
 
+
+
+*****
+
+####  龙娘777  
+##### 6265#       发表于 2022-5-4 12:43
+
+主播连皮都没有 买不起装扮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得c酱说过她那套皮几万块？我觉得她那质量就挺可以的了
+
+*****
+
+####  rgauss  
+##### 6266#       发表于 2022-5-4 12:49
+
+就文静那个抠样，舍得拿钱买装扮？
+
