@@ -2486,3 +2486,12 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  regedit32  
+##### 6261#       发表于 2022-5-4 10:33
+
+本来是可以保护的，而且有吸引二次元的作用，但是作为内部人员的运营带头开盒，那就是防不胜防了，毕竟虚拟形象是没有法律保护的东西，全靠道德和约定，我的小roa的官司打到现在都还没有个结论，这边就更是难以界定了。
+
