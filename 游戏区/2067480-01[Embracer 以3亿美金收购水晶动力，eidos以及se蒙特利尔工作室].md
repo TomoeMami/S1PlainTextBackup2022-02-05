@@ -1434,3 +1434,16 @@ https://twitter.com/Nibellion/status/15210351 ...</blockquote>
 
 se卖掉这些ip很大程度应该还是对今后的发展起不到什么作用吧，大方向明显是做服务型游戏为主了，而eidos旗下ip是最不适合转化成服务型游戏的，经验也只有失败的经验，只能在3A里面继续卷，而已经不止一家公司在这类游戏初动3、400万的时候表示销量没达到预期了，又不是亲生的卖掉很正常
 
+
+
+*****
+
+####  zikimi  
+##### 147#       发表于 2022-5-4 13:18
+
+ 本帖最后由 zikimi 于 2022-5-4 13:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55688998&amp;ptid=2067480" target="_blank">samusialan 发表于 2022-5-4 12:49</a>
+
+三部曲总销量3800万，假设9代破千万之后10rmb卖了800万左右，总共1800万，那么剩下的2作平均还是破千万的， ...</blockquote>
+eidos的游戏凡是常关注steam的都知道是打折小能手古墓三部更是首月就打折，一年之内骨折，之后都跟白送差不多……<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">古墓2013首月340万首年600万最后磨到1300万，后续1000万的销量能有多少利润率懂得都懂
+
