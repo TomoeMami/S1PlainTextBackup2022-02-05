@@ -2628,3 +2628,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 明前奶绿live2d展示
 [https://www.bilibili.com/video/BV1zZ4y1y7E1](https://www.bilibili.com/video/BV1zZ4y1y7E1)
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6276#       发表于 2022-5-4 22:12
+
+希望明早能有猫图孟获
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

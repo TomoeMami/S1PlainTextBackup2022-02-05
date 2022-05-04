@@ -9397,3 +9397,38 @@ fgo实装孙渣了？
 
 这次活动对漂亮国的讽刺性描写很明显不是亲漂亮国的小太刀能干的出来的，卖的梗也都是riyo原作里的，大概率是他本人
 
+
+
+*****
+
+####  J-002  
+##### 87806#       发表于 2022-5-4 22:07
+
+原来高难本还有彩蛋
+
+如果我方阵容里有水阿比，喵玉，豹人，哈贝喵，尼基季奇，道满（←你这货什么情况？）中任意一人
+
+对面的耗子（包括分身）会给自己上防御up+恐怖
+
+*****
+
+####  シャル  
+##### 87807#       发表于 2022-5-4 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55691513&amp;ptid=1085254" target="_blank">J-002 发表于 2022-5-4 17:21</a>
+
+没2期剧情和卡池，高难是太岁体验本</blockquote>
+老鼠大繁殖用灰姑娘龙娘2T<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87808#       发表于 2022-5-4 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55694663&amp;ptid=1085254" target="_blank">J-002 发表于 2022-5-4 22:07</a>
+
+原来高难本还有彩蛋
+
+如果我方阵容里有水阿比，喵玉，豹人，哈贝喵，尼基季奇，道满（←你这货什么情况？） ...</blockquote>
+道满这货技能里有猫
+
