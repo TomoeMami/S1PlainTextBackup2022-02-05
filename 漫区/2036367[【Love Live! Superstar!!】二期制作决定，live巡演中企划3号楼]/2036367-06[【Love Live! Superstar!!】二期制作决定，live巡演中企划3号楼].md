@@ -1228,3 +1228,40 @@ WoW～Awesome～OK～这是我独享的Moment～
 
 <img src="https://img.saraba1st.com/forum/202205/04/193637z2m78r1m3y244m8b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 7587#       发表于 2022-5-4 19:43
+
+Nako要鱼说中文<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7588#       发表于 2022-5-4 19:47
+
+Nako做得好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7589#       发表于 2022-5-4 19:48
+
+中文听力考试，现在开始：
+
+菜宝：你今天中午吃了什么啊
+
+鲤鱼：吃了三明治
+
+菜宝：也是哦你今天一天都在工作
+
+鲤鱼：就是那种轻食
+
+菜宝：对啊便当的那种
+
+请问：鲤鱼中午吃了什么？
+
+A三明治 B轻食 C便当
+
