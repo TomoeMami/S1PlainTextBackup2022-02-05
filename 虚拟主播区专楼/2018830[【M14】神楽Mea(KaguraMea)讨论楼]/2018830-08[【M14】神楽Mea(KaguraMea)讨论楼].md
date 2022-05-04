@@ -2385,3 +2385,18 @@ hololive的马车呢<img src="https://static.saraba1st.com/image/smiley/face2017
 
 明天鸽了
 
+
+
+*****
+
+####  往世雷书  
+##### 10723#       发表于 2022-5-4 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55683411&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2022-5-3 21:28</a>
+日本的读空气真讨厌啊。那个叫松本 吉弘的职业雀士 今天30岁。今天的气氛就应该是他夺冠。
+
+我想德龙 ...</blockquote>
+这不挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
