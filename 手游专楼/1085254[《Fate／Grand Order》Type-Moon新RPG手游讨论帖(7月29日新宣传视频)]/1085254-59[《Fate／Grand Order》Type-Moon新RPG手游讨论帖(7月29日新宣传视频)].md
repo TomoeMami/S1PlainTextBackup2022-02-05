@@ -9432,3 +9432,15 @@ fgo实装孙渣了？
 如果我方阵容里有水阿比，喵玉，豹人，哈贝喵，尼基季奇，道满（←你这货什么情况？） ...</blockquote>
 道满这货技能里有猫
 
+
+
+*****
+
+####  J-002  
+##### 87809#       发表于 2022-5-4 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55694703&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-5-4 22:09</a>
+
+道满这货技能里有猫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不愧是耗子，感觉太敏锐了
+
