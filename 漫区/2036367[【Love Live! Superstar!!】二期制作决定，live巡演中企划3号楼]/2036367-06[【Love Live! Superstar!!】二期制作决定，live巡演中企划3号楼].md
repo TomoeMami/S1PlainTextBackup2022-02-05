@@ -906,3 +906,73 @@ B1194877-DB0D-41EC-A78A-7C0223670F47.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/04/142617rlyovim8gwzuv8mv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 7572#       发表于 2022-5-4 14:48
+
+水团前辈教授上巨蛋的心得，就当是星团上巨蛋的预告
+
+*****
+
+####  仟音一心  
+##### 7573#       发表于 2022-5-4 14:50
+
+．
+
+3945D428-F4C1-4740-B485-F3E901A9030F.jpeg
+(263.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/145011sxgo0bp5vvfuwbju.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3ACA3E6D-EF38-4F17-B722-33BF78A093D6.jpeg
+(277.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/145011vq7fyeannr7ycse7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+69FC1BD7-CB8B-4590-838C-23468B5F94B9.jpeg
+(285.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/145011svnghrzm6v8m0unm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10D1DC95-F51A-4A21-8F42-113BF0012725.jpeg
+(316.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/145012s82k3ibwptovb07r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4521DC22-D36D-4FB5-9DB3-5A7AB644DF03.jpeg
+(328.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/145012ly1vtvvzaaaehqqv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D6FACC0C-3A87-4CEE-8916-88B4D1EF8888.jpeg
+(280.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/145012k6vay6y6xn4qtqok.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
