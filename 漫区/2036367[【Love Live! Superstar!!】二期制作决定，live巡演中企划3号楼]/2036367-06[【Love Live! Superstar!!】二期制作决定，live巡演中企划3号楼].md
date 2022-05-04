@@ -976,3 +976,15 @@ D6FACC0C-3A87-4CEE-8916-88B4D1EF8888.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/04/145012k6vay6y6xn4qtqok.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ykyin09  
+##### 7574#       发表于 2022-5-4 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55689349&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-4 13:26</a>
+
+lovelive的共通点：学生会长的反对，从1到9，幼驯染的存在。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪菜黛雅都算内鬼吧
+
