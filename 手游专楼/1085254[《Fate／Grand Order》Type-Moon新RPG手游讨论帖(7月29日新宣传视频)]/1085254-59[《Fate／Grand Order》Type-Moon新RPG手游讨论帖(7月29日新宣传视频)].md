@@ -9350,3 +9350,16 @@ fgo实装孙渣了？
 
 这活动开头就觉得超级班扬特别讨打，然后后面全跳过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看来是正确的
 
+
+
+*****
+
+####  khxooo  
+##### 87802#       发表于 2022-5-4 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55687774&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-4 11:14</a>
+可能脚本觉得写讽刺文学很受欢迎吧
+
+上次的联动，反面素材是混沌邪恶咕哒子，讽刺的是只抽卡不深入 ...</blockquote>
+看样子剧情就到此为止了，后续估计不要想了
+
