@@ -2618,3 +2618,13 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 一杯奶绿嘻嘻小姐的粉丝已经超过4个前同事了，令人感叹。
 
+
+
+*****
+
+####  IDIDIDID  
+##### 6275#       发表于 2022-5-4 20:47
+
+明前奶绿live2d展示
+[https://www.bilibili.com/video/BV1zZ4y1y7E1](https://www.bilibili.com/video/BV1zZ4y1y7E1)
+
