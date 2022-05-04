@@ -1070,3 +1070,19 @@ EFEB353C-0132-4A17-AA04-901E4B80B1F8.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/04/153816or01x16me3r5on11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7579#       发表于 2022-5-4 16:49
+
+发现这么多年，我还是在用排除法来确认谁是pile
+
+*****
+
+####  cybernetics31  
+##### 7580#       发表于 2022-5-4 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正哪张脸不认识一般都是pile
+
