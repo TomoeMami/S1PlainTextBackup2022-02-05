@@ -12205,3 +12205,15 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 
 所以有时候我就会想 当初红狗和青鸡打了10天 到底怎么打才能打10天 真画出来是不是比这个还难看
 
+
+
+*****
+
+####  topnice  
+##### 58018#       发表于 2022-5-4 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55685961&amp;ptid=98922" target="_blank">Renes 发表于 2022-5-4 03:29</a>
+
+所以有时候我就会想 当初红狗和青鸡打了10天 到底怎么打才能打10天 真画出来是不是比这个还难看 ...</blockquote>
+还好没画出来，鬼岛这才一个晚上不到，已经画了这么久。
+
