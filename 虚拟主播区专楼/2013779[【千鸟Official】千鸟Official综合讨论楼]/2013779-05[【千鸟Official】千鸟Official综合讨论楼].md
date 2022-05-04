@@ -2404,3 +2404,16 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6254#       发表于 2022-5-4 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55685823&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-4 02:29</a>
+其实有更残酷的一点我没忍心说 cj基本属于被枝挡了财路 那他目的就不难推测 并不是枝滚蛋就算完事了 他想 ...</blockquote>
+遇上疯狗真是可怕，不管怎样离这群贵物远远的最好，转生也罢做其他事也好，希望不要再出现这种情况了（所以我觉得转个人势或者运营会更好些，圈子水深贵物多，不要再受到这样的伤害了）
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
