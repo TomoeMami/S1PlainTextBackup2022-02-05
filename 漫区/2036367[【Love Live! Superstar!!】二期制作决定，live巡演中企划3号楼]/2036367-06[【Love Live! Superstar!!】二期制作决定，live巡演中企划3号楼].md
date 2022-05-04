@@ -1301,3 +1301,36 @@ E10B16E8-C93E-4A8F-A3BF-C4FC6992C8A2.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/04/200038fuxc7uqq3pk5juu5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 7591#       发表于 2022-5-4 20:18
+
+<blockquote>11:30 Liella!五人开场
+
+11:45 sayu + pay + uchi + rkk + 切米
+
+13:00 鲤鱼 + emi + 里p + pile + frrn + 阿兔彭
+
+14:00 nako + nagi + pay + sww + arisa + frrn
+
+14:25 水水二年生（事前録音）
+
+15:00 sayu + nagi + 未梦 + 村上 + 圆圆 + 萌p
+
+16:00 Liella!五人
+
+17:00 鲤鱼+ pay + arisa + aikyan + 圆圆 + 秀秀（樱川惠留言）
+
+18:20 鲤鱼+ nako + aikyan + 三森 + kssn + 菜宝
+
+20:00 Liella!五人结尾
+
+mc：星
+
+guest：缪水虹
+
+基本是一小时换一波人，以她们说完感言之后退场的时间为准，卡了个整点，不包括后面的放歌部分。</blockquote>
+
