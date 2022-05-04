@@ -1006,3 +1006,67 @@ lovelive的共通点：学生会长的反对，从1到9，幼驯染的存在。<
 lovelive的共通点：学生会长的反对，从1到9，幼驯染的存在。</blockquote>
 北原这简笔画真是从缪时就看不惯<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 7577#       发表于 2022-5-4 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55690292&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-5-4 15:11</a>
+雪菜黛雅都算内鬼吧</blockquote>
+至少话是都这么说过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+对于真香会长，栞子和恋的处理都太糟糕了。
+
+*****
+
+####  仟音一心  
+##### 7578#       发表于 2022-5-4 15:38
+
+．
+
+7FF19558-16D0-4D35-8A37-C981B5ADB0C3.jpeg
+(341.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/153815bcd6cb5ixxc19tb0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FEEE4DE8-0AC5-4BE6-8297-B09B51B8BE33.jpeg
+(415.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/153815b7ox87392rpr7r37.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F507A4DA-D483-4E60-BBA7-843EA5B49215.jpeg
+(364.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/153815r0yt5qo0z5jq5zl0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5565D6D5-556B-4D20-9647-1BF5048EEB98.jpeg
+(343.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/153816nqmrk27vrr2gsyk5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+EFEB353C-0132-4A17-AA04-901E4B80B1F8.jpeg
+(217.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/153816or01x16me3r5on11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
