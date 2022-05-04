@@ -9230,3 +9230,16 @@ rurudo马上上播
 
 查看全部评分
 
+
+
+*****
+
+####  Ketestrait  
+##### 12871#       发表于 2022-5-5 00:00
+
+从荣冠捏人看作品喜好：
+
+博士→咒术回战、间谍过家家 <img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+夜见→OVERLORD <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

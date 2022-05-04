@@ -9444,3 +9444,12 @@ fgo实装孙渣了？
 道满这货技能里有猫</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不愧是耗子，感觉太敏锐了
 
+
+
+*****
+
+####  alucardcz  
+##### 87810#       发表于 2022-5-4 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这活动已经全部结束了吗？ 还有2星期空刷？
+
