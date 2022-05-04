@@ -1167,3 +1167,21 @@ EFEB353C-0132-4A17-AA04-901E4B80B1F8.jpeg
 
 鲤鱼：夜明珠里面的中文（“你想要我吗？”），对于日本的各位来说可能不会在意什么意思就是觉得挺帅的吧，但是我听起来这中文太露骨了。明明还是高中生，这种歌词什么的，不要啊。
 
+
+
+*****
+
+####  仟音一心  
+##### 7583#       发表于 2022-5-4 17:58
+
+前半结束
+
+83CC5698-82CC-417F-A8E2-038822C0516D.jpeg
+(150.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-4 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202205/04/175845wjul5jp1l8apluyl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
