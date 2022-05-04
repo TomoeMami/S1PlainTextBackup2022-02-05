@@ -12217,3 +12217,12 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 所以有时候我就会想 当初红狗和青鸡打了10天 到底怎么打才能打10天 真画出来是不是比这个还难看 ...</blockquote>
 还好没画出来，鬼岛这才一个晚上不到，已经画了这么久。
 
+
+
+*****
+
+####  汤圆です  
+##### 58019#       发表于 2022-5-4 09:24
+
+大妈和俩超新星打都扑了，凯多还在不停出新招仰卧起坐，之前凯多和大妈打了一天到底打了啥，细思极恐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2417,3 +2417,23 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  庸necro  
+##### 6255#       发表于 2022-5-4 09:29
+
+堂 堂 复 活
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  冯闵斯特伯格  
+##### 6256#       发表于 2022-5-4 09:31
+
+我的孟获！！！
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
