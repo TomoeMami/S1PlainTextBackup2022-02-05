@@ -2747,3 +2747,35 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 为什么就看个直播你们有各种盒中盒 各种小团体 各种熟人社会 听说连地址人名都盒出来了。而我却啥都不知道 你们是不是在小团体里骂我这样的人是傻宝啊😭😭😭
 
+
+
+*****
+
+####  rgauss  
+##### 6288#       发表于 2022-5-5 14:04
+
+看了眼 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算啥公审啊 活脱脱一个甩锅大会，小团体确实臭不可闻
+
+*****
+
+####  Alfie劉  
+##### 6289#       发表于 2022-5-5 14:10
+
+别甩锅了，不如集体紫砂算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冯闵斯特伯格  
+##### 6290#       发表于 2022-5-5 14:11
+
+希望三个人能好好的吧，如果真泄露了重要信息还是报警吧
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  龙娘777  
+##### 6291#       发表于 2022-5-5 14:12
+
+只关心有没有塔照……我只是想看看美女
+

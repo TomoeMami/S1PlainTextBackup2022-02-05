@@ -9393,3 +9393,20 @@ vox也太火了吧，神秘
 我觉得还是比本社质的
 本社现在真的烂了
 
+
+
+*****
+
+####  asdhai  
+##### 12887#       发表于 2022-5-5 14:02
+
+哪里哪里，在我的记忆中自开天辟地以来，杏可都是和质的概念沾不上边的。今儿头一遭看见有人竟敢虹杏并论质，吓得我一身冷汗啊。这可使不得嗷，还是收回去吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 12888#       发表于 2022-5-5 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">本社这畏手畏脚的还敢质疑en的质么
+就en直接直播对线的drama给了本社4年都学不来
+
