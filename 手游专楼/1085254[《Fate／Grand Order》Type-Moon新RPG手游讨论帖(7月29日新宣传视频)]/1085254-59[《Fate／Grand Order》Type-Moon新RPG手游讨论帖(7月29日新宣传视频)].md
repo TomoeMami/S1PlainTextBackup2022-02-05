@@ -9526,3 +9526,14 @@ fgo实装孙渣了？
 
 水怪活动我留了点素材都没发现交换结束了，可见这活动多影薄，都没在我心里留下一席之地<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 87817#       发表于 2022-5-5 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55701908&amp;ptid=1085254" target="_blank">白金口袋 发表于 2022-5-5 14:46</a>
+水怪活动我留了点素材都没发现交换结束了，可见这活动多影薄，都没在我心里留下一席之地 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">别提了，我忘记刷素材换结晶了
+
