@@ -9905,3 +9905,39 @@ lol反正谁播我都不会去看的
 
 年复一年日复一日的车轱辘话。我还是去wb看嗯男粉和本社粉打架吧
 
+
+
+*****
+
+####  真飞鸟i  
+##### 12939#       发表于 2022-5-5 18:03
+
+ 本帖最后由 真飞鸟i 于 2022-5-5 18:04 编辑 
+
+樱花大战和真锁链战记确实是笑话没错，但是被给dmmr18页游以及粘帖复制端游宣传的虹人嘲讽也确实有点……
+如果虹人觉得大型及联动工商和vtb是绑定的，那灰烬战线的jk组只能成为牺牲品了，不过因为不是自己推所以这么想的虹人大概无所谓吧，所以杏能绑定红烧天堂吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  dybang  
+##### 12940#       发表于 2022-5-5 18:10
+
+只能说是氛围吧，声音挺重要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">King的直播一直情绪都很饱满，说话反应也快，懒得看的时候当背景音也不违和，大多数人都看个乐，只能说不坐牢就很好了
+
+*****
+
+####  IDIDIDID  
+##### 12941#       发表于 2022-5-5 18:13
+
+king饭撒水平一直可以的
+
+*****
+
+####  poipanchao  
+##### 12942#       发表于 2022-5-5 18:13
+
+king反应快骚话多吧
+只能说直播天赋确实存在，有些人干聊都能扯出花儿，有些人只有虚无
+
