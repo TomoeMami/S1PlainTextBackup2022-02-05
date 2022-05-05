@@ -10303,3 +10303,25 @@ HH自己的live放的全是B站源，各种中文弹幕满天飞<img src="https:
 
 以囚人为首的老一派htj已经被嗯男集美就地正法了，2000到底还有啥不满意的。
 
+
+
+*****
+
+####  ghgfg  
+##### 12978#       发表于 2022-5-5 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55708463&amp;ptid=1972669" target="_blank">蜜瓜包 发表于 2022-5-5 22:46</a>
+
+2000哥为什么还特意@自己的号，怕别人认不出来还是说激光2000是一个需要维护的ip ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer"> 已经毕业的管人，偶尔cue一下前世账号不是正常操作，不要大惊小怪，
+
+*****
+
+####  ghgfg  
+##### 12979#       发表于 2022-5-5 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55708526&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-5-5 22:52</a>
+
+以囚人为首的老一派htj已经被嗯男集美就地正法了，2000到底还有啥不满意的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 只是感叹，任由日月星辰变换，就算彩虹不是那个彩虹，月丿还是那个snp的月丿，
+
