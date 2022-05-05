@@ -10144,3 +10144,26 @@ Syl，复活，郡gachi老哥什么言出法随
 
 但是年功序列还是得遵守的<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 12965#       发表于 2022-5-5 19:24
+
+我又想起来了，年初神神秘秘的4周年纪念活动冬之阵我吐槽除了周边和live啥消息都没有，还有人说这不才前几弹先等等呗，结果实际上还真就只有周边和live
+
+*****
+
+####  我单推副会长  
+##### 12966#       发表于 2022-5-5 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">tm的，刷楼太快了，我还真当梦月女士复活了，去看了一下……
+
+*****
+
+####  渡鸦骑士  
+##### 12967#       发表于 2022-5-5 19:28
+
+新3d为什么是在官号频道公布啊，在liver频道不是惯例吗？
+
