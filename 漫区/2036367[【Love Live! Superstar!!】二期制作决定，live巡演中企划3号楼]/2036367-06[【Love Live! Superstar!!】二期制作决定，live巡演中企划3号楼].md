@@ -1763,3 +1763,17 @@ BD封面释出，就是场照，以为会重新拍呢
 
 不插电没线上？淦哦
 
+
+
+*****
+
+####  靡宜  
+##### 7615#       发表于 2022-5-5 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55707629&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-5 21:11</a>
+
+不插电没线上？淦哦</blockquote>
+微博有兄弟说可能的原因之一是有些翻唱有版权，不允许在线播。
+
+bd可能也不会出，但是可能会有TV剪辑。
+
