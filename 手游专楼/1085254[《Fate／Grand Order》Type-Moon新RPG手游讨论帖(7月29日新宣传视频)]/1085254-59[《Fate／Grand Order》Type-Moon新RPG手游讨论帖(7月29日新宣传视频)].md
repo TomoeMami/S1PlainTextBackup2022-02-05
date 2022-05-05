@@ -9551,3 +9551,22 @@ fgo实装孙渣了？
 可惜，其 ...</blockquote>
 也算不上抵制吧，大多都是多开长期放置就不爽要发泄，发泄过了就有意欲继续了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 87819#       发表于 2022-5-5 21:51
+
+唉，还是没有抽到鼠鼠<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87820#       发表于 2022-5-5 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55697477&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-5-5 08:39</a>
+
+难得这次的池子我一个呼符都没扔</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不欧 但羡慕
+
