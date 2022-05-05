@@ -9595,3 +9595,84 @@ vox有啥质可言 直播内容三分之一是各种纪念回asmr等fanservice �
 别尬黑，虹本社现在哪有量产货儿，那质量也配叫流水线出品吗
 量产女主播好歹也得达到本业及格线吧
 
+
+
+*****
+
+####  IDIDIDID  
+##### 12910#       发表于 2022-5-5 17:04
+
+盒皇肯福报愿意饭撒观众爱看什么内容就把自己塑造成怎么样，已经秒杀虹杏99%主播了，杏奴就算了，htj能给点respect吗。
+
+*****
+
+####  Porsche  
+##### 12911#       发表于 2022-5-5 17:06
+
+v综文艺复兴了，多来点，爱看
+
+*****
+
+####  fastary  
+##### 12912#       发表于 2022-5-5 17:06
+
+那你要说独一无二，虹女还可以大炒特炒bgcp呢，你杏行吗
+
+*****
+
+####  winda  
+##### 12913#       发表于 2022-5-5 17:07
+
+ 本帖最后由 winda 于 2022-5-5 17:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704131&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-5-5 17:00</a>
+
+vox有啥质可言 直播内容三分之一是各种纪念回asmr等fanservice 剩下来不是联动就是打垃圾游戏要么mc  二哥m ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说本社一哥60%是枪枪枪枪，本社二哥是性转menhera，有质么
+
+vox和reimu的恶友组互动方式对jp环境来说是文化冲击式的碾压，这还不算质么
+
+*****
+
+####  wuzhengkai  
+##### 12914#       发表于 2022-5-5 17:07
+
+什么叫质呢 就从NijiEN内来说
+
+Selen搞的NijiExpress企划放在本社也是顶级的创意+执行+最后呈现的效果 这种才是质
+
+Selen和Pomu搞的NijiWWE创意一流效果也很热闹 但两个人都没有任何摔跤知识也没去做功课 只能说还有待提高 但方向对了
+
+*****
+
+####  poipanchao  
+##### 12915#       发表于 2022-5-5 17:08
+
+ 本帖最后由 poipanchao 于 2022-5-5 17:11 编辑 
+
+炒cp
+夏哥不是杏女吗！？生气
+
+syl，↓
+kmt是虹人，所以oreapo也是虹的！
+别的bg什么cylx，不要提了
+
+*****
+
+####  winda  
+##### 12916#       发表于 2022-5-5 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704248&amp;ptid=1972669" target="_blank">fastary 发表于 2022-5-5 17:06</a>
+
+那你要说独一无二，虹女还可以大炒特炒bgcp呢，你杏行吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bgcp还虹独一无二？r u serious?
+
+*****
+
+####  wuzhengkai  
+##### 12917#       发表于 2022-5-5 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704256&amp;ptid=1972669" target="_blank">winda 发表于 2022-5-5 17:07</a>
+
+这么说本社一哥60%是枪枪枪枪，本社二哥是性转menhera，有质么</blockquote>
+king至少游戏力强而且也苦练 而且能把很多游戏玩的有意思 knkn我确实不看
+
