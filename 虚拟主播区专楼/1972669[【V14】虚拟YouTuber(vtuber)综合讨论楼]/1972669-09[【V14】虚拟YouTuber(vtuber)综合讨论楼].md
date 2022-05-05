@@ -9497,3 +9497,12 @@ vr秒了
 
 感觉2022年来第一次v综虹杏大战（姑且算大吧），谢en男注入的壮O药
 
+
+
+*****
+
+####  藤原银  
+##### 12899#       发表于 2022-5-5 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">看到楼友居然在讨论vtuber究竟有没有什么很好的“质”就有点呵呵了。好像到今天了管人还有什么无限的可能性一样。
+
