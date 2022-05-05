@@ -10167,3 +10167,36 @@ Syl，复活，郡gachi老哥什么言出法随
 
 新3d为什么是在官号频道公布啊，在liver频道不是惯例吗？
 
+
+
+*****
+
+####  IDIDIDID  
+##### 12968#       发表于 2022-5-5 19:33
+
+为啥是九月底，那不就和下一场太近了么
+
+*****
+
+####  free  
+##### 12969#       发表于 2022-5-5 19:38
+
+没有动捕3D不能拿vrchat凑合一下吗，3D岂是如此不便之物
+
+图和此回帖无关
+
+<img src="https://img.saraba1st.com/forum/202205/05/193853t212fc7yofottm2o.jpg" referrerpolicy="no-referrer">
+
+<strong>脑瘫.jpg</strong> (71.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-5 19:38 上传
+
+*****
+
+####  winda  
+##### 12970#       发表于 2022-5-5 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ame不就自己给自己整了套家用3D捕捉，直播练习跳舞
+

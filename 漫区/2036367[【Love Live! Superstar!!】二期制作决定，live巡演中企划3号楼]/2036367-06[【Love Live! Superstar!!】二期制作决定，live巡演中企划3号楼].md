@@ -1697,3 +1697,12 @@ BD封面释出，就是场照，以为会重新拍呢
 
 有种邻家妹妹的感觉大概
 
+
+
+*****
+
+####  lj205  
+##### 7608#       发表于 2022-5-5 19:38
+
+10月底还要去大阪和名古屋开粉丝见面会，什么时候破站也组织一下面向国内粉的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
