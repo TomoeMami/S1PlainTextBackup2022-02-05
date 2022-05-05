@@ -2830,3 +2830,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 楼友有塔照了求踹一脚 其他的不关心<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6297#       发表于 2022-5-5 21:49
+
+又有传要润VR的
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
