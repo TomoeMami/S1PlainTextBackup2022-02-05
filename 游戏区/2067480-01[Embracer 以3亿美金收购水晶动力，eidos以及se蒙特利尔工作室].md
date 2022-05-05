@@ -1584,3 +1584,32 @@ se现在就是说四千多人？刨除行政还有做漫画手办啥的做游戏
 
 通篇看下来，感觉SE确实有甩了一个包袱一样的感觉。
 
+
+
+*****
+
+####  hentianwuya  
+##### 161#       发表于 2022-5-5 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55706682&amp;ptid=2067480" target="_blank">ff2077 发表于 2022-5-5 19:45</a>
+
+se现在就是说四千多人？刨除行政还有做漫画手办啥的做游戏的估摸着只有两千多人吧，同时支撑两个ff正作级别 ...</blockquote>
+5550人是截至2021年3月31日的数据，现在多少要看今年财报出来以后更新的，过不了几天就出财报了。
+
+*****
+
+####  tlozfan  
+##### 162#       发表于 2022-5-5 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55706562&amp;ptid=2067480" target="_blank">hentianwuya 发表于 2022-5-5 19:35</a>
+
+我去看了下SE的报告书，因为2021财年的财报还没出，它只给了2018、2019、2020这三个财年的相关数据，好家伙 ...</blockquote>
+所以说se不是傻子，这场交易也只值3亿美元。投入产出比比率这么低不是不良资产是啥。IP有名是一回事，能变现才有价值。这已经是第N次的现实例子了，还有人把网络声量和舆论热度和销售额挂钩，这真不一定。
+
+*****
+
+####  BensonDarr  
+##### 163#       发表于 2022-5-5 20:00
+
+se不是说要投入到链游了么
+

@@ -1706,3 +1706,15 @@ BD封面释出，就是场照，以为会重新拍呢
 
 10月底还要去大阪和名古屋开粉丝见面会，什么时候破站也组织一下面向国内粉的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7609#       发表于 2022-5-5 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55706594&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-5 19:38</a>
+
+10月底还要去大阪和名古屋开粉丝见面会，什么时候破站也组织一下面向国内粉的 ...</blockquote>
+国内想安排恐怕都很难很难能安排吧
+
