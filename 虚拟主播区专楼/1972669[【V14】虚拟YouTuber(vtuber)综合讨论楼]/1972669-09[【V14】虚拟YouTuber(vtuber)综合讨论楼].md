@@ -9676,3 +9676,59 @@ kmt是虹人，所以oreapo也是虹的！
 这么说本社一哥60%是枪枪枪枪，本社二哥是性转menhera，有质么</blockquote>
 king至少游戏力强而且也苦练 而且能把很多游戏玩的有意思 knkn我确实不看
 
+
+
+*****
+
+####  fastary  
+##### 12918#       发表于 2022-5-5 17:13
+
+ 本帖最后由 fastary 于 2022-5-5 17:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704287&amp;ptid=1972669" target="_blank">winda 发表于 2022-5-5 17:09</a>
+
+bgcp还虹独一无二？r u serious?</blockquote>
+这不是虹杏大战吗，跟杏的独角兽天堂比的啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">  
+
+不过打的时候想的是箱内炒cp确实忘了oreapo，这个我的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 12919#       发表于 2022-5-5 17:15
+
+ 本帖最后由 winda 于 2022-5-5 17:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704320&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-5-5 17:10</a>
+
+king至少游戏力强而且也苦练 而且能把很多游戏玩的有意思 knkn我确实不看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">King要是别老是枪枪枪那我还认这说法
+
+apex最协7pt，cr 6pt卡多久了，直播占比有一半的游戏苦练到现在连钻二都还没去过
+
+另一个曾经的专武lol也退化的差不多了
+
+另外看的出来完全是在云恶友组，叶星互动有vox和reimu对喷的一点脏字那叶星就早不成立了
+
+*****
+
+####  wuzhengkai  
+##### 12920#       发表于 2022-5-5 17:17
+
+ 本帖最后由 wuzhengkai 于 2022-5-5 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704394&amp;ptid=1972669" target="_blank">winda 发表于 2022-5-5 17:15</a>
+
+King要是别老是枪枪枪那我还认这说法
+
+apex最协7pt，cr 6pt卡多久了，直播占比有一半的游戏苦练到 ...</blockquote>
+但他apex比赛表现挺突出的啊 
+
+lol反正谁播我都不会去看的
+
+那我确实有en男的联动直接关闭的
+
+*****
+
+####  poipanchao  
+##### 12921#       发表于 2022-5-5 17:20
+
+客观来说king表现出来的水平确实也就6pt，不够大师线的
+
