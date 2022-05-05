@@ -784,3 +784,14 @@ steam的就是定制的
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  BallanceHZ  
+##### 84#       发表于 2022-5-5 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55657090&amp;ptid=2067043" target="_blank">83913536 发表于 2022-5-1 15:52</a>
+steam的就是定制的</blockquote>
+van gogh那玩意也不算严格意义上的定制，毕竟苹果都测试过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
