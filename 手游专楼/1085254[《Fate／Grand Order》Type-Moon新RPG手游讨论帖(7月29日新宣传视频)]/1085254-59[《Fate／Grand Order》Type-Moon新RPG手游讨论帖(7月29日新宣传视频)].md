@@ -9537,3 +9537,17 @@ fgo实装孙渣了？
 水怪活动我留了点素材都没发现交换结束了，可见这活动多影薄，都没在我心里留下一席之地 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">别提了，我忘记刷素材换结晶了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 87818#       发表于 2022-5-5 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55701066&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-5 13:45</a>
+
+她哪怕办成一件事，拍了一部好电影，也算她有本事了。毕竟其原型之一的trump就是个成功的商人。
+
+可惜，其 ...</blockquote>
+也算不上抵制吧，大多都是多开长期放置就不爽要发泄，发泄过了就有意欲继续了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
