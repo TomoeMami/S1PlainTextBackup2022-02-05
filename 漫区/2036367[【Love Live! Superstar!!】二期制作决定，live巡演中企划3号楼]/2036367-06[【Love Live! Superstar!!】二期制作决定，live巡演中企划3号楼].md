@@ -1857,3 +1857,24 @@ bd可能也不会出，但是可能会有TV剪辑。
 
 女人真是可怕的生物，马尾加这个拍摄角度，完全换了一个人的样子。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7621#       发表于 2022-5-5 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55708083&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-5-5 22:15</a>
+确定没有线上了？</blockquote>
+没有 官推发的
+
+*****
+
+####  csolfans  
+##### 7622#       发表于 2022-5-5 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55708251&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-5-5 22:30</a>
+
+没有 官推发的</blockquote>
+淦 最期待的不插电live反而没有 心酸<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+

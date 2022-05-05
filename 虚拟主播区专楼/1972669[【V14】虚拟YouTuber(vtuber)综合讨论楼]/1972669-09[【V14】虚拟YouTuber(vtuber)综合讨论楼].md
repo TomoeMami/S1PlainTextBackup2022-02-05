@@ -10225,3 +10225,48 @@ lize的大腿……<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 今年不提舞台活动了，各种其他企划黑客还是一个都不参加的话我就当他打算明年毕业算了
 
+
+
+*****
+
+####  free  
+##### 12974#       发表于 2022-5-5 22:25
+
+今天HH这个前日祭，居然搞了个历代vtuber的live回顾，本来以为2楼收的就挺全了，这么一看还差好多......
+
+HH自己的live放的全是B站源，各种中文弹幕满天飞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=5tvZB4qnZ5M](https://www.youtube.com/watch?v=5tvZB4qnZ5M)
+
+<img src="https://img.saraba1st.com/forum/202205/05/222513xgpyvd2ypsgvvgwh.png" referrerpolicy="no-referrer">
+
+<strong>18.png</strong> (246.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-5 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/05/222513y0a0hao02o3cao3h.png" referrerpolicy="no-referrer">
+
+<strong>19.png</strong> (241.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-5 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/05/222513kzz7gkogo7pak500.png" referrerpolicy="no-referrer">
+
+<strong>20.png</strong> (224.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-5 22:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/05/222514emvwwwv1mmrzwj7c.png" referrerpolicy="no-referrer">
+
+<strong>21.png</strong> (245.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-5 22:25 上传
+
