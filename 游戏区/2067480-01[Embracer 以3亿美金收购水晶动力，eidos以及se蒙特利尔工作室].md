@@ -1513,3 +1513,15 @@ Gex一看就是驴子系段子
 
 在微软这么凯子 , 索尼急着收购的市道下卖这个价 , 说明真的不行....
 
+
+
+*****
+
+####  museqsou  
+##### 155#       发表于 2022-5-5 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55698771&amp;ptid=2067480" target="_blank">唯_change 发表于 2022-5-5 10:54</a>
+
+复联这么大的IP都做成这个质量亏成这样，古墓越做越烂，说明都是些垃圾工作室，越早卖越好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">对游戏而言妇联反而算不上优质ip，初始一笔授权费不说，想不想要真人脸模吸电影粉钱？想那脸模继续掏钱，而某几位演员的出场费电影本家都决定让他die了
+
