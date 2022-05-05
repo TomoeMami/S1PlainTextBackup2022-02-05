@@ -9524,3 +9524,16 @@ vr秒了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是一直觉得管人就是套皮主播，en五期皮没一个好看的就糊了
 
+
+
+*****
+
+####  poipanchao  
+##### 12902#       发表于 2022-5-5 16:16
+
+虽然有些过期了，锐评一下前些日子开同步试听algs台的三大女liver
+1.yqqx：找了职业哥连麦，专业度最高
+2.towa：气氛组拉满，娱乐性最强
+3.noah：直播半天话都说不出几句，既没有专业度也没有娱乐性，但是声音可爱
+总结，noah最强
+
