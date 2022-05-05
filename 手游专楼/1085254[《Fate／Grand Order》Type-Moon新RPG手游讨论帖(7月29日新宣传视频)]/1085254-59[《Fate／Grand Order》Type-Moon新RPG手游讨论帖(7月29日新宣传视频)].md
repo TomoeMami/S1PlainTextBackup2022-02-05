@@ -9485,3 +9485,12 @@ fgo实装孙渣了？
 
 结束了吧，素材差6千，点数差20W呢，感觉自回体2星期都未必够<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87814#       发表于 2022-5-5 12:30
+
+耗子真TM有意思
+
