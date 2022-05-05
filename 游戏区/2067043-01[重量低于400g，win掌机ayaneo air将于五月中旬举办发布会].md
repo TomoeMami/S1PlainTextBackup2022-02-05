@@ -795,3 +795,12 @@ steam的就是定制的
 steam的就是定制的</blockquote>
 van gogh那玩意也不算严格意义上的定制，毕竟苹果都测试过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  herryk159  
+##### 85#       发表于 2022-5-5 14:20
+
+猜一个5K起步价，毕竟这家从来没便宜过
+

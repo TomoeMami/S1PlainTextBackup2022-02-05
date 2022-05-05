@@ -2779,3 +2779,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 只关心有没有塔照……我只是想看看美女
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6292#       发表于 2022-5-5 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">多少有点哈人了这群人
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
