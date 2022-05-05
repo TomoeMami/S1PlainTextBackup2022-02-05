@@ -2706,3 +2706,17 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 很难不怀疑是不是已经和vr搭上线了 56月准备 7月合同一到期转生出道
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6284#       发表于 2022-5-5 10:23
+
+ 本帖最后由 冯闵斯特伯格 于 2022-5-5 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55698016&amp;ptid=2013779" target="_blank">龙娘777 发表于 2022-5-5 09:43</a>
+很难不怀疑是不是已经和vr搭上线了 56月准备 7月合同一到期转生出道</blockquote>
+能力在线+之前还去南京原力兼职了一段时间的运营，再加上现在奶绿账号的粉丝黏性，其实私心上希望她转个人势
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
