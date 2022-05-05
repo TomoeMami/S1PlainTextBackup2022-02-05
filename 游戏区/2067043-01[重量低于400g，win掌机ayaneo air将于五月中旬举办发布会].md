@@ -804,3 +804,16 @@ van gogh那玩意也不算严格意义上的定制，毕竟苹果都测试过<im
 
 猜一个5K起步价，毕竟这家从来没便宜过
 
+
+
+*****
+
+####  任天索尼子  
+##### 86#       发表于 2022-5-5 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55701544&amp;ptid=2067043" target="_blank">herryk159 发表于 2022-5-5 14:20</a>
+猜一个5K起步价，毕竟这家从来没便宜过</blockquote>
+国内几家谁也没便宜过
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
