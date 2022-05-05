@@ -2799,3 +2799,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 为什么大伙儿都有和中和
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6294#       发表于 2022-5-5 14:54
+
+牛逼，这要说的真的，运营是真几把傻逼，直接进小团体发病例原文件
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
