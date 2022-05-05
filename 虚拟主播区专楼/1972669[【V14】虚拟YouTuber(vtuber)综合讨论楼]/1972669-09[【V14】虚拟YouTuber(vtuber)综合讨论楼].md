@@ -9959,3 +9959,35 @@ King好笑的时候还是很好笑的，我觉得比二哥好笑door了。
 
 懂了 king=会fps的兔田 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  真飞鸟i  
+##### 12945#       发表于 2022-5-5 18:23
+
+回到正题，说点实在的，虽然我和楼友一样吹爆虹en男，但主要还是因为势头正盛，sc稳定的强。但目前来说订阅同接播放量还是比不上king，而从收益上说，参考虹的上市报告，线下线上收入占比，再加上海外势并不方便贩卖周边，主流出道，开live等，king大概还是更强，可以说king依旧是虹男v的上限吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  winda  
+##### 12946#       发表于 2022-5-5 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king没以前的锐气了，不嘲讽障害者手账，喷人脸长得恶心的king是不完整的king
+
+*****
+
+####  IDIDIDID  
+##### 12947#       发表于 2022-5-5 18:28
+
+那也不一定，现在日本慢慢放松入境管控之后田角能把vox搞进来插队3D披露，那玩法就多了。
+
+*****
+
+####  _Ra1nMaker  
+##### 12948#       发表于 2022-5-5 18:31
+
+enkr现在的操作不是在强推en了嘛，未来把King斩于马下应该只是时间问题吧
+
