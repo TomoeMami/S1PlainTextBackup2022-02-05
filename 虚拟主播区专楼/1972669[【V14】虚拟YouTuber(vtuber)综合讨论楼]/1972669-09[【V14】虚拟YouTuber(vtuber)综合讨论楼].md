@@ -10325,3 +10325,19 @@ HH自己的live放的全是B站源，各种中文弹幕满天飞<img src="https:
 以囚人为首的老一派htj已经被嗯男集美就地正法了，2000到底还有啥不满意的。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 只是感叹，任由日月星辰变换，就算彩虹不是那个彩虹，月丿还是那个snp的月丿，
 
+
+
+*****
+
+####  free  
+##### 12980#       发表于 2022-5-5 23:02
+
+要不这样吧，等vox来B限当天，你去绿帽坛或者批站专栏把八天王事迹再发一遍，带领无知群众狠狠批判一下rh组织彩虹社怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 12981#       发表于 2022-5-5 23:02
+
+竖版英文单词是什么折磨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

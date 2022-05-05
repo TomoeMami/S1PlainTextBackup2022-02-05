@@ -1878,3 +1878,23 @@ bd可能也不会出，但是可能会有TV剪辑。
 没有 官推发的</blockquote>
 淦 最期待的不插电live反而没有 心酸<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 7623#       发表于 2022-5-5 23:04
+
+马尾真是太棒了
+
+*****
+
+####  靡宜  
+##### 7624#       发表于 2022-5-5 23:06
+
+ 本帖最后由 靡宜 于 2022-5-5 23:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55708278&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-5-5 22:32</a>
+
+淦 最期待的不插电live反而没有 心酸不会逐渐就恢复以前没有直播的日子了吧 ...</blockquote>
+主要是MV电视台问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">本来也上座率不高是真的，看抽选好像几乎是百分百中
+

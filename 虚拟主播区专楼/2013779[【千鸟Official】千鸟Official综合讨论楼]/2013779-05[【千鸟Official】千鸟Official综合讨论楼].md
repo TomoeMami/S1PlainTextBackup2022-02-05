@@ -2893,3 +2893,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 不仅不能叫爸爸，说不定还认识
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6304#       发表于 2022-5-5 23:12
+
+私心还是希望她个人势，把盒这块风险降到最低，粉丝打米也舒服一些，再加上现在粉丝浓度批爆，不要太适合
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
