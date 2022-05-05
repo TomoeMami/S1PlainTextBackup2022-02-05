@@ -9732,3 +9732,80 @@ lol反正谁播我都不会去看的
 
 客观来说king表现出来的水平确实也就6pt，不够大师线的
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 12922#       发表于 2022-5-5 17:23
+
+ 本帖最后由 布莱士·西伯利 于 2022-5-5 17:25 编辑 
+
+-                                
+
+King在MC的时候留下了很多有趣的内容的。而且King脑子算好的了，所以看切片会发现他有很多有趣的。
+
+质的话巅峰我选微糖开司的传说之夜，画条线在这接近的就越质。
+
+从CP和情感的话，如果双方都更真心和对方交流，会表现出比营业更丰富和意外的情感波动，质也就更多。很多都是小细节一般人不在意就是了。（比如光君阿霞阿胜的交际关系还蛮舒服的，初期光君和rrm的交际关系也很有趣）
+
+整活那类型就有点多了...只能说会留下平常少见的东西，为此印象深刻。
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我自己角度搞笑就是要比枯燥的人生稍微有趣那么一点，那就是搞笑了。
+
+何况虚拟主播的虚拟部分，他唯一的意义又不是“虚拟”，希望虚拟的唯一理由也只是希望比枯燥的人生更有趣一些。那一般还是希望看主播想到想不到的，做到做不到的，说到说不到的。比一般不那么一般一些，我觉得就是好直播，质了。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+话说，国内虽然很多人都觉得谁都可以做直播（开心就好），但我个人还是认可隔壁海岛多一些，没那个能力就还是别做比较好。虽然要想做也没问题就是了...
+
+*****
+
+####  空集  
+##### 12923#       发表于 2022-5-5 17:23
+
+<blockquote>plok201 发表于 2022-5-5 15:38
+不能小看杏的质啊
+
+论大活，杏有粽子这个天花板在，彩虹最强的金鱼对比起来只能说是中超VS英超，2021年手游 ...</blockquote>
+感觉mknk不如金鱼，指社内80
+
+*****
+
+####  winda  
+##### 12924#       发表于 2022-5-5 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704442&amp;ptid=1972669" target="_blank">wuzhengkai 发表于 2022-5-5 17:17</a>
+
+但他apex比赛表现挺突出的啊 
+
+lol反正谁播我都不会去看的
+
+那我确实有en男的联动直接关闭的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这届最协冠军mvp该属于真正的苦练之王，从确认出场后3个月猛练apex，赛前从白金直升钻4的卵用啊
+
+*****
+
+####  fastary  
+##### 12925#       发表于 2022-5-5 17:27
+
+那最协苦练一个月最终局差点吃鸡的饭屋也可以质一下吗；；
+
+*****
+
+####  ghgfg  
+##### 12926#       发表于 2022-5-5 17:28
+
+月丿怎么没人吹了？
+
+*****
+
+####  藤原银  
+##### 12927#       发表于 2022-5-5 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来楼友讨论的质是独角兽大乐园啊。那跟讨论商业能力有什么不同的地方吗
+
+*****
+
+####  _Ra1nMaker  
+##### 12928#       发表于 2022-5-5 17:29
+
+已经看不懂在吵什么了，我还以为一开始是在讨论虹EN男和本社谁更有质的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
