@@ -9453,3 +9453,35 @@ fgo实装孙渣了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这活动已经全部结束了吗？ 还有2星期空刷？
 
+
+
+*****
+
+####  qixinno2  
+##### 87811#       发表于 2022-5-5 08:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">难得这次的池子我一个呼符都没扔
+
+*****
+
+####  久井路路  
+##### 87812#       发表于 2022-5-5 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55687774&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-4 11:14</a>
+
+可能脚本觉得写讽刺文学很受欢迎吧
+
+上次的联动，反面素材是混沌邪恶咕哒子，讽刺的是只抽卡不深入 ...</blockquote>
+活动长度的剧情的话有点困难吧，金古也是有第七章那个程度的篇幅+最后锁了提妈几小时的高光表现才挽回了风评的，活动剧情来个套皮的非本人达不到同样的高度，最后看着还是很碍眼。
+
+其实我并不讨厌重视资本多过情谊的角色，超级班扬给咕哒庆生那个语音，她直接问Live直播在哪里搞，纪念周边有没有准备，还告诉咕哒粉丝会投钱的，让咕哒赶紧准备，她则是会作为联动嘉宾给咕哒唱歌，这种在赚钱拉人气这回事上很有经验的人干起事来很可靠。
+
+不过这需要建立在非常有能的前提下，超级班扬活动里塑造得不仅很自我中心还很无能，在魅力上塑造得实在是太少了。
+
+*****
+
+####  DARKGRAY  
+##### 87813#       发表于 2022-5-5 10:52
+
+结束了吧，素材差6千，点数差20W呢，感觉自回体2星期都未必够<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
