@@ -9366,3 +9366,19 @@ vox也太火了吧，神秘
 
 同意，虹杏确实都是臭鱼烂虾
 
+
+
+*****
+
+####  cckuku  
+##### 12884#       发表于 2022-5-5 13:14
+
+杏小将平日里大喊着虹en势不可挡，杏半年半年，结果被一说杏不比虹质就全跳出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 12885#       发表于 2022-5-5 13:21
+
+有没有可能是觉得嗯男真的没什么质所以急了，如果拿虹本社拉踩杏我觉得一点毛病都没有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
