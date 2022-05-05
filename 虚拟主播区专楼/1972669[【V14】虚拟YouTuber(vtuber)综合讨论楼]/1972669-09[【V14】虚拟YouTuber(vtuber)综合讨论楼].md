@@ -9863,3 +9863,22 @@ lol反正谁播我都不会去看的
 除了大赛有点紧张感，平时那些联动排位配信又臭又长聊的无聊死也没什么精彩操作，当bgm都嫌吵
 所以jp现在人人打枪等于垃圾配信比重**增加了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还谈什么质
 
+
+
+*****
+
+####  空集  
+##### 12934#       发表于 2022-5-5 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704659&amp;ptid=1972669" target="_blank">藤原银 发表于 2022-5-5 17:28</a>
+
+原来楼友讨论的质是独角兽大乐园啊。那跟讨论商业能力有什么不同的地方吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那芳文社不也成为一种类型了么，又不一定要卖的好 
+
+*****
+
+####  真飞鸟i  
+##### 12935#       发表于 2022-5-5 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">部分杏人怎么htj化了，傻子才在乎质，数字就是一切，现在就是杏女》虹en男》》》本社虹男》》》》》》本社虹女，不过虹杏整体看，大概也就持平。
+
