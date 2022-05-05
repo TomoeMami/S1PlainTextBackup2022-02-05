@@ -9941,3 +9941,21 @@ king饭撒水平一直可以的
 king反应快骚话多吧
 只能说直播天赋确实存在，有些人干聊都能扯出花儿，有些人只有虚无
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 12943#       发表于 2022-5-5 18:18
+
+King好笑的时候还是很好笑的，我觉得比二哥好笑door了。
+
+而且放现实King的性格似乎很讨女性喜欢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然只是根据snrj时代来看。
+
+*****
+
+####  _Ra1nMaker  
+##### 12944#       发表于 2022-5-5 18:18
+
+懂了 king=会fps的兔田 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
