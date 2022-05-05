@@ -3003,3 +3003,12 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  dcfhft  
+##### 6315#       发表于 2022-5-6 02:00
+
+白子这两天的样子应该是有意跳槽VR了，跟千春频繁互动加上搞联动，不管怎样都比烂在千鸟好。看吱吱怎么想的了
+
