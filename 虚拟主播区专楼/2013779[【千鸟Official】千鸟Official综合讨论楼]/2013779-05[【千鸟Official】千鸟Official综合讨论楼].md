@@ -2677,3 +2677,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6281#       发表于 2022-5-5 07:59
+
+回来了，猫图和保卫萝卜
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
