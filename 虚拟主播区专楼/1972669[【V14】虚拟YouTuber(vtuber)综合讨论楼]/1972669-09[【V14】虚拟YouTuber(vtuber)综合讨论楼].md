@@ -10583,3 +10583,26 @@ vox直播一分钟就超过猴楼一辈子的成绩了
 看隔壁嫌弃流水低(主要是舰长少)，就对比了一下甲斐田的3D披露SC折合rmb也才80W左右，啊这 ...</blockquote>
 怎么形容呢，as5个人，每个的生日会流水都超百万，圣嘉然生日流水240多万。98万是很多了，但可能没到达他们的心理预期。
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 13005#       发表于 2022-5-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55720977&amp;ptid=1972669" target="_blank">Rosefinch 发表于 2022-5-6 23:04</a>
+ 怎么形容呢，as5个人，每个的生日会流水都超百万，圣嘉然生日流水240多万。98万是很多了，但可能没到达他 ...</blockquote>
+生日有加成怎么比，开播一下这么多已经很夸张了，怎么说也有语言障碍
+
+*****
+
+####  fastary  
+##### 13006#       发表于 2022-5-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55720977&amp;ptid=1972669" target="_blank">Rosefinch 发表于 2022-5-6 23:04</a>
+
+怎么形容呢，as5个人，每个的生日会流水都超百万，圣嘉然生日流水240多万。98万是很多了，但可能没到达他 ...</blockquote>
+vox出道也才半年，然后b限也是首次，而且舰长收益不如油管SC很多人事先都在宣传省钱打sc买音声更赚
+
+挂上debuff都接近as的生日会流水了已经很厉害了，感觉还是奇观看多了又个个想看集美乐子非要往创造历史上面估才搞的预期过高<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
