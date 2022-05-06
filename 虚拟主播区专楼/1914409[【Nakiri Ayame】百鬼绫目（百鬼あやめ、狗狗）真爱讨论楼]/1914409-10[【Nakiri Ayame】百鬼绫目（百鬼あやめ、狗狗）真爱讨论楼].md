@@ -6521,3 +6521,36 @@ Mio说ayafubumi接下来还有联动
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">出场全靠带是吧
 
+
+
+*****
+
+####  nian1538  
+##### 14149#       发表于 2022-5-6 18:47
+
+ 本帖最后由 nian1538 于 2022-5-6 18:49 编辑 
+
+【 #ホロGGW】【常闇トワチーム】
+
+436 waitingScheduled for May 6, 2022
+
+Towa Ch. 常闇トワ
+
+1.02M subscribers
+
+常闇トワチームメンバー
+
+@Mel Channel 夜空メルチャンネル 
+
+@Nakiri Ayame Ch. 百鬼あやめ 
+
+@Kanata Ch. 天音かなた 
+
+@Towa Ch. 常闇トワ 
+
+@Luna Ch. 姫森ルーナ 
+
+@Laplus ch. ラプラス・ダークネス - holoX - 
+
+※※本日全員集まるわけではありません※※
+
