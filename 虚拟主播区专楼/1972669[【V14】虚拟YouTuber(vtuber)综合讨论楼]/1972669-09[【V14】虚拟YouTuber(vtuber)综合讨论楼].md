@@ -10421,3 +10421,12 @@ HH自己的live放的全是B站源，各种中文弹幕满天飞<img src="https:
 
 就算加很多自我审核过了，几分钟以后版务也给你锁了
 
+
+
+*****
+
+####  minamichisei  
+##### 12989#       发表于 2022-5-6 18:03
+
+卧槽，没想到这几天V综开始文艺复兴虹杏大战了，令人感叹。对比起现在国V圈大战还是旧时代的虹杏大战温暖可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
