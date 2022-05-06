@@ -833,3 +833,19 @@ van gogh那玩意也不算严格意义上的定制，毕竟苹果都测试过<im
 
 电子垃圾
 
+
+
+*****
+
+####  汝者  
+##### 89#       发表于 2022-5-6 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55704153&amp;ptid=2067043" target="_blank">任天索尼子 发表于 2022-5-5 17:01</a>
+国内几家谁也没便宜过
+
+—— 来自 realme RMX2072, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+gpd到win3之前价格还是相对合理的
+后来迎来i7就暴涨了
+
+—— 来自 realme RMX2121, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
