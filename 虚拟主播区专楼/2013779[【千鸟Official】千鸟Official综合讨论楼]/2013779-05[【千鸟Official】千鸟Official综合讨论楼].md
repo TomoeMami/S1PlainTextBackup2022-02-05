@@ -3327,3 +3327,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 冷知识，现在直接搜明前奶绿是搜不到吱吱的，必须带_才可以搜到，好限流
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6348#       发表于 2022-5-6 20:07
+
+张哥好像把关注都锁了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
