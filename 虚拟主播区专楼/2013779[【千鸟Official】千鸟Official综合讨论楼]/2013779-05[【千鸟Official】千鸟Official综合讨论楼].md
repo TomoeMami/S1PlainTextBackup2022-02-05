@@ -3012,3 +3012,18 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 白子这两天的样子应该是有意跳槽VR了，跟千春频繁互动加上搞联动，不管怎样都比烂在千鸟好。看吱吱怎么想的了
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6316#       发表于 2022-5-6 08:48
+
+ 本帖最后由 冯闵斯特伯格 于 2022-5-6 08:50 编辑 
+
+如果今天千春起床动态再对上，那感觉大概率是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+千鸟过于烂，之前一帮运营屁事都没干，加上直播员的挺高强度认知，所以她们给我的感觉其实更像是个人势，要不是被这b企划束手束脚早tm起飞了
+真继续转企业势的话，还是在意认知环节<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">人之初丑态.jog
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
