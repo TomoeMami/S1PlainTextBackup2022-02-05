@@ -12351,3 +12351,32 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 
 司法岛最终战本来就不是重点呀，从一开始的开局就是悬念拉满，讲故事为主，应该是最猜不到发展的一章了
 
+
+
+*****
+
+####  天使的日曜日  
+##### 58031#       发表于 2022-5-6 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55687186&amp;ptid=98922" target="_blank"> 20002000 发表于 2022-5-4 10:12</a> 引用:天使的日曜日 发表于 2022-5-4 10:09 娜美克星马上就要爆炸了 绷不住了  尾田是不是像半圆一样开始老年痴呆了 </blockquote>
+没有编辑检查分镜的结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  天使的日曜日  
+##### 58032#       发表于 2022-5-6 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55694648&amp;ptid=98922" target="_blank">thomaszyj 发表于 2022-5-4 22:05</a>
+
+感觉尾田想象力枯竭了，路飞的大招还是变大拳头打，和明哥那时一样，都已经觉醒了，不能整一些除了变大拳头 ...</blockquote>
+司法岛就是海贼战斗巅峰啊，双方拼尽全力对等实力的1V1
+
+CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 58033#       发表于 2022-5-6 11:49
+
+真的烂啊，影响到销量不明显啊，这种弱智剧情就应该来个断崖式下降。
+
