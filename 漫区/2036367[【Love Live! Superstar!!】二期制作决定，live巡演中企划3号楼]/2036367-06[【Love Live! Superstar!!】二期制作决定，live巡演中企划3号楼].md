@@ -1939,3 +1939,138 @@ MTV整个抽选安排特别奇怪，而且完全没有一点宣传，都这个�
 
 没有线上的话，以后会有bd版吗<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 7630#       发表于 2022-5-6 14:52
+
+Nagi
+
+105E97BD-9DBE-43DE-AD35-F1CF0FA97B9D.jpeg
+(52.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145242wahbl59hyhz9eeha.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+372CB86B-39A2-4DB8-A9AE-086663152D06.jpeg
+(65.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145242rzvgbbhbh5dchybc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F9608E95-67E4-4216-B79E-A69CEF4D2288.jpeg
+(64.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145242q10967jjmz0z0dmm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A7F7BEC0-3287-4987-AD89-73E467C9494C.jpeg
+(70.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145243w6emuixkxerpae32.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4286E845-1D6A-4560-8F10-36723F0E14B0.jpeg
+(83.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145243hew0q1me1begs8gt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6D080590-6A84-4F0E-A7DC-62513D6C9845.jpeg
+(80.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145243wb0swzig9u0hwu77.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+19D9F1F5-2C5B-44D8-BFD3-B927263E8234.jpeg
+(66.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145243qjoxaaquz9ee5eqo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+338198DF-BCC4-47A3-80BB-6C3266AD8EBA.jpeg
+(306.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145244ohhik7d6879kudog.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6C994FDF-06A7-4F03-ABA0-3F16B3E36869.jpeg
+(523.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145244m0fqfl8gcojnnfgn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+62D06EC3-30B8-41BC-810E-0247823E57B6.jpeg
+(125.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145250fgmf3gwg933je5zb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AC70110C-1DEC-4A51-BE93-DD577C34F0E7.jpeg
+(140.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145250vdqzdqa8a4ek8aeg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E14811F5-167A-4CF5-827C-2114E29C58EE.jpeg
+(500.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145250juketppp333h3gfv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3A9677F6-3821-4AD7-9D58-AE6B46CF6B86.jpeg
+(304.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145250jf8aogcfcmqpv4ef.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+703D3420-857F-4138-BE25-39A91FC7C45C.jpeg
+(642.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/145250usz9abp5bo42z9pp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
