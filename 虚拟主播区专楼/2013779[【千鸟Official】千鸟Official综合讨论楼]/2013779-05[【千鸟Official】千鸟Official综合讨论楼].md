@@ -3098,3 +3098,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ba娜娜  
+##### 6324#       发表于 2022-5-6 11:40
+
+真进VR也要几个月之后了吧，准备各种东西啥的，三四个月打底<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+呜呜呜，在这之前怎么活啊
+
