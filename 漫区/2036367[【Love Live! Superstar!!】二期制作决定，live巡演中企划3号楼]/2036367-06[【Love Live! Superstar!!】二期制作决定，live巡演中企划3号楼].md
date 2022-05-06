@@ -2179,3 +2179,23 @@ E14811F5-167A-4CF5-827C-2114E29C58EE.jpeg
 搞不懂，反正乐子是肯定有的，反正星现在2海选3事务所，这新四人除非从缪水里抽人来整活，否则不管来谁都 ...</blockquote>
 乐子问题不大，反正看霓虹那边接受度挺高，霓虹当地还是主力
 
+
+
+*****
+
+####  仟音一心  
+##### 7642#       发表于 2022-5-6 19:06
+
+「Liyuuのはつらじ」第63回
+
+少女组合821的REIA和小RIKO作为嘉宾
+
+DD5D7A8D-2B9F-4E09-AED2-AEFB7A4261E8.jpeg
+(570.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-6 19:06 上传
+
+<img src="https://img.saraba1st.com/forum/202205/06/190620g6s53ptctdmsp31y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

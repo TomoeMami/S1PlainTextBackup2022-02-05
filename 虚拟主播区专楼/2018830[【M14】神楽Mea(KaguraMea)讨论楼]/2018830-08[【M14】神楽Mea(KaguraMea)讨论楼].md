@@ -2529,3 +2529,14 @@ sony的大手狠狠握住了神乐Mea的xx！<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 10735#       发表于 2022-5-6 19:06
+
+有啥好聊的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
