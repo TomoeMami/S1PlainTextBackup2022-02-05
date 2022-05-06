@@ -10564,3 +10564,22 @@ vox直播一分钟就超过猴楼一辈子的成绩了
 
 今晚vox播了1个多小说，98万rmb流水
 
+
+
+*****
+
+####  fastary  
+##### 13003#       发表于 2022-5-6 22:55
+
+看隔壁嫌弃流水低(主要是舰长少)，就对比了一下甲斐田的3D披露SC折合rmb也才80W左右，啊这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rosefinch  
+##### 13004#       发表于 2022-5-6 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55720914&amp;ptid=1972669" target="_blank">fastary 发表于 2022-5-6 22:55</a>
+
+看隔壁嫌弃流水低(主要是舰长少)，就对比了一下甲斐田的3D披露SC折合rmb也才80W左右，啊这 ...</blockquote>
+怎么形容呢，as5个人，每个的生日会流水都超百万，圣嘉然生日流水240多万。98万是很多了，但可能没到达他们的心理预期。
+
