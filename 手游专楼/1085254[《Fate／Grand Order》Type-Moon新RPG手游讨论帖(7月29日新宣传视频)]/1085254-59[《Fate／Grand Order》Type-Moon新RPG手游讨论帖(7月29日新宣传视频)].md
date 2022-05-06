@@ -9597,3 +9597,12 @@ fgo实装孙渣了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自然回的萌新表示还差好多
 
+
+
+*****
+
+####  里村紅葉  
+##### 87824#       发表于 2022-5-6 21:16
+
+以后活动都是这种刷6种兑换物的模式了吧，看来是真没活整了
+
