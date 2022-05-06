@@ -10368,3 +10368,17 @@ HH自己的live放的全是B站源，各种中文弹幕满天飞<img src="https:
 
 竖排英文单词不应该字母也竖着吗。不过毕竟电脑图片不能转
 
+
+
+*****
+
+####  winda  
+##### 12985#       发表于 2022-5-6 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55706041&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-5-5 19:02</a>
+
+确实是这样，你杏老害虽然经常看不起箱推民，但不可否认箱推mmr比阴湿内斗htj好太多了，最起码表面功夫到位 ...</blockquote><blockquote>确实是这样，你杏老害虽然经常看不起箱推民，但不可否认箱推mmr比阴湿内斗htj好太多了，最起码表面功夫到位
+
+你虹小团体严重内耗，狼性写脸上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">箱内策略就把观众筛选好了，虹优遇不遇都摆明了自然观众也狼性，杏汇演还能大家庭齐聚，观众自然也箱推
+
