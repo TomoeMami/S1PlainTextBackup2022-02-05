@@ -10606,3 +10606,26 @@ vox出道也才半年，然后b限也是首次，而且舰长收益不如油管S
 
 挂上debuff都接近as的生日会流水了已经很厉害了，感觉还是奇观看多了又个个想看集美乐子非要往创造历史上面估才搞的预期过高<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 13007#       发表于 2022-5-6 23:24
+
+才刚开始能看出个啥呀，后续怎么经营才是关键，所以以后准备一个礼拜播几次b限，每次准备加班还是准点下班才是关键
+
+*****
+
+####  Rosefinch  
+##### 13008#       发表于 2022-5-6 23:32
+
+不对，刷新一下数据应该是110多万
+
+*****
+
+####  dybang  
+##### 13009#       发表于 2022-5-6 23:36
+
+当外教陪聊一个多小时口语就挣一百多万还不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到手没几十万也有十几万了吧
+
