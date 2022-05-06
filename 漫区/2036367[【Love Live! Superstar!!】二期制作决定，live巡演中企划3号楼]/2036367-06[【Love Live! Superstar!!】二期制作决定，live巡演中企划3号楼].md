@@ -2119,3 +2119,25 @@ E14811F5-167A-4CF5-827C-2114E29C58EE.jpeg
 我在等一个新4人的cv有一个是当年海选时候扣下的乐子。当然都是事务所塞的也很乐子就是了。 ...</blockquote>
 应该说事务所推？感觉应该不会是海选，记得当时说法是1+4，海选应该就立德一个位置，然后4个事务所推？
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7636#       发表于 2022-5-6 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55716446&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-5-6 15:58</a>
+
+我在等一个新4人的cv有一个是当年海选时候扣下的乐子。当然都是事务所塞的也很乐子就是了。 ...</blockquote>
+不太像，要是海选的人感觉上会给Apolly Bay，但是现在Apolly Bay不太像有这种新人的样子，当然也不排除之后突然宣布所属关系
+
+*****
+
+####  ads147147  
+##### 7637#       发表于 2022-5-6 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55716616&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-6 16:13</a>
+
+应该说事务所推？感觉应该不会是海选，记得当时说法是1+4，海选应该就立德一个位置，然后4个事务所推？ ...</blockquote>
+搞不懂，反正乐子是肯定有的，反正星现在2海选3事务所，这新四人除非从缪水里抽人来整活，否则不管来谁都是大乐子。
+
