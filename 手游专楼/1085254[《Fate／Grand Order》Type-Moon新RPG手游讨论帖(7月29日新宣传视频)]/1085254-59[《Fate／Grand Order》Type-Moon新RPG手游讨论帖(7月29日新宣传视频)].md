@@ -9606,3 +9606,15 @@ fgo实装孙渣了？
 
 以后活动都是这种刷6种兑换物的模式了吧，看来是真没活整了
 
+
+
+*****
+
+####  alucardcz  
+##### 87825#       发表于 2022-5-6 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55719912&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-5-6 21:16</a>
+
+以后活动都是这种刷6种兑换物的模式了吧，看来是真没活整了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动其实不就是变相无限池吗（
+
