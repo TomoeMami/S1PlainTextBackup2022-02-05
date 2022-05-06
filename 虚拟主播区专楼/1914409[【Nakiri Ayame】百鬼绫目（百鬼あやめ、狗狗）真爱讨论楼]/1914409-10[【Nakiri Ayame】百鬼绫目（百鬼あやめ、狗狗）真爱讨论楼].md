@@ -6572,3 +6572,12 @@ Towa Ch. 常闇トワ
 
 结果果然是熟悉的五缺一
 
+
+
+*****
+
+####  因为你不会  
+##### 14152#       发表于 2022-5-7 00:48
+
+好久没上opgg，现在opgg的ui比以前炫酷多了是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+

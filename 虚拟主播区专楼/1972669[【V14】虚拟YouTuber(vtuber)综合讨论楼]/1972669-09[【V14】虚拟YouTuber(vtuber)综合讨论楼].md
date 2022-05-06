@@ -10638,3 +10638,12 @@ vox出道也才半年，然后b限也是首次，而且舰长收益不如油管S
 
 70W粉丝100W收入，ARPU一块三，神中神，天生的V圈集金帝皇好吧。
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 13011#       发表于 2022-5-7 00:49
+
+B播一场收了葛king差不多一年的SC<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
