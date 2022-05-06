@@ -10647,3 +10647,14 @@ vox出道也才半年，然后b限也是首次，而且舰长收益不如油管S
 
 B播一场收了葛king差不多一年的SC<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 13012#       发表于 2022-5-7 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55719815&amp;ptid=1972669" target="_blank">nowaki 发表于 2022-5-6 21:11</a>
+vox直播一分钟就超过猴楼一辈子的成绩了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金盾都没，怎么超杏，倒是真的碾压本社在b站的混子3年了
+
