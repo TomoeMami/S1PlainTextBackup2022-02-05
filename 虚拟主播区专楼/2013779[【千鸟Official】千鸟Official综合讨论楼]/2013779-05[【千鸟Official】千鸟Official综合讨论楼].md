@@ -3216,3 +3216,17 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  暗黑能乐  
+##### 6336#       发表于 2022-5-6 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55715985&amp;ptid=2013779" target="_blank">yvy2222 发表于 2022-5-6 15:19</a>
+
+张哥这关注列表，不会是静栗惹吧
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，那岂不是能一睹真容。酸了呀
+
