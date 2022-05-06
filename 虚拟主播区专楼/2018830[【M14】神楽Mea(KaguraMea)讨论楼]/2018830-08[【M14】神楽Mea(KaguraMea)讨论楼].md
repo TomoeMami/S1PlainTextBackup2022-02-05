@@ -2585,3 +2585,15 @@ sony的大手狠狠握住了神乐Mea的xx！<img src="https://static.saraba1st.
 
 打牌哪里能看完整版？以为是其他的类型就没看 没想到是德
 
+
+
+*****
+
+####  呓亘  
+##### 10741#       发表于 2022-5-7 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55721388&amp;ptid=2018830" target="_blank">Mikumiku831 发表于 2022-5-7 00:07</a>
+
+打牌哪里能看完整版？以为是其他的类型就没看 没想到是德</blockquote>
+黄兔子那里吧？
+
