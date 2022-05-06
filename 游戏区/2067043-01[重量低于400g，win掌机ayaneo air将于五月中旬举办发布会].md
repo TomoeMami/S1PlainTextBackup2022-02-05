@@ -849,3 +849,27 @@ gpd到win3之前价格还是相对合理的
 
 —— 来自 realme RMX2121, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bfogda  
+##### 90#       发表于 2022-5-6 10:11
+
+想整个能跑rm之类小黄油的掌机，最好还能开个CE啥的
+
+有这种吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  医生狼多  
+##### 91#         楼主| 发表于 2022-5-6 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55711925&amp;ptid=2067043" target="_blank">bfogda 发表于 2022-5-6 10:11</a>
+想整个能跑rm之类小黄油的掌机，最好还能开个CE啥的
+
+有这种吗</blockquote>
+gpdwin1，win2
+
