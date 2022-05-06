@@ -3134,3 +3134,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 我动态呢我动态呢我动态呢
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6328#       发表于 2022-5-6 12:26
+
+收回个人势评论，这纯纯懒狗样还是去VR混日子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
