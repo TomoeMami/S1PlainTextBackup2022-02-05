@@ -10629,3 +10629,12 @@ vox出道也才半年，然后b限也是首次，而且舰长收益不如油管S
 
 当外教陪聊一个多小时口语就挣一百多万还不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到手没几十万也有十几万了吧
 
+
+
+*****
+
+####  IDIDIDID  
+##### 13010#       发表于 2022-5-6 23:54
+
+70W粉丝100W收入，ARPU一块三，神中神，天生的V圈集金帝皇好吧。
+
