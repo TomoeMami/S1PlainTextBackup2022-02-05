@@ -10430,3 +10430,15 @@ HH自己的live放的全是B站源，各种中文弹幕满天飞<img src="https:
 
 卧槽，没想到这几天V综开始文艺复兴虹杏大战了，令人感叹。对比起现在国V圈大战还是旧时代的虹杏大战温暖可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 12990#       发表于 2022-5-6 18:31
+
+[https://twitter.com/CT_Cocone/status/1522516522211549184](https://twitter.com/CT_Cocone/status/1522516522211549184)
+[https://twitter.com/Kasane_CT/status/1522516621285523457](https://twitter.com/Kasane_CT/status/1522516621285523457)
+
+cocotsuki的铃代姐5.29毕业，cocotsuki解散，kasane今后独立活动
+
