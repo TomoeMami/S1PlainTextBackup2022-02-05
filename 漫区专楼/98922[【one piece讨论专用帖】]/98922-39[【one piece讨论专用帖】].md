@@ -12252,3 +12252,79 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://img.saraba1st.com/forum/202205/04/100856jxmglulgmkxpghdy.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  20002000  
+##### 58021#       发表于 2022-5-4 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55687167&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-5-4 10:09</a>
+
+娜美克星马上就要爆炸了</blockquote>
+绷不住了 
+
+尾田是不是像半圆一样开始老年痴呆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SteinLee  
+##### 58022#       发表于 2022-5-4 16:14
+
+最后凯多应该会如愿以偿自杀，不过估计是自杀式被干掉了，五黄这次还需要一个大佬过来救场，就是不知道是谁了，说不定是光月御田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thomaszyj  
+##### 58023#       发表于 2022-5-4 22:05
+
+感觉尾田想象力枯竭了，路飞的大招还是变大拳头打，和明哥那时一样，都已经觉醒了，不能整一些除了变大拳头以外的大招吗？凯多的人形招式就是各种姿势甩棍子，兽型招式就是嘴炮，现在这个大招好像是直接拿头顶，好好的一个龙整的招式这么朴素<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">。整个和之国的干部战，除了queen和king有点新意，其他的都很平庸，所谓古代种只是个噱头，不像cp9那时各自还有点特色。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58024#       发表于 2022-5-6 00:01
+
+<img src="https://p.sda1.dev/5/235205326fe59f9622c3f2ae6e421ab5/CMP_20220505235230705.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/2dad00ac244e8ff435e9b728a71af750/CMP_20220505235230824.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/3f173f2c3d3d931d9a72585e59c32fe6/CMP_20220505234749846.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/a4478388e49b538b119027d753aafc86/CMP_20220505235157243.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/46e385ca0b88cba235bf31358e5a62fe/CMP_20220505235157383.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  宅之猴晒阴  
+##### 58025#       发表于 2022-5-6 10:23
+
+我发现两年后的路飞只会一招从天而降的掌法把对方打倒，明哥，金狮子，泽法，巴雷特，都是路飞在上，BOSS在下，然后打败，加上这次的凯多也是这样。除了卡二不是这样。
+
+*****
+
+####  klzxs  
+##### 58026#       发表于 2022-5-6 10:47
+
+卡页
+
+*****
+
+####  触手皇帝  
+##### 58027#       发表于 2022-5-6 10:56
+
+路飞与凯多的对峙下周继续<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 58028#       发表于 2022-5-6 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55625665&amp;ptid=98922" target="_blank">klzxs 发表于 2022-4-28 23:43</a>
+
+龙状态下热息之前用的不少啊 
+
+只是每次都是被人刷时髦的
+
+到了最近几次才对路飞效果好一点了</blockquote>
+司法岛不就有过类似的剧情吗？只不过现在各种因素下，读者开始不怎么吃这套。
+
