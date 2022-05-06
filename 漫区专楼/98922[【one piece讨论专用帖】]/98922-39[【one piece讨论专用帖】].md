@@ -12328,3 +12328,17 @@ pop出这个大和属实有点<img src="https://static.saraba1st.com/image/smile
 到了最近几次才对路飞效果好一点了</blockquote>
 司法岛不就有过类似的剧情吗？只不过现在各种因素下，读者开始不怎么吃这套。
 
+
+
+*****
+
+####  klzxs  
+##### 58029#       发表于 2022-5-6 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55712645&amp;ptid=98922" target="_blank">武男 发表于 2022-5-6 10:58</a>
+
+司法岛不就有过类似的剧情吗？只不过现在各种因素下，读者开始不怎么吃这套。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实当时也不怎么吃
+
+司法岛现在被奉为海贼最经典之一还是收尾收的好
+
