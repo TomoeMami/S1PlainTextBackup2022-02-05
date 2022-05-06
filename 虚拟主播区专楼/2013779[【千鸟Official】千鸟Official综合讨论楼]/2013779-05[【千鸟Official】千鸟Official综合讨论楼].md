@@ -3289,3 +3289,23 @@ https://space.bilibili.com/2132180406/</blockquote>
 我成ylg了，张哥是谁啊</blockquote>
 奶绿新关注
 
+
+
+*****
+
+####  IDIDIDID  
+##### 6344#       发表于 2022-5-6 16:14
+
+看到疑似小团体成员已经跪了，好耶
+
+*****
+
+####  冯闵斯特伯格  
+##### 6345#       发表于 2022-5-6 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55716624&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2022-5-6 16:14</a>
+看到疑似小团体成员已经跪了，好耶</blockquote>
+这算啥呢，他连那个内鬼都还是“我不能说”，昨天那场连麦只能看出来这人逻辑一塌糊涂
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
