@@ -10465,3 +10465,12 @@ cocotsuki的铃代姐5.29毕业，cocotsuki解散，kasane今后独立活动
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹杏战不战我是不知道，不过有些楼友是巴不得虹JP粉和EN粉大战
 
+
+
+*****
+
+####  fastary  
+##### 12994#       发表于 2022-5-6 19:31
+
+黑客休了两天多第一次直播就是九点，看来是EN反抗军了(误)
+
