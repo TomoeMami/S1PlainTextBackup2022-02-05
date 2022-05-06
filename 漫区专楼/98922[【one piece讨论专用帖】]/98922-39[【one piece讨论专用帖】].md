@@ -12486,3 +12486,14 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 最后，他们冲着我而来，于是我举起武器振臂高呼：为共产党员和犹太人讨还公道！
 
+
+
+*****
+
+####  蔡卓妍  
+##### 58044#       发表于 2022-5-7 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55721349&amp;ptid=98922" target="_blank">csd 发表于 2022-5-7 00:02</a>
+这话的回忆可以说是把和之国的大名全部黑出翔了，既然你们对和之国和光月家这么忠心耿耿这么视死如归，那早 ...</blockquote>
+贴吧回答，别问，问就是伏笔，还有就是wt也不知道，刚想出来就画了
+
