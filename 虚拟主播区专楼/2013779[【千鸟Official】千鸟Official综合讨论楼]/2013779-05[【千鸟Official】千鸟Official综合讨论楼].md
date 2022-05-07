@@ -3442,3 +3442,17 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 单曲循环不为谁而作的歌 狠狠地入脑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dcfhft  
+##### 6359#       发表于 2022-5-7 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55725154&amp;ptid=2013779" target="_blank">冯闵斯特伯格 发表于 2022-5-7 12:55</a>
+
+虽然但是，有点难绷
+
+—— 来自 vivo V1986A, Android 11上的 S1Next-鹅版 v2.5.2-play</blockquote>
+有猫，不过不知道建国是吱吱自己养的还是宿舍共有
+
