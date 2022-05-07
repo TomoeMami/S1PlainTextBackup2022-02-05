@@ -11001,3 +11001,21 @@ hinano lockhart
 终将成为厄介
 我站露娜派，ema只是烟雾弹
 
+
+
+*****
+
+####  fastary  
+##### 13045#       发表于 2022-5-8 00:39
+
+谢谢你犬山哥！！！<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 13046#       发表于 2022-5-8 00:41
+
+这是什么惩罚游戏，要是告诉当年看雪山人狼的我这挑染会在多年后直播扮猫拉屎搞黛p我肯定觉得世界疯了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
