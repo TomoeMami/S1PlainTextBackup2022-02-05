@@ -2637,3 +2637,23 @@ sony的大手狠狠握住了神乐Mea的xx！<img src="https://static.saraba1st.
 
 s说完今晚就歌回了
 
+
+
+*****
+
+####  LIPP  
+##### 10746#       发表于 2022-5-7 14:15
+
+今晚7点还有和赤坂犬山舞元的麻将
+
+*****
+
+####  我单推副会长  
+##### 10747#       发表于 2022-5-7 14:16
+
+ 本帖最后由 我单推副会长 于 2022-5-7 14:20 编辑 
+
+联动完麻将开歌回呗。
+
+不过只联动1个小时有点短啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
