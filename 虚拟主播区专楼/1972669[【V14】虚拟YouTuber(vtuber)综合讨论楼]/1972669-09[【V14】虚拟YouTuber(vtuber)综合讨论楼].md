@@ -11019,3 +11019,14 @@ hinano lockhart
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  fastary  
+##### 13047#       发表于 2022-5-8 01:00
+
+黑客说过好多次为了节目效果什么都肯干了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过一直没人真敢请他搞类似企划所以几乎没机会看到他这一面，只能说谢谢狸猫花生24h<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
