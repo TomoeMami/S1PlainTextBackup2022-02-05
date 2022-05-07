@@ -10944,3 +10944,16 @@ luca乳🌸又不缺这一个料，偏袒房管那次不更劲爆一些吗<img s
 1200份应募cm中选出231个
 看看这些小v才发现v圈并不是一潭死水
 
+
+
+*****
+
+####  fastary  
+##### 13039#       发表于 2022-5-7 23:28
+
+听甲斐田原创曲突然还挺感慨的，如果不是像梅丽莎那钟执着程度的歌势其实enkr倒也还算是个好平台，不论出道至少原创曲制作优秀mv和网络发行都有联系渠道，还有机会上live<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+有舞台梦和原创曲梦的liver只要自身努力并主动争取都还可以圆梦，如果有真爱游戏或是想要写书之类的也比较容易届到圆梦
+
+那么黑客呢，对舞台没兴趣，没有特别想实现的事，也不像还想赚钱的，除了完成饭屋的约定之外好像还真没啥执着的……妈的，怎么感觉越说越觉得明年他就会觉得遗憾的事都处理完毕安心毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
