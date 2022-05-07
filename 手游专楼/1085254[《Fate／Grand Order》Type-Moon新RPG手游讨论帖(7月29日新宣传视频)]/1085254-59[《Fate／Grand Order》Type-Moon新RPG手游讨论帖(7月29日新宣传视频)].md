@@ -9646,3 +9646,12 @@ riyo画本职工作还是挺在行的，一如既往的搞笑<img src="https://s
 
 估计觉得因为画风问题才被喷，于是剩下两个乌冬从者准备换人？不该检讨一下剧情问题吗！？
 
+
+
+*****
+
+####  zore  
+##### 87828#       发表于 2022-5-7 21:13
+
+要是活动素材背景板都是这种风格,再送几个灵衣,感觉也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

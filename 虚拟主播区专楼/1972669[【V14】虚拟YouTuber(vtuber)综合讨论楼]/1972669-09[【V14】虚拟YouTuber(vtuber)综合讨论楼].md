@@ -10893,3 +10893,28 @@ luca乳🌸又不缺这一个料，偏袒房管那次不更劲爆一些吗<img s
 
 这下量化了，3bk联动inui台至少1w，vta-4000纯纯的burden。
 
+
+
+*****
+
+####  free  
+##### 13035#       发表于 2022-5-7 21:21
+
+[https://twitter.com/tanakakoumuten/status/1522925635022495744](https://twitter.com/tanakakoumuten/status/1522925635022495744)
+
+【#ヒメヒナライブDAY2 特報まとめ🎊】
+
+1. ヒメヒナ3rdアルバム来春発売🌈
+
+2. 新曲『Hello, Hologram』本日24時配信開始🎉
+
+ 特設▶[https://bit.ly/3w2UyS2](https://bit.ly/3w2UyS2)
+
+ #ハロホロ
+
+3. Blu-ray『アイタイボクラ』発売決定＆予約開始✨
+
+　特設▶[https://bit.ly/389LX83](https://bit.ly/389LX83)
+
+4. 田中工務店はStudio LaRaになります🏠
+
