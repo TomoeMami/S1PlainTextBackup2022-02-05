@@ -2666,3 +2666,14 @@ s说完今晚就歌回了
 
 确定不是东风局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打到南怕不是直接下播接歌回了
 
+
+
+*****
+
+####  三つの光  
+##### 10749#       发表于 2022-5-7 14:32
+
+八点歌回，少一次看歌回还是少一次
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
