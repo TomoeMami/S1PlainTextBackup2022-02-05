@@ -3456,3 +3456,16 @@ https://space.bilibili.com/2132180406/</blockquote>
 —— 来自 vivo V1986A, Android 11上的 S1Next-鹅版 v2.5.2-play</blockquote>
 有猫，不过不知道建国是吱吱自己养的还是宿舍共有
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6360#       发表于 2022-5-7 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55727335&amp;ptid=2013779" target="_blank">dcfhft 发表于 2022-5-7 15:37</a>
+有猫，不过不知道建国是吱吱自己养的还是宿舍共有</blockquote>
+坚果是只只的，目的是为了跟咪咪（另一只布偶）配种，但是年龄还不够（小孩开大车）而且跟不上咪咪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
