@@ -10726,3 +10726,17 @@ syl，b站就算要砍一半，这收益也够了，fw彩虹好好找个团队�
 
 当然这和V综观众没啥关系。
 
+
+
+*****
+
+####  plok201  
+##### 13020#       发表于 2022-5-7 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55728837&amp;ptid=1972669" target="_blank">lor 发表于 2022-5-7 17:11</a>
+
+和杏还有集美mmr有什么关系，还是步子扯太大了。昨天百万营收加上白男，很多本来对皮套人本身有恶意的也顺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我也不知道和杏有啥关系
+
+你说虹JP那些粉吵吵就算了，结果一个EN帖和讨论区，里面隔几个就有扯杏的跳出来，嚷嚷着什么版本回归，又天天传P图<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
