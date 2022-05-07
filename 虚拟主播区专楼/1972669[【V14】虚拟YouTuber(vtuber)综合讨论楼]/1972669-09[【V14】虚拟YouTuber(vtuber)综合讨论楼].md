@@ -11064,3 +11064,12 @@ reid还是选露娜吧，和ema光是立绘摆一起就能气得长角<img src="
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lhawp  
+##### 13051#       发表于 2022-5-8 02:41
+
+草，kson被秒杀
+
