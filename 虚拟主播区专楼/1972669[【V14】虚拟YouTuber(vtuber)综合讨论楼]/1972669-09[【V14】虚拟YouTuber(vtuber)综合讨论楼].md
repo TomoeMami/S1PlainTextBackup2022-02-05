@@ -11040,3 +11040,27 @@ hinano lockhart
 白雪哥不考虑下自家后辈吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是vspo香是吧
 忽然感觉再过一年之后诺宝可能会愕然发现自己错过的不仅是一场bg营业，还错过了一场党争营业（不是）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 13049#       发表于 2022-5-8 01:24
+
+诺宝错过那只一场bg营业吗
+
+传说中多次钓起cp厨后不给吃的直接饿死他们的冷血女王
+
+reid下播没多久，露娜就转了一张跟同期的fa
+
+你肯定也在看直播吧（）
+
+*****
+
+####  格林卡罗尔  
+##### 13050#       发表于 2022-5-8 01:26
+
+reid还是选露娜吧，和ema光是立绘摆一起就能气得长角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
