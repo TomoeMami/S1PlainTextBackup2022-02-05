@@ -10740,3 +10740,32 @@ syl，b站就算要砍一半，这收益也够了，fw彩虹好好找个团队�
 
 你说虹JP那些粉吵吵就算了，结果一个EN帖和讨论区，里面隔几个就有扯杏的跳出来，嚷嚷着什么版本回归，又天天传P图<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lor  
+##### 13021#       发表于 2022-5-7 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55730100&amp;ptid=1972669" target="_blank">plok201 发表于 2022-5-7 18:48</a>
+我也不知道和杏有啥关系
+
+你说虹JP那些粉吵吵就算了，结果一个EN帖和讨论区，里面隔几个就有扯杏 ...</blockquote>
+版本回归是说蝈女复刻当时杏时期蝈男一样听不懂也无条件打钱，某些人ptsd了话题扯过去试图唤醒鞭挞吧
+有一说一引来的粉和她们对管人的认知和当时差别都挺大的……<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 13022#       发表于 2022-5-7 19:00
+
+<img src="https://img.saraba1st.com/forum/202205/07/185925qtvqqnfqf300vfcf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 18:59 上传
+
+真的假的，好快的乳？<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
