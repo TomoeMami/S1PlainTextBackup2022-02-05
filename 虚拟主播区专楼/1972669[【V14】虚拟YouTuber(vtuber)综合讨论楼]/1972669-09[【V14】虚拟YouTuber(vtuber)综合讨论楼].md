@@ -11030,3 +11030,13 @@ hinano lockhart
 
 不过一直没人真敢请他搞类似企划所以几乎没机会看到他这一面，只能说谢谢狸猫花生24h<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 13048#       发表于 2022-5-8 01:17
+
+白雪哥不考虑下自家后辈吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是vspo香是吧
+忽然感觉再过一年之后诺宝可能会愕然发现自己错过的不仅是一场bg营业，还错过了一场党争营业（不是）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
