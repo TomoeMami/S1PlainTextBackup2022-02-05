@@ -1,33 +1,19 @@
 
 Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
-!!error:id=1941125
+!!error:id=1947500
 Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
-!!error:id=2066258
-Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
-!!error:id=2066447
-Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
-!!error:id=2067088
+!!error:id=2066459
 
-!!error:id=2065750
+!!error:id=1540825
 
-!!error:id=2066462
+!!error:id=98922
 
-!!error:id=2066625
+!!error:id=2066946
 
-!!error:id=2066627
+!!error:id=2066941
 
-!!error:id=2067079
+!!error:id=2067376
 
-!!error:id=2067068
-Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
-!!error:id=2067778
+!!error:id=2067439
 
-!!error:id=2067190
-Cannot connect to host bbs.saraba1st.com:443 ssl:default [None]
-!!error:id=2067786
-
-!!error:id=2067293
-
-!!error:id=2066565
-
-!!error:id=2067621
+!!error:id=2067466
