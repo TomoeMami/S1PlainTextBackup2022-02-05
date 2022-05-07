@@ -1455,3 +1455,22 @@ S13这改动对于不开麦不开黑不沟通选手来说能上个钻就不错�
 
 好事，上赛季上大师太简单，没什么挑战，而她又不可能上猎杀
 
+
+
+*****
+
+####  nian1538  
+##### 9155#       发表于 2022-5-7 20:13
+
+[https://youtu.be/ZbLlN3rxgc4?t=3165](https://youtu.be/ZbLlN3rxgc4?t=3165)
+
+<img src="https://img.saraba1st.com/forum/202205/07/201240vdag0tugxiikudxd.jpg" referrerpolicy="no-referrer">
+
+<strong>saovsinfo-1522905110795677699-img2.jpg</strong> (135.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 20:12 上传
+
+SAO手游大使
+
