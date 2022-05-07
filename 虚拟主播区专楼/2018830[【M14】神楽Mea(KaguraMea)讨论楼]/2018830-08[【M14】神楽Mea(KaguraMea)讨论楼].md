@@ -2743,3 +2743,45 @@ s说完今晚就歌回了
 想知道你麻在干嘛，live2d能嗯动1小时</blockquote>
 你看了一个小时，没发现是一张动图是吧。
 
+
+
+*****
+
+####  T_Hb  
+##### 10757#       发表于 2022-5-7 19:12
+
+你苔总摆2个gif节省机能而已，又不是第一次了
+
+*****
+
+####  我单推副会长  
+##### 10758#       发表于 2022-5-7 19:15
+
+ 本帖最后由 我单推副会长 于 2022-5-7 19:19 编辑 
+
+这放的没意义啊，你好歹装个点错了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好吧，回去听了一下，还真的听到一声，诧异的声音。
+
+<img src="https://img.saraba1st.com/forum/202205/07/191506iltts66w1su9w6km.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220507191401317.jpg</strong> (95.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202205/07/191507kwj9qhs4f9ucq0m9.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220507191424627.jpg</strong> (106.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202205/07/191507v0s1cdx5e5e30txe.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220507191438760.jpg</strong> (95.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 19:15 上传
+

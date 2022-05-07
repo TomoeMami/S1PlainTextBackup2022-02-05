@@ -10778,3 +10778,42 @@ syl，b站就算要砍一半，这收益也够了，fw彩虹好好找个团队�
 
 看这些就叫乳，那外国人无人不乳了
 
+
+
+*****
+
+####  cckuku  
+##### 13024#       发表于 2022-5-7 19:12
+
+那我喜欢看钢炼算乳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 13025#       发表于 2022-5-7 19:13
+
+这种审判法黑点要多少有多少，不过这期人初配信我印象最深刻的反而是好多人在anime上填了国家队，某女同事当即表示没法处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 13026#       发表于 2022-5-7 19:16
+
+算不算乳我不知道，不过在B站提到喜欢英雄学院的话一般是免不了被人团建的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  マドマコ  
+##### 13027#       发表于 2022-5-7 19:17
+
+ 本帖最后由 マドマコ 于 2022-5-7 19:22 编辑 
+
+luca乳🌸又不缺这一个料，偏袒房管那次不更劲爆一些吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 13028#       发表于 2022-5-7 19:22
+
+怎么出问题的怎么老是luca啊，偷BGM的也是他辱华房管也是他，赶紧切割吧别耽误其他几个宇宙第一男V和enkr的中国市场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
