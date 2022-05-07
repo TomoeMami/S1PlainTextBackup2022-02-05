@@ -9627,3 +9627,22 @@ fgo实装孙渣了？
 
 等一波兔子导演独立实装
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87827#       发表于 2022-5-7 18:00
+
+<img src="https://img.saraba1st.com/forum/202205/07/175840jkii9ln5kn919xt1.jpg" referrerpolicy="no-referrer">
+
+<strong>d2e1eceegy1h1xv1lqdsjj20p010m7wh.jpg</strong> (296 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 17:58 上传
+
+riyo画本职工作还是挺在行的，一如既往的搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+估计觉得因为画风问题才被喷，于是剩下两个乌冬从者准备换人？不该检讨一下剧情问题吗！？
+
