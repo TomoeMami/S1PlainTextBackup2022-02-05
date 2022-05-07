@@ -3394,3 +3394,30 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不早点把合同和转生的事情解决浓度都是虚的
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6354#       发表于 2022-5-7 10:45
+
+反正关注律师了，合同和转生等一段时间就是了。评论区里bu味上来了，然而举办狗还在，难绷
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蜜瓜包  
+##### 6355#       发表于 2022-5-7 10:49
+
+要转生的话最好快点，时间拖得越久，粉丝散得越多。
+
+*****
+
+####  冯闵斯特伯格  
+##### 6356#       发表于 2022-5-7 10:52
+
+现在就看她是等合同到期转生，还是让律师协商解约再转了，就算去VR也没那么快，最好就是赶紧跑路以后电台先播会儿
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
