@@ -2697,3 +2697,14 @@ s说完今晚就歌回了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  我单推副会长  
+##### 10752#       发表于 2022-5-7 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">mea和赤坂都立直了，结果流局，展示手牌环节，mea本来胡了但是放了……
+
+打的是人情世故是吧……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
