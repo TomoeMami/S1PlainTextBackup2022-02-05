@@ -10658,3 +10658,20 @@ B播一场收了葛king差不多一年的SC<img src="https://static.saraba1st.co
 vox直播一分钟就超过猴楼一辈子的成绩了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金盾都没，怎么超杏，倒是真的碾压本社在b站的混子3年了
 
+
+
+*****
+
+####  poipanchao  
+##### 13013#       发表于 2022-5-7 11:13
+
+最近给reid同学拉cp的风气越来越严重了
+什么时候跟ema，67三人一起联动，等不及了
+
+*****
+
+####  nowaki  
+##### 13014#       发表于 2022-5-7 11:16
+
+金盾有个p用，猴楼花钱买的玩意罢了。vox到手的钱是实打实的，高下立判。
+
