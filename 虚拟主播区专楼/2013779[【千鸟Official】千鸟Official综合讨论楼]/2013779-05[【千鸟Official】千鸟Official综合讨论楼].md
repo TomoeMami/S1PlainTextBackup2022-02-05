@@ -3421,3 +3421,15 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6357#       发表于 2022-5-7 12:55
+
+<img src="https://s3.bmp.ovh/imgs/2022/05/07/a9ac85e55e7fe5f8.jpg" referrerpolicy="no-referrer">
+虽然但是，有点难绷
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
