@@ -9618,3 +9618,12 @@ fgo实装孙渣了？
 以后活动都是这种刷6种兑换物的模式了吧，看来是真没活整了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动其实不就是变相无限池吗（
 
+
+
+*****
+
+####  巴莱-银河漂流  
+##### 87826#       发表于 2022-5-7 17:03
+
+等一波兔子导演独立实装
+
