@@ -3372,3 +3372,16 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 —— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  suzumiya123  
+##### 6352#       发表于 2022-5-7 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55723101&amp;ptid=2013779" target="_blank">冯闵斯特伯格 发表于 2022-5-7 10:20</a>
+评论区这bu味，栗子的攻击性呢
+
+—— 来自 vivo V1986A, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+早就是晶栗惹了捏
+
