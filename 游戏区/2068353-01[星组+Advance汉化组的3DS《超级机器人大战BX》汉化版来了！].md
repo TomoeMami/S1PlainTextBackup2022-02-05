@@ -883,3 +883,28 @@ dlc装汉化的cia就行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  JudgmentEye  
+##### 85#       发表于 2022-5-8 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55743366&amp;ptid=2068353" target="_blank">shiko 发表于 2022-5-8 20:17</a>
+
+玩了一会儿，汉化版是不是整合了之前的高清材质包啊，感觉比同一个机器上跑的ux高清好多
+
+—— 来自 HUAWEI ...</blockquote>
+没有，bx本来就比ux画面好点，毕竟容量比ux大
+
+*****
+
+####  黑暗之眼  
+##### 86#       发表于 2022-5-8 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55744050&amp;ptid=2068353" target="_blank">JudgmentEye 发表于 2022-5-8 21:02</a>
+没有，bx本来就比ux画面好点，毕竟容量比ux大</blockquote>
+汉化版可以再加载高清材质包吗？
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
