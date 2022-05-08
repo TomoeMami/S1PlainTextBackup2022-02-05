@@ -11565,3 +11565,24 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 还是药袋与眼镜的故事更有那种难以 ...</blockquote>
 好久没关注了，我对药袋最后的印象就是在某个活动小小复活了一下。这两个人现在还有交集吗。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13102#       发表于 2022-5-9 01:56
+
+ 本帖最后由 格林卡罗尔 于 2022-5-9 02:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55747100&amp;ptid=1972669" target="_blank">本间日阳 发表于 2022-5-9 01:42</a>
+好久没关注了，我对药袋最后的印象就是在某个活动小小复活了一下。这两个人现在还有交集吗。 ...</blockquote>
+记得前年新年聊了几个小时的天，还有个合唱曲
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  fastary  
+##### 13103#       发表于 2022-5-9 02:05
+
+我是ylg，那么有没有V老嗨故事会听呢
+

@@ -949,3 +949,22 @@ dlc装汉化的cia就行
 
 新大三安装后进不去   无限卡进入界面了
 
+
+
+*****
+
+####  HATENA  
+##### 91#       发表于 2022-5-9 03:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有人遇到播战斗动画开始时会卡一下的问题吗
+
+*****
+
+####  JudgmentEye  
+##### 92#       发表于 2022-5-9 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55746366&amp;ptid=2068353" target="_blank">bsdlxy 发表于 2022-5-8 23:54</a>
+
+除了主角机还有什么主力啊？</blockquote>
+看谁有好精神就行，只要砸pp谁都强
+
