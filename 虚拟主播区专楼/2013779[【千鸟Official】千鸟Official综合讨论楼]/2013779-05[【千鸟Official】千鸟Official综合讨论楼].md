@@ -3526,3 +3526,14 @@ https://space.bilibili.com/2132180406/</blockquote>
 
 举办狗你妈似了
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 6366#       发表于 2022-5-8 21:42
+
+看着这个直播日历，眼泪掉下来，这个月没了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
