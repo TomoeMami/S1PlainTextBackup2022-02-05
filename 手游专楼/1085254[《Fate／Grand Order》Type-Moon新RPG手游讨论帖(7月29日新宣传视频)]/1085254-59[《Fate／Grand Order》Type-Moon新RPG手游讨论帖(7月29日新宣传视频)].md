@@ -9746,3 +9746,15 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 
 只能说至少这次真的是玩家上能更行，每一个解读都比剧情里的S班扬有味道（
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87834#       发表于 2022-5-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55737387&amp;ptid=1085254" target="_blank">久井路路 发表于 2022-5-8 11:03</a>
+
+关于这一点，日本那边比较乐观的Master是这么解读的：</blockquote>
+看来大家还是真心喜欢班扬的，各种自发打补丁解释......脚本这是把自黑式营销玩明白了啊（并不
+

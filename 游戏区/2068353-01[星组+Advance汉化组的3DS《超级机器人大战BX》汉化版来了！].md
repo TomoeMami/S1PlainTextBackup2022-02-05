@@ -1,0 +1,644 @@
+
+
+*****
+
+####  feiyuncxd  
+##### 1#       楼主       发表于 2022-5-7 20:12
+
+ 本帖最后由 feiyuncxd 于 2022-5-7 20:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202205/07/201113bhvo0i77rsdgkmgr.jpg" referrerpolicy="no-referrer">
+
+<strong>0-banner.jpg</strong> (277.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 20:11 上传
+
+　
+【应援视频/发布地址】
+　　[https://www.bilibili.com/video/BV1Yu411r76a/](https://www.bilibili.com/video/BV1Yu411r76a/)
+
+中文名称　超级机器人大战BX
+
+英文名称　Super Robot Wars BX
+
+游戏平台　任天堂3DS
+
+游戏类型　策略类(SLG)
+
+容量大小　2GB
+
+发布版本　简体繁體汉化版v1.0
+
+汉化组织　Advance汉化组+星组
+
+发布时间　2022年5月7日
+
+【游戏简介】
+
+　　《超级机器人大战BX》是万代南梦宫娱乐公司开发的一款策略SLG游戏，于2015年8月20日发售。本游戏属于《超级机器人大战》系列作品，也是该系列继《超级机器人大战UX》后，在3DS掌机平台上的第二作。
+
+　　本作的宣传语为“超越世代的钢之意志”，讲述了原本对立的人们逐渐跨越立场与世代相互理解，走向和平的故事。世界观为各个原作作品世界的巧妙融合，一些未能直接参战的人气角色也得以在共同的世界观下出镜演出，进一步丰富了游玩体验。
+
+【本次发布所包含的内容】
+
+　　1、游戏本体汉化
+
+　　2、DLC汉化
+
+　　3、游戏内置说明书汉化
+
+　　4、BX世界年表
+
+　　5、攻略本电子书
+
+　　6、攻略本结尾访谈部分汉化
+
+　　7、汉化版隐藏攻略
+
+【汉化名单】
+
+　　程序：飞云、绝世爱笑、chyt、黯然的饭、ICE AGE
+
+　　翻译：苍云曦、式、Wildhunt、御坂妹妹10086号、yichengong、上条黑子、Meowciel John、空灵、一起哈啤！、英语翻译、KYon、名、cfsoso、hanyia
+
+　　校对：cfsoso、門田莱纳
+
+　　修图：主播萌杀、cfsoso
+
+　　测试：主播萌杀、御坂妹妹10086号、保瑞、Wildhunt、cfsoso、ASH自由
+
+　　特别感谢：哈迪斯MKII、湮没骑士の镇魂歌、F君（Forget）
+
+　　说明书制作：F君（Forget）
+
+　　说明书翻译：式
+
+　　年表制作：苍云曦
+
+　　攻略本购入与扫描：一起哈啤！、cfsoso、主播萌杀
+
+　　攻略本访谈汉化：cfsoso
+
+【成员感言】
+
+　　苍云曦：这是我待过的最愉快的汉化组，而机战BX应该也是我汉化隐退之作了，希望有生之年能看到异度系列和ZOE系列参战。
+
+　　绝世爱笑：愿诸君~钢之魂永驻~（&lt;ゝω·）☆
+
+　　yichengong：UX什么时候才能摸出来
+
+　　式：战姬绝唱什么时候参战
+
+　　上条黑子：雅兹天下第一
+
+　　御坂妹妹10086号：啊哈哈哈哈，马自立哒，马自立哒。网络一线牵，珍惜这段缘。
+
+【汉化说明】
+
+　　BX汉化项目从2020年10月开坑，到现在已经过去了一年半的时间，如今终于在各位伙伴们的共同努力下正式出炉啦！本次汉化在文本上下了大功夫，对于游戏里出现的一些不常见名词，都经过了群内翻译伙伴们的讨论。每个不确定的名词都通过线上线下查阅资料考据或由成员投票决定。希望这次呈现给大家的结果，能不负各位机战粉们的等待吧~
+
+　　此汉化版为100%汉化：文本、图片、游戏说明书、以及包含居多文本的DLC（相当于五分之一主线剧情文本量）都进行了汉化。模拟器和实机也都经过测试，可完美运行。
+
+　　虽然文本经过了润色和校对，但毕竟水平所限，依旧难免存在疏漏与错误。如游玩中遇到BUG，欢迎留言反馈。
+
+【特别说明】
+
+　　1、游戏不管是在实机还是模拟器运行，都需要配合字库补丁使用，否则会出现缺字显示问号的问题。字库补丁的使用方法，请参考字库说明文档。
+
+　　2、已知游戏中的“真理”、“秀特·威朋”、“巴恩·巴宁斯”三名角色，存在有剧情内容与头像旁角色名不同（分别显示成“玛利”、“修特”、“伯恩”）的问题，这是游戏程序存在特殊名词调用所致。汉化组综合考虑程序和翻译等因素后决定不进行处理，请在游玩时于脑内自行替换掉吧^^
+
+　　3、此次一並發佈的繁體中文版，僅對文本進行了繁體化轉換，並未針對語言習慣調整用詞和表達。如果有朋友熟悉此中的差異，願意無償提供幫助，歡迎留言反饋。
+
+【免责声明】
+
+　　本汉化游戏由3DS官方商业游戏基础上修改而来，游戏版权归属原制作商所有。本作品仅供汉化研究之用，任何组织或个人不得以本品用于任何形式的商业目的，对此产生的一切后果由使用方自负，汉化人员将不对此负任何责任。
+
+<img src="https://img.saraba1st.com/forum/202205/07/201154yto3ozz9nn178ro2.jpg" referrerpolicy="no-referrer">
+
+<strong>all.jpg</strong> (543.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-7 20:11 上传
+
+ *本主题由 Meltina 于 2022-5-8 02:14 推荐* 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 25战斗力 +40
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 喷气式纸飞机| + 1|好评加鹅|
+| diectt| + 1|好评加鹅|
+| Leaflower| + 1|好评加鹅|
+| dxx9664| + 2|汉化组牛逼|
+| nerugigannte| + 2||
+| 智障少女| + 1|好评加鹅|
+| bill910| + 2|好评加鹅|
+| shiko| + 1||
+| yzj134100| + 2||
+| 丹德里恩| + 1|好评加鹅|
+| 黑暗之眼| + 2|好评加鹅|
+| 卡博雷z| + 1|好评加鹅|
+| 406129465| + 3|好评加鹅|
+| superzj87| + 2|钢之魂永不灭|
+| acekanon| + 2|好评加鹅|
+| 法拉| + 1|好评加鹅|
+| 椎名mahuyo| + 2|好！|
+| Beavis| + 2|好评加鹅|
+| ruits| + 1|好评加鹅|
+| 巨馍蘸酱| + 1|辛苦啦|
+
+查看全部评分
+
+*****
+
+####  萧观澜  
+##### 2#       发表于 2022-5-7 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dudeism  
+##### 3#       发表于 2022-5-7 20:20
+
+ 本帖最后由 dudeism 于 2022-5-7 20:45 编辑 
+
+难道是前排<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这汉化完成度无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  acekanon  
+##### 4#       发表于 2022-5-7 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">给个赞
+
+*****
+
+####  月夜的风  
+##### 5#       发表于 2022-5-7 20:30
+
+汉化人员辛苦了。
+
+*****
+
+####  丝塔戈依  
+##### 6#       发表于 2022-5-7 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">好顶赞 辛苦了！！！
+
+*****
+
+####  抹茶瓜  
+##### 7#       发表于 2022-5-7 20:33
+
+恭喜汉化<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zksandy  
+##### 8#       发表于 2022-5-7 20:36
+
+恭喜汉化
+
+*****
+
+####  CQTK  
+##### 9#       发表于 2022-5-7 20:37
+
+汉化组辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lbzlxx  
+##### 10#       发表于 2022-5-7 20:43
+
+支持，BX后希望UX也快点来
+
+*****
+
+####  nerdnerd  
+##### 11#       发表于 2022-5-7 20:45
+
+挖草，感恩！
+
+*****
+
+####  浅薄者  
+##### 12#       发表于 2022-5-7 20:46
+
+最近怎么都打了鸡血一样······是被隔离的关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  隰有苌楚  
+##### 13#       发表于 2022-5-7 20:46
+
+旧作汉化小爆发~
+
+*****
+
+####  chenflyyy  
+##### 14#       发表于 2022-5-7 20:48
+
+2022年了，竟然能看到这么多汉化组作品，感动
+
+*****
+
+####  卡博雷z  
+##### 15#       发表于 2022-5-7 20:50
+
+卧槽，汉化成员辛苦了，没想到ux没来 bx先来了
+
+*****
+
+####  我王  
+##### 16#       发表于 2022-5-7 21:09
+
+甚至L都还没来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真贝尔奈普斯  
+##### 17#       发表于 2022-5-7 21:12
+
+哇，又有机战汉化了，纪念一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悲叹的夜想曲  
+##### 18#       发表于 2022-5-7 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">再世篇什么的，有在做吗
+
+*****
+
+####  LMBS  
+##### 19#       发表于 2022-5-7 21:55
+
+BX的剧情什么水平？这应该是L组队系统的最后一部了吧
+
+*****
+
+####  椎名mahuyo  
+##### 20#       发表于 2022-5-7 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的我的BX卡带找不到了，还说用2周目的存档快速过一次剧情呢
+
+不想为了击坠数刷两个周目
+
+*****
+
+####  hannibal007  
+##### 21#       发表于 2022-5-7 22:04
+
+emmm
+
+ ux 怎么办呢
+
+*****
+
+####  白昼梦  
+##### 22#       发表于 2022-5-7 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种副机当强化插件给主机用的组队模式我还挺喜欢的，简单粗暴，思考配对的爽快感也很直接
+
+*****
+
+####  拉姆扎  
+##### 23#       发表于 2022-5-7 22:31
+
+支持支持，是时候翻出老机器了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  back57992  
+##### 24#       发表于 2022-5-7 22:34
+
+星组啊，还是之前的那些人。
+
+*****
+
+####  nage560  
+##### 25#       发表于 2022-5-7 22:35
+
+哎，想玩ux汉化，这作参战阵容不喜欢。
+
+*****
+
+####  南部响介  
+##### 26#       发表于 2022-5-7 22:42
+
+牛皮@！！！！
+
+*****
+
+####  漓狗蛋  
+##### 27#       发表于 2022-5-7 22:50
+
+辛苦汉化组了
+
+*****
+
+####  wallaceundz  
+##### 28#       发表于 2022-5-7 23:05
+
+辛苦了，汉化组
+
+*****
+
+####  天气姐姐  
+##### 29#       发表于 2022-5-7 23:06
+
+有60帧，内部材质分辨率拉到4x，画面看上去很好了，感觉不需要高清材质了。
+
+*****
+
+####  贝雷特  
+##### 30#       发表于 2022-5-7 23:07
+
+辛苦啦！ux能不能也搞搞
+
+
+
+*****
+
+####  展谦昂  
+##### 31#       发表于 2022-5-7 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55733092&amp;ptid=2068353" target="_blank">hannibal007 发表于 2022-5-7 22:04</a>
+
+emmm
+
+ ux 怎么办呢</blockquote>
+看视频，彩蛋显示下一个就是UX，应该是快了。
+
+至于天国的L就……
+
+*****
+
+####  darknesszero  
+##### 32#       发表于 2022-5-7 23:13
+
+最后的波纹！
+
+*****
+
+####  黑暗之眼  
+##### 33#       发表于 2022-5-7 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55733831&amp;ptid=2068353" target="_blank">天气姐姐 发表于 2022-5-7 23:06</a>
+
+有60帧，内部材质分辨率拉到4x，画面看上去很好了，感觉不需要高清材质了。 ...</blockquote>
+我也想问问这材质有处理过吗？
+
+*****
+
+####  华纳  
+##### 34#       发表于 2022-5-7 23:20
+
+真有生之年，不是说BX，是星组，爱笑终于不用啃桌子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  missquin33  
+##### 35#       发表于 2022-5-7 23:27
+
+不懂就问，用retroarch的话，要把汉化补丁复制到哪里？
+
+*****
+
+####  取名真是难  
+##### 36#       发表于 2022-5-7 23:33
+
+活的久总是有好处的，感谢星组
+
+*****
+
+####  a7765131  
+##### 37#       发表于 2022-5-7 23:47
+
+看到这两汉化组的名字就感动
+
+*****
+
+####  lighttt  
+##### 38#       发表于 2022-5-7 23:55
+
+感谢汉化组，辛苦了。
+
+*****
+
+####  呆呆兽二号  
+##### 39#       发表于 2022-5-8 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55733859&amp;ptid=2068353" target="_blank">展谦昂 发表于 2022-5-7 23:08</a>
+
+看视频，彩蛋显示下一个就是UX，应该是快了。
+
+至于天国的L就……</blockquote>
+UX文本基本已经完毕了。
+
+*****
+
+####  呆呆兽二号  
+##### 40#       发表于 2022-5-8 00:05
+
+ 本帖最后由 呆呆兽二号 于 2022-5-8 00:18 编辑 
+
+正好我BX还没玩，不过暂时等等，没有感兴趣的参展作品。
+
+*****
+
+####  轮太  
+##### 41#       发表于 2022-5-8 00:12
+
+突然想到当年BX实体卡打到一半鸽了。。。趁汉化重新捡起来吧
+
+*****
+
+####  HATENA  
+##### 42#       发表于 2022-5-8 00:41
+
+3ds一直没破解也不想折腾了，有没有比较靠谱的模拟器推荐啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漓狗蛋  
+##### 43#       发表于 2022-5-8 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55734771&amp;ptid=2068353" target="_blank">HATENA 发表于 2022-5-8 00:41</a>
+
+3ds一直没破解也不想折腾了，有没有比较靠谱的模拟器推荐啊</blockquote>
+看主楼b站视频简介，里面有对应的下载地址和教程
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| HATENA| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  呆呆兽二号  
+##### 44#       发表于 2022-5-8 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55734771&amp;ptid=2068353" target="_blank">HATENA 发表于 2022-5-8 00:41</a>
+
+3ds一直没破解也不想折腾了，有没有比较靠谱的模拟器推荐啊</blockquote>
+CITRA，而且通信起来很方便。
+
+*****
+
+####  bingyucb  
+##### 45#       发表于 2022-5-8 00:55
+
+顶一个，赞
+
+*****
+
+####  任天索尼子  
+##### 46#       发表于 2022-5-8 01:05
+
+直接跳过L了可还行
+
+*****
+
+####  yujie  
+##### 47#       发表于 2022-5-8 05:21
+
+虽然用不上不过还是要说声汉化辛苦
+就是高清材质的作者加的效果个人不是很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  来自第八军团  
+##### 48#       发表于 2022-5-8 06:09
+
+有生之年，感谢汉化组
+
+*****
+
+####  海腹川背  
+##### 49#       发表于 2022-5-8 06:53
+
+支持支持。感谢感谢。
+
+*****
+
+####  天气姐姐  
+##### 50#       发表于 2022-5-8 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55733983&amp;ptid=2068353" target="_blank">黑暗之眼 发表于 2022-5-7 23:17</a>
+我也想问问这材质有处理过吗？</blockquote>
+汉化的是原版纹理，没有处理过，模拟器可以拉伸内部分辨率，适合在大屏幕上看，很舒服。至于外挂的高清材质，我没有用，我电脑不太行。
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  LRS2376852435  
+##### 51#       发表于 2022-5-8 07:45
+
+跪求UX汉化<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  mazhjg  
+##### 52#       发表于 2022-5-8 07:55
+
+感谢，辛苦了
+
+*****
+
+####  笨笨塞  
+##### 53#       发表于 2022-5-8 08:09
+
+我的老大三又可以派上用场了，不得不说老大三确实是最适合随身携带的掌机了吧。
+
+*****
+
+####  Bruce33  
+##### 54#       发表于 2022-5-8 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55734771&amp;ptid=2068353" target="_blank">HATENA 发表于 2022-5-8 00:41</a>
+ 3ds一直没破解也不想折腾了，有没有比较靠谱的模拟器推荐啊</blockquote>
+能打正版汉化补丁
+
+*****
+
+####  JudgmentEye  
+##### 55#       发表于 2022-5-8 09:12
+
+修改版ROM+存档
+[https://bbs.saraba1st.com/2b/thread-2068407-1-1.html](https://bbs.saraba1st.com/2b/thread-2068407-1-1.html)
+
+*****
+
+####  JudgmentEye  
+##### 56#       发表于 2022-5-8 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55733983&amp;ptid=2068353" target="_blank">黑暗之眼 发表于 2022-5-7 23:17</a>
+
+我也想问问这材质有处理过吗？</blockquote>
+没有，整合高清材质的romfs得4g多
+
+*****
+
+####  saberserker  
+##### 57#       发表于 2022-5-8 09:51
+
+感谢汉化组，维根吃我福皇大伊万
+
+*****
+
+####  liangbo103  
+##### 58#       发表于 2022-5-8 10:42
+
+感谢汉化组，太有爱了
+
+*****
+
+####  killerktd  
+##### 59#       发表于 2022-5-8 11:13
+
+汉化组牛逼！
+
+*****
+
+####  angela5d30  
+##### 60#       发表于 2022-5-8 11:14
+
+感谢汉化组的各位<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  shiko  
+##### 61#       发表于 2022-5-8 11:23
+
+请问文件夹里的实机汉化补丁是怎么用的？补丁说明是乱码，游戏本体汉化的cia安装好之后还需要手动打补丁吗？
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
