@@ -689,3 +689,24 @@ DLC是包含在内了还是得自己另外找？
 
 字库不知道怎么换成外挂的 不过我直接用ACG字库工具转成定制中文的字库大部分问号就没了
 
+
+
+*****
+
+####  精钢魔像  
+##### 67#       发表于 2022-5-8 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55738644&amp;ptid=2068353" target="_blank">椎名mahuyo 发表于 2022-5-8 12:58</a>
+
+字库不知道怎么换成外挂的 不过我直接用ACG字库工具转成定制中文的字库大部分问号就没了 ...</blockquote>
+把字体拷到指定目录，acg字体工具里选9，按start
+
+还原是按select
+
+*****
+
+####  liushen  
+##### 68#       发表于 2022-5-8 13:12
+
+辛苦啦，终于等到了，谢谢汉化组！！！
+

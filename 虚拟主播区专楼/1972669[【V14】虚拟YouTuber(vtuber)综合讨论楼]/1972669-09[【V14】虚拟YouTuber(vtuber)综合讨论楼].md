@@ -11136,3 +11136,28 @@ p个图急成这样 国v大头照不都满天飞了 欢迎来到新时代捏
 
 我的评价是 就这
 
+
+
+*****
+
+####  真飞鸟i  
+##### 13059#       发表于 2022-5-8 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不咋说糊是最好的保护色呢。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hulaoda007  
+##### 13060#       发表于 2022-5-8 13:08
+
+糊在主播有矛盾时不利，比如非常古老的虹隐退V糊暗示事件。
+
+*****
+
+####  dybang  
+##### 13061#       发表于 2022-5-8 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虚拟顶针更合适一些
+
