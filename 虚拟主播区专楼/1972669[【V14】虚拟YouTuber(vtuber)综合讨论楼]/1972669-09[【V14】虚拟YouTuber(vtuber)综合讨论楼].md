@@ -11217,3 +11217,17 @@ https://twitter.com/Kasane_CT/status/152251 ...</blockquote>
 
 此前某个V的粉丝多让人讨厌我可记得呢，反而当事V没做错啥。
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13068#       发表于 2022-5-8 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55739030&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-5-8 13:35</a>
+
+又走一个
+
+2022年了，v歌势基本可以盖棺定论是鸡肋了，没资源嗯唱的火不了，稍微有点人气的很容易遇到瓶颈 ...</blockquote>
+其实也不能一概而论 而且cocone是因为嗓子不行了才退的 真的可惜了 估计会转幕后
+
