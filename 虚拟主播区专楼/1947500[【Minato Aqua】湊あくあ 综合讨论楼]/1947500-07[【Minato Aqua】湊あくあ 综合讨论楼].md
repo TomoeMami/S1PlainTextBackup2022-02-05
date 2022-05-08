@@ -1483,3 +1483,24 @@ SAO手游大使
 
 这个是那个好事啊
 
+
+
+*****
+
+####  lightsuger  
+##### 9157#       发表于 2022-5-8 07:54
+
+<img src="https://img.saraba1st.com/forum/202205/08/075054yvuhzpqqfbzpxbhp.png" referrerpolicy="no-referrer">
+
+<strong>cc.png</strong> (91.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-8 07:50 上传
+
+这个游戏封测的问卷里有问是怎么知道游戏的
+
+里面有一个选项是 大亏油管频道 ，问卷期限是5月16
+
+猜测16号前应该有跟工商相关的直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
