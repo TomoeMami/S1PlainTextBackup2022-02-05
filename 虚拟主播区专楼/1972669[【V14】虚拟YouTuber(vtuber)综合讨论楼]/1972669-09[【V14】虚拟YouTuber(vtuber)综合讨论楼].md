@@ -11360,3 +11360,12 @@ kinu这段也是经典曲目了，永不过时
 
 说要搞仿kismyBUSAIKU的企划结果半年之后都不带提了……好怀念他的灵光一闪小企划<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13082#       发表于 2022-5-8 19:10
+
+最终结果输一位15w点，可怕的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
