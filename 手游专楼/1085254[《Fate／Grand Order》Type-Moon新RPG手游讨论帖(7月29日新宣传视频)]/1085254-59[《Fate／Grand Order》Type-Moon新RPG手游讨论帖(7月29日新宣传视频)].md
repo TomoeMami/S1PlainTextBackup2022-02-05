@@ -9758,3 +9758,12 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 关于这一点，日本那边比较乐观的Master是这么解读的：</blockquote>
 看来大家还是真心喜欢班扬的，各种自发打补丁解释......脚本这是把自黑式营销玩明白了啊（并不
 
+
+
+*****
+
+####  wyq5486  
+##### 87835#       发表于 2022-5-8 16:51
+
+确实有值得诟病的地方，不过很可爱就算了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

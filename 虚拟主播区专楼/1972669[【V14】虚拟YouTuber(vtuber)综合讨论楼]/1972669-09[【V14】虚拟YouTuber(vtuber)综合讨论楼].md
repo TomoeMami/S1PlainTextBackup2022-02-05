@@ -11304,3 +11304,19 @@ kinu这段也是经典曲目了，永不过时
 
 回看昨晚狸豆24小时的恐怖故事场，咢顯様这一段做得有点好啊
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13076#       发表于 2022-5-8 16:55
+
+看了下神域リーグ的规则，改得好细好复杂，强调顺位的重要性，点数的重要性被削弱了，但是大TOP局分差感觉会特别离谱<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 13077#       发表于 2022-5-8 16:58
+
+二哥签了主流出道就开始狒狒14真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
