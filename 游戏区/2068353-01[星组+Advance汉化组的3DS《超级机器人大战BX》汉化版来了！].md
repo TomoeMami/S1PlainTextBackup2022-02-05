@@ -748,3 +748,71 @@ dlc装汉化的cia就行
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  saberserker  
+##### 72#       发表于 2022-5-8 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55739751&amp;ptid=2068353" target="_blank">shiko 发表于 2022-5-8 14:50</a>
+
+切换字库之后，系统的字体崩了怎么解决？找不到怎么调回去
+
+—— 来自 HUAWEI WLZ-AN00, Android  ...</blockquote>
+再打开ACG按select还原字库
+
+*****
+
+####  feiyuncxd  
+##### 73#         楼主| 发表于 2022-5-8 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55737587&amp;ptid=2068353" target="_blank">shiko 发表于 2022-5-8 11:23</a>
+
+请问文件夹里的实机汉化补丁是怎么用的？补丁说明是乱码，游戏本体汉化的cia安装好之后还需要手动打补丁吗 ...</blockquote>
+【主机需要无卡破解，建议用于正版卡】
+
+　　本实机汉化补丁适用于：主题破解、A9、B9。
+
+　　使用方法：选择要使用的语言，将语言包里的luma文件夹直接复制到SD卡根目录即可。
+
+*****
+
+####  shiko  
+##### 74#       发表于 2022-5-8 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55739781&amp;ptid=2068353" target="_blank">saberserker 发表于 2022-5-8 14:53</a>
+再打开ACG按select还原字库</blockquote>
+好的，试了一下调回去之后打开工具栏再关就正常了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谢谢
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  shiko  
+##### 75#       发表于 2022-5-8 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55739796&amp;ptid=2068353" target="_blank">feiyuncxd 发表于 2022-5-8 14:54</a>
+【主机需要无卡破解，建议用于正版卡】
+
+　　本实机汉化补丁适用于：主题破解、A9、B9。</blockquote>
+已经弄好了，谢谢
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  orcher1945  
+##### 76#       发表于 2022-5-8 14:56
+
+汉化组辛苦了！！！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  白昼梦  
+##### 77#       发表于 2022-5-8 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">残局关里面的奖品关卡1还挺难，排除法想了半天还忘了有反击回合了
+
