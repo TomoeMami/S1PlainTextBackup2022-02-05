@@ -816,3 +816,19 @@ dlc装汉化的cia就行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">残局关里面的奖品关卡1还挺难，排除法想了半天还忘了有反击回合了
 
+
+
+*****
+
+####  fallanger  
+##### 78#       发表于 2022-5-8 17:04
+
+星组牛逼
+
+*****
+
+####  acg_gyanc  
+##### 79#       发表于 2022-5-8 17:05
+
+好奇问一下天狱篇有开过坑么？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
