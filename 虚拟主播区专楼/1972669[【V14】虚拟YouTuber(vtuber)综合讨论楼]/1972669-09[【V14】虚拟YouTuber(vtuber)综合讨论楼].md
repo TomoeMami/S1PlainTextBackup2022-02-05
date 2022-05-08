@@ -11347,3 +11347,16 @@ kinu这段也是经典曲目了，永不过时
 
 打开油管一看郡道和一位差距12w点，好残酷的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13081#       发表于 2022-5-8 18:54
+
+因为24h优秀的企划还挺多的所以之前有点担心被骂无聊，结果昨天黑客的环节好像评价比我意料中还高，开心<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+不知道被吸引点了关注结果发现他现在频道只剩打派和独立游戏还是个懒狗的人会怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说要搞仿kismyBUSAIKU的企划结果半年之后都不带提了……好怀念他的灵光一闪小企划<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
