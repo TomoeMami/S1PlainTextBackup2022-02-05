@@ -11369,3 +11369,12 @@ kinu这段也是经典曲目了，永不过时
 
 最终结果输一位15w点，可怕的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 13083#       发表于 2022-5-8 20:32
+
+郡郡！怎么练这么久还被打这么惨啊！
+
