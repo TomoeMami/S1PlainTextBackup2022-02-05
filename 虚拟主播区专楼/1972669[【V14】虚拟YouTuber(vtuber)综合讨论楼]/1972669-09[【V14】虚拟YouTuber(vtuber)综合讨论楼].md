@@ -11449,3 +11449,29 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 
 这不知道像是用啥廉价捏人软件捏的圆脸皮，还不如就用aika那个呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暮星弥空  
+##### 13092#       发表于 2022-5-9 00:15
+
+被群友指出来后才想起来自己其实听说过aika，不过还是对绝对天使再次出现这种事反应要更大<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+可能其实我也并不是天使或者天魔机忍的粉丝，也不是怀念天使，只是在怀念过去的自己罢了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵思之风jacke  
+##### 13093#       发表于 2022-5-9 00:21
+
+<img src="https://img.saraba1st.com/forum/202205/09/002116kr6g6b2qp8e87rl7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509002053.png</strong> (70.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 00:21 上传
+
+就差你了啊，野郎！
+
