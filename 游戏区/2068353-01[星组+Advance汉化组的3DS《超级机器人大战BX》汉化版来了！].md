@@ -908,3 +908,17 @@ dlc装汉化的cia就行
 
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  精钢魔像  
+##### 87#       发表于 2022-5-8 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55744076&amp;ptid=2068353" target="_blank">黑暗之眼 发表于 2022-5-8 21:04</a>
+
+汉化版可以再加载高清材质包吗？
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+模拟器应该可以
+
