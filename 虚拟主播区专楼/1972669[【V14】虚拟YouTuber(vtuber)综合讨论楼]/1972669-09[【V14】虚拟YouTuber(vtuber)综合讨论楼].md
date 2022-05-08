@@ -11107,3 +11107,32 @@ V圈垃圾人不就是傻逼中的傻逼么？不把他们当人看你就不会�
 
 说明破圈了啊，有人就想借着这个话题。不然as那次怎么就没人大书特书呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13056#       发表于 2022-5-8 12:52
+
+ 本帖最后由 wuzhengkai 于 2022-5-8 12:53 编辑 
+
+有些人是真的有点急了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+这不是好事吗 说明真的火了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 13057#       发表于 2022-5-8 12:57
+
+p个图急成这样 国v大头照不都满天飞了 欢迎来到新时代捏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  空集  
+##### 13058#       发表于 2022-5-8 13:01
+
+我的评价是 就这
+
