@@ -11422,3 +11422,21 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 
 尘封的记忆突然开始攻击我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13089#       发表于 2022-5-8 23:42
+
+老早就作为aika复归了，还以为已经不用胡桃这个名字了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alcoholic1000  
+##### 13090#       发表于 2022-5-8 23:46
+
+ 还以为她以后就用aika这个身份活动了，欢迎回来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
