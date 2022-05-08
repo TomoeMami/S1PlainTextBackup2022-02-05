@@ -11338,3 +11338,12 @@ kinu这段也是经典曲目了，永不过时
 
 不要瞎说，二哥对垃圾JMMORPG的爱是不会因为简单的外部条件而改变的，别说主流出道，就算毕业也照玩不误
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13080#       发表于 2022-5-8 18:46
+
+打开油管一看郡道和一位差距12w点，好残酷的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
