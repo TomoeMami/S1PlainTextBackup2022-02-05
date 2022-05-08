@@ -11413,3 +11413,12 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 瞬间我加的所有V相关群都在发这个<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 [https://twitter.com/zti_krm](https://twitter.com/zti_krm)
 
+
+
+*****
+
+####  暮星弥空  
+##### 13088#       发表于 2022-5-8 23:40
+
+尘封的记忆突然开始攻击我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
