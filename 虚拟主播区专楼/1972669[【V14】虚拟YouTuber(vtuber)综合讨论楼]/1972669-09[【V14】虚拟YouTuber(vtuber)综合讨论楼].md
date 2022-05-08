@@ -11552,3 +11552,16 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 
 秀优越的话应该是gorillaz
 
+
+
+*****
+
+####  本间日阳  
+##### 13101#       发表于 2022-5-9 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55746948&amp;ptid=1972669" target="_blank">灵思之风jacke 发表于 2022-5-9 01:11</a>
+如果我要秀优越还是说黑白城士或者魔教血塔这种国内根本没人看的吧（）
+
+还是药袋与眼镜的故事更有那种难以 ...</blockquote>
+好久没关注了，我对药袋最后的印象就是在某个活动小小复活了一下。这两个人现在还有交集吗。
+
