@@ -733,3 +733,18 @@ dlc装汉化的cia就行
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  shiko  
+##### 71#       发表于 2022-5-8 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55737690&amp;ptid=2068353" target="_blank">巨馍蘸酱 发表于 2022-5-8 11:34</a>
+不用，把本体CIA和DLC装好就行了。就是字库比较麻烦，游戏就正常安装
+
+—— 来自 S1Fun ...</blockquote>
+切换字库之后，系统的字体崩了怎么解决？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">找不到怎么调回去
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
