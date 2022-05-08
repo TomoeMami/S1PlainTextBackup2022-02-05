@@ -11161,3 +11161,20 @@ p个图急成这样 国v大头照不都满天飞了 欢迎来到新时代捏
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虚拟顶针更合适一些
 
+
+
+*****
+
+####  winda  
+##### 13062#       发表于 2022-5-8 13:21
+
+reid还是别找露娜了，vspo妹妹人设，女儿人设玩做好独角兽养最好的选手，没必要去养bg粉从头练功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ema有最协基础想发展也是顺理成章
+
+*****
+
+####  ヒトニナル  
+##### 13063#       发表于 2022-5-8 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得黛gachi是有点急了，有一说一黑屁没屁到你推头上有什么好急的，看戏就行了
+
