@@ -852,3 +852,34 @@ dlc装汉化的cia就行
 
 ----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  幽灵胖胖  
+##### 82#       发表于 2022-5-8 20:12
+
+文……文艺复兴啦
+
+*****
+
+####  shiko  
+##### 83#       发表于 2022-5-8 20:17
+
+玩了一会儿，汉化版是不是整合了之前的高清材质包啊，感觉比同一个机器上跑的ux高清好多
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  巨馍蘸酱  
+##### 84#       发表于 2022-5-8 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55743366&amp;ptid=2068353" target="_blank">shiko 发表于 2022-5-8 20:17</a>
+玩了一会儿，汉化版是不是整合了之前的高清材质包啊，感觉比同一个机器上跑的ux高清好多
+
+—— 来自 HUAWEI ...</blockquote>
+因为BX本来就比UX画质好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
