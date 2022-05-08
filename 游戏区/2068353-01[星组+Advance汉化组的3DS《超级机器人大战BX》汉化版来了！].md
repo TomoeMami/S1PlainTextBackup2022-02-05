@@ -642,3 +642,30 @@ CITRA，而且通信起来很方便。
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  巨馍蘸酱  
+##### 62#       发表于 2022-5-8 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55737587&amp;ptid=2068353" target="_blank">shiko 发表于 2022-5-8 11:23</a>
+请问文件夹里的实机汉化补丁是怎么用的？补丁说明是乱码，游戏本体汉化的cia安装好之后还需要手动打补丁吗 ...</blockquote>
+不用，把本体CIA和DLC装好就行了。就是字库比较麻烦，游戏就正常安装
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cjcjiang  
+##### 63#       发表于 2022-5-8 11:38
+
+感谢各位大佬的无私奉献
+
+*****
+
+####  Wiksy  
+##### 64#       发表于 2022-5-8 11:40
+
+BX我也忘了是为啥鸽了，这次可以顺便继续玩一下了
+
