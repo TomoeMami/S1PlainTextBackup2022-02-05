@@ -11192,3 +11192,28 @@ https://twitter.com/Kasane_CT/status/152251 ...</blockquote>
 又走一个
 2022年了，v歌势基本可以盖棺定论是鸡肋了，没资源嗯唱的火不了，稍微有点人气的很容易遇到瓶颈，真有能力的又会觉得舞台太小，注定只是跳板。另外，如果是养老直播打游戏的话，和其他套皮人也没啥区别了。
 
+
+
+*****
+
+####  fastary  
+##### 13065#       发表于 2022-5-8 13:44
+
+我承认我是有点急了，我不服啊，看到外国男v赚钱第一反应不是媚女真的能火而是外国国籍真高贵然后一转挑粉丝错污名化主播和观众的人哪来的资格蔑视饭圈妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+虽然我en只看点切片但不可否认我还是有那么点情不自禁的外国男v女管人痴的集体感在的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 13066#       发表于 2022-5-8 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这话说得的，我看你是在急你家哥哥比不上XZ
+
+*****
+
+####  hulaoda007  
+##### 13067#       发表于 2022-5-8 13:51
+
+此前某个V的粉丝多让人讨厌我可记得呢，反而当事V没做错啥。
+
