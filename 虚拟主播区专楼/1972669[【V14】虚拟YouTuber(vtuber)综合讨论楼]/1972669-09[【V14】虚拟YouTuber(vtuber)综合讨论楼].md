@@ -11178,3 +11178,17 @@ ema有最协基础想发展也是顺理成章
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得黛gachi是有点急了，有一说一黑屁没屁到你推头上有什么好急的，看戏就行了
 
+
+
+*****
+
+####  CielChloe  
+##### 13064#       发表于 2022-5-8 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55718291&amp;ptid=1972669" target="_blank">free 发表于 2022-5-6 18:31</a>
+https://twitter.com/CT_Cocone/status/1522516522211549184
+
+https://twitter.com/Kasane_CT/status/152251 ...</blockquote>
+又走一个
+2022年了，v歌势基本可以盖棺定论是鸡肋了，没资源嗯唱的火不了，稍微有点人气的很容易遇到瓶颈，真有能力的又会觉得舞台太小，注定只是跳板。另外，如果是养老直播打游戏的话，和其他套皮人也没啥区别了。
+
