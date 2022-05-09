@@ -11784,3 +11784,60 @@ syl 连兔头都提到绝对天使复活有点回到以前的的感觉了
 
 原来HH的版权以前还不是工务店的.......到现在才买下来吗，不过HH的版权居然才值1亿日元，比想象的便宜多了。
 
+
+
+*****
+
+####  灵思之风jacke  
+##### 13121#       发表于 2022-5-9 23:01
+
+<img src="https://img.saraba1st.com/forum/202205/09/230040glinbiibik1iqn8l.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509225613.png</strong> (33.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202205/09/230040xrkwq9b47r01qfc7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509225655.png</strong> (45.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202205/09/230040hv8dv88g58z6oa0g.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509225415.png</strong> (52.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202205/09/230041f90c1qciv844dwd0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509225700.png</strong> (31.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202205/09/230041bt45ufhh8hoiqii5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509225247.png</strong> (95.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202205/09/230041wqt4nztn5w8jez4n.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220509225042.png</strong> (38.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 23:00 上传
+
+身为18年二三月那时候入坑的老害，的确是感触良多啊，很多情怀是很难说清楚的
+
