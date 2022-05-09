@@ -12565,3 +12565,133 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 话说今年是黑胡子登场20周年，时代的潮流会被作为标题出现吗？
 
+
+
+*****
+
+####  csd  
+##### 58051#       发表于 2022-5-7 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55725037&amp;ptid=98922" target="_blank">klzxs 发表于 2022-5-7 12:45</a>
+
+大名没什么问题
+
+为什么出事前不帮御田?
+
+忘了御田那时候在干什么吗</blockquote>
+这帮大名不是对光月家和之国如此忠心吗？怎么御田一当小丑你们就把他放弃了啊？而且反凯多大蛇和御田是不是小丑有什么关系？御田是小丑所以你们大名就可以心安理得地当缩头乌龟了是吧？更不用说后来御田都公开反抗被处刑了，你们这帮光月忠臣又在干啥？是去劫法场了还是去保护光月的家人了？最后等刀架到脖子上了才开始吹光月永远是我们的将军，要不要脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然上面那些都是气话，我们都很清楚尾田他就是想吹他的御田爹以及和之国的这帮武士大名，问题是其手法之拙劣导致最后只塑造出了一帮傻逼，观感实在太差了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Supermangunv3  
+##### 58052#       发表于 2022-5-7 13:01
+
+<img src="https://img.saraba1st.com/forum/202205/07/125957g2l9g77l2plp24ju.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-f40d45865d01d7aebe6778dc3f84b8aa_720w.jpg</strong> (163.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-7 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202205/07/125957gsef2pavjpgpai42.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-e99befce13b19d66cae428a4b421eb69_720w.jpg</strong> (118.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-7 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202205/07/125958b6f2tik67n0iit0h.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-c6b6967a02259241e4413db99f0a9a6e_720w.jpg</strong> (131.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-7 12:59 上传
+
+我感觉和之国一群**事情结束之后就该有时代的潮流标题了，自由要到结尾处了。
+
+*****
+
+####  klzxs  
+##### 58053#       发表于 2022-5-7 13:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也不能这么说
+
+在读者看来御田错误的决策毫无疑问是和之国二十年苦难的源头之一
+
+但对剧中人来说是没办法知道事件的全貌
+
+只会知道他悲壮的结局以及曾经反抗过凯多的事实
+
+现在光月更是他们地狱般的生活中唯一的光
+
+经常会有人说桃之助不配是现在这样的一个身份
+
+他当然不配，甚至他爹都不配
+
+但他已经是武士们能仰仗的唯一的希望了
+
+*****
+
+####  klzxs  
+##### 58054#       发表于 2022-5-7 13:20
+
+卡页，翻一下
+
+*****
+
+####  ⊙天上天下  
+##### 58055#       发表于 2022-5-8 09:56
+
+应该结束了这是最后一击了，1050结束凯多了，最多下话给凯多回一下什么，也可能是下话凯多就败了，路飞这个拳头肯定是最后一击的，和打败明哥的姿势和招式名字很像不会在继续打了，剩下就看和之国收尾用多少话吧，德岛当初也用了十话左右收尾，新篇章今年应该能开启不知道是不是最终章了，应该是吧？
+
+*****
+
+####  wingzerocos  
+##### 58056#       发表于 2022-5-9 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55714984&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-5-6 13:52</a>
+
+不知道为什么这么喜欢频繁切视角，老老实实讲完一个视角再接下一个视角不好吗，现在每话看似内容很多，但进 ...</blockquote>
+大蛇这就是为了对应一下凯多这火龙吧。而且集中几话还不是会变成连骂几话他怎么还不死。
+
+*****
+
+####  Yeaha123  
+##### 58057#       发表于 2022-5-9 10:52
+
+少年漫砍头没问题吗？
+
+
+
+*****
+
+####  hulaoda007  
+##### 58058#       发表于 2022-5-9 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那么说，黑胡子感觉要烂尾。
+
+
+
+*****
+
+####  穆  
+##### 58059#       发表于 2022-5-9 11:27
+
+我好怀念2年前的路飞哎
+
+那个说不准弄哭我的航海士的路飞
+
+那个说那就把我们的命賭上去的路飞
+
+那个说少啰嗦，说你要活下去的路飞   单纯但是不傻
+
+现在这个路飞 一样的单纯，，但是却透露着一股傻里傻气。。。
+
