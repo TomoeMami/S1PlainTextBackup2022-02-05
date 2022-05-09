@@ -2886,3 +2886,37 @@ mea你这谷歌娘玩的不行，报菜名太短了，你得弄个长的，然�
 
 专楼就别倒垃圾了。外面那么多可以倒垃圾的楼。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10770#       发表于 2022-5-9 10:49
+
+来张英文区的fanart净化一下本楼。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/09/104923m7vdfh2po7pzf95e.jpg" referrerpolicy="no-referrer">
+
+<strong>FSQJ-q_VgAEMJp_.jpg</strong> (293.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 10:49 上传
+
+
+
+*****
+
+####  古战场亡魂  
+##### 10771#       发表于 2022-5-9 10:51
+
+再来张日文区的完成度高的fanart<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/09/105129nqvmplgbnr3gopvv.jpg" referrerpolicy="no-referrer">
+
+<strong>FRqKvR-aMAAbo4T.jpg</strong> (264.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-9 10:51 上传
+
