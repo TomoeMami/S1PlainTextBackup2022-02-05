@@ -11877,3 +11877,27 @@ Muyu 还是我新人里面看的最多的……她直播挺正常的啊，还是
 
 这个shoto又是谁，怎么感觉B站集美热度不比vox差多少
 
+
+
+*****
+
+####  fastary  
+##### 13126#       发表于 2022-5-10 00:06
+
+shoto就en厕经常嘲的蹭皇啊，和好几个en男前世都是熟人，en男出道后经常主动在推上跟他们互动，跟vox和mysta都有过双人联动
+
+俗称EN影之第六人甚至很多新參妹妹误以为他也是虹en男，然后跟vox类似也是媚粉卖腐很积极的，皮也很精致可动性大
+
+反正年一管集美入坑标配就是luxiem+shoto<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 13127#       发表于 2022-5-10 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55760109&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-5-9 23:55</a>
+这个shoto又是谁，怎么感觉B站集美热度不比vox差多少</blockquote>
+经常和vox联动的twich人，大概是不同性癖分流过来的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
