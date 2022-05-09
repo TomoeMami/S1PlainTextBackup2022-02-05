@@ -1076,3 +1076,16 @@ common4N=7ADA22CAFFC476CC8297A0C7CEEEEEBE
 common5N=A5051CA1B37DCF3AFBCF8CC1EDD9CE02
 generator=1FF9E9AAC5FE0408024591DC5D52768A
 
+
+
+*****
+
+####  mamayata  
+##### 101#       发表于 2022-5-9 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55738676&amp;ptid=2068353" target="_blank">精钢魔像 发表于 2022-5-8 13:02</a>
+把字体拷到指定目录，acg字体工具里选9，按start
+
+还原是按select</blockquote>
+你好 我已经把字库放到指定目录了 结果运行还是报错<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
