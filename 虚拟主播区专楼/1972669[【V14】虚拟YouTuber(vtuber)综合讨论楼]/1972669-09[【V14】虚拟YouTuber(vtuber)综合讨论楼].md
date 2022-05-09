@@ -11599,3 +11599,12 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 
 还有就是以药袋身份投的波よせて 的合唱了
 
+
+
+*****
+
+####  本间日阳  
+##### 13105#       发表于 2022-5-9 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">去翻了翻，麻醉医竟然还开了skeb。
+
