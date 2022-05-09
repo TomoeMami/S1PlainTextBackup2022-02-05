@@ -1112,3 +1112,15 @@ generator=1FF9E9AAC5FE0408024591DC5D52768A
 除了主角机还有什么主力啊？</blockquote>
 BX这闭眼按A通关的难度基本就是看着顺眼就能当主力了，除了独角兽
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 104#       发表于 2022-5-9 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55751927&amp;ptid=2068353" target="_blank">mamayata 发表于 2022-5-9 13:27</a>
+
+你好 我已经把字库放到指定目录了 结果运行还是报错</blockquote>
+如果你用的老大三 直接用2还是4 那个中文字库就行了 用了以后主界面会没字 游戏里正常的
+
