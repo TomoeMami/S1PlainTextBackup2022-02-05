@@ -11726,3 +11726,16 @@ syl 连兔头都提到绝对天使复活有点回到以前的的感觉了
 
 这打响指找节拍唱歌还挺带感的
 
+
+
+*****
+
+####  lor  
+##### 13115#       发表于 2022-5-9 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55757574&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-9 20:30</a>
+喷了，你虹新人那个天ヶ瀬，真实女粉出道
+
+颜出照来自福冈巡演的live前采访……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这人之前小闹过一波，还兼任火畜，是绿仙兔头anti，闹到本人那里被回复过的程度。后面好像还反转了不厨黑客改厨牛郎。初配信想用米饭当fanmark的就是她，完全就故意的
+
