@@ -11757,3 +11757,21 @@ syl 连兔头都提到绝对天使复活有点回到以前的的感觉了
 
 金鱼no.2！，的预感？（玩笑惹，还是不给新人压力为好，说不定已从良）
 
+
+
+*****
+
+####  poipanchao  
+##### 13118#       发表于 2022-5-9 22:23
+
+女人好可怕（）
+
+*****
+
+####  fastary  
+##### 13119#       发表于 2022-5-9 22:27
+
+大概一个月前管厕第一时间就有人投了，不过后面又有回复说特歪了，还是照片没错但火畜绿an等属性是一个经常信口开河的葛an说的不可信来着？所以现在实锤了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+无论是不是真的，表面没有明显套近乎、后面万一联动也没啥问题的话就可以当做是从良了吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
