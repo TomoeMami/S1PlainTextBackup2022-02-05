@@ -937,3 +937,15 @@ gpdwin1，win2
 
 国内这些WIN掌机怎么定价都这么贵，动辄六七千已经完全失去性价比了。deck虽然炒得贵但官方定价便宜啊
 
+
+
+*****
+
+####  任天索尼子  
+##### 99#       发表于 2022-5-9 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55759619&amp;ptid=2067043" target="_blank">巨馍蘸酱 发表于 2022-5-9 23:07</a>
+
+国内这些WIN掌机怎么定价都这么贵，动辄六七千已经完全失去性价比了。deck虽然炒得贵但官方定价便宜啊 ...</blockquote>
+首先V社不靠这个挣钱，卖这几台掌机那点利润G胖也看不上，然后国产这些其实就是笔记本电脑有很多对于单纯玩游戏来说没啥必要的东西增加了成本。
+
