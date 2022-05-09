@@ -977,3 +977,24 @@ dlc装汉化的cia就行
 
 这回没磁场转动版了啊…………
 
+
+
+*****
+
+####  dxwyyy  
+##### 94#       发表于 2022-5-9 12:27
+
+<blockquote>JudgmentEye 发表于 2022-5-9 04:15
+看谁有好精神就行，只要砸pp谁都强</blockquote>
+bx哪有pp啊
+
+*****
+
+####  JudgmentEye  
+##### 95#       发表于 2022-5-9 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55751079&amp;ptid=2068353" target="_blank">dxwyyy 发表于 2022-5-9 12:27</a>
+
+bx哪有pp啊</blockquote>
+吃道具加能力学技能那个，和pp不就是一回事吗
+

@@ -2971,3 +2971,24 @@ mea你这谷歌娘玩的不行，报菜名太短了，你得弄个长的，然�
 
 2022-5-9 11:55 上传
 
+
+
+*****
+
+####  TomDu  
+##### 10776#       发表于 2022-5-9 12:24
+
+咩门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ESAKA!!!!  
+##### 10777#       发表于 2022-5-9 12:28
+
+ 本帖最后由 ESAKA!!!! 于 2022-5-9 12:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55730368&amp;ptid=2018830" target="_blank">我单推副会长 发表于 2022-5-7 19:15</a>
+这放的没意义啊，你好歹装个点错了。好吧，回去听了一下，还真的听到一声，诧异的声音。
+
+ ...</blockquote>
+最后一巡还剩两张还要放，除了人情麻将没有别的解释了
+
