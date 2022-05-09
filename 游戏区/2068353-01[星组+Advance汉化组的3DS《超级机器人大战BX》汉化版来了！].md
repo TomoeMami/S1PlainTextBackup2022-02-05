@@ -1164,3 +1164,15 @@ BX这闭眼按A通关的难度基本就是看着顺眼就能当主力了，除�
 bx的难度随便找个人芯片塞满就是主力，难度也就是隐藏要求的击坠数都好高。
 不过隐藏还是ux难搞，虽然说周目继承，但是单周目规划看得人心烦
 
+
+
+*****
+
+####  saberserker  
+##### 109#       发表于 2022-5-9 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55746366&amp;ptid=2068353" target="_blank">bsdlxy 发表于 2022-5-8 23:54</a>
+
+除了主角机还有什么主力啊？</blockquote>
+勇者王放完地图炮，闭眼按A
+
