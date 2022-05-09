@@ -1136,3 +1136,14 @@ BX这闭眼按A通关的难度基本就是看着顺眼就能当主力了，除�
 有人遇到播战斗动画开始时会卡一下的问题吗</blockquote>
 电脑配置或者设置的问题 模拟器加载资源卡
 
+
+
+*****
+
+####  mamayata  
+##### 106#       发表于 2022-5-9 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55753012&amp;ptid=2068353" target="_blank">椎名mahuyo 发表于 2022-5-9 14:58</a>
+如果你用的老大三 直接用2还是4 那个中文字库就行了 用了以后主界面会没字 游戏里正常的 ...</blockquote>
+谢谢，发现是少建了一级目录，font下边还要再建一级目录。
+
