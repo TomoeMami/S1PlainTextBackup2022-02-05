@@ -1018,3 +1018,24 @@ bx哪有pp啊</blockquote>
 吃道具加能力学技能那个，和pp不就是一回事吗</blockquote>
 技能不修改一周目最多好像也就先反能拿到8个还是9个，能力也是肯定喂不满一个人的，哪有pp那么容易获得
 
+
+
+*****
+
+####  JudgmentEye  
+##### 98#       发表于 2022-5-9 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55751226&amp;ptid=2068353" target="_blank">dxwyyy 发表于 2022-5-9 12:38</a>
+
+技能不修改一周目最多好像也就先反能拿到8个还是9个，能力也是肯定喂不满一个人的，哪有pp那么容易获得 ...</blockquote>
+dlc关
+
+*****
+
+####  chenzl  
+##### 99#       发表于 2022-5-9 12:45
+
+ 本帖最后由 chenzl 于 2022-5-9 12:52 编辑 
+
+我在官网下载的citra 提示3ds文件是加密的 是什么情况 已解决 字库文件位置没有放对
+
