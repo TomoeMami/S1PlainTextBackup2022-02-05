@@ -1089,3 +1089,15 @@ generator=1FF9E9AAC5FE0408024591DC5D52768A
 还原是按select</blockquote>
 你好 我已经把字库放到指定目录了 结果运行还是报错<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mcq_2  
+##### 102#       发表于 2022-5-9 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55746863&amp;ptid=2068353" target="_blank">烧饼的愤怒 发表于 2022-5-9 00:59</a>
+
+新大三安装后进不去   无限卡进入界面了</blockquote>
+我新大三正常
+
