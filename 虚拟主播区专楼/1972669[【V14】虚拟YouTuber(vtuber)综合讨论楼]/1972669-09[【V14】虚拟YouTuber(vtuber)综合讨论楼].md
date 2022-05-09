@@ -11608,3 +11608,26 @@ nico版已更新到2楼，请大力支持HH的三专和翻唱专
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">去翻了翻，麻醉医竟然还开了skeb。
 
+
+
+*****
+
+####  IDIDIDID  
+##### 13106#       发表于 2022-5-9 19:46
+
+<blockquote>プロジェクトV【日テレ×VTuber】
+
+@projectv_4
+
+·
+
+18m
+
+#魔法のリムジン 更新！
+
+#ときのそら と #富士葵 の そらあおな二人が、
+
+それぞれの「好き」を紹介する1Day Trip!!</blockquote>
+
+😅
+
