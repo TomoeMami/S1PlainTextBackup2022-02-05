@@ -2992,3 +2992,17 @@ mea你这谷歌娘玩的不行，报菜名太短了，你得弄个长的，然�
  ...</blockquote>
 最后一巡还剩两张还要放，除了人情麻将没有别的解释了
 
+
+
+*****
+
+####  病態極端  
+##### 10778#       发表于 2022-5-9 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55749435&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-5-9 10:37</a>
+
+编辑</blockquote>
+我好奇。
+
+怕被mea唯粉聲討的話可以發到貼貼樓
+
