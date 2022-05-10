@@ -3073,3 +3073,12 @@ syl 肥婆人又去哪里了
 
 叔叔今年bml估计没了，本来如果有的话保底要上一下的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过没了就没了吧。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10786#       发表于 2022-5-10 13:21
+
+这个带新人去犬山那边也太早了吧。几位新人连油管的直播都没几次。
+
