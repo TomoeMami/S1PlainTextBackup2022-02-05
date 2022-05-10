@@ -3169,3 +3169,14 @@ syl 肥婆人又去哪里了
 
 作为个人势能活4年(还是y b双开),已经是强的离谱了,收入之类的都是次要的了
 
+
+
+*****
+
+####  Mr.shelter  
+##### 10796#       发表于 2022-5-10 20:44
+
+能活着就很好，你看她到现在不管ytb还是bili都熬死多少人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么初代，什么鲸落，什么新时代，活着才是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -11973,3 +11973,15 @@ shoto就en厕经常嘲的蹭皇啊，和好几个en男前世都是熟人，en男
 [https://www.youtube.com/watch?v=Hvf4uhg3FlI](https://www.youtube.com/watch?v=Hvf4uhg3FlI)
 <img src="https://p.sda1.dev/5/**94120ca8c3bcb73d24dc0b44f285/QQ图片20220510202035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D-JoeII  
+##### 13135#       发表于 2022-5-10 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55771195&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-5-10 20:20</a>
+
+https://www.youtube.com/watch?v=Hvf4uhg3FlI</blockquote>
+這位是不是以前沒有任何直播經驗的
+
