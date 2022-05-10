@@ -9807,3 +9807,15 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 狂娜强化本吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然是摩根强化本 我没有的卡开个屁强化本
 
+
+
+*****
+
+####  alucardcz  
+##### 87840#       发表于 2022-5-10 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770646&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-5-10 19:44</a>
+
+必然是摩根强化本 我没有的卡开个屁强化本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摩根我要求不多  1技能减1回合cd即可
+
