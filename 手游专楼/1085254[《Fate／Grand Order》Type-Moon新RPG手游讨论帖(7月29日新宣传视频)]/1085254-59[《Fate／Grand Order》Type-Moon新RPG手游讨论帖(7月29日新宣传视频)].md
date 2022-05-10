@@ -9776,3 +9776,22 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 
 明天生放，大概该2500W了？
 
+
+
+*****
+
+####  qixinno2  
+##### 87837#       发表于 2022-5-10 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">2500W不来个强化本么
+
+*****
+
+####  alucardcz  
+##### 87838#       发表于 2022-5-10 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770449&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-5-10 19:32</a>
+
+2500W不来个强化本么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜强化本吗
+
