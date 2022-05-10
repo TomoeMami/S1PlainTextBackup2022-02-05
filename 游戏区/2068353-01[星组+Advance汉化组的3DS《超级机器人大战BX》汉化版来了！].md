@@ -1257,3 +1257,12 @@ BX驾驶员有属性特性，比如射击的特性驾驶员在他周围四格的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩着玩着想起来了，前期抚子号三人娘都换炮战装，合体技是真的厉害，距离远，全地形适应S，不用改造耗en一发1w+，能来三发，下回合能还回满en，属于伤害看不懂的boss杀手
 
+
+
+*****
+
+####  原来如此君  
+##### 118#       发表于 2022-5-10 15:02
+
+TV抚子三人娘在机战里登场基本上都很好用，当年玩J我也是这么个玩法<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
