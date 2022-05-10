@@ -3216,3 +3216,17 @@ M14 回家真好
 
 都别噶好吗。
 
+
+
+*****
+
+####  ashero  
+##### 10801#       发表于 2022-5-10 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55747563&amp;ptid=2018830" target="_blank">lovcavil 发表于 2022-5-9 06:20</a>
+后知后觉，vcp还是有用的，她居然翻唱了等爱的3单，这样算不算是索爹指原提供版权曲库了
+（然后气短被爆杀 ...</blockquote>
+确实有用 指团歌挺合适她的
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -11985,3 +11985,22 @@ shoto就en厕经常嘲的蹭皇啊，和好几个en男前世都是熟人，en男
 https://www.youtube.com/watch?v=Hvf4uhg3FlI</blockquote>
 這位是不是以前沒有任何直播經驗的
 
+
+
+*****
+
+####  fastary  
+##### 13136#       发表于 2022-5-10 21:54
+
+黑客刚又发了个晚安绮楼……其实我还以为他只是看到有重要告知就转一下的，没想到真的还会去看相关视频……
+
+*****
+
+####  茉莉珠絵瑠  
+##### 13137#       发表于 2022-5-10 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55760576&amp;ptid=1972669" target="_blank">藤原银 发表于 2022-5-10 00:58</a>
+有本社的V也转了啊.....唉</blockquote>
+<img src="https://p.sda1.dev/5/1bbf57ba10cad8e1bfcffa8d6b959b09/CMP_20220510220201752.jpg" referrerpolicy="no-referrer">
+啊……
+
