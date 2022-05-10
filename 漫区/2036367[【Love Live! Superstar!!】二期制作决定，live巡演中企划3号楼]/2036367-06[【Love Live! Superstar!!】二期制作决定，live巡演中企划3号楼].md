@@ -2655,3 +2655,23 @@ Liyuu：是的，就是我老婆。
 正解，只有心怀念想的才会受伤</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三天就接受了，甚至赌了一把熊田茜音
 
+
+
+*****
+
+####  仟音一心  
+##### 7675#       发表于 2022-5-10 20:38
+
+Nagi：我是豆芽，没有阳光也能生长。
+
+Nako：我是豆苗，割了又割了也能不断生长。今天是豆芽和豆苗的广播。 
+
+EB0A88AB-01C5-47AD-8123-66789A05B65C.jpeg
+(57.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-10 20:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/10/203837suvah2u37wwaofar.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
