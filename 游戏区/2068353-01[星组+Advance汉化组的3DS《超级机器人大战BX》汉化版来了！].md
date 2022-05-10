@@ -1266,3 +1266,14 @@ BX驾驶员有属性特性，比如射击的特性驾驶员在他周围四格的
 
 TV抚子三人娘在机战里登场基本上都很好用，当年玩J我也是这么个玩法<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  月夜凝雪  
+##### 119#       发表于 2022-5-10 16:58
+
+开玩，GGG直接用的GaoGaiGar好评，我实在是受够了那个台版翻译
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

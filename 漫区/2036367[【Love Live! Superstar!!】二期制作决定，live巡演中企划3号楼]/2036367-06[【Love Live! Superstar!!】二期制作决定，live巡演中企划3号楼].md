@@ -2484,3 +2484,21 @@ A87565E8-9BF5-47E7-A693-A7EA1D4D4BAE.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猜一下后面fmt或者live会不会有立本人对新人声优的炎上
 
+
+
+*****
+
+####  仟音一心  
+##### 7659#       发表于 2022-5-10 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55767501&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-5-10 16:44</a>
+猜一下后面fmt或者live会不会有立本人对新人声优的炎上</blockquote>
+感觉不会有，那边逐渐接受了的样子。
+
+*****
+
+####  cybernetics31  
+##### 7660#       发表于 2022-5-10 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了
+
