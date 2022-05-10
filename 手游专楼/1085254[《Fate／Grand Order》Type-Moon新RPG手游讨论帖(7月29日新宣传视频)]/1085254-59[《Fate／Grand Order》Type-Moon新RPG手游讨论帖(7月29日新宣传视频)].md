@@ -9795,3 +9795,15 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 2500W不来个强化本么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜强化本吗
 
+
+
+*****
+
+####  qixinno2  
+##### 87839#       发表于 2022-5-10 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770526&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-10 19:36</a>
+
+狂娜强化本吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然是摩根强化本 我没有的卡开个屁强化本
+
