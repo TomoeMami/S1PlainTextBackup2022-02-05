@@ -9863,3 +9863,17 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 
 什么时候开2.3回顾活动啊，想白嫖点幕间的石头了
 
+
+
+*****
+
+####  eilot  
+##### 87846#       发表于 2022-5-11 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770526&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-10 19:36</a>
+
+狂娜强化本吗</blockquote>
+上次眼鏡活動，眼鏡角色全部都沒順便加強化本，如果狂娜有強化本，應該在那時候就順便補?
+
+會加梅林給他人單充50嗎...
+
