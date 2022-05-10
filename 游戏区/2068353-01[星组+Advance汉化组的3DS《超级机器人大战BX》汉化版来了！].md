@@ -1234,3 +1234,17 @@ BX驾驶员有属性特性，比如射击的特性驾驶员在他周围四格的
 
 所以靠堆特性可以堆出999的格斗或者射击，机战能比这作还简单的也没几个了
 
+
+
+*****
+
+####  JudgmentEye  
+##### 116#       发表于 2022-5-10 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55744076&amp;ptid=2068353" target="_blank">黑暗之眼 发表于 2022-5-8 21:04</a>
+
+汉化版可以再加载高清材质包吗？
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+可，仅限模拟器，实机不管日版还是汉化都用不了，外挂材质是单独的png图片，没法写回romfs，就算写回去3ds的机能也不够
+
