@@ -2602,3 +2602,22 @@ Liyuu：是的，就是我老婆。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 每代不都是一样的吗，有什么好惊讶的。之前虹那边不接受R3的也很多，菜宝一出来就都真香了 
 
+
+
+*****
+
+####  Enakina  
+##### 7670#       发表于 2022-5-10 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55769215&amp;ptid=2036367" target="_blank">starring 发表于 2022-05-10 18:13:46</a>
+现在不接受新成员的人都被打成毒唯了</blockquote>可能因为那边是占理吧，真的是什么话都敢说。我本来觉得这种情况起码是得新成员积累一些自己的粉丝才会出现的，没想到企划推直接吧任务给揽过来了，实属没想到
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 7671#       发表于 2022-5-10 18:27
+
+哪有自己叫自己星小鬼的，这不是别的团极端粉才这样叫的吗？现在虹星新人那么多，什么企划推追杀前朝遗老没怎么见。倒是新人经常被这些遗老反串钓鱼引战，整得虹星之间有矛盾。
+
