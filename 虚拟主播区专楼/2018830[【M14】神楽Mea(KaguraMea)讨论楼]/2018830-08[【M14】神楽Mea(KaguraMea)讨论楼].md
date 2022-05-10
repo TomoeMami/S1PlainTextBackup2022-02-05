@@ -3297,3 +3297,21 @@ M14 回家真好
 
 别急，忙着吃烤肉
 
+
+
+*****
+
+####  十九号大侠  
+##### 10809#       发表于 2022-5-11 00:24
+
+忆苦思甜
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 10810#       发表于 2022-5-11 00:28
+
+as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
