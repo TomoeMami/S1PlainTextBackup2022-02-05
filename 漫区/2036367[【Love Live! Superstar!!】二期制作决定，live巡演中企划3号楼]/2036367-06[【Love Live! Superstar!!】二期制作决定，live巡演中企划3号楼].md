@@ -2502,3 +2502,22 @@ A87565E8-9BF5-47E7-A693-A7EA1D4D4BAE.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了
 
+
+
+*****
+
+####  靡宜  
+##### 7661#       发表于 2022-5-10 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55767887&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-10 17:01</a>
+
+日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了 ...</blockquote>
+不D的已经不说话了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 7662#       发表于 2022-5-10 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊鱼这making都挺可以的啊，怎么写真宣传图这么。。。
+
