@@ -12004,3 +12004,17 @@ https://www.youtube.com/watch?v=Hvf4uhg3FlI</blockquote>
 <img src="https://p.sda1.dev/5/1bbf57ba10cad8e1bfcffa8d6b959b09/CMP_20220510220201752.jpg" referrerpolicy="no-referrer">
 啊……
 
+
+
+*****
+
+####  NBXX  
+##### 13138#       发表于 2022-5-10 22:06
+
+[https://www.hololyzer.net/2j3j/](https://www.hololyzer.net/2j3j/)
+
+nijisanji的SC/发言频率/同社发言统计站，衍生自hololyzer
+
+比playboard抓的会准很多
+<img src="https://p.sda1.dev/5/129eab1b7ebb493866072dfbd1316c25/2`_8LQ8FRCVYU696UO6F6D0.png" referrerpolicy="no-referrer">
+
