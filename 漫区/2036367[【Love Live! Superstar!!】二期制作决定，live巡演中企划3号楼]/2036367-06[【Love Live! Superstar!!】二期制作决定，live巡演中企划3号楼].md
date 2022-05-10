@@ -2530,3 +2530,19 @@ A87565E8-9BF5-47E7-A693-A7EA1D4D4BAE.jpeg
 
 杂志12号，偷跑应该是11号晚上，然后12号上午官推宣传一波，今晚应该是看不到了。人嘛，基本就是ab  amuse sma这几家找的新人咯。
 
+
+
+*****
+
+####  Enakina  
+##### 7664#       发表于 2022-5-10 17:25
+
+ 本帖最后由 Enakina 于 2022-5-10 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55767887&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-05-10 17:01:33</a>
+日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了 ...</blockquote>现在大风向已经变了，你在说两句不太能接受都是爱看看，不看滚了。
+我设想的纷争:有人攻击新人，得保护起来。
+实际的纷争:企划推们猎杀前朝遗老。现在敢说不看好新人的已经被扣星团小鬼的帽子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+现在感觉保护派有点更魔怔啊，希望是我的错觉吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
