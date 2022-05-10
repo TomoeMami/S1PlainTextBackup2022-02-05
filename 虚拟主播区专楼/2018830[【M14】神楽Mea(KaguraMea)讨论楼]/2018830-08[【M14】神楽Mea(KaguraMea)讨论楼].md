@@ -3428,3 +3428,103 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古战场亡魂  
+##### 10822#       发表于 2022-5-11 01:54
+
+反正mea从5号到现在，这么长时间只打了2盘lol，7号1把8号一把。
+
+反正应该是出门时间比较多，是现充还是上班也不用发散，看后续吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DDWarrior  
+##### 10823#       发表于 2022-5-11 01:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">一个一个版本就这么更替掉了，动物园初代五个人也只剩最后两个了，但吊人还能好好地撑到现在，也是挺让人唏嘘的了...
+
+*****
+
+####  三つの光  
+##### 10824#       发表于 2022-5-11 01:57
+
+<img src="https://p.sda1.dev/5/c2b16ae93806effe67821ab5384dd45e/IMG_CMP_207996490.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  三つの光  
+##### 10825#       发表于 2022-5-11 01:58
+
+那么多人开香槟怎么有人看到天狗就急了
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  三つの光  
+##### 10826#       发表于 2022-5-11 02:00
+
+那个人是map2伪物啊那没事了，别看了别看了，看到天狗急坏了就不好了
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  古战场亡魂  
+##### 10827#       发表于 2022-5-11 02:00
+
+别在本楼挂了，版里能挂的地方多了去了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  三つの光  
+##### 10828#       发表于 2022-5-11 02:09
+
+手机s1是不是不能编辑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  古战场亡魂  
+##### 10829#       发表于 2022-5-11 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775963&amp;ptid=2018830" target="_blank">三つの光 发表于 2022-5-11 02:09</a>
+
+手机s1是不是不能编辑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+可以，手机屏幕划到最下面点击电脑版。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 10830#       发表于 2022-5-11 02:22
+
+ 本帖最后由 璃絵和花瑠 于 2022-5-11 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775963&amp;ptid=2018830" target="_blank">三つの光 发表于 2022-5-11 02:09</a>
+手机s1是不是不能编辑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+鹅球点击自己发帖的楼层数编辑。
+<img src="https://p.sda1.dev/5/16ac8a7d2c3cd3bcd3e8453447a31a4d/IMG_20220511_022324.jpg" referrerpolicy="no-referrer">
+
+另外，姑且有这样一栋楼能放这种东西。
+[https://bbs.saraba1st.com/2b/thread-2002480-250-1.html](https://bbs.saraba1st.com/2b/thread-2002480-250-1.html)
+
+
+
+*****
+
+####  SNOWIMEA  
+##### 10831#       发表于 2022-5-11 03:17
+
+熟悉的味道，熟悉的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
