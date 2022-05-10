@@ -9819,3 +9819,29 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 必然是摩根强化本 我没有的卡开个屁强化本</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摩根我要求不多  1技能减1回合cd即可
 
+
+
+*****
+
+####  里村紅葉  
+##### 87841#       发表于 2022-5-10 19:53
+
+吓得我上游戏看了下活动是不是要结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87842#       发表于 2022-5-10 20:02
+
+来个限定4星自选？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87843#       发表于 2022-5-10 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770764&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-10 19:50</a>
+
+摩根我要求不多  1技能减1回合cd即可</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不如开宝具本 让我也爽爽5宝的输出
+
