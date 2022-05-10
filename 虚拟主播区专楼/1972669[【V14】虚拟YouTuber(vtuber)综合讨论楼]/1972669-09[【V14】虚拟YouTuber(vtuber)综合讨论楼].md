@@ -12018,3 +12018,12 @@ nijisanji的SC/发言频率/同社发言统计站，衍生自hololyzer
 比playboard抓的会准很多
 <img src="https://p.sda1.dev/5/129eab1b7ebb493866072dfbd1316c25/2`_8LQ8FRCVYU696UO6F6D0.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D-JoeII  
+##### 13139#       发表于 2022-5-10 22:45
+
+以色列白毛會說英語俄語希伯來語阿拉伯語，小姐以前是摩薩德？
+
