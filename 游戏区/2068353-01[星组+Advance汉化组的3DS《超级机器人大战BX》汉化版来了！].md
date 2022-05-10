@@ -1248,3 +1248,12 @@ BX驾驶员有属性特性，比如射击的特性驾驶员在他周围四格的
 —— 来自 HUAWEI NOH-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 可，仅限模拟器，实机不管日版还是汉化都用不了，外挂材质是单独的png图片，没法写回romfs，就算写回去3ds的机能也不够
 
+
+
+*****
+
+####  白昼梦  
+##### 117#       发表于 2022-5-10 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩着玩着想起来了，前期抚子号三人娘都换炮战装，合体技是真的厉害，距离远，全地形适应S，不用改造耗en一发1w+，能来三发，下回合能还回满en，属于伤害看不懂的boss杀手
+
