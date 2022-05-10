@@ -3335,3 +3335,26 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  游山赫乃丈丶  
+##### 10813#       发表于 2022-5-11 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775250&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-5-11 00:40</a>
+
+企业确实不把员工当人，小麻当个人势是对的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5 ...</blockquote>
+企业势就是黑奴 个人势早美滋滋了
+
+*****
+
+####  楚暮秦朝  
+##### 10814#       发表于 2022-5-11 00:50
+
+看了隔壁的事，只能说你咩姐提前跑路，赎回皮当时真的牛逼，还记得跟井皇吵架的日子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
