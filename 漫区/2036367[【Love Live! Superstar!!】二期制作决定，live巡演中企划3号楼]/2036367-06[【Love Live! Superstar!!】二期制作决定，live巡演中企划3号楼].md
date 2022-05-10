@@ -2583,3 +2583,22 @@ Liyuu：是的，就是我老婆。
 
 —— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 7668#       发表于 2022-5-10 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55768388&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-10 17:25</a>
+现在大风向已经变了，你在说两句不太能接受都是爱看看，不看滚了。
+我设想的纷争:有人攻击新人，得保护起来 ...</blockquote>
+现在不接受新成员的人都被打成毒唯了
+
+*****
+
+####  lanslort  
+##### 7669#       发表于 2022-5-10 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 每代不都是一样的吗，有什么好惊讶的。之前虹那边不接受R3的也很多，菜宝一出来就都真香了 
+
