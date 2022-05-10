@@ -2475,3 +2475,12 @@ A87565E8-9BF5-47E7-A693-A7EA1D4D4BAE.jpeg
 
 因为按照正常的杂志偷跑时间也差不多了吧
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7658#       发表于 2022-5-10 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猜一下后面fmt或者live会不会有立本人对新人声优的炎上
+
