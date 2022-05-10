@@ -12027,3 +12027,24 @@ nijisanji的SC/发言频率/同社发言统计站，衍生自hololyzer
 
 以色列白毛會說英語俄語希伯來語阿拉伯語，小姐以前是摩薩德？
 
+
+
+*****
+
+####  与天争锋_LZ  
+##### 13140#       发表于 2022-5-10 23:02
+
+突然意识到一件事，终止和无限期休眠就是毕业委婉说法说明老爱是无限期休眠完全不会回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 13141#       发表于 2022-5-10 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55773694&amp;ptid=1972669" target="_blank">与天争锋_LZ 发表于 2022-5-10 23:02</a>
+
+突然意识到一件事，终止和无限期休眠就是毕业委婉说法说明老爱是无限期休眠完全不会回来了吗 ...</blockquote>
+她说是一定要回来的，这话能信几成看各人吧
+

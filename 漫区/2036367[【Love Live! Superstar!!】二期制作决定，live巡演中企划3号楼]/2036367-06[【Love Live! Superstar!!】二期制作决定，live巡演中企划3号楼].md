@@ -2691,3 +2691,30 @@ EB0A88AB-01C5-47AD-8123-66789A05B65C.jpeg
 
 [Liyuu杂志young jump写真花絮⑤](https://www.bilibili.com/video/BV1cF41177ti)
 
+
+
+*****
+
+####  名津流  
+##### 7678#       发表于 2022-5-10 23:07
+
+所以现在liyuu跟各位翅膀的进度都到哪一步了？
+
+跟菜宝是逛公园约会的程度
+
+跟nako是结婚叫老婆了的程度
+
+跟nagi是穿情侣装回老家见父母的程度
+
+跟pay酱是...pay酱一直在倒贴的程度
+
+所以果然只有合鲤是工作吧
+
+<img src="https://img.saraba1st.com/forum/202205/10/230717z9vl9c44srsvlez3.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20220510230650.png</strong> (14.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-10 23:07 上传
+
