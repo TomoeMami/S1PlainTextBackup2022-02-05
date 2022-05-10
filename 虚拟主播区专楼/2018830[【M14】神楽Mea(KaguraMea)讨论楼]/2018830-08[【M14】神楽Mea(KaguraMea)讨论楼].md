@@ -3315,3 +3315,23 @@ M14 回家真好
 
 as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  鷹書たかしょ  
+##### 10811#       发表于 2022-5-11 00:33
+
+怎么说呢，几年风风雨雨也算是安稳下来了，还记得最早感慨个人势跟企业势还是19年杏的石先生事件那回，时间过得太快了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+守着一亩三分地，不争不抢也没啥不好的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 10812#       发表于 2022-5-11 00:40
+
+企业确实不把员工当人，小麻当个人势是对的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
