@@ -2630,3 +2630,15 @@ Liyuu：是的，就是我老婆。
 
 所以为什么隔壁又把天音妹妹拉出来轮一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plazum  
+##### 7673#       发表于 2022-5-10 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55768037&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-10 17:09</a>
+
+不D的已经不说话了</blockquote>
+正解，只有心怀念想的才会受伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
