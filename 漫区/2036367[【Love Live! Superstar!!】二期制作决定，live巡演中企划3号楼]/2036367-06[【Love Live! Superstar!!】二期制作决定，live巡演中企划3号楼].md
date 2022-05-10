@@ -2560,3 +2560,26 @@ A87565E8-9BF5-47E7-A693-A7EA1D4D4BAE.jpeg
 我设想的纷争:有人攻击新人，得保护起来 ...</blockquote>
 对立派都跑路了，中立派不敢说话，现在是保护派的天下
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7666#       发表于 2022-5-10 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是拱火派，希望看到喜欢背刺人的企划倒闭那一天
+
+*****
+
+####  仟音一心  
+##### 7667#       发表于 2022-5-10 18:11
+
+万万没想到今天的糖是岬鱼！<img src="https://p.sda1.dev/5/c99067c5e7b54b4a3cb616367f20e145/CMP_20220510180724832.jpg" referrerpolicy="no-referrer">
+Nako这张照，鲤鱼用手机放大了一边看一边说：这是我老婆！这是我老婆！！
+Nako：我是鲤酱的老婆。
+Liyuu：我有干过这事吗？
+Sayu：太狡猾了吧。
+Liyuu：是的，就是我老婆。
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
