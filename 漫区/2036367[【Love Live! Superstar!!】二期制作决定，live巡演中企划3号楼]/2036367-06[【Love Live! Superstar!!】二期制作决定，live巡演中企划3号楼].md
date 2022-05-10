@@ -2642,3 +2642,16 @@ Liyuu：是的，就是我老婆。
 不D的已经不说话了</blockquote>
 正解，只有心怀念想的才会受伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 7674#       发表于 2022-5-10 20:29
+
+ 本帖最后由 csolfans 于 2022-5-10 20:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55771219&amp;ptid=2036367" target="_blank">plazum 发表于 2022-5-10 20:22</a>
+
+正解，只有心怀念想的才会受伤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三天就接受了，甚至赌了一把熊田茜音
+
