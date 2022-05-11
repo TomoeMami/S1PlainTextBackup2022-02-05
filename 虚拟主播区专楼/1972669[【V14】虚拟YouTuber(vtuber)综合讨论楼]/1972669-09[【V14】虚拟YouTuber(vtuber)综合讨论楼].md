@@ -11931,3 +11931,153 @@ shoto就en厕经常嘲的蹭皇啊，和好几个en男前世都是熟人，en男
 规定日期，过去以后打仗？
 看着有一点点像ark战
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13130#       发表于 2022-5-10 20:02
+
+你虹en最近好几场线下怎么没有人来黑屁银趴，继承本社传统
+
+*****
+
+####  poipanchao  
+##### 13131#       发表于 2022-5-10 20:05
+
+白皮淫趴也算事吗
+
+*****
+
+####  格林卡罗尔  
+##### 13132#       发表于 2022-5-10 20:09
+
+感觉nina岁数大了点...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是说去找安洁什么时候兑现
+
+
+
+*****
+
+####  空集  
+##### 13133#       发表于 2022-5-10 20:17
+
+虹EN说实话感觉银趴程度比本社还高不少还快 甚至还有标题没说有男人但是中途出现男人的 所以应该已经不值得吐槽了吧 ，本质来说本社以前一直黑屁还是，不管怎么联动，线下还是比较稀奇的，白皮（也不都是白皮其实）直接太多了。
+
+*****
+
+####  NBXX  
+##### 13134#       发表于 2022-5-10 20:20
+
+[https://www.youtube.com/watch?v=Hvf4uhg3FlI](https://www.youtube.com/watch?v=Hvf4uhg3FlI)
+<img src="https://p.sda1.dev/5/**94120ca8c3bcb73d24dc0b44f285/QQ图片20220510202035.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  D-JoeII  
+##### 13135#       发表于 2022-5-10 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55771195&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-5-10 20:20</a>
+
+https://www.youtube.com/watch?v=Hvf4uhg3FlI</blockquote>
+這位是不是以前沒有任何直播經驗的
+
+
+
+*****
+
+####  fastary  
+##### 13136#       发表于 2022-5-10 21:54
+
+黑客刚又发了个晚安绮楼……其实我还以为他只是看到有重要告知就转一下的，没想到真的还会去看相关视频……
+
+*****
+
+####  茉莉珠絵瑠  
+##### 13137#       发表于 2022-5-10 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55760576&amp;ptid=1972669" target="_blank">藤原银 发表于 2022-5-10 00:58</a>
+有本社的V也转了啊.....唉</blockquote>
+<img src="https://p.sda1.dev/5/1bbf57ba10cad8e1bfcffa8d6b959b09/CMP_20220510220201752.jpg" referrerpolicy="no-referrer">
+啊……
+
+
+
+*****
+
+####  NBXX  
+##### 13138#       发表于 2022-5-10 22:06
+
+[https://www.hololyzer.net/2j3j/](https://www.hololyzer.net/2j3j/)
+
+nijisanji的SC/发言频率/同社发言统计站，衍生自hololyzer
+
+比playboard抓的会准很多
+<img src="https://p.sda1.dev/5/129eab1b7ebb493866072dfbd1316c25/2`_8LQ8FRCVYU696UO6F6D0.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  D-JoeII  
+##### 13139#       发表于 2022-5-10 22:45
+
+以色列白毛會說英語俄語希伯來語阿拉伯語，小姐以前是摩薩德？
+
+
+
+*****
+
+####  与天争锋_LZ  
+##### 13140#       发表于 2022-5-10 23:02
+
+突然意识到一件事，终止和无限期休眠就是毕业委婉说法说明老爱是无限期休眠完全不会回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 13141#       发表于 2022-5-10 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55773694&amp;ptid=1972669" target="_blank">与天争锋_LZ 发表于 2022-5-10 23:02</a>
+
+突然意识到一件事，终止和无限期休眠就是毕业委婉说法说明老爱是无限期休眠完全不会回来了吗 ...</blockquote>
+她说是一定要回来的，这话能信几成看各人吧
+
+
+
+*****
+
+####  noHentai  
+##### 13142#       发表于 2022-5-10 23:59
+
+一天没看，A手怎么亡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kokichi  
+##### 13143#       发表于 2022-5-11 08:18
+
+vspo有ff14的许可了啊
+枪民痛苦起来了，看了一眼旅团甚至没有人打开幕rank，mmo真的是（望天
+
+
+
+*****
+
+####  poipanchao  
+##### 13144#       发表于 2022-5-11 08:40
+
+hada也在澳洲啊，这下真淫趴了（）
+毛子大妈还好，年轻棒妹<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl，开幕排位本来就没几个人会开的吧
+noah还在就行
+马上就是cr季，枪民没啥好愁了
+

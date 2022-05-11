@@ -2484,3 +2484,385 @@ A87565E8-9BF5-47E7-A693-A7EA1D4D4BAE.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猜一下后面fmt或者live会不会有立本人对新人声优的炎上
 
+
+
+*****
+
+####  仟音一心  
+##### 7659#       发表于 2022-5-10 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55767501&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-5-10 16:44</a>
+猜一下后面fmt或者live会不会有立本人对新人声优的炎上</blockquote>
+感觉不会有，那边逐渐接受了的样子。
+
+*****
+
+####  cybernetics31  
+##### 7660#       发表于 2022-5-10 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了
+
+
+
+*****
+
+####  靡宜  
+##### 7661#       发表于 2022-5-10 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55767887&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-10 17:01</a>
+
+日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了 ...</blockquote>
+不D的已经不说话了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 7662#       发表于 2022-5-10 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊鱼这making都挺可以的啊，怎么写真宣传图这么。。。
+
+
+
+*****
+
+####  cybernetics31  
+##### 7663#       发表于 2022-5-10 17:13
+
+杂志12号，偷跑应该是11号晚上，然后12号上午官推宣传一波，今晚应该是看不到了。人嘛，基本就是ab  amuse sma这几家找的新人咯。
+
+
+
+*****
+
+####  Enakina  
+##### 7664#       发表于 2022-5-10 17:25
+
+ 本帖最后由 Enakina 于 2022-5-10 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55767887&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-05-10 17:01:33</a>
+日本人这种怎么会炎上，就连国内，混的粉丝群也看到不少中之人是熟人也会d的说法了 ...</blockquote>现在大风向已经变了，你在说两句不太能接受都是爱看看，不看滚了。
+我设想的纷争:有人攻击新人，得保护起来。
+实际的纷争:企划推们猎杀前朝遗老。现在敢说不看好新人的已经被扣星团小鬼的帽子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+现在感觉保护派有点更魔怔啊，希望是我的错觉吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  靡宜  
+##### 7665#       发表于 2022-5-10 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55768388&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-10 17:25</a>
+
+现在大风向已经变了，你在说两句不太能接受都是爱看看，不看滚了。
+
+我设想的纷争:有人攻击新人，得保护起来 ...</blockquote>
+对立派都跑路了，中立派不敢说话，现在是保护派的天下
+
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7666#       发表于 2022-5-10 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是拱火派，希望看到喜欢背刺人的企划倒闭那一天
+
+*****
+
+####  仟音一心  
+##### 7667#       发表于 2022-5-10 18:11
+
+万万没想到今天的糖是岬鱼！<img src="https://p.sda1.dev/5/c99067c5e7b54b4a3cb616367f20e145/CMP_20220510180724832.jpg" referrerpolicy="no-referrer">
+Nako这张照，鲤鱼用手机放大了一边看一边说：这是我老婆！这是我老婆！！
+Nako：我是鲤酱的老婆。
+Liyuu：我有干过这事吗？
+Sayu：太狡猾了吧。
+Liyuu：是的，就是我老婆。
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  starring  
+##### 7668#       发表于 2022-5-10 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55768388&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-10 17:25</a>
+现在大风向已经变了，你在说两句不太能接受都是爱看看，不看滚了。
+我设想的纷争:有人攻击新人，得保护起来 ...</blockquote>
+现在不接受新成员的人都被打成毒唯了
+
+*****
+
+####  lanslort  
+##### 7669#       发表于 2022-5-10 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 每代不都是一样的吗，有什么好惊讶的。之前虹那边不接受R3的也很多，菜宝一出来就都真香了 
+
+
+
+*****
+
+####  Enakina  
+##### 7670#       发表于 2022-5-10 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55769215&amp;ptid=2036367" target="_blank">starring 发表于 2022-05-10 18:13:46</a>
+现在不接受新成员的人都被打成毒唯了</blockquote>可能因为那边是占理吧，真的是什么话都敢说。我本来觉得这种情况起码是得新成员积累一些自己的粉丝才会出现的，没想到企划推直接吧任务给揽过来了，实属没想到
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 7671#       发表于 2022-5-10 18:27
+
+哪有自己叫自己星小鬼的，这不是别的团极端粉才这样叫的吗？现在虹星新人那么多，什么企划推追杀前朝遗老没怎么见。倒是新人经常被这些遗老反串钓鱼引战，整得虹星之间有矛盾。
+
+
+
+*****
+
+####  乙山法純  
+##### 7672#       发表于 2022-5-10 18:58
+
+所以为什么隔壁又把天音妹妹拉出来轮一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  plazum  
+##### 7673#       发表于 2022-5-10 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55768037&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-10 17:09</a>
+
+不D的已经不说话了</blockquote>
+正解，只有心怀念想的才会受伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  csolfans  
+##### 7674#       发表于 2022-5-10 20:29
+
+ 本帖最后由 csolfans 于 2022-5-10 20:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55771219&amp;ptid=2036367" target="_blank">plazum 发表于 2022-5-10 20:22</a>
+
+正解，只有心怀念想的才会受伤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三天就接受了，甚至赌了一把熊田茜音
+
+
+
+*****
+
+####  仟音一心  
+##### 7675#       发表于 2022-5-10 20:38
+
+Nagi：我是豆芽，没有阳光也能生长。
+
+Nako：我是豆苗，割了又割了也能不断生长。今天是豆芽和豆苗的广播。 
+
+EB0A88AB-01C5-47AD-8123-66789A05B65C.jpeg
+(57.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-10 20:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/10/203837suvah2u37wwaofar.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 7676#       发表于 2022-5-10 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">鱼今天控的是nako
+
+*****
+
+####  lj205  
+##### 7677#       发表于 2022-5-10 22:31
+
+[Liyuu杂志young jump写真花絮⑤](https://www.bilibili.com/video/BV1cF41177ti)
+
+
+
+*****
+
+####  名津流  
+##### 7678#       发表于 2022-5-10 23:07
+
+所以现在liyuu跟各位翅膀的进度都到哪一步了？
+
+跟菜宝是逛公园约会的程度
+
+跟nako是结婚叫老婆了的程度
+
+跟nagi是穿情侣装回老家见父母的程度
+
+跟pay酱是...pay酱一直在倒贴的程度
+
+所以果然只有合鲤是工作吧
+
+<img src="https://img.saraba1st.com/forum/202205/10/230717z9vl9c44srsvlez3.png" referrerpolicy="no-referrer">
+
+<strong>snap_screen_20220510230650.png</strong> (14.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-10 23:07 上传
+
+
+
+*****
+
+####  saya1892  
+##### 7679#       发表于 2022-5-10 23:13
+
+当着别人的面狂赞照片说老婆，什么无崖子行为
+
+*****
+
+####  靡宜  
+##### 7680#       发表于 2022-5-10 23:18
+
+<img src="https://img.saraba1st.com/forum/202205/10/231820dft0g67kl7tftq66.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220510231757.png</strong> (6.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-10 23:18 上传
+
+今天D哪个捏（帅气鱼脸）
+
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7681#       发表于 2022-5-10 23:30
+
+周一nagi周二nako周三sayu周四pay周五年上周六年下周日安息日休息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 7682#       发表于 2022-5-11 00:10
+
+还有呢，鲤鱼这张Nako拍的，Nako这张鲤鱼拍的。夫妻对照了属于是。
+
+9D9BBD8E-17A2-4FFF-A047-312D4E183B71.jpeg
+(1.39 MB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/001050q8w2fwh7cwm2w2wd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+01E77FAA-7BC7-4A90-AAF3-A58016A9C80D.jpeg
+(319.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/001050jdbdldg3hxuis3du.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3EB5BD5A-5948-4F55-A90C-88CC79E489B6.jpeg
+(146.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/001055ciwvqvxnyw01riqi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C6A67A44-D0E3-4D8A-A5CB-BA70D9ED0372.jpeg
+(152 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/001055xibn4mkilqiz5n0z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  starring  
+##### 7683#       发表于 2022-5-11 00:59
+
+合鲤是工作，岬鱼是生活，水煮鱼是情头，酸菜鱼是损友是吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">鲤P呢？查看Pay的状态
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 7684#       发表于 2022-5-11 01:06
+
+希望来点鲤p糖平衡一下，一直倒贴的pay偶尔被鲤鱼贴贴一下就非常高兴的状态很棒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  megapikachu  
+##### 7685#       发表于 2022-5-11 08:07
+
+目前存疑
+
+Screenshot_20220511_073703_com.twitter.android.jpg
+(176.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 08:07 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/080719lfgogp8444ybfybp.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 7686#       发表于 2022-5-11 08:28
+
+cast出来了………………竟然还有个im 社的
+
+
+
+*****
+
+####  离心  
+##### 7687#       发表于 2022-5-11 08:42
+
+乖乖，还有一个04年的又有一个新的jk了
+
+*****
+
+####  forgetit  
+##### 7688#       发表于 2022-5-11 08:46
+
+这个应该是im历史上第一次进love live的正式编制
+
+*****
+
+####  cybernetics31  
+##### 7689#       发表于 2022-5-11 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所属公司全猜错了………………这么多年了im也从配角团转到主角了啊
+

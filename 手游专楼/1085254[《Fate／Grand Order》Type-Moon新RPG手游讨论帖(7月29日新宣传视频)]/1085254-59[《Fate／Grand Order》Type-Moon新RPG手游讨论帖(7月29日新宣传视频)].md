@@ -9767,3 +9767,113 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 
 确实有值得诟病的地方，不过很可爱就算了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87836#       发表于 2022-5-10 19:06
+
+明天生放，大概该2500W了？
+
+
+
+*****
+
+####  qixinno2  
+##### 87837#       发表于 2022-5-10 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">2500W不来个强化本么
+
+*****
+
+####  alucardcz  
+##### 87838#       发表于 2022-5-10 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770449&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-5-10 19:32</a>
+
+2500W不来个强化本么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜强化本吗
+
+
+
+*****
+
+####  qixinno2  
+##### 87839#       发表于 2022-5-10 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770526&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-10 19:36</a>
+
+狂娜强化本吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然是摩根强化本 我没有的卡开个屁强化本
+
+
+
+*****
+
+####  alucardcz  
+##### 87840#       发表于 2022-5-10 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770646&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-5-10 19:44</a>
+
+必然是摩根强化本 我没有的卡开个屁强化本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摩根我要求不多  1技能减1回合cd即可
+
+
+
+*****
+
+####  里村紅葉  
+##### 87841#       发表于 2022-5-10 19:53
+
+吓得我上游戏看了下活动是不是要结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 87842#       发表于 2022-5-10 20:02
+
+来个限定4星自选？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87843#       发表于 2022-5-10 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770764&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-10 19:50</a>
+
+摩根我要求不多  1技能减1回合cd即可</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不如开宝具本 让我也爽爽5宝的输出
+
+
+
+*****
+
+####  黑上シグマ  
+##### 87844#       发表于 2022-5-10 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">四星我就差个泳装妹夫，然而并不需要
+
+
+
+*****
+
+####  保罗赫伯特  
+##### 87845#       发表于 2022-5-10 20:42
+
+什么时候开2.3回顾活动啊，想白嫖点幕间的石头了
+
+
+
+*****
+
+####  eilot  
+##### 87846#       发表于 2022-5-11 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55770526&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-10 19:36</a>
+
+狂娜强化本吗</blockquote>
+上次眼鏡活動，眼鏡角色全部都沒順便加強化本，如果狂娜有強化本，應該在那時候就順便補?
+
+會加梅林給他人單充50嗎...
+

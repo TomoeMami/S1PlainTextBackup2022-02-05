@@ -3111,3 +3111,438 @@ syl 肥婆人又去哪里了
 
 也没啥不好 本来就只有mea熟，带着新人去引流还要先介绍老人也太奇怪了
 
+
+
+*****
+
+####  clvan_  
+##### 10790#       发表于 2022-5-10 18:10
+
+你把这联动当成犬山mea主持不就好了，五个人分前后两批参加
+
+
+
+*****
+
+####  Mr.shelter  
+##### 10791#       发表于 2022-5-10 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+隔了段时间来看你楼还有美图欣赏，挺好
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  三つの光  
+##### 10792#       发表于 2022-5-10 18:48
+
+咩咩到手的收入居然比企业高
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  我单推副会长  
+##### 10793#       发表于 2022-5-10 18:53
+
+你去看看油管日区sc，mea出道到现在光油管sc5000万日元，排在日区前100内，b站收入暂且不说。虽然现在收入少了很多不过直播行业一向是赚快钱。mea虽然被高税收整的挺惨，但是嫁人的嫁妆应该有了。像海苔男一样，找个好老公就好了。
+
+
+
+*****
+
+####  往世雷书  
+##### 10794#       发表于 2022-5-10 19:26
+
+一定要找一个配得上她资金和性格的好男人，不要被婚姻和岁月磨灭自己的特性<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  rosevalley46  
+##### 10795#       发表于 2022-5-10 20:38
+
+作为个人势能活4年(还是y b双开),已经是强的离谱了,收入之类的都是次要的了
+
+
+
+*****
+
+####  Mr.shelter  
+##### 10796#       发表于 2022-5-10 20:44
+
+能活着就很好，你看她到现在不管ytb还是bili都熬死多少人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么初代，什么鲸落，什么新时代，活着才是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  雪风utopia  
+##### 10797#       发表于 2022-5-10 20:54
+
+先不说她，票宝你先别噶了就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  wpcc  
+##### 10798#       发表于 2022-5-10 21:07
+
+M14 回家真好
+
+
+
+*****
+
+####  古战场亡魂  
+##### 10799#       发表于 2022-5-10 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不是出现油管无差别用弹幕和投降炸频道的炸弹人了吗。刚去看了一圈直播，vtuber们目前基本上都把弹幕姬关了。
+
+真的，历史是个圈啊。
+
+*****
+
+####  璃絵和花瑠  
+##### 10800#       发表于 2022-5-10 21:15
+
+都别噶好吗。
+
+
+
+*****
+
+####  ashero  
+##### 10801#       发表于 2022-5-10 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55747563&amp;ptid=2018830" target="_blank">lovcavil 发表于 2022-5-9 06:20</a>
+后知后觉，vcp还是有用的，她居然翻唱了等爱的3单，这样算不算是索爹指原提供版权曲库了
+（然后气短被爆杀 ...</blockquote>
+确实有用 指团歌挺合适她的
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  makourisu-2  
+##### 10802#       发表于 2022-5-10 22:11
+
+令人感慨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">小麻什么时候才能再想起tc呢，或者蓝鸟吧之前那个功能改回来好不好，好想念她疯狂发推的时候
+
+
+
+*****
+
+####  鷹書たかしょ  
+##### 10803#       发表于 2022-5-10 22:17
+
+自从有了蓝鸟空间之后就没开过TC了吧
+
+
+
+*****
+
+####  Ky·Kiske  
+##### 10804#       发表于 2022-5-10 22:41
+
+团综我一概没看……
+
+
+
+*****
+
+####  古战场亡魂  
+##### 10805#       发表于 2022-5-10 22:46
+
+ 本帖最后由 古战场亡魂 于 2022-5-10 22:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  时间在我手中  
+##### 10806#       发表于 2022-5-10 23:19
+
+哎呀，没想到啊没想到
+
+明天开个pre咯
+
+
+
+*****
+
+####  clvan_  
+##### 10807#       发表于 2022-5-11 00:18
+
+发生什么事你楼怎么突然感慨活着真好了。
+
+虽然推限替代了tc吧，但是推限好像也挺久没有了
+
+*****
+
+####  T_Hb  
+##### 10808#       发表于 2022-5-11 00:19
+
+别急，忙着吃烤肉
+
+
+
+*****
+
+####  十九号大侠  
+##### 10809#       发表于 2022-5-11 00:24
+
+忆苦思甜
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 10810#       发表于 2022-5-11 00:28
+
+as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  鷹書たかしょ  
+##### 10811#       发表于 2022-5-11 00:33
+
+怎么说呢，几年风风雨雨也算是安稳下来了，还记得最早感慨个人势跟企业势还是19年杏的石先生事件那回，时间过得太快了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+守着一亩三分地，不争不抢也没啥不好的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 10812#       发表于 2022-5-11 00:40
+
+企业确实不把员工当人，小麻当个人势是对的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  游山赫乃丈丶  
+##### 10813#       发表于 2022-5-11 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775250&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-5-11 00:40</a>
+
+企业确实不把员工当人，小麻当个人势是对的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5 ...</blockquote>
+企业势就是黑奴 个人势早美滋滋了
+
+*****
+
+####  楚暮秦朝  
+##### 10814#       发表于 2022-5-11 00:50
+
+看了隔壁的事，只能说你咩姐提前跑路，赎回皮当时真的牛逼，还记得跟井皇吵架的日子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  ロキシー  
+##### 10815#       发表于 2022-5-11 00:58
+
+早期不少声音都是她要是能进企业势多好多好，她作为个人势发展到现在也是靠自己杀出来的
+企业势的黑暗19年石先生、游戏部、老爱事件三连发的时候不是早就暴露出来了，只能说被时间磨平了，历史果然是螺旋上升的
+
+
+
+*****
+
+####  kenjjj  
+##### 10816#       发表于 2022-5-11 01:05
+
+咩宝高瞻远瞩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10817#       发表于 2022-5-11 01:10
+
+顺便和你们说一声……因幡组长因为线下动物园活动买票的人不足昨天直播卖票2小时，直播前卖出去200多张吧，拉着全部能动的动物园成员直播卖票。
+
+同接非常高，1万几，但是很多是看笑话和嘲讽的。动物园原始的成员只剩她和绿熊了，后期加的成员远远没成长起来，绿熊人气也不高。
+
+企业势没那么幸福的。
+
+
+
+*****
+
+####  路人庚  
+##### 10818#       发表于 2022-5-11 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概确实没几个yhm能有自己买断版权的想法并且还真就买断了的
+
+（不过也有可能是之前吵架的印象太深刻了一直念念不忘所以有钱了就赶紧买断
+
+*****
+
+####  T_Hb  
+##### 10819#       发表于 2022-5-11 01:21
+
+明天有没有直播
+
+
+
+*****
+
+####  路人庚  
+##### 10820#       发表于 2022-5-11 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很明显，你咩姐连着吃烤肉，基本也就是连着几天录节目了，估计下一次就是3d团综（而且看活动频率估计还是在忙，明天估计最多一个突击吧
+
+
+
+*****
+
+####  我很费纸  
+##### 10821#       发表于 2022-5-11 01:51
+
+这么一看mea真的是管人区司马懿了，老老少少这几年熬走了不少。
+
+直播这口饭，红得快，死得快，甚至有时候都是帮打白工自己拿不到钱。结果那种彻底葬送职业生涯的地雷，居然一个没踩，真是不得不令人感叹。
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  古战场亡魂  
+##### 10822#       发表于 2022-5-11 01:54
+
+反正mea从5号到现在，这么长时间只打了2盘lol，7号1把8号一把。
+
+反正应该是出门时间比较多，是现充还是上班也不用发散，看后续吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DDWarrior  
+##### 10823#       发表于 2022-5-11 01:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">一个一个版本就这么更替掉了，动物园初代五个人也只剩最后两个了，但吊人还能好好地撑到现在，也是挺让人唏嘘的了...
+
+*****
+
+####  三つの光  
+##### 10824#       发表于 2022-5-11 01:57
+
+<img src="https://p.sda1.dev/5/c2b16ae93806effe67821ab5384dd45e/IMG_CMP_207996490.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  三つの光  
+##### 10825#       发表于 2022-5-11 01:58
+
+那么多人开香槟怎么有人看到天狗就急了
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  三つの光  
+##### 10826#       发表于 2022-5-11 02:00
+
+那个人是map2伪物啊那没事了，别看了别看了，看到天狗急坏了就不好了
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  古战场亡魂  
+##### 10827#       发表于 2022-5-11 02:00
+
+别在本楼挂了，版里能挂的地方多了去了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  三つの光  
+##### 10828#       发表于 2022-5-11 02:09
+
+手机s1是不是不能编辑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  古战场亡魂  
+##### 10829#       发表于 2022-5-11 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775963&amp;ptid=2018830" target="_blank">三つの光 发表于 2022-5-11 02:09</a>
+
+手机s1是不是不能编辑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+可以，手机屏幕划到最下面点击电脑版。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  璃絵和花瑠  
+##### 10830#       发表于 2022-5-11 02:22
+
+ 本帖最后由 璃絵和花瑠 于 2022-5-11 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775963&amp;ptid=2018830" target="_blank">三つの光 发表于 2022-5-11 02:09</a>
+手机s1是不是不能编辑
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+鹅球点击自己发帖的楼层数编辑。
+<img src="https://p.sda1.dev/5/16ac8a7d2c3cd3bcd3e8453447a31a4d/IMG_20220511_022324.jpg" referrerpolicy="no-referrer">
+
+另外，姑且有这样一栋楼能放这种东西。
+[https://bbs.saraba1st.com/2b/thread-2002480-250-1.html](https://bbs.saraba1st.com/2b/thread-2002480-250-1.html)
+
+
+
+*****
+
+####  SNOWIMEA  
+##### 10831#       发表于 2022-5-11 03:17
+
+熟悉的味道，熟悉的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  ロキシー  
+##### 10832#       发表于 2022-5-11 07:53
+
+看到麻将妹说ANMR才想起来，梅莉当初毕业的时候也有说staffセクハラ来着，天下乌鸦一般黑是这样的
+
+
+
+*****
+
+####  yywzjsw  
+##### 10833#       发表于 2022-5-11 08:47
+
+还以为播了一下子那么多页，结果是as的事情，什么时候小麻被开盒会毕业吗
+
