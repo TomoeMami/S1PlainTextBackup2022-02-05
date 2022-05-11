@@ -3345,3 +3345,19 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 7719#       发表于 2022-5-11 12:05
+
+前偶像，年龄最小，担任的角色设定和堇有重合，而且还已经掌握料理技能，这下子是pay被背刺了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 7720#       发表于 2022-5-11 12:09
+
+四个人担任的角色偷跑了吗来自: iPhone客户端
+
