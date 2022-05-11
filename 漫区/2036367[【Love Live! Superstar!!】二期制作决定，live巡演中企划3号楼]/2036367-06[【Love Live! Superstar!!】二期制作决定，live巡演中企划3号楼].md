@@ -4557,3 +4557,37 @@ C64C2B8A-3FB7-4676-A367-D30E0AB3D6BB.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/12/003758w2bxhxcbhb5ccybg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  damian-wade  
+##### 7823#       发表于 2022-5-12 00:46
+
+新人我觉得左二右一其实还行，集体照有个很大的问题，让pay青山站中间一排<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一下子反差太大观感不好
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 7824#       发表于 2022-5-12 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在应该没人在那扯再加3个人了吧………………
+
+*****
+
+####  稀勢のささ  
+##### 7825#       发表于 2022-5-12 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大脸盘子不想办法瘦下来靠化妆能救吗 自拍可以找角度 生放呢 没长开那位都不想提了
+
+*****
+
+####  Enakina  
+##### 7826#       发表于 2022-5-12 00:52
+
+[quote][/quote][url=][/url][img][/img][img][/img][img][/img]
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
