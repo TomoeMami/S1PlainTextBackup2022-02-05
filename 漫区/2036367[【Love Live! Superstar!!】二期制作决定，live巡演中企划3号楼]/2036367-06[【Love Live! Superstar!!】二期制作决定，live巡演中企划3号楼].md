@@ -3210,3 +3210,38 @@ C0F926AF-B25F-4E6A-8837-D49B807DEDB9.jpeg
 目前三人都不是跟企划紧密关联的事务所，海选预备役这些乐子 ...</blockquote>
 纯新人有好处也有坏处，希望能掏出应有的实力堵嘴。越发觉得青山这么好的素材结果摊上花田的恋恋真的是太惨了，写歌的都比花田懂恋恋。
 
+
+
+*****
+
+####  lj205  
+##### 7706#       发表于 2022-5-11 10:24
+
+这三人以前有没有什么作品呢？
+
+*****
+
+####  仟音一心  
+##### 7707#       发表于 2022-5-11 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55778733&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-11 10:24</a>
+
+这三人以前有没有什么作品呢？</blockquote>
+朱音有各位龙套，其他查不到了
+
+6AE602A0-D60A-48C6-8B57-9580620967B4.jpeg
+(417.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 10:26 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/102655ginpttvs29xunvit.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7708#       发表于 2022-5-11 10:27
+
+im那个配过几个路人
+

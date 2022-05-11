@@ -9877,3 +9877,17 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 
 會加梅林給他人單充50嗎...
 
+
+
+*****
+
+####  alucardcz  
+##### 87847#       发表于 2022-5-11 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55775508&amp;ptid=1085254" target="_blank">eilot 发表于 2022-5-11 01:06</a>
+
+上次眼鏡活動，眼鏡角色全部都沒順便加強化本，如果狂娜有強化本，應該在那時候就順便補?
+
+會加梅林給他人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家想到的 舍弃(
+
