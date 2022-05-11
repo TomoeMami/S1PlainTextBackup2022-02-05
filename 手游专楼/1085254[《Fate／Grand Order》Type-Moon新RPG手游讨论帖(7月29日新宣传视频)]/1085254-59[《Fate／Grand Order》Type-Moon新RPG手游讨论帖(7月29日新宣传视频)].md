@@ -10321,3 +10321,15 @@ Traum是德语“梦想，幻境”的意思，好像没有对应的地名。
 
 不至于都是十二圣骑士吧，难不成6.5是要咕哒带君十一杀穿神罗吗？这未免也太罗马了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87891#       发表于 2022-5-11 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55788328&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-5-11 20:00</a>
+
+不至于都是十二圣骑士吧，难不成6.5是要咕哒带君十一杀穿神罗吗？这未免也太罗马了 ...</blockquote>
+也许有可能的话蘑菇说不定会尝试把当初1.6废案耶路撒冷的剧情拿出来发挥一下余热...？
+
