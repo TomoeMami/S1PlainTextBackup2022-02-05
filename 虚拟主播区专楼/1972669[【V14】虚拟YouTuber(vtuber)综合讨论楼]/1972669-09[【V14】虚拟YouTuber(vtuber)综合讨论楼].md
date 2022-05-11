@@ -12057,3 +12057,13 @@ nijisanji的SC/发言频率/同社发言统计站，衍生自hololyzer
 
 一天没看，A手怎么亡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 13143#       发表于 2022-5-11 08:18
+
+vspo有ff14的许可了啊
+枪民痛苦起来了，看了一眼旅团甚至没有人打开幕rank，mmo真的是（望天
+
