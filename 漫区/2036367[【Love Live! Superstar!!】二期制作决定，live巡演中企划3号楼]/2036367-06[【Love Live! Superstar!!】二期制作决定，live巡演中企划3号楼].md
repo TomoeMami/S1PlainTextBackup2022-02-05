@@ -3971,3 +3971,15 @@ tmd为什么鱼就没有新人保护期</blockquote>
 这画不拿出来当抽选特典是真可惜了。</blockquote>
 鲤大师亲笔话是吧😂
 
+
+
+*****
+
+####  adw667  
+##### 7765#       发表于 2022-5-11 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786088&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-11 17:34</a>
+
+最好少放</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">果然真情实感到最后受伤的总是自己
+
