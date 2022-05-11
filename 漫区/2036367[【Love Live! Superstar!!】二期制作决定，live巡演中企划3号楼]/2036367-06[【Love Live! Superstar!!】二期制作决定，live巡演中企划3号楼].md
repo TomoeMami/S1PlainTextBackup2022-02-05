@@ -4663,3 +4663,26 @@ C64C2B8A-3FB7-4676-A367-D30E0AB3D6BB.jpeg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  白帽子  
+##### 7834#       发表于 2022-5-12 02:03
+
+九人图的颜值有着明显的梯度变化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 7835#       发表于 2022-5-12 03:50
+
+事到如今必须坦白，我开始关注liella就是因为5人组的颜值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 7836#       发表于 2022-5-12 03:50
+
+单从这公式照来看，新4人和老5人颜值确实有差距，也不知道是不是化妆或者拍摄的问题，鲤鱼这年纪最大的看上去居然是颜值最高的。
+
