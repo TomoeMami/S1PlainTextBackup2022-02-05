@@ -3644,3 +3644,27 @@ BE2D1D52-4243-48CA-B6A4-B4365DA9A32C.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/11/172102e355z99jx9w53zt3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 7740#       发表于 2022-5-11 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55785435&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2022-5-11 16:58</a>
+
+绘森彩拉拉人那个推是19年发的，那时候星都还没正式宣布呢，应该不是摁造拉拉人人设 ...</blockquote>
+摁造应该不会，不过暂时消息来看厨力不是很高的那种<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然也没说一定要厨力很高就是了，问题不大
+
+
+
+*****
+
+####  adw667  
+##### 7741#       发表于 2022-5-11 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55768388&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-10 17:25</a>
+现在大风向已经变了，你在说两句不太能接受都是爱看看，不看滚了。
+我设想的纷争:有人攻击新人，得保护起来 ...</blockquote>
+我有事没事在这楼放新人黑泥会被小黑屋吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
