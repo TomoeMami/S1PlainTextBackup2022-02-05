@@ -3787,3 +3787,12 @@ tmd为什么鱼就没有新人保护期</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎 鱼反正过去了都 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">企划推碰见走远点就是了 live真跟不上还不让人说？
 
+
+
+*****
+
+####  lj205  
+##### 7752#       发表于 2022-5-11 18:40
+
+对鱼严格可以为什么不能对新人严格？不行我照样喷
+

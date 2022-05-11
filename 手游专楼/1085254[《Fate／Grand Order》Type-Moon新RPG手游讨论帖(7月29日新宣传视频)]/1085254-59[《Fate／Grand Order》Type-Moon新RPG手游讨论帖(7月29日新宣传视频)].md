@@ -10015,3 +10015,139 @@ C呆复刻
 
 恒常四星全都有了，垃圾券
 
+
+
+*****
+
+####  alucardcz  
+##### 87859#       发表于 2022-5-11 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786917&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-5-11 18:30</a>
+
+恒常四星全都有了，垃圾券</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有剧情限定啊（ 
+
+*****
+
+####  alucardcz  
+##### 87860#       发表于 2022-5-11 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">选个大增加算了   一直没抽到 王姐都2宝了
+
+*****
+
+####  qixinno2  
+##### 87861#       发表于 2022-5-11 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">感觉真的没啥用 为了黑呆毛灵衣选个黑呆算了
+
+*****
+
+####  黑上シグマ  
+##### 87862#       发表于 2022-5-11 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786934&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-11 18:30</a>
+
+有剧情限定啊（</blockquote>
+所以说，全都有了啊
+
+*****
+
+####  alucardcz  
+##### 87863#       发表于 2022-5-11 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786967&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-5-11 18:33</a>
+
+所以说，全都有了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 像萌新我 妖精骑士一个都没
+
+*****
+
+####  シャル  
+##### 87864#       发表于 2022-5-11 18:35
+
+看了下，只有4个四星没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87865#       发表于 2022-5-11 18:35
+
+四星礼装自选这个活太烂了，唯一的好处在于五星礼装自选的可能性是存在的
+
+*****
+
+####  alucardcz  
+##### 87866#       发表于 2022-5-11 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然有大！
+
+*****
+
+####  シャル  
+##### 87867#       发表于 2022-5-11 18:36
+
+没7章，6.5来了
+
+屏幕截图 2022-05-11 183540.png
+(230.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:36 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/183610e6mcc0xko8ti78d8.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87868#       发表于 2022-5-11 18:36
+
+似李，マイケル！
+
+*****
+
+####  qixinno2  
+##### 87869#       发表于 2022-5-11 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男的无感啊 希望是个超级菜B
+
+*****
+
+####  eilot  
+##### 87870#       发表于 2022-5-11 18:37
+
+終於有C呆池了，之前留石可以出手
+
+
+
+*****
+
+####  黑上シグマ  
+##### 87871#       发表于 2022-5-11 18:38
+
+哦艹罗兰？
+
+*****
+
+####  angelooo  
+##### 87872#       发表于 2022-5-11 18:38
+
+艹，直播关早了
+
+*****
+
+####  シャル  
+##### 87873#       发表于 2022-5-11 18:38
+
+6.5加罗兰了
+
+屏幕截图 2022-05-11 183746.png
+(133.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/183816ebs9bsqdtbdbbgg0.png" referrerpolicy="no-referrer">
+
