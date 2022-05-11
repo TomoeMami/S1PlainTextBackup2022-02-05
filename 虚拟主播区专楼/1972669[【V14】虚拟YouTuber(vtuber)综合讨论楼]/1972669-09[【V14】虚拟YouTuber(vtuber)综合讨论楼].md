@@ -12207,3 +12207,15 @@ syl，可惜最后月之倒是没被辜负，本间桑没了
 没懂A手怎么从毕业一人到唐突爆炸的，结合前几天突然全被特定感觉有点怪怪的。
 有没有关注的楼友说一下现在是个啥情况，矛盾在哪里，哪些瓜是保真的。
 
+
+
+*****
+
+####  sgssk  
+##### 13158#       发表于 2022-5-12 01:37
+
+问就是七成内容不保真，比如工资11k的料是乐府孤证<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">考虑直播状况，大概被运营霸凌比较保真吧
+建议是看戏吃瓜
+
+—— 来自 OPPO PEHT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
