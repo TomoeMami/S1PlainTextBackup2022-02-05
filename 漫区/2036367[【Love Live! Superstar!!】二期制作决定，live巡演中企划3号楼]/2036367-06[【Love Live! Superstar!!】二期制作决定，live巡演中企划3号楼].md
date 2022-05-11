@@ -3983,3 +3983,15 @@ tmd为什么鱼就没有新人保护期</blockquote>
 最好少放</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">果然真情实感到最后受伤的总是自己
 
+
+
+*****
+
+####  仟音一心  
+##### 7766#       发表于 2022-5-11 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55792022&amp;ptid=2036367" target="_blank">adw667 发表于 2022-5-11 22:12</a>
+
+果然真情实感到最后受伤的总是自己</blockquote>
+要不你学NGA那边折叠反白一下吧，就是把文字全部用白色输入
+
