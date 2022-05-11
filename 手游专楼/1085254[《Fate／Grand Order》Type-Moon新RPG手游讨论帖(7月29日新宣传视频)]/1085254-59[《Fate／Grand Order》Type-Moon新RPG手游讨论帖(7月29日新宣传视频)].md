@@ -10236,3 +10236,28 @@ C呆复刻
 
 左三大概率是夏露露的新衣服，毕竟罗兰一个人落地也有点单薄。我个人倒是比较好奇左二男，这个闪电型的呆毛很有个性啊，估计打牌一定很强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87883#       发表于 2022-5-11 19:32
+
+四星礼装建议选 冬之结晶
+
+开幕60%np
+
+*****
+
+####  沼蝇  
+##### 87884#       发表于 2022-5-11 19:33
+
+艹这个合成苹果不错嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平常不清体力的咸鱼开心了
+
+*****
+
+####  蓮華  
+##### 87885#       发表于 2022-5-11 19:37
+
+一眼扎夫特
+
