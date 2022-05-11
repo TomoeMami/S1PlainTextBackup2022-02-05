@@ -4527,3 +4527,14 @@ mea的人脉可叫不来西村博之、荒木美玲<img src="https://static.sara
 
 我说了，事实胜于雄辩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你不会真以为我是顺着你的话说的吧
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 10933#       发表于 2022-5-11 21:25
+
+回来了，一切都回来了，熟悉的大🔥，熟悉的💐<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
