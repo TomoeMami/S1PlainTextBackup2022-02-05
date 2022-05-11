@@ -4443,3 +4443,38 @@ QA可可的部分属实难绷，天蓝色底还白字，就不能弄成黑字吗
 拉版咋说的？</blockquote>
 四季还行，是你们吹颜值的，其实是老5人水平太高之类，大概都是这些吧。也没有太大恶意，还能看。
 
+
+
+*****
+
+####  离心  
+##### 7815#       发表于 2022-5-12 00:15
+
+新人感觉是定妆照和发型拉了，等等看生放送。不过老五人能打是真的……
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7816#       发表于 2022-5-12 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧攻击性怎么感觉比s1还强
+
+*****
+
+####  iuhehc  
+##### 7817#       发表于 2022-5-12 00:19
+
+这么看nagi这种算“可遇不可求”了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 7818#       发表于 2022-5-12 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55794322&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-05-12 00:17:13</a>
+贴吧攻击性怎么感觉比s1还强</blockquote>是这个专楼太纯良了，贴吧尚不及一号楼的五分之一的攻击度
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
