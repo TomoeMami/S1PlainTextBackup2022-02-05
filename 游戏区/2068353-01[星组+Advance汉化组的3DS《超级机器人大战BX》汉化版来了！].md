@@ -1286,3 +1286,15 @@ TV抚子三人娘在机战里登场基本上都很好用，当年玩J我也是�
 
 早知道不卖新大二了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stevenzero  
+##### 121#       发表于 2022-5-11 14:22
+
+实机DLC安装后没显示，进度第2关。
+看网上说法可能是需要转区工具？
+
+太久不动3DS手生啊，卸载旧版装汉化导入存档失败。我的一周目存档没了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
