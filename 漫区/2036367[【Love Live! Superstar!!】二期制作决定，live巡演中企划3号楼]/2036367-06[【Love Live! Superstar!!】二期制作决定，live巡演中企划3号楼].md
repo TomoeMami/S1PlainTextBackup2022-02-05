@@ -2866,3 +2866,55 @@ cast出来了………………竟然还有个im 社的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所属公司全猜错了………………这么多年了im也从配角团转到主角了啊
 
+
+
+*****
+
+####  仟音一心  
+##### 7690#       发表于 2022-5-11 08:53
+
+都是事务所推荐的纯新人，换句话说没有带粉进组的。
+
+BDD72E11-3D26-4FA0-8F05-6F215D434139.jpeg
+(46.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 08:53 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/085334irluc090wc9zy3du.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+870CB9C7-DFD1-4F92-80AA-06C8A84E6861.jpeg
+(107.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 08:53 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/085334f9paiamjfamdgnnj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A1E4A63E-A3A0-4D71-97C5-1FA50FFD91D9.jpeg
+(82.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 08:53 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/085334ug2zlno1g2o1n1g7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 7691#       发表于 2022-5-11 08:55
+
+青山果然还是可遇不可求，当然新人也不差。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ykyin09  
+##### 7692#       发表于 2022-5-11 08:55
+
+还有一个呢来自: iPhone客户端
+
