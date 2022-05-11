@@ -3729,3 +3729,26 @@ D5B47102-6970-4611-8FDF-8A5BB927D78F.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">tmd为什么鱼就没有新人保护期
 
+
+
+*****
+
+####  Enakina  
+##### 7747#       发表于 2022-5-11 18:17
+
+ 本帖最后由 Enakina 于 2022-5-11 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786610&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-05-11 18:07:04</a>
+tmd为什么鱼就没有新人保护期</blockquote>我其实也想说，新人还没出来呢，企划推就一堆人虚空保护了，何况现在大环境对新人也能说是不错的，但你颇有微词都可能被骂。
+所以当初5人公布，鲤鱼被集火的时候怎么不见有人跳出来保护呢，还是那会踩她的也是企划推
+以我当时一个吃瓜群众的角度，对她的态度可是一边倒，没几个替她说话的人，nga可能还好点，这里可别提有多精彩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7748#       发表于 2022-5-11 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786610&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-5-11 18:07</a>
+
+tmd为什么鱼就没有新人保护期</blockquote>
+也许是国人对国人要求更严嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
