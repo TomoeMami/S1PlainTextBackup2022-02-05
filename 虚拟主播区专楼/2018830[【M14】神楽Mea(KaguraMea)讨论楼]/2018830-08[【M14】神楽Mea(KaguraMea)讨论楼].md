@@ -3844,3 +3844,16 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  往世雷书  
+##### 10862#       发表于 2022-5-11 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55779252&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2022-5-11 10:56</a>
+是774哥吗</blockquote>
+还有吗，再去找找
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
