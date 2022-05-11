@@ -3460,3 +3460,15 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 若菜=wakana=和奏？
 
+
+
+*****
+
+####  Enakina  
+##### 7729#       发表于 2022-5-11 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55781644&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-05-11 13:16:21</a>
+推上有看到铃原希实应该是ab 的新人………………</blockquote>确定了？还是脑部
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
