@@ -12067,3 +12067,17 @@ nijisanji的SC/发言频率/同社发言统计站，衍生自hololyzer
 vspo有ff14的许可了啊
 枪民痛苦起来了，看了一眼旅团甚至没有人打开幕rank，mmo真的是（望天
 
+
+
+*****
+
+####  poipanchao  
+##### 13144#       发表于 2022-5-11 08:40
+
+hada也在澳洲啊，这下真淫趴了（）
+毛子大妈还好，年轻棒妹<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl，开幕排位本来就没几个人会开的吧
+noah还在就行
+马上就是cr季，枪民没啥好愁了
+
