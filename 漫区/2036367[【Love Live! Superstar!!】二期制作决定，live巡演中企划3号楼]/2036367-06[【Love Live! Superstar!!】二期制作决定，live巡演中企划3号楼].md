@@ -2992,3 +2992,27 @@ Suzuhara Nozomi看罗马音应该是铃木希实，但我完全没查到任何�
 这个步枪射击就很im，目前爆出来的三个人的颜还是一般了些，果然青山这种才是少数啊 ...</blockquote>
 青山的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，反正看了一圈这4个，感觉，嗯，只能说选人不过不失
 
+
+
+*****
+
+####  Enakina  
+##### 7700#       发表于 2022-5-11 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55777986&amp;ptid=2036367" target="_blank">player3960 发表于 2022-05-11 09:31:29</a>
+青山的含金量啊，反正看了一圈这4个，感觉，嗯，只能说选人不过不失</blockquote>是三个，那个鈴原还啥都没有呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 7701#       发表于 2022-5-11 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55778051&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-11 09:35</a>
+
+是三个，那个鈴原还啥都没有呢
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+哦，把一个人两张照片认成两个人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

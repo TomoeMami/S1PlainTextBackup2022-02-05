@@ -3595,3 +3595,30 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 正经人谁直播啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10839#       发表于 2022-5-11 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55777360&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-5-11 08:47</a>
+还以为播了一下子那么多页，结果是as的事情，什么时候小麻被开盒会毕业吗 ...</blockquote>
+曾经有过这种可能，然后她自爆把盒炸成灰了。被挖出来和自己口述完全不是一个概念，已经是自我了断了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  肥到终点  
+##### 10840#       发表于 2022-5-11 09:41
+
+是个debu这件事已经知道了，还有什么盖印章的必要吗
+
+*****
+
+####  T_Hb  
+##### 10841#       发表于 2022-5-11 09:41
+
+检疫合格的章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
