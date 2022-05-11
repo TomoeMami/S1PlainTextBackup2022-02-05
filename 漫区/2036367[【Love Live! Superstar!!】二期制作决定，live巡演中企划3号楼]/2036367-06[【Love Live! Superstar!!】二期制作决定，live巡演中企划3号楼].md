@@ -3995,3 +3995,12 @@ tmd为什么鱼就没有新人保护期</blockquote>
 果然真情实感到最后受伤的总是自己</blockquote>
 要不你学NGA那边折叠反白一下吧，就是把文字全部用白色输入
 
+
+
+*****
+
+####  lj205  
+##### 7767#       发表于 2022-5-11 22:31
+
+为啥不能放？不放还是S1吗？这贴是因为大家都太和平了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
