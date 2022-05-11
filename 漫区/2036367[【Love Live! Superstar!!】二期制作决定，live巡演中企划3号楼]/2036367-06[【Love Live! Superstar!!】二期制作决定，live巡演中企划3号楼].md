@@ -3508,3 +3508,15 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 —— 来自 HUAWEI LLD-AL00, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
 坂道激推啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 7733#       发表于 2022-5-11 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55783226&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-05-11 14:59:44</a>
+坂道激推啊</blockquote>不过她也说过特别喜欢拉拉，不过要论想加入，我估计还是坂道。不过对比以前做地下偶像时期，拉拉也是个挺大的跳板了，希望好好把握吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
