@@ -4584,3 +4584,36 @@ mea的人脉可叫不来西村博之、荒木美玲<img src="https://static.sara
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 10940#       发表于 2022-5-11 21:53
+
+手游能有活动限定卡池，楼友限时pick up怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游山赫乃丈丶  
+##### 10941#       发表于 2022-5-11 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55791513&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-5-11 21:53</a>
+
+手游能有活动限定卡池，楼友限时pick up怎么了</blockquote>
+明明是卡池复刻
+
+*****
+
+####  鷹書たかしょ  
+##### 10942#       发表于 2022-5-11 21:58
+
+哇浪，clay都出来了
+
+*****
+
+####  thisisaspider  
+##### 10943#       发表于 2022-5-11 21:58
+
+打起来！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
