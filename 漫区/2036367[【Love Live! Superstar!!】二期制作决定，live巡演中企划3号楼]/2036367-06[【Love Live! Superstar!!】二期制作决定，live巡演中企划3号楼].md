@@ -2816,3 +2816,21 @@ C6A67A44-D0E3-4D8A-A5CB-BA70D9ED0372.jpeg
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  megapikachu  
+##### 7685#       发表于 2022-5-11 08:07
+
+目前存疑
+
+Screenshot_20220511_073703_com.twitter.android.jpg
+(176.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 08:07 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/080719lfgogp8444ybfybp.jpg" referrerpolicy="no-referrer">
+
