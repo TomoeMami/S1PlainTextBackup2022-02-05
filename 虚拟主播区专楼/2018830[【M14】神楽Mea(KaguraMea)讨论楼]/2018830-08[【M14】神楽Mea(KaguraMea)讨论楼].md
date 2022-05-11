@@ -4674,3 +4674,14 @@ mea的人脉可叫不来西村博之、荒木美玲<img src="https://static.sara
 
 鬼知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 10951#       发表于 2022-5-11 22:55
+
+无聊，可是还在值班<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">来点直播呀
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
