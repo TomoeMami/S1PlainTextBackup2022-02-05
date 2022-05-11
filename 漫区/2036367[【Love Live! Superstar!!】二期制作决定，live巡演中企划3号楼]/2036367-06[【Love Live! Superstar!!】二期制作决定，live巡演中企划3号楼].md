@@ -2843,3 +2843,26 @@ Screenshot_20220511_073703_com.twitter.android.jpg
 
 cast出来了………………竟然还有个im 社的
 
+
+
+*****
+
+####  离心  
+##### 7687#       发表于 2022-5-11 08:42
+
+乖乖，还有一个04年的又有一个新的jk了
+
+*****
+
+####  forgetit  
+##### 7688#       发表于 2022-5-11 08:46
+
+这个应该是im历史上第一次进love live的正式编制
+
+*****
+
+####  cybernetics31  
+##### 7689#       发表于 2022-5-11 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所属公司全猜错了………………这么多年了im也从配角团转到主角了啊
+
