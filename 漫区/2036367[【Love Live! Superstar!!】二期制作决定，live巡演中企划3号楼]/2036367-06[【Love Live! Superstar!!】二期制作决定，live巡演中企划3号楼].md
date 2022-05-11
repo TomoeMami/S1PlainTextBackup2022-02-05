@@ -4181,3 +4181,51 @@ tmd为什么鱼就没有新人保护期</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 7789#       发表于 2022-5-11 23:33
+
+定妆的照片一直都很微妙，正式登场亮相后再看看
+
+*****
+
+####  仟音一心  
+##### 7790#       发表于 2022-5-11 23:34
+
+呃，过渡明显
+
+53D37275-790E-4D47-9517-4E3FC01BB49C.jpeg
+(326.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 23:34 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/233424iagviwkvguoy2dd4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7791#       发表于 2022-5-11 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">五老星实在太吸睛了
+
+*****
+
+####  cybernetics31  
+##### 7792#       发表于 2022-5-11 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了单人，绘森彩还行，大熊正面也凑合，i’m那位就………………
+
+*****
+
+####  aoaoaodedede  
+##### 7793#       发表于 2022-5-11 23:41
+
+ 本帖最后由 aoaoaodedede 于 2022-5-11 23:42 编辑 
+
+有一说一，个人觉得这新四人的一些设定总有点像老五人设定的修改版，有些元素感觉重叠的相对明显一点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这星团企划方到底准备写成5+4的liella!还是9人的liella!
+

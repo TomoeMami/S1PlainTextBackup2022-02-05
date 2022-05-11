@@ -12917,3 +12917,14 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 凯多多年前就知道自己要被joyboy打败，不知道是不是御田日记里写的，感觉下话进一步回忆就能奠定基调了。
 
+
+
+*****
+
+####  evangelina  
+##### 58080#       发表于 2022-5-11 23:30
+
+ 本帖最后由 evangelina 于 2022-5-11 23:31 编辑 
+
+敢情可爱多以前自杀失败是因为没遇到真正的乔伊波伊即五皇，这是诅咒还是祝福啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
