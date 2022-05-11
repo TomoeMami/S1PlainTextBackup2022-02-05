@@ -10379,3 +10379,29 @@ FSeQlZsWQAI0KrZ.jpg
 
 左边大剑妹有说法是对不起老婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87895#       发表于 2022-5-11 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55788284&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-11 19:57</a>
+
+2.6.5的标题是“死想显现界域 Traum 某幻想的生与死”。
+
+Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquote>
+不知道剧情会不会和莫莱扯上关系，如果真有圣殿骑士团的戏份，我奶一个五星的雨果•德•帕英，圣殿骑士团创始人。
+
+当然强行吃桃的话，我肯定希望实装男版的莫莱，从而开个好头...
+
+*****
+
+####  シャル  
+##### 87896#       发表于 2022-5-11 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55788830&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-11 20:18</a>
+
+如果2.6.5真的有查理曼的话，他这个“神圣罗马皇帝”不知道会不会和君11这个“罗马末代皇帝”有特殊对话... ...</blockquote>
+不罗马也是罗马<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

@@ -4426,3 +4426,46 @@ mea的人脉可叫不来西村博之、荒木美玲<img src="https://static.sara
 
 老东西，什么东西都不爆
 
+
+
+*****
+
+####  Thrall12345  
+##### 10924#       发表于 2022-5-11 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55786910&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-5-11 18:29</a>
+
+还说靠得住吗？
+
+—— 来自 S1Fun</blockquote>
+啊？靠得住靠不住又不管我的事 说个事实而已真不懂你们在想什么
+
+网络上的人确实是都靠不住，没毛病呀，对吧？就从来没说过具体谁靠得住，别抬杠了
+
+顺便和你们说一下当时516之后杭州线下聚会都是些什么话题：
+
+“裁是真的不干人事”
+
+“我们真帮不了多少 希望774能帮到她吧”
+
+"事到如此774不是男友问题才更大吧 希望能负起责任"
+
+后来6佬改名soba，日本两大面食荞麦和乌冬，自己体会好吧。
+
+*****
+
+####  时间在我手中  
+##### 10925#       发表于 2022-5-11 20:28
+
+用嘴说说谁都会，事实是什么确实也是有目共睹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Thrall12345  
+##### 10926#       发表于 2022-5-11 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55789129&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-5-11 20:28</a>
+
+用嘴说说谁都会，事实是什么确实也是有目共睹</blockquote>
+确实如此 所以当个看客多好 行业如此 能推的时候推 不能的时候就走完事了
+
