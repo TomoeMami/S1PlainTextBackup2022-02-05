@@ -4349,3 +4349,97 @@ tmd为什么鱼就没有新人保护期</blockquote>
 
 团体照新人这表情管理我算是明白什么叫青涩什么叫憨憨了<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7805#       发表于 2022-5-12 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概看了下qa 虽然都是些没用的批话但看到那句跟大家一起前进的时候多少有点绷不住 一年多以后的一起前进
+
+*****
+
+####  cat1230  
+##### 7806#       发表于 2022-5-12 00:01
+
+已经惨遭拉版吐槽了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  adw667  
+##### 7807#       发表于 2022-5-12 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/12/000151dw3ir6rgxu283r3r.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220512000042.png</strong> (15.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 00:01 上传
+
+*****
+
+####  cybernetics31  
+##### 7808#       发表于 2022-5-12 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉版咋说的？
+
+*****
+
+####  仟音一心  
+##### 7809#       发表于 2022-5-12 00:05
+
+身高决定pose
+
+EF70AC21-BE82-40D4-9A3E-1E46E78393D7.jpeg
+(85.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 00:05 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/000534nrrrxrr9n0x6rtmq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 7810#       发表于 2022-5-12 00:05
+
+QA可可的部分属实难绷，天蓝色底还白字，就不能弄成黑字吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7811#       发表于 2022-5-12 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了 です怪之后出了个ですの怪 什么roa金鱼
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7812#       发表于 2022-5-12 00:11
+
+才发现，米女这图，商店里在卖liella一期五人的谷子？
+
+*****
+
+####  cybernetics31  
+##### 7813#       发表于 2022-5-12 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过目测鱼的自拍课又要开了，邪术一搞还是能看的
+
+*****
+
+####  cat1230  
+##### 7814#       发表于 2022-5-12 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55794151&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-12 00:04</a>
+
+拉版咋说的？</blockquote>
+四季还行，是你们吹颜值的，其实是老5人水平太高之类，大概都是这些吧。也没有太大恶意，还能看。
+

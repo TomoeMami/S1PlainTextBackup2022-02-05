@@ -12170,3 +12170,19 @@ syl，可惜最后月之倒是没被辜负，本间桑没了
 
 难道不是成本和效益天然的对不上嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dybang  
+##### 13154#       发表于 2022-5-12 00:11
+
+3d太贵了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 13155#       发表于 2022-5-12 00:13
+
+不是团队不团队的问题，国内v圈那体量就是供不起纯3D直播势烧钱。a手扩成这样都赚不了几个钱，什么时候3D成本低到v圈供得起了什么时候虚拟偶像才能做下去。
+
