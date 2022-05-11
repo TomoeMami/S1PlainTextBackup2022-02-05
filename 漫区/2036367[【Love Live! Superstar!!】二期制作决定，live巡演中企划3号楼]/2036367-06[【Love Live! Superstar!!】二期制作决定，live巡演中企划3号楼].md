@@ -2945,3 +2945,21 @@ A1E4A63E-A3A0-4D71-97C5-1FA50FFD91D9.jpeg
 还有一个呢</blockquote>
 Suzuhara Nozomi看罗马音应该是铃木希实，但我完全没查到任何资料。
 
+
+
+*****
+
+####  仟音一心  
+##### 7696#       发表于 2022-5-11 09:19
+
+薮岛朱音的个人简介真的，不愧是四季
+
+5850B152-FD36-4F20-A51A-747CE2B8B62C.jpeg
+(102.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/091925s2fjn7jl55xljuln.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
