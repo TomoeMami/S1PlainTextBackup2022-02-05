@@ -4705,3 +4705,33 @@ mea的人脉可叫不来西村博之、荒木美玲<img src="https://static.sara
 
 —— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+
+*****
+
+####  clvan_  
+##### 10954#       发表于 2022-5-11 23:25
+
+摸得透澈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜周末才播
+
+*****
+
+####  椎名mahuyo  
+##### 10955#       发表于 2022-5-11 23:27
+
+太弱智了，我要死了
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  游山赫乃丈丶  
+##### 10956#       发表于 2022-5-11 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55793624&amp;ptid=2018830" target="_blank">椎名mahuyo 发表于 2022-5-11 23:27</a>
+
+太弱智了，我要死了
+
+—— 来自 realme RMX3350, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+弱智不好吗？ 弱智才好！
+

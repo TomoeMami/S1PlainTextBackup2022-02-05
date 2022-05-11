@@ -4113,3 +4113,71 @@ tmd为什么鱼就没有新人保护期</blockquote>
 
 最好是化妆师摄影师的锅，要是唱歌舞蹈也跟不上，那这四人就哦豁咯
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7781#       发表于 2022-5-11 23:22
+
+“<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">老人为什么不带带新人，前辈打压后辈是吧，有梁木了”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 7782#       发表于 2022-5-11 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55793194&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-11 23:04</a>
+
+公式照出了，四个新人感觉好羞涩的样子</blockquote>
+虽然我这么说可能不太礼貌，但这四人的颜值完全是拉低LIELLA的平均值啊..<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7783#       发表于 2022-5-11 23:23
+
+<img src="https://p.sda1.dev/5/81443914a93310073afc676ab80b956f/0CF647AFF06BB649B5982011E3E960C5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/688b801fd80d24105c210a1590206cb6/2DEAD60108C90F967DB5BA694D5814F8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/6e98232d68375e25aa0c6782087cfd32/0B7BA4BCEA35FA9BD7B24A3F2B74D7B5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/9b2ea934a5938727101d6e6b12e4cd4b/1B1C55C57832802FCED87AC2057319BB.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/1fdb3be1aa7ac0a73ec887fb70896c1f/1CE0C084EABC5A6E382A2366D7D17B48.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7784#       发表于 2022-5-11 23:24
+
+这个自拍。。。。。。。。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7785#       发表于 2022-5-11 23:26
+
+话说钢琴之森老哥是团体运营的公车号还是私人号，几乎所有内容都有搬运，让我想起以前的5+大佬了
+
+*****
+
+####  player3960  
+##### 7786#       发表于 2022-5-11 23:26
+
+早上看就觉得一般，定妆照更是一般，唉～老五人的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 7787#       发表于 2022-5-11 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7788#       发表于 2022-5-11 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
