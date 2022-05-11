@@ -2918,3 +2918,30 @@ A1E4A63E-A3A0-4D71-97C5-1FA50FFD91D9.jpeg
 
 还有一个呢来自: iPhone客户端
 
+
+
+*****
+
+####  iuhehc  
+##### 7693#       发表于 2022-5-11 09:04
+
+04年.. 还是震惊了一小下
+
+*****
+
+####  starring  
+##### 7694#       发表于 2022-5-11 09:07
+
+ 本帖最后由 starring 于 2022-5-11 09:09 编辑 
+
+04年2月刚好18岁，如果今年还有跨年live也不会缺席
+
+*****
+
+####  仟音一心  
+##### 7695#       发表于 2022-5-11 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55777468&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-5-11 08:55</a>
+还有一个呢</blockquote>
+Suzuhara Nozomi看罗马音应该是铃木希实，但我完全没查到任何资料。
+

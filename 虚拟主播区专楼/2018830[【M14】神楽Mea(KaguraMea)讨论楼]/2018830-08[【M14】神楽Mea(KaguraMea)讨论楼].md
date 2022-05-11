@@ -3546,3 +3546,25 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 还以为播了一下子那么多页，结果是as的事情，什么时候小麻被开盒会毕业吗
 
+
+
+*****
+
+####  ashero  
+##### 10834#       发表于 2022-5-11 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55777360&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-5-11 08:47</a>
+还以为播了一下子那么多页，结果是as的事情，什么时候小麻被开盒会毕业吗 ...</blockquote>
+盒<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">已经被麻麻爆杀了
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 10835#       发表于 2022-5-11 09:06
+
+ 本帖最后由 やト 于 2022-5-11 09:10 编辑 
+
+为什么要毕业，就算真被盒了，她想播就继续播啊，又不是什么见不得人的事。
+
