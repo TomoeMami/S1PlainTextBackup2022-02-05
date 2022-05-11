@@ -2963,3 +2963,32 @@ Suzuhara Nozomi看罗马音应该是铃木希实，但我完全没查到任何�
 
 <img src="https://img.saraba1st.com/forum/202205/11/091925s2fjn7jl55xljuln.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 7697#       发表于 2022-5-11 09:26
+
+3个都是纯新人，剩下一个大概率也是吧。
+没啥好考据的，im那个配音水平应该挺高的，其他的也看不出来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 7698#       发表于 2022-5-11 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前爆出来的三个人的颜还是一般了些，果然青山这种才是少数啊
+
+*****
+
+####  player3960  
+##### 7699#       发表于 2022-5-11 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55777934&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-11 09:27</a>
+
+这个步枪射击就很im，目前爆出来的三个人的颜还是一般了些，果然青山这种才是少数啊 ...</blockquote>
+青山的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，反正看了一圈这4个，感觉，嗯，只能说选人不过不失
+
