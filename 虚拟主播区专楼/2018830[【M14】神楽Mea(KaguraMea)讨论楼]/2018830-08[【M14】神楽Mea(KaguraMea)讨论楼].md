@@ -3979,3 +3979,39 @@ mea在混出头的那批个人势里算是发展最一般的。
 发展好不好我不关心这种事，我只关心眼前的一瞬间</blockquote>
 眼前发生的事？大乱斗连跪3把，陪着她黑铁3的好朋友打匹配呢。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 10876#       发表于 2022-5-11 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780311&amp;ptid=2018830" target="_blank">Thrall12345 发表于 2022-5-11 12:00</a>
+有压力的时候身边有没有人 差别很大
+
+网络上的人靠不住的 还得现实</blockquote>
+12.7时候身边的人死哪去了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  时间在我手中  
+##### 10877#       发表于 2022-5-11 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55781000&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-11 12:40</a>
+
+眼前发生的事？大乱斗连跪3把，陪着她黑铁3的好朋友打匹配呢。</blockquote>
+日常罢了，今晚不播还要和人去打游戏抢首通<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 10878#       发表于 2022-5-11 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780293&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2022-5-11 11:59</a>
+就默认乌冬是774了吗</blockquote>
+乌冬到底是哪个
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

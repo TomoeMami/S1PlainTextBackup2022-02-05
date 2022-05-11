@@ -3361,3 +3361,53 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 四个人担任的角色偷跑了吗来自: iPhone客户端
 
+
+
+*****
+
+####  cat1230  
+##### 7721#       发表于 2022-5-11 12:49
+
+<blockquote>引用第7718楼starring于2022-05-11 12:05发表的  :
+
+前偶像，年龄最小，担任的角色设定和堇有重合，而且还已经掌握料理技能，这下子是pay被背刺了</blockquote>
+@starring
+
+然后和鲤鱼组cp<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 7722#       发表于 2022-5-11 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780427&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-5-11 12:09</a>
+四个人担任的角色偷跑了吗</blockquote>
+按杂志一一对应的顺序
+米女メイ 役 薮岛朱音
+
+若菜四季 役 大熊和奏
+
+鬼塚夏美 役 绘森彩
+樱小路きな子 役 铃原希实
+
+*****
+
+####  仟音一心  
+##### 7723#       发表于 2022-5-11 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780368&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-11 12:05</a>
+
+前偶像，年龄最小，担任的角色设定和堇有重合，而且还已经掌握料理技能，这下子是pay被背刺了 ...</blockquote>
+注意身高 163
+
+2259C173-AD29-4E9B-AA75-2136F53D42A7.jpeg
+(82.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/125115nxhb0klzapxchkxx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
