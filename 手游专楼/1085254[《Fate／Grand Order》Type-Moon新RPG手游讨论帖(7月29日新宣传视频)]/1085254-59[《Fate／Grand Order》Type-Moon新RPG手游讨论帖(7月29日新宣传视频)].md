@@ -10333,3 +10333,49 @@ Traum是德语“梦想，幻境”的意思，好像没有对应的地名。
 不至于都是十二圣骑士吧，难不成6.5是要咕哒带君十一杀穿神罗吗？这未免也太罗马了 ...</blockquote>
 也许有可能的话蘑菇说不定会尝试把当初1.6废案耶路撒冷的剧情拿出来发挥一下余热...？
 
+
+
+*****
+
+####  シャル  
+##### 87892#       发表于 2022-5-11 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55788328&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2022-5-11 20:00</a>
+
+不至于都是十二圣骑士吧，难不成6.5是要咕哒带君十一杀穿神罗吗？这未免也太罗马了 ...</blockquote>
+你看，头发一样的，毛的形态数量都一样
+
+FSeQnCYXIAE9F6L.jpg
+(12.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:15 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/201546yhmqj2qzzejjephj.jpg" referrerpolicy="no-referrer">
+
+FSeQlZsWQAI0KrZ.jpg
+(28.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:15 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/201547yjizoukkqqohaiou.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 87893#       发表于 2022-5-11 20:18
+
+如果2.6.5真的有查理曼的话，他这个“神圣罗马皇帝”不知道会不会和君11这个“罗马末代皇帝”有特殊对话...
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 87894#       发表于 2022-5-11 20:20
+
+左边大剑妹有说法是对不起老婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

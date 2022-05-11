@@ -3887,3 +3887,64 @@ tmd为什么鱼就没有新人保护期</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜你拉估计还是有背景审查的 搞不出出道前就毕业的好活
 
+
+
+*****
+
+####  名津流  
+##### 7762#       发表于 2022-5-11 20:19
+
+笑死，在群里看到个图：
+
+<img src="https://img.saraba1st.com/forum/202205/11/201821xqyhiq9s36v03yj0.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (119.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:18 上传
+
+然后去找原视频看了看
+
+<img src="https://img.saraba1st.com/forum/202205/11/201847lqt6vrtl2jkebl44.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (75.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/201847l23t2ffftdktegft.png" referrerpolicy="no-referrer">
+
+<strong>03.png</strong> (82.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/201848vke55c3ixezkg5cs.png" referrerpolicy="no-referrer">
+
+<strong>04.png</strong> (76.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/201848jy3xcmlcynxyxlfn.png" referrerpolicy="no-referrer">
+
+<strong>05.png</strong> (59.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/201848nbffb454qoj573ss.png" referrerpolicy="no-referrer">
+
+<strong>06.png</strong> (55.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:18 上传
+
+这tm台词居然微妙地对上了，简直要怀疑这导演是故意的了
+
