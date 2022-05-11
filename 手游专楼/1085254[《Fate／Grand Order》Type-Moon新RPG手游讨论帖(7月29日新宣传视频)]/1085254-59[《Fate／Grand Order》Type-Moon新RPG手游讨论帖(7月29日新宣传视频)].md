@@ -10405,3 +10405,37 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 如果2.6.5真的有查理曼的话，他这个“神圣罗马皇帝”不知道会不会和君11这个“罗马末代皇帝”有特殊对话... ...</blockquote>
 不罗马也是罗马<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87897#       发表于 2022-5-11 20:31
+
+ 本帖最后由 Jamaisvu 于 2022-5-11 20:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55788899&amp;ptid=1085254" target="_blank">シャル 发表于 2022-5-11 20:21</a>
+
+不罗马也是罗马</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1584416-1-1.html](https://bbs.saraba1st.com/2b/thread-1584416-1-1.html)
+
+<img src="https://img.saraba1st.com/forum/202205/11/202720xt05dfv5yvy0tyfz.jpg" referrerpolicy="no-referrer">
+
+<strong>c638d99egy1fouc2jxoemj20g40d6q4r.jpg</strong> (79.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 20:27 上传
+
+话说上一个主线外传通古斯生态圈是樱井光脚本，TM卧龙凤雏中的另外一位东出佑一郎也该动动笔了。
+
+正好Fate Extella Link的脚本是东出佑一郎和小太刀右京（这俩名字放一块我不禁肝颤<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">），那么查理曼及十二骑士登场的可能性就更大了。
+
+（Fate Extella的脚本是蘑菇和樱井，真是差别对待啊）
+
+*****
+
+####  khxooo  
+##### 87898#       发表于 2022-5-11 20:35
+
+多谢yls的石头，终于抽到了鼠鼠了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
