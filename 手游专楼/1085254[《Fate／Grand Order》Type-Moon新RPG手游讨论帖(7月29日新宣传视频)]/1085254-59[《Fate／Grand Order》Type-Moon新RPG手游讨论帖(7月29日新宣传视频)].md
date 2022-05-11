@@ -10151,3 +10151,79 @@ C呆复刻
 
 <img src="https://img.saraba1st.com/forum/202205/11/183816ebs9bsqdtbdbbgg0.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 87874#       发表于 2022-5-11 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">四星要从new尼托还是new海妈里面选了……
+
+*****
+
+####  黑上シグマ  
+##### 87875#       发表于 2022-5-11 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55787080&amp;ptid=1085254" target="_blank">シャル 发表于 2022-5-11 18:38</a>
+
+6.5加罗兰了
+
+左边的大剑女会是啥呢</blockquote>
+等等，左三这怎么感觉是查理曼
+
+*****
+
+####  rooarr  
+##### 87876#       发表于 2022-5-11 18:43
+
+看来下一轮自选5星就在明年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 87877#       发表于 2022-5-11 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为了石头是不是应该选红A呢 毕竟两个幕间加三个强化本
+
+*****
+
+####  yangun22  
+##### 87878#       发表于 2022-5-11 18:44
+
+只写了登场，估计不会全部落地的，真要一下来6个也吃不消
+
+*****
+
+####  シャル  
+##### 87879#       发表于 2022-5-11 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55787164&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-5-11 18:43</a>
+
+等等，左三这怎么感觉是查理曼</blockquote>
+制服像
+
+280px-Extella_Link_Charlemagne.png
+(32.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/184609mw2064gzafr0z6fi.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 87880#       发表于 2022-5-11 18:46
+
+还行，选个赫妃完事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 87881#       发表于 2022-5-11 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">毫无波动…不过四星从者刚好可以选个巴御前
+
