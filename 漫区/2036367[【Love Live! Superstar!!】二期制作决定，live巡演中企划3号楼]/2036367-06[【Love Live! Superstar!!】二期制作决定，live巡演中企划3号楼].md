@@ -3481,3 +3481,16 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 中和下鲤鱼的身高挺好的。有个163鲤鱼就不那么突兀了
 
+
+
+*****
+
+####  ads147147  
+##### 7731#       发表于 2022-5-11 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55781448&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-11 13:04</a>
+哈哈哈，这不就巧了吗。隔壁有人说看她以前的节目，她说自己是坂道脑残粉，如果现在问他她想做什么，就是立 ...</blockquote>
+说起来，东北步梦的时候也整活说排名要是再低下去就跑去肥秋那边，这个也算传统吗。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
