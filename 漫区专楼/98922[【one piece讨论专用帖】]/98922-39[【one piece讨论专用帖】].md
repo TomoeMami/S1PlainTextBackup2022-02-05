@@ -12817,3 +12817,12 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 那个说不准弄哭我的航海士的路飞</blockquote>
 有点模板化了   其实劣化最严重的是乔巴   一开始真的很有小动物感   那种有了智商后知道自己不是人类但想融入又不知道办法的拧巴感觉   现在纯吉祥物了  头身比例都变Q了  还加了个喜欢棉花糖的设定<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  7sevenseven  
+##### 58072#       发表于 2022-5-11 14:10
+
+和之国真是垃圾中的垃圾
+
