@@ -4004,3 +4004,44 @@ tmd为什么鱼就没有新人保护期</blockquote>
 
 为啥不能放？不放还是S1吗？这贴是因为大家都太和平了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7768#       发表于 2022-5-11 23:04
+
+公式照出了，四个新人感觉好羞涩的样子
+
+<img src="https://img.saraba1st.com/forum/202205/11/230506pus1g6i3dk16sv46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (245.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 23:05 上传
+
+*****
+
+####  Cryogenian  
+##### 7769#       发表于 2022-5-11 23:05
+
+官图已出
+
+*****
+
+####  cybernetics31  
+##### 7770#       发表于 2022-5-11 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然，颜好一般
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这定妆照对比有点强
+
+
+
+*****
+
+####  dozen  
+##### 7771#       发表于 2022-5-11 23:08
+
+这若叶役怎么正脸和侧脸不像同一人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
