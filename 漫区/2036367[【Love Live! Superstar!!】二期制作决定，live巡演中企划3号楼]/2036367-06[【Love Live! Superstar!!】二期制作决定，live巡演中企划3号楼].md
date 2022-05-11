@@ -3494,3 +3494,17 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  靡宜  
+##### 7732#       发表于 2022-5-11 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55781374&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-5-11 13:00</a>
+
+绘森彩总觉得有一股坂道的味道
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+坂道激推啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
