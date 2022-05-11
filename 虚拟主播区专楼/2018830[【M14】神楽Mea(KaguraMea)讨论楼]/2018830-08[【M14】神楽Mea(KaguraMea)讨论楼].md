@@ -3754,3 +3754,93 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 简单来说，当年作为一个初中生她没这个防范意识。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gongge666  
+##### 10855#       发表于 2022-5-11 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55779155&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-11 10:51</a>
+
+这不是相信不相信mea或者前世的问题。
+
+是非常简单的常识问题，
+
+人不能干出超出其常识和认知的事情。</blockquote>
+所以你以为就是小孩子不懂事不会撒谎咯，讲道理干了这么多年她老油条的地方又没少见。
+
+*****
+
+####  Dualist彩  
+##### 10856#       发表于 2022-5-11 10:56
+
+是774哥吗
+
+     
+
+<img src="https://img.saraba1st.com/forum/202205/11/105554cldsrasmacrxsh5d.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (129.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 10:55 上传
+
+*****
+
+####  古战场亡魂  
+##### 10857#       发表于 2022-5-11 10:56
+
+ 本帖最后由 古战场亡魂 于 2022-5-11 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55779231&amp;ptid=2018830" target="_blank">gongge666 发表于 2022-5-11 10:55</a>
+
+所以你以为就是小孩子不懂事不会撒谎咯，讲道理干了这么多年她老油条的地方又没少见。 ...</blockquote>
+我又无所谓咯，真要是连那个都是假的，我只能说她是天生干vtuber的料子。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怀疑论玩到最后没意思的。
+
+再说了，和vtuber这种出道后几个月内极需生日回打赏的不同。
+
+真人主播的生日这种隐私根本没啥好藏的，没有藏得价值。
+
+*****
+
+####  时间在我手中  
+##### 10858#       发表于 2022-5-11 10:58
+
+你麻这种挨打才能成长的人是很难违背自己某些长久以来的秉性的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+江山易改本性难移虽然多是用在贬义的时候，但是也说明很多了
+
+一个人要学会伪装自我，放下什么那么他必然要经历过什么，尤其是这种性格的人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10859#       发表于 2022-5-11 10:59
+
+ 本帖最后由 古战场亡魂 于 2022-5-11 11:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55779252&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2022-5-11 10:56</a>
+
+是774哥吗</blockquote>
+不是，不过这个也是nico的老人了。你774哥自己推特100万订阅的鸡汤账号都不经营了，
+
+各方面停止活动也挺长时间了，不知道在哪里。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 10860#       发表于 2022-5-11 11:02
+
+坏女人（
+
+
+
+*****
+
+####  十九号大侠  
+##### 10861#       发表于 2022-5-11 11:02
+
+在小麻的老家<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
