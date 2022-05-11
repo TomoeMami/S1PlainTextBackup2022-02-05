@@ -3718,3 +3718,14 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 10852#       发表于 2022-5-11 10:40
+
+平平安安就是福<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
