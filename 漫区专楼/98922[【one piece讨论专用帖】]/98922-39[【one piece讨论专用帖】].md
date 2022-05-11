@@ -12803,3 +12803,17 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 凯老师，身负历史门关的守门人，兢兢业业数十载，明知不可为而为之，与命运搏斗力战不敌，我哭死
 
+
+
+*****
+
+####  zxzx7753  
+##### 58071#       发表于 2022-5-11 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55750184&amp;ptid=98922" target="_blank">穆 发表于 2022-5-9 11:27</a>
+
+我好怀念2年前的路飞哎
+
+那个说不准弄哭我的航海士的路飞</blockquote>
+有点模板化了   其实劣化最严重的是乔巴   一开始真的很有小动物感   那种有了智商后知道自己不是人类但想融入又不知道办法的拧巴感觉   现在纯吉祥物了  头身比例都变Q了  还加了个喜欢棉花糖的设定<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

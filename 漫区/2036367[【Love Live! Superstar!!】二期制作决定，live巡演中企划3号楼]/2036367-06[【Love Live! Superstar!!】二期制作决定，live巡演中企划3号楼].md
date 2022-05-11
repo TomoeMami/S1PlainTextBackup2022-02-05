@@ -3422,3 +3422,25 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 —— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+
+*****
+
+####  Enakina  
+##### 7725#       发表于 2022-5-11 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55781374&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-05-11 13:00:51</a>
+绘森彩总觉得有一股坂道的味道
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的  v2.2.2</blockquote>哈哈哈，这不就巧了吗。隔壁有人说看她以前的节目，她说自己是坂道脑残粉，如果现在问他她想做什么，就是立刻加入坂道
+结果……走错门来了拉拉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 7726#       发表于 2022-5-11 13:06
+
+还挺符合设定？
+
