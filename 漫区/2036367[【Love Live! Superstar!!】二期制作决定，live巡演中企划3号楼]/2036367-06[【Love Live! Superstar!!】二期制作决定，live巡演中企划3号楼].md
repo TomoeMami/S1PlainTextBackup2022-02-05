@@ -4600,3 +4600,38 @@ C64C2B8A-3FB7-4676-A367-D30E0AB3D6BB.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">颜值啥的其实也就这几天吐槽吐槽，到时候唱跳要是不行可就尴尬了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7828#       发表于 2022-5-12 01:14
+
+乐<img src="https://p.sda1.dev/5/e9275862257800209cf36b7f47f36391/FC18122AF222C28514D610CB2A2B6151.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lanslort  
+##### 7829#       发表于 2022-5-12 01:16
+
+大雄还不错啊，有种肥秋系女主角的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7830#       发表于 2022-5-12 01:17
+
+要是舞台表现也出现断层，那就真的裂啦<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 7831#       发表于 2022-5-12 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55794860&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-05-12 01:14:49</a>
+乐</blockquote>我也觉得看的好乐，4个人有没有都没区别
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
