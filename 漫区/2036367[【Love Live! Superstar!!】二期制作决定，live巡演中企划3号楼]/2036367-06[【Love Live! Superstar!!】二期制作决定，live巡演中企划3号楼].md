@@ -3175,3 +3175,12 @@ C0F926AF-B25F-4E6A-8837-D49B807DEDB9.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/11/094600xzzrpr7eljr0wrr8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 7703#       发表于 2022-5-11 10:04
+
+嗯，看来青山确实是够得上破格的说法了，没有海选扣下来的乐子w。这么年轻也不可能有什么参加过其他几个团的选拔，基本上就是找干净人让黑子无处可喷。在声优盾上，代哥还是想当稳定的。
+
