@@ -4229,3 +4229,62 @@ tmd为什么鱼就没有新人保护期</blockquote>
 
 有一说一，个人觉得这新四人的一些设定总有点像老五人设定的修改版，有些元素感觉重叠的相对明显一点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这星团企划方到底准备写成5+4的liella!还是9人的liella!
 
+
+
+*****
+
+####  ykyin09  
+##### 7794#       发表于 2022-5-11 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55793690&amp;ptid=2036367" target="_blank"> cybernetics31 发表于 2022-5-11 23:31</a> 安心d鱼了，鱼今天翻了青山的牌又去翻chiha的牌了 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟撒尼帕（来自: iPhone客户端
+
+*****
+
+####  Piano-Forest  
+##### 7795#       发表于 2022-5-11 23:44
+
+<img src="https://p.sda1.dev/5/feabb36729b9539b2988d520aefcc2b4/20220511_233923.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/7bb62ba948f29672f98f5656f79ac0be/20220511_233930.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/e372923da9f6b6c27bf230043f2c6378/20220511_234057.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/0532a230946d4800c4962107655af7a3/20220511_234211.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/b390a62b51fd60386dbcb7998a47a430/20220511_234405.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7796#       发表于 2022-5-11 23:48
+
+团子大家族
+
+762C551A-EA83-4272-BE7D-5931650EBD46.jpeg
+(49.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/234820ir30ntkuufoof3dr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7797#       发表于 2022-5-11 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不得不说，兔底子是真的好，加团子完全不影响颜值
+
+*****
+
+####  宋西湖  
+##### 7798#       发表于 2022-5-11 23:51
+
+我又脸盲了，看来得花时间认人，
+
+*****
+
+####  lj205  
+##### 7799#       发表于 2022-5-11 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55793877&amp;ptid=2036367" target="_blank">Piano-Forest 发表于 2022-5-11 23:44</a></blockquote>
+可可这<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
