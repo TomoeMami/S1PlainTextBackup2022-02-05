@@ -9891,3 +9891,127 @@ riyo画本职工作还是挺在行的，一如既往的搞笑
 會加梅林給他人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家想到的 舍弃(
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87848#       发表于 2022-5-11 18:20
+
+安定的2500W
+
+*****
+
+####  alucardcz  
+##### 87849#       发表于 2022-5-11 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浓!缩!树!脂!(
+
+*****
+
+####  alucardcz  
+##### 87850#       发表于 2022-5-11 18:25
+
+c呆。。省石了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87851#       发表于 2022-5-11 18:26
+
+C呆PU…………
+
+*****
+
+####  シャル  
+##### 87852#       发表于 2022-5-11 18:26
+
+C呆复刻
+
+屏幕截图 2022-05-11 182557.png
+(294.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:26 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/182621qdhyhvuaqsqdk4aw.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87853#       发表于 2022-5-11 18:27
+
+什么垃圾交换券
+
+*****
+
+####  alucardcz  
+##### 87854#       发表于 2022-5-11 18:27
+
+4星自选。。。。。。。。。但是是礼装 有个p用<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 87855#       发表于 2022-5-11 18:28
+
+少四星礼装的可以选一个了
+
+屏幕截图 2022-05-11 182719.png
+(296.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/182803tdeu2ed2e11ze2x4.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87856#       发表于 2022-5-11 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然4星从者也有  还能选新的 不错
+
+*****
+
+####  シャル  
+##### 87857#       发表于 2022-5-11 18:28
+
+自选四星
+
+屏幕截图 2022-05-11 182823.png
+(301.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/182850s7ew21ev4seqe7er.png" referrerpolicy="no-referrer">
+
+屏幕截图 2022-05-11 182925.png
+(277.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/182951o9n3jvv3fo9uj0ah.png" referrerpolicy="no-referrer">
+
+屏幕截图 2022-05-11 182936.png
+(271.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-11 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202205/11/182952s8z2cr7f87rhrt02.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87858#       发表于 2022-5-11 18:30
+
+恒常四星全都有了，垃圾券
+
