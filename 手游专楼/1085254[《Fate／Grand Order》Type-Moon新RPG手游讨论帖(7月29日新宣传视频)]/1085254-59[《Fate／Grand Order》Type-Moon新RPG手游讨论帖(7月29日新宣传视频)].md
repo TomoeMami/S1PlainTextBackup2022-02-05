@@ -10227,3 +10227,12 @@ C呆复刻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">毫无波动…不过四星从者刚好可以选个巴御前
 
+
+
+*****
+
+####  xiongxingyu  
+##### 87882#       发表于 2022-5-11 19:06
+
+左三大概率是夏露露的新衣服，毕竟罗兰一个人落地也有点单薄。我个人倒是比较好奇左二男，这个闪电型的呆毛很有个性啊，估计打牌一定很强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
