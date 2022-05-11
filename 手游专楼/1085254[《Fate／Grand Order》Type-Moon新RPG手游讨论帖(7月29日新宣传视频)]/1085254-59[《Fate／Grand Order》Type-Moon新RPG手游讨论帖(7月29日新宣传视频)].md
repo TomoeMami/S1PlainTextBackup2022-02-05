@@ -10525,3 +10525,19 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 结果60抽顺带把C呆满宝了（以前两宝）
 
+
+
+*****
+
+####  alucardcz  
+##### 87906#       发表于 2022-5-11 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55793565&amp;ptid=1085254" target="_blank">ネロ 发表于 2022-5-11 23:22</a>
+
+喷了，本来想抽个妖崔，之后好拿券去换别的欧证
+
+结果60抽顺带把C呆满宝了（以前两宝）
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕  
+
