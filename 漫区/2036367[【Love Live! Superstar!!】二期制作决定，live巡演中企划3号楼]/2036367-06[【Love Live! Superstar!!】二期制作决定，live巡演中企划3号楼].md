@@ -3312,3 +3312,36 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 没时间练主要是，作为即战力来说上来舞蹈就艹这么狠要出事的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 7715#       发表于 2022-5-11 11:44
+
+讲道理，鱼以前上台经验还是不少的，新人跟不上也正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要加人就是会有跟不上的
+
+*****
+
+####  仟音一心  
+##### 7716#       发表于 2022-5-11 11:45
+
+反正最不用担心的是绘森彩，整个就一Pay子2.0，选人这块真玩明白了。
+
+*****
+
+####  lj205  
+##### 7717#       发表于 2022-5-11 11:47
+
+肯定秘密训练过一段时间了，不可能就直接上
+
+*****
+
+####  Enakina  
+##### 7718#       发表于 2022-5-11 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780067&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-05-11 11:45:57</a>
+反正最不用担心的是绘森彩，整个就一Pay子2.0，选人这块真玩明白了。</blockquote>实力也给我整个pay2.0（就5.6发售活动那种就行），那我什么屁话也没得说
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
