@@ -3303,3 +3303,12 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 代哥这个新人训练机制很稳定的，我反而觉得舞蹈是最不需要担心的地方，鲤鱼姐不也训练出来了，但是唱歌嘛。看代哥的做法，还真是有点不太科学，好苗子都能干废。
 
+
+
+*****
+
+####  stygian  
+##### 7714#       发表于 2022-5-11 11:41
+
+没时间练主要是，作为即战力来说上来舞蹈就艹这么狠要出事的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

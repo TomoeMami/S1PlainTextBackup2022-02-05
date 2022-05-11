@@ -3857,3 +3857,21 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  汇聚群光  
+##### 10863#       发表于 2022-5-11 11:36
+
+所以我到现在都不知道小麻的老家到底在哪里（盲猜一个千叶县）
+
+*****
+
+####  Mr.shelter  
+##### 10864#       发表于 2022-5-11 11:40
+
+你麻说抗压强也不强，老是自爆破防；说弱更不弱了，没企业兜底一个人擦自己屁股，大 大小小事情经历好多回但还在直播，这一路还挺传奇的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+顺便我特别喜欢以前别人锐评你咩时用的一个词，孽力回馈。这个词现在来评回隔壁可太恰当了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
