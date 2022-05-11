@@ -3960,3 +3960,22 @@ as出大事了，为啥楼友都回魂了，奇怪啊<img src="https://static.sa
 
 mea在混出头的那批个人势里算是发展最一般的。
 
+
+
+*****
+
+####  时间在我手中  
+##### 10874#       发表于 2022-5-11 12:38
+
+发展好不好我不关心这种事，我只关心眼前的一瞬间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 10875#       发表于 2022-5-11 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780966&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-5-11 12:38</a>
+
+发展好不好我不关心这种事，我只关心眼前的一瞬间</blockquote>
+眼前发生的事？大乱斗连跪3把，陪着她黑铁3的好朋友打匹配呢。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
