@@ -12219,3 +12219,56 @@ syl，可惜最后月之倒是没被辜负，本间桑没了
 
 —— 来自 OPPO PEHT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  cckuku  
+##### 13159#       发表于 2022-5-12 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55795015&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-5-12 01:30</a>
+ 没懂A手怎么从毕业一人到唐突爆炸的，结合前几天突然全被特定感觉有点怪怪的。 有没有关注的楼友说一下现在 ...</blockquote>
+珈乐打算解约毕业，其他四个人选择续约。粉丝挖到珈乐小号发现她过得很不开心，同时各种关于中之人待遇不好的流言开始疯传，接着粉丝就开始各种炎上发疯，结果今晚直播贝拉说，希望粉丝能尊重留下来的人的选择，并直言自己除了a手已经无家可归没地方可去了。
+以上就是我了解的情况，感觉基本矛盾就是中之人和粉丝的诉求不同罢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  noHentai  
+##### 13160#       发表于 2022-5-12 01:46
+
+ 本帖最后由 noHentai 于 2022-5-12 01:48 编辑 
+
+主要是以往到一夜爆炸地步的，都是当事人亲自把矛盾摆上台面直接起爆，例如游戏部、点生活。
+
+很少见单纯因为各种奇奇怪怪没啥实锤的传言而搞得全箱粉丝暴动的情况。
+也可能单纯是运气不好，赶上了毕业一人这么个敏感时期吧。但也就前几天刚好都特定出来，只能说运气太差。。。
+
+*****
+
+####  ghgfg  
+##### 13161#       发表于 2022-5-12 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55795156&amp;ptid=1972669" target="_blank">cckuku 发表于 2022-5-12 01:45</a>
+
+珈乐打算解约毕业，其他四个人选择续约。粉丝挖到珈乐小号发现她过得很不开心，同时各种关于中之人待遇不 ...</blockquote>
+我有个疑问，有人说小团体把控中之人信息这个事情到底丁真么？还有藏在幕后的究极粉头出来爆料是不是官方有意的？
+
+*****
+
+####  ghgfg  
+##### 13162#       发表于 2022-5-12 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55795169&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-5-12 01:46</a>
+
+主要是以往到一夜爆炸地步的，都是当事人亲自把矛盾摆上台面直接起爆，例如游戏部、点生活。
+
+很少见单纯因 ...</blockquote>
+有人阴谋论说信息是故意放出来的，但很久之前在贴吧有小号“预言”过10号有人毕业，但这个是不是内部水军还没确定，
+
+*****
+
+####  cckuku  
+##### 13163#       发表于 2022-5-12 01:50
+
+认真的说:不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在说是运营自曝的也有，说离职内鬼的也有，真真假假。
+
