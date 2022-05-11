@@ -3411,3 +3411,14 @@ A653082E-DAD7-42AA-BC73-44D21249EEBD.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/11/125115nxhb0klzapxchkxx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梶原ひかり  
+##### 7724#       发表于 2022-5-11 13:00
+
+绘森彩总觉得有一股坂道的味道
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
