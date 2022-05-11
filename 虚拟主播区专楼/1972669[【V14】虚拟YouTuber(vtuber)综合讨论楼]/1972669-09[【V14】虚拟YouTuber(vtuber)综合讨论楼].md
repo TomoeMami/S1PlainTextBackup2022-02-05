@@ -12090,3 +12090,19 @@ noah还在就行
 
 黑客这么勤奋一下子还真不习惯……大A特A以后又变成玩独立游戏的大哥哥了，虽然他现在这幅不想搞节目效果了只想打游戏的顺便开个播的态度我也能接受，只是还能恢复杂谈就好了……黑听真的很舒服
 
+
+
+*****
+
+####  FCCHua  
+##### 13146#       发表于 2022-5-11 10:19
+
+旅团里昨天说会开的也就kmt，然后他就鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 13147#       发表于 2022-5-11 10:22
+
+玩ff14的都不可信赖<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

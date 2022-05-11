@@ -3184,3 +3184,29 @@ C0F926AF-B25F-4E6A-8837-D49B807DEDB9.jpeg
 
 嗯，看来青山确实是够得上破格的说法了，没有海选扣下来的乐子w。这么年轻也不可能有什么参加过其他几个团的选拔，基本上就是找干净人让黑子无处可喷。在声优盾上，代哥还是想当稳定的。
 
+
+
+*****
+
+####  starring  
+##### 7704#       发表于 2022-5-11 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55778449&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-5-11 10:04</a>
+
+嗯，看来青山确实是够得上破格的说法了，没有海选扣下来的乐子w。这么年轻也不可能有什么参加过其他几个团 ...</blockquote>
+毕竟声优盾这种事，财团B也不是第一次使用。
+
+目前三人都不是跟企划紧密关联的事务所，海选预备役这些乐子也证实假的
+
+*****
+
+####  ads147147  
+##### 7705#       发表于 2022-5-11 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55778567&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-11 10:13</a>
+
+毕竟声优盾这种事，财团B也不是第一次使用。
+
+目前三人都不是跟企划紧密关联的事务所，海选预备役这些乐子 ...</blockquote>
+纯新人有好处也有坏处，希望能掏出应有的实力堵嘴。越发觉得青山这么好的素材结果摊上花田的恋恋真的是太惨了，写歌的都比花田懂恋恋。
+
