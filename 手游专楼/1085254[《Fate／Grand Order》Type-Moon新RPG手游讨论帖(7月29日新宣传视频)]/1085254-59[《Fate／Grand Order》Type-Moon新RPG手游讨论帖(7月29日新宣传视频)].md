@@ -10627,3 +10627,30 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 （你挂的是不是带羁绊礼装的摩根啊，可能有路 ...</blockquote>
 我助战摩根带的是相扑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉是被人借去推图的？
 
+
+
+*****
+
+####  UNISONIA  
+##### 87914#       发表于 2022-5-12 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797256&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-12 09:34</a>
+
+因为traum这个指代不明的位置很奇怪，我就有些怀疑是不是本来的地名因为敏感因素被和谐了...
+
+另外君士坦 ...</blockquote>
+我猜测这章登场的角色可能都有某个共性，包括某个可能出场的Beast
+
+即为“剧情里出现的形象是传奇中的形象（幻想），并非完全是历史上的本人”
+
+例如这个“查理曼”在Extella Link里解释为偏重武功歌传说的形象，这个“罗兰”在阿福幕间里暗示是叙事诗奥兰多两部中的形象；可能回收利用塞入本章的卡利欧斯特罗伯爵是朱塞佩·巴尔萨莫的自封别名，而B6L某个可能的形象（在苍银中由豆爸提过）同样是某新兴宗教教宗的自称
+
+*****
+
+####  khxooo  
+##### 87915#       发表于 2022-5-12 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797428&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-5-12 09:47</a>
+我助战摩根带的是相扑感觉是被人借去推图的？</blockquote>
+估计是有新入坑的关注了你吧
+

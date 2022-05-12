@@ -5052,3 +5052,58 @@ ABC所属，宫崎县出身
 
 懂不懂水团六个人只增加了10%水平的含金量啊。或者换种思路，九个人也没赢，想出东京？等第三季吧。
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 7866#       发表于 2022-5-12 10:55
+
+第二季还是没有赢然后磨合好之后第三季一路杀穿？但是snp那时候都去家乡扶贫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7867#       发表于 2022-5-12 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798274&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-5-12 10:45</a>
+
+什么来头，有声音样本么</blockquote>
+
+【Liella! 新成员 ～多声线配音样本-哔哩哔哩】 
+[https://b23.tv/3RQYMwN](https://b23.tv/3RQYMwN)
+
+三个都有
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 7868#       发表于 2022-5-12 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798460&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-12 10:56</a>
+
+【Liella! 新成员 ～多声线配音样本-哔哩哔哩】 
+
+https://b23.tv/3RQYMwN
+
+三个都有</blockquote>
+还行.
+
+*****
+
+####  Enakina  
+##### 7869#       发表于 2022-5-12 11:00
+
+真靠加入打赢sp可太草了，那结论就是5个人是废物了，下次再输怎么办？别急，我们第三季在来3个，liella 十二星座，堂堂出战！
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 7870#       发表于 2022-5-12 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人都还没齐呢赢个屁 我们裂啦将以12人形态出击
+
