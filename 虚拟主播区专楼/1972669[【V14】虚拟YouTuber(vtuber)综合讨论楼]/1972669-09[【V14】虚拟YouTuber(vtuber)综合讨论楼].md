@@ -12447,3 +12447,25 @@ Syl，说MC没有突发联动，昨天inui和芙莲的世界服参观就突发�
 <blockquote>但看mc合服后的联动又觉得可能只是mc和ark在虹内过气了所以一时没有即兴联动的舞台而已</blockquote>
 对啊，所以我觉得可能只是因为mc过气了。不过他也说但是海外liver就比较积极比如之前有人生日纪念回变成了多人联动，可能是形容单纯本社间的突发联动吧……毕竟确实有些事en做了是节目效果在本社就会被炎<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13177#       发表于 2022-5-12 18:23
+
+ 本帖最后由 fastary 于 2022-5-12 18:25 编辑 
+
+bsyl，这场我挂着黑听做事没注意到，看到有人烤才发现黑客直说了自己的企划书老是被enkr毙掉[【【熟】经常被任何颜色ban企划的黛灰-哔哩哔哩】](https://b23.tv/PCjyCi8)
+
+在他宣布抑郁休息的时候我就觉得可能有部分原因是enkr一心搞偶像化没心思处理他那些需要权利确认之类的企划(好像也在v综说过好几次)……只是他明说之前也可能只是单纯私事或自己钻牛角尖所以也没法理直气壮，现在可以直接开骂了<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+话说他没有目标的迷茫和企划的难产恐怕也基于此吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 13178#       发表于 2022-5-12 18:30
+
+感觉不如圭利...被毙企划数（+3D穿小鞋）
+
