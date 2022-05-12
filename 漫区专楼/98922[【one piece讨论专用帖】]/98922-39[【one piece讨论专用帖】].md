@@ -13091,3 +13091,12 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 祝你在伟大航路一帆风顺，干杯，海贼王！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  24k纯帅  
+##### 58098#       发表于 2022-5-12 21:50
+
+伏特加王国是想暗示什么<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
