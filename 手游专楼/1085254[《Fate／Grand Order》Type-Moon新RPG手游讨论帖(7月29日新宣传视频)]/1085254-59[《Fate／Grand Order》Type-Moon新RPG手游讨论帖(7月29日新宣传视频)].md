@@ -10761,3 +10761,19 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 东出的活动写的水平忽上忽下，我这次还挺期待他翻车的
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87924#       发表于 2022-5-12 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800717&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-5-12 13:19</a>
+
+应该是黑幕（可能是Beast）制造了Traum这一个领域然后把具有相同性质的人拉进来实现他的目的，要是再整查 ...</blockquote>
+按照你这个思路，说不定这次登场的BeastV或者BeastVI的R和L两个分身，就分别是一个存在的史实和幻想两个形态。
+
+这么一想尼禄是真的挺合适，火灾艺术家与666之兽...正好FEXlink里也有维纳斯尼禄，不知道2.6.5会不会给出场机会呢，新增这么多罗马从者...
+
+不过FATE的尼禄塑造基本定型了，而且街机那里已经出场...总不能兽六是尼禄麻将桌吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

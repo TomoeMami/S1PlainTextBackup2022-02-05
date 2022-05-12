@@ -5057,3 +5057,45 @@ gw总共不算联动是不是就播了一两次<img src="https://static.saraba1s
 
 属于是大本钟级别的摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  草牛  
+##### 10990#       发表于 2022-5-12 13:45
+
+错误的，7号还和赤坂打了麻将
+
+*****
+
+####  Kayz996  
+##### 10991#       发表于 2022-5-12 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">说那么多，倒是来点旧麻图啊
+
+*****
+
+####  路人庚  
+##### 10992#       发表于 2022-5-12 13:48
+
+出门录NB节目也是在干活啊，而且估计比正常直播还累
+
+*****
+
+####  rosevalley46  
+##### 10993#       发表于 2022-5-12 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55801094&amp;ptid=2018830" target="_blank">草牛 发表于 2022-5-12 13:45</a>
+
+错误的，7号还和赤坂打了麻将</blockquote>
+联动我都没算的
+
+*****
+
+####  草牛  
+##### 10994#       发表于 2022-5-12 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55801157&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2022-5-12 13:49</a>
+联动我都没算的</blockquote>
+你不算我算😡👊🏻
+
