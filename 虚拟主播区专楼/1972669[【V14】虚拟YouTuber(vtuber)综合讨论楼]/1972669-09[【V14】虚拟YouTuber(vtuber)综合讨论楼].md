@@ -12510,3 +12510,20 @@ Meari还经常直播学英语，想吸en观众已经很久了。主要我说的�
 
 en好处是人少，fnn有先见开了新服让其他人有热情去建设，又有四服互通有方便联动，にじ鯖短暂黄金期了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13183#       发表于 2022-5-12 19:16
+
+我一直以为绿仙不做企划是被anti干碎了，原来是傻逼运营<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">听你们这一说想起之前王霸山天天耐久回去看了下，虹二军不少在奋起啊是受什么刺激吗
+
+<img src="https://img.saraba1st.com/forum/202205/12/191226rmnikek91ndzwe8d.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220512191103.png</strong> (356.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 19:12 上传
+
