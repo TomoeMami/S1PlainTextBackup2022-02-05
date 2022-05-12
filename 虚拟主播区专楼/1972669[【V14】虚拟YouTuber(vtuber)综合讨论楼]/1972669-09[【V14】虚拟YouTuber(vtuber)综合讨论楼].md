@@ -12404,3 +12404,27 @@ selen这ow2联动带了人气最高的vox还有前职业引流然后每个分部
 用什么语言啊
 长尾有英语能力？
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13173#       发表于 2022-5-12 17:52
+
+ 本帖最后由 alcoholic1000 于 2022-5-12 17:54 编辑 
+
+长尾英検2級，TOEIC850，口语一般
+
+Syl，说MC没有突发联动，昨天inui和芙莲的世界服参观就突发联动了seffyna（元kr）suha（元kr）以及alban（en），alban台还联动了阿喵喵；
+
+楼友可能不怎么看mc了，阿喵喵之前已经在参观en服的时候和en的alban, sonny, luca三位en男不开麦联动过，狠狠吸了一波en观众
+
+めありー准备给虹jp服增设路标设施，有成为jp导游第一人的潜力，到时候跨服参观都需要联系她，有野心的女人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 13174#       发表于 2022-5-12 17:59
+
+阿喵真的有那么心机吗？她好坏我好爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
