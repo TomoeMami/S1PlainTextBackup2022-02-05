@@ -12548,3 +12548,21 @@ en好处是人少，fnn有先见开了新服让其他人有热情去建设，又
 因为要避开cr杯所以延期了啊
 syl selly、小熊猫、葛叶，这个阵容什么钦定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 13186#       发表于 2022-5-12 20:13
+
+感觉selly这队有希望……
+
+king现在真的很强
+
+*****
+
+####  _Ra1nMaker  
+##### 13187#       发表于 2022-5-12 20:14
+
+这次可不得把selly哥哄高兴点，再不夺冠估计以后真不想参加这种娱乐赛了
+
