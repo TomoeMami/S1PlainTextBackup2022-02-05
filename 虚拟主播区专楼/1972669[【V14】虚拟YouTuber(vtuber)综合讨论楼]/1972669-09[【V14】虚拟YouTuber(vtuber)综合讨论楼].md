@@ -12349,3 +12349,48 @@ selen这ow2联动带了人气最高的vox还有前职业引流然后每个分部
 
 大家都在努力呢，彩虹大融合真的是太好了，
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13171#       发表于 2022-5-12 17:27
+
+<img src="https://img.saraba1st.com/forum/202205/12/172630mwu5cir1od4df6ob.png" referrerpolicy="no-referrer">
+
+<strong>Overwatch 2 国际联动!! .png</strong> (61.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 17:26 上传
+
+ <blockquote>🎮 Overwatch 2 国际联动!! 🎮
+
+■ imi参加了Selen组织的OW2国际联动！在当天，我们会进行常规的5V5娱乐比赛。比赛结束后，我们会进行一些工坊小游戏！
+
+■ 除了imi之外，当天会来参加的NIJISANJI成员有
+
+・Selen Tatsuki (NIJISANJI EN)
+
+・Vox Akuma (NIJISANJI EN)
+
+・長尾 景 (NIJISANJI)
+
+・Min Suha (NIJISANJI)
+
+・Lee Roha (NIJISANJI)
+
+・Miyu Ottavia (NIJISANJI)
+
+■ 除此之外，还有三位职业选手/百强特邀嘉宾！他们分别是
+
+・Surefour 
+
+・sleepy
+
+・RubenSargasm
+
+■ 为了平衡各个不同地区主播的时间，直播将会在北京时间5月13日周五晚11点开始！</blockquote>
+
+雷岁不是维阿人有点可惜了
+

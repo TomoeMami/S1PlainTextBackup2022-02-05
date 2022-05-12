@@ -5576,3 +5576,27 @@ yura
 
 <img src="https://img.saraba1st.com/forum/202205/12/160314qtomi4mm4o3oei8w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星降る森  
+##### 7914#       发表于 2022-5-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800440&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-12 12:58</a>
+
+很好奇SMA究竟有什么瓜能那么大民愤，灯的事情略有了解，但是SMA对杏树，hnk 和pay好像都没什么约束 ...</blockquote>
+对杏树hnk也有，不如说这次对SMA不满就是因为杏树开始的，水团时隔两年久违回沼津开FMT，但是算上前一天广播公录，身为立德的杏树居然一天都没有出席。查询schedule，也只有水FMT后一周杏树有个个人舞台剧演出的信息，这FMT至多也就撞了个排练，而SMA连排练日程都不能商讨错开引起公愤。
+
+从这FMT继续往前推，会发现杏树在一年多的时间内没有出席任何水生放/广播。
+
+同事务所的灯出席率同样极度堪忧，舞台上因为SMA鉴定的膝盖伤势只唱solo，MC都只露一半脸。现在舞台上看不到灯的遗憾连生放送/广播也补不回来，AZUNA回放送前生放都缺席了。与此同时个人活动排的还比较满。
+
+除了上面说的，还有对于杏树楠木发照片管制，杏树1次，楠木至少4次提示不要无断转载。
+
+这种种累加起来就给部分粉丝有一种SMA拿拉当垫脚石，但关键场合又不给放人只想给自己主导活动赚钱的意思。
+
+顺便，其实关于这个中日有差分，日本那边是有部分人抨击声优的，国内几个粉圈知名人物直接把矛头指向SMA。
+
+最后，至于pay管的少可能单纯是名气还没起来，加上有LL前几年专属合同束缚。另一点是SMA资源也确实没那么均衡，井泽和楠木的一比就是一个天一个地，越重视的人管的破事越多。
+
