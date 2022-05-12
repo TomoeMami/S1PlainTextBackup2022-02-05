@@ -5510,3 +5510,17 @@ B2CC0439-04F3-4CAE-A917-3D98306EEBE3.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/12/142104i49btbw8aosrzp29.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  li463900160  
+##### 7909#       发表于 2022-5-12 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800440&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-12 12:58</a>
+
+很好奇SMA究竟有什么瓜能那么大民愤，灯的事情略有了解，但是SMA对杏树，hnk 和pay好像都没什么约束 ...</blockquote>
+伊波杏树以前约束也很大，只不过后来感觉推不出来，她本人不想出道啥的，就放弃了，转而专心经营灯了，其他几个都没有个人出道，没有头牌待遇。sma内部其实差别对待蛮厉害的，你看看井泽，多少年了，有多少资源。而且明明搞了个全员的FC，但是内部团爱的营业几乎没有，别的你看响社、amuse，哪怕im这种都能感受到“啊，这些人是一家事务所的”，但是sma出来的你很难看到她们明明是一家出来的关系
+
+小水当初也是跟伊波杏树营业，搞个双子星啥的，后来估计看出啥端倪，赶紧跑路了。但是阿灯现在是完全绑定索尼这条船了，资源肯定够，但是要看到普通人一面的灯估计会比较难了
+
