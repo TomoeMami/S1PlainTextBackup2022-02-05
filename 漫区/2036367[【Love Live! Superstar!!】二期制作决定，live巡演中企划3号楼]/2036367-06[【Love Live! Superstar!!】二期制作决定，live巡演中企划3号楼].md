@@ -4962,3 +4962,16 @@ ABC所属，宫崎县出身
 啊，二期生有提到分Leader的么？</blockquote>
 我觉着有这种隐藏分法，不过谁知道呢，就当我说着好玩的
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7857#       发表于 2022-5-12 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797237&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-12 09:32</a>
+彩这张爆杀杂志图了</blockquote>
+这p了很多啊
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
