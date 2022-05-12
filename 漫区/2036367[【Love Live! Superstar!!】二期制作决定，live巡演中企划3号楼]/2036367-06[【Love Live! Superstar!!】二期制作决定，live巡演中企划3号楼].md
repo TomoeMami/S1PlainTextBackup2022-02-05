@@ -5107,3 +5107,52 @@ https://b23.tv/3RQYMwN
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人都还没齐呢赢个屁 我们裂啦将以12人形态出击
 
+
+
+*****
+
+####  a92063256  
+##### 7871#       发表于 2022-5-12 11:02
+
+我已经不对动画剧情抱任何期待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只要别搞出啥惊世骇俗的狠活就行
+
+*****
+
+####  adw667  
+##### 7872#       发表于 2022-5-12 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797574&amp;ptid=2036367" target="_blank">宋西湖 发表于 2022-5-12 09:58</a>
+
+艰难的认人中，我咋觉得新来的四位都有点像别人的既视感，</blockquote>
+因为团体照姿势就是兼用卡，更别说红毛还是团子造型<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 7873#       发表于 2022-5-12 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798570&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-5-12 11:02</a>
+
+我已经不对动画剧情抱任何期待了
+
+只要别搞出啥惊世骇俗的狠活就行</blockquote>
+第一季恋的行为就够逆天了，还能整什么狠活
+
+*****
+
+####  aoaoaodedede  
+##### 7874#       发表于 2022-5-12 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798604&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-5-12 11:04</a>
+
+第一季恋的行为就够逆天了，还能整什么狠活</blockquote>
+嘛，因为感觉第二季可可和那个夏美可能会有激烈的剧情矛盾冲突，一期里可堇也出现过激烈的剧情矛盾冲突，第七集是有点给可可招黑的，第二季可可没崩的太厉害就算赢
+
+*****
+
+####  1096beam  
+##### 7875#       发表于 2022-5-12 11:09
+
+不提起我都忘了，SP你还欠我一个动画Live
+
