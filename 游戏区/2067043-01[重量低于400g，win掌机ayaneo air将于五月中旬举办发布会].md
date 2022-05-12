@@ -1066,3 +1066,16 @@ NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smi
 
 不想买二手PSV了
 
+
+
+*****
+
+####  zhenlune  
+##### 112#       发表于 2022-5-12 21:07
+
+6寸屏 720p
+6800u
+按键布局类似ns
+
+等一款这样的产品
+
