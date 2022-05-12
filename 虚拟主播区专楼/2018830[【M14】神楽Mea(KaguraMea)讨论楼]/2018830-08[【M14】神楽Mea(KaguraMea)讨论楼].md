@@ -4955,3 +4955,22 @@ m楼都回到19年了，麻麻的同接能回到19年吗<img src="https://static
 
 今天512就别在楼里发癫了，要发癫等到516再说
 
+
+
+*****
+
+####  RustBullet  
+##### 10979#       发表于 2022-5-12 10:35
+
+我麻图呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 10980#       发表于 2022-5-12 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55780388&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-11 12:06</a>
+
+好了，mea开始玩lol了，今天应该有播了。</blockquote>
+看到这人拿诺手上单打成0/8我笑嘻了 不过想想估计这人也不怎么玩诺手就算了 打的还没波比好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

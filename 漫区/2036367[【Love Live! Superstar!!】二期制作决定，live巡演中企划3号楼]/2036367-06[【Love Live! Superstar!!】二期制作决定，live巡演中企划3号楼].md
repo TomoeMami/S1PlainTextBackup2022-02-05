@@ -4987,3 +4987,28 @@ ABC所属，宫崎县出身
 我觉着有这种隐藏分法，不过谁知道呢，就当我说着好玩的</blockquote>
 顺着这个想法，我倒是好奇这星团企划方到底准备写成9人的liella!还是5+4的liella!
 
+
+
+*****
+
+####  ViyViy  
+##### 7859#       发表于 2022-5-12 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">动画给一次5人击败snp的情节吧
+
+原五人两个舞蹈基础，一个天籁之音+吉他天才，一个小六边形，拖个白纸，都十六强了；
+
+新4人感觉就红毛跟得上，今天杂志透露的看夏美也就是个普通直播主，唱唱跳跳肯定不精。再拖两明显0基础的（土妹子和四季），然后就一年，地区赛过了，我不承认！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7860#       发表于 2022-5-12 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798195&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-5-12 10:38</a>
+
+动画给一次5人击败snp的情节吧
+
+原五人两个舞蹈基础，一个天籁之音+吉他天才，一个小六边形，拖个白 ...</blockquote>
+以人数优势取胜什么的不要啊
+
