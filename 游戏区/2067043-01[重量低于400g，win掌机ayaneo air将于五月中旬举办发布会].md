@@ -1028,3 +1028,14 @@ PC上的游戏不像NS有针对性文字优化。5.5的屏岂不是很多游戏�
 
 NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UCXCU  
+##### 108#       发表于 2022-5-12 16:46
+
+有预感这机器要卖4千多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
