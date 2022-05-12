@@ -1010,3 +1010,12 @@ gpdwin1，win2
 
 装个android subsystem for windows, 是不是还能玩荣耀吃鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  back57992  
+##### 106#       发表于 2022-5-12 15:58
+
+PC上的游戏不像NS有针对性文字优化。5.5的屏岂不是很多游戏都看不清字？没买过相关产品 纯好奇。
+
