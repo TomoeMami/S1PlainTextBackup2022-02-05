@@ -12576,3 +12576,12 @@ king现在真的很强
 猜到了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">6pt的三号位king属实性价比战士。
 不知道玩胖子的会不会转几个去玩新英雄，这次比赛构成应该会挺有趣的。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13189#       发表于 2022-5-12 20:42
+
+看了眼隔壁，真的有在告anti啊，彩虹再评价<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
