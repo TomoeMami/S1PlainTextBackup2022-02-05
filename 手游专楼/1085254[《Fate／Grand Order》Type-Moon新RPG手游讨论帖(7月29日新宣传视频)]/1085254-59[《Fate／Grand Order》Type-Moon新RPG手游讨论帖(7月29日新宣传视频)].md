@@ -10561,3 +10561,15 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 —— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  UNISONIA  
+##### 87909#       发表于 2022-5-12 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55788406&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-11 20:03</a>
+
+也许有可能的话蘑菇说不定会尝试把当初1.6废案耶路撒冷的剧情拿出来发挥一下余热...？ ...</blockquote>
+旧版耶路撒冷按照talk看原本要登场又因为一些原因被删掉的是真理查，查理曼骑士原本就不会在早期策划里的一部六章登场（这章开服就确定是奈须和樱井合作了）
+
