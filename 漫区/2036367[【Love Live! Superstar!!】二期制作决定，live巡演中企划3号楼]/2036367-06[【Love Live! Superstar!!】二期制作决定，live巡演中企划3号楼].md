@@ -5729,3 +5729,35 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 我日语不好，这说了些啥
 
+
+
+*****
+
+####  靡宜  
+##### 7926#       发表于 2022-5-12 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55809295&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-5-12 22:37</a>
+
+日本人原来是这么看那个五人羁绊啊</blockquote>
+缺一个师爷<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 7927#       发表于 2022-5-12 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55809424&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-12 22:46</a>
+我日语不好，这说了些啥</blockquote>
+大概就死宅在猜鲤鱼明明打算把20年代的人生都交给ll，却被突然加人背刺了，故意的写5人的羁绊是在暗示不满，这种意思吧
+和国内的过度脑补一个意思
+
+*****
+
+####  aoaoaodedede  
+##### 7928#       发表于 2022-5-12 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55809652&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-12 23:00</a>
+
+大概就死宅在猜鲤鱼明明打算把20年代的人生都交给ll，却被突然加人背刺了，故意的写5人的羁绊是在暗示不 ...</blockquote>
+谢了
+
