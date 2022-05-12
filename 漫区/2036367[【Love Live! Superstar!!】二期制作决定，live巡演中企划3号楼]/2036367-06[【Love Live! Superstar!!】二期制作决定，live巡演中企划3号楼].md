@@ -5622,3 +5622,16 @@ yura
 对杏树hnk也有，不如说这次对SMA不满就是因为杏树开始的，水团时隔两年久违回沼津开FMT，但是算上前一天 ...</blockquote>
 感觉pay以后起来了，sma就该揪着她薅了。以后大概率也是歌手出道，不过估计能重视一下，多给点资源
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7917#       发表于 2022-5-12 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55804814&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-5-12 17:29</a>
+对杏树hnk也有，不如说这次对SMA不满就是因为杏树开始的，水团时隔两年久违回沼津开FMT，但是算上前一天 ...</blockquote>
+不是很了解sma相关，没想到有这种破事
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

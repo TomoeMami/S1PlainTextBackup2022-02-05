@@ -12496,3 +12496,17 @@ Meari还经常直播学英语，想吸en观众已经很久了。主要我说的�
 
 圭利点子多执行力强还是成熟的人父，抗压能力肯定比想得又多自我肯定又低的小年轻大多了
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13182#       发表于 2022-5-12 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55805818&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-5-12 18:32</a>
+
+Meari还经常直播学英语，想吸en观众已经很久了。主要我说的还是那批MC老人，现在jp服啥都有，很多老害就 ...</blockquote>
+是这样的我赞同，jp新服完成度都很高了，谢林和凛月把mc服拔高到了一般主播不爆肝追不上的科技，油男的千寻城让其它liver基本上退出mc建筑竞争，免费八个小时的整蛊也让其它整活时间成本跟着大幅增加...现在除非有中央銀行、夏祭り这种大企划感觉没办法凑起人来了；
+
+en好处是人少，fnn有先见开了新服让其他人有热情去建设，又有四服互通有方便联动，にじ鯖短暂黄金期了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
