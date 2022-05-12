@@ -5415,3 +5415,33 @@ Im也和sma一个德行吗
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 那也没sma那么sb ，…………
 
+
+
+*****
+
+####  starring  
+##### 7902#       发表于 2022-5-12 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799536&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-12 11:57</a>
+我本人感觉是没有兄弟们吹的那么好看的样子，不过也是各有所爱了</blockquote>
+看了跟帝骑哥对比的图，有点回不去
+
+*****
+
+####  starring  
+##### 7903#       发表于 2022-5-12 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800347&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-12 12:53</a>
+那也没sma那么sb ，…………</blockquote>
+很好奇SMA究竟有什么瓜能那么大民愤，灯的事情略有了解，但是SMA对杏树，hnk 和pay好像都没什么约束
+
+*****
+
+####  甘蓝巧克力  
+##### 7904#       发表于 2022-5-12 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800251&amp;ptid=2036367" target="_blank">welcom 发表于 2022-5-12 12:46</a>
+
+不过昨天看B站有人在海内和海外拉拉圈子里做了千百来份的投票问卷，海外有过半的票数都认为该整合的，总 ...</blockquote>
+因为不整合就真裂啦，不如直接搞个新团，但只想五角星的我不关心，反正都是个圈钱企划假惺惺卖什么情怀<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
