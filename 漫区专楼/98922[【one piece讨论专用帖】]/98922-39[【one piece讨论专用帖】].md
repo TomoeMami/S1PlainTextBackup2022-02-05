@@ -12928,3 +12928,67 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 敢情可爱多以前自杀失败是因为没遇到真正的乔伊波伊即五皇，这是诅咒还是祝福啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗杀翻看是  
+##### 58081#       发表于 2022-5-12 00:10
+
+<blockquote>zxzx7753 发表于 2022-5-11 13:00
+有点模板化了   其实劣化最严重的是乔巴   一开始真的很有小动物感   那种有了智商后知道自己不是人类但 ...</blockquote>
+乔巴不是一直都喜欢棉花糖吗？
+
+*****
+
+####  klzxs  
+##### 58082#       发表于 2022-5-12 00:13
+
+是类似打赢自己的只会是乔伊波伊的这种自负吧
+
+*****
+
+####  赤魔法师  
+##### 58083#       发表于 2022-5-12 02:55
+
+所以凯多打不死自杀也没事都是因果律的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  anubis_s08  
+##### 58084#       发表于 2022-5-12 03:11
+
+凯多为了成为joyboy尝试打败自己，但是没有成功
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+*****
+
+####  晴岚  
+##### 58085#       发表于 2022-5-12 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55777097&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-5-11 08:23</a>
+
+这家仇国恨的，凯多肯定要死刑，但是WT是不杀人的，不知道会怎么编</blockquote>
+回忆是凯老师看了日记之后跟御田商量好,一直在演戏。现在戏演完了,想到自己的所作所为决定切腹谢罪。
+
+和之国人民知道真相之后都原谅了凯老师<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  躺平咸鱼在翻身  
+##### 58086#       发表于 2022-5-12 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55784155&amp;ptid=98922" target="_blank">柳柳昭陵 发表于 2022-5-11 15:49</a>
+凯老师：该高考了，我就不拖堂了，记得好好练习基本体术，金狮子那家伙就是基础不好，老了之后连你都打不过 ...</blockquote>
+呜呜呜，可爱多老师(;_;)
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  sfqjsml  
+##### 58087#       发表于 2022-5-12 08:13
+
+说起来凯多为什么要寻死，难道是为了找到乔伊波伊？
+
