@@ -5364,3 +5364,54 @@ hnk？</blockquote>
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  welcom  
+##### 7897#       发表于 2022-5-12 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800124&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-5-12 12:37</a>
+
+建议一期生一组，二期生一组，反正后面也会来个三期生</blockquote>
+不过昨天看B站有人在海内和海外拉拉圈子里做了千百来份的投票问卷，海外有过半的票数都认为该整合的，总体情况都是彻底分组得票最低
+
+*****
+
+####  cybernetics31  
+##### 7898#       发表于 2022-5-12 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这另外两个中之人还没开推是怎么回事，绘都一万关注了，虽然im 历来有严管自家cv sns的传统但半天不干活也是挺迷的
+
+*****
+
+####  仟音一心  
+##### 7899#       发表于 2022-5-12 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800164&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-5-12 12:41</a>
+鲤鱼？
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+是，但看来这四条还不够明显
+
+*****
+
+####  Enakina  
+##### 7900#       发表于 2022-5-12 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800256&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-05-12 12:46:46</a>
+这另外两个中之人还没开推是怎么回事，绘都一万关注了，虽然im 历来有严管自家cv sns的传统但半天不干活也 ...</blockquote>Im也和sma一个德行吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 7901#       发表于 2022-5-12 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800290&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-12 12:49</a>
+Im也和sma一个德行吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+那也没sma那么sb ，…………
+
