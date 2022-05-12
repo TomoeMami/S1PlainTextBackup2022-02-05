@@ -10699,3 +10699,17 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 如果真是如此，忽然感觉拿破仑archer也挺适合在这章出场的...当然，还让樱井光写剧本就算了...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87919#       发表于 2022-5-12 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799164&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-5-12 11:36</a>
+
+街机那玩意儿除了手游老玩家谁会去碰啊</blockquote>
+姐姐卖身子养活妹妹，结果妹妹的金主还是老客户<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（老客户：我TM再馋身子，腰(包)也受不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

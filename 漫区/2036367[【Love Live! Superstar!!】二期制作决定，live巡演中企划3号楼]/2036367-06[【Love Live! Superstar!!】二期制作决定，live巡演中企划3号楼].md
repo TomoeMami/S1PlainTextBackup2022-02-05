@@ -5219,3 +5219,19 @@ https://b23.tv/3RQYMwN
 
 大胆奶，二单铃原空降c<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7882#       发表于 2022-5-12 11:44
+
+现在凑够9个人了，是不是后面又该分3小组了？鲤鱼这大概率要进清纯组<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7883#       发表于 2022-5-12 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要瞎来那怎么玩都行 先来个一二期生之间没允许不许私自联动  几个人不得不凑一凑搞个爱生活反抗军 一番操作发现拗不过资本的大手 最后摇来个谬谬人带着大家去冲了本社 めでたしめでたし
+
