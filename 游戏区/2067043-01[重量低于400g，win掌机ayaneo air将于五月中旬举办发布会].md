@@ -1019,3 +1019,12 @@ gpdwin1，win2
 
 PC上的游戏不像NS有针对性文字优化。5.5的屏岂不是很多游戏都看不清字？没买过相关产品 纯好奇。
 
+
+
+*****
+
+####  Mephisto  
+##### 107#       发表于 2022-5-12 16:17
+
+NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
