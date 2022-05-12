@@ -4864,3 +4864,31 @@ v生命不长 mea已经算坚持的久了的 观众也是这样好吧
 哎 算了 人家早就跑路了 确实也没必要纠结啥了 就和楼里大多数人说的一样 当 ...</blockquote>
 能不sx吗，人家日本人在日本发展的好好的不行吗，一定要来b站吃口饭，到底是推咩还是推sx官组啊
 
+
+
+*****
+
+####  Thrall12345  
+##### 10969#       发表于 2022-5-12 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797017&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-5-12 09:17</a>
+
+能不sx吗，人家日本人在日本发展的好好的不行吗，一定要来b站吃口饭，到底是推咩还是推sx官组啊 ...</blockquote>
+整篇就没提来b站吃饭 终于连正常对话都做不到了吗
+
+既然人都说了事实胜于雄辩 那就继续看呗 没什么好辩的
+
+*****
+
+####  鷹書たかしょ  
+##### 10970#       发表于 2022-5-12 09:26
+
+19年之后还有人理这B大调音师我是没想到的
+
+*****
+
+####  T_Hb  
+##### 10971#       发表于 2022-5-12 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有人理我是没想到的
+

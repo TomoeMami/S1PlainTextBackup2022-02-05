@@ -4755,3 +4755,107 @@ C64C2B8A-3FB7-4676-A367-D30E0AB3D6BB.jpeg
 
 鈴原希実真就是Apollo Bay的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 7841#       发表于 2022-5-12 09:22
+
+【💫CD情報①💫】
+
+TVアニメ2期OP/ED発売決定❣
+
+💫8/3（水）OP主題歌発売
+
+💫8/10（水）ED主題歌発売
+
+そして👀
+
+OP&amp;ED主題歌連動リリースイベント開催決定🎉
+
+会場へのご招待に加え、生配信・アーカイブ配信も✨
+
+是非チェックしてください🔍
+
+詳細はこちら▼
+[https://www.lovelive-anime.jp/news/01_529.html](https://www.lovelive-anime.jp/news/01_529.html)
+<img src="https://p.sda1.dev/5/d263f620252747696a0c0d535e13805a/20220512_092123.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/927aadea5f8b9fc29c37f94ff2e2cdd5/20220512_092125.jpg" referrerpolicy="no-referrer">
+
+【💫CD情報②💫】
+
+／
+
+『ラブライブ！スーパースター!!』ニューシングル①
+
+【A盤】【B盤】
+
+8/17（水）発売決定🎉
+
+＼
+
+それぞれ3曲＋各Off Vocal　計6曲を収録💿
+
+【A盤】【B盤】2形態同時購入特典も💕
+[https://www.lovelive-anime.jp/news/01_532.html](https://www.lovelive-anime.jp/news/01_532.html)
+
+こちらも是非チェックしてください✨
+
+*****
+
+####  starring  
+##### 7842#       发表于 2022-5-12 09:25
+
+ 本帖最后由 starring 于 2022-5-12 09:26 编辑 
+
+ABC所属，宫崎县出身
+
+435C45C2-545B-4122-897D-18F1A91E2812.jpeg
+(68.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 09:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/092540ubhrlszjcre3kbw3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7843#       发表于 2022-5-12 09:27
+
+这拍得更不对劲
+
+025569B2-4CBD-4A77-9AA0-0B823CBC1485.jpeg
+(139.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 09:27 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/092705awinko0w8j08swzs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7844#       发表于 2022-5-12 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这事务所公式照也不大行，大熊一股没长开的样子
+
+*****
+
+####  仟音一心  
+##### 7845#       发表于 2022-5-12 09:32
+
+彩这张爆杀杂志图了
+
+57097476-D68F-48D3-9A84-1D6A402811B4.jpeg
+(333.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 09:31 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/093153l507oww5585theu0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
