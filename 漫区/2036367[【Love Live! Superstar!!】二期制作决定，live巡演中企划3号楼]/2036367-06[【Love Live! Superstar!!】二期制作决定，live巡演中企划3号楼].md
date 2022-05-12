@@ -5333,3 +5333,34 @@ hnk？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是跨年级分组且米女四季锁死的话，一期大概率有个要分过去，那么是谁呢
 
+
+
+*****
+
+####  dozen  
+##### 7894#       发表于 2022-5-12 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799979&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-12 12:26</a>
+要是跨年级分组且米女四季锁死的话，一期大概率有个要分过去，那么是谁呢 ...</blockquote>
+红蓝这俩一看就不是一个曲风吧，小组拆cp也是传统艺能了
+
+*****
+
+####  甘蓝巧克力  
+##### 7895#       发表于 2022-5-12 12:37
+
+建议一期生一组，二期生一组，反正后面也会来个三期生
+
+*****
+
+####  一个陆仁贾  
+##### 7896#       发表于 2022-5-12 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799838&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-12 12:17</a>
+四个新人的自我介绍:
+薮岛朱音：对美食没有抵抗力，到了哪里都会寻找当地美食，喜欢收集化妆品。
+铃原希实 ...</blockquote>
+鲤鱼？
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

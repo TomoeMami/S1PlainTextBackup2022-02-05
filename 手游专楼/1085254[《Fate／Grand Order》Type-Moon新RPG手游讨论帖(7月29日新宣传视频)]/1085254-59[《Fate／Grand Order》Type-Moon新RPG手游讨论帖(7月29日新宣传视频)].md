@@ -10722,3 +10722,15 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 终于抽到C呆了……你们知道我这么多年是怎么过的么……
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87921#       发表于 2022-5-12 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55800007&amp;ptid=1085254" target="_blank">莉莉橙 发表于 2022-5-12 12:28</a>
+
+终于抽到C呆了……你们知道我这么多年是怎么过的么……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年无明无梅一路杀到1.5部的表示还行啦
+
