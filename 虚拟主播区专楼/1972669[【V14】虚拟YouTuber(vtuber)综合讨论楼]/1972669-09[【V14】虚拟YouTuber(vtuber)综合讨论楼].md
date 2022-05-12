@@ -12536,3 +12536,15 @@ en好处是人少，fnn有先见开了新服让其他人有热情去建设，又
 
 说起来你虹不是要搞apex比赛吗，人员名单还没出来吗
 
+
+
+*****
+
+####  FCCHua  
+##### 13185#       发表于 2022-5-12 20:05
+
+ 本帖最后由 FCCHua 于 2022-5-12 20:08 编辑 
+
+因为要避开cr杯所以延期了啊
+syl selly、小熊猫、葛叶，这个阵容什么钦定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

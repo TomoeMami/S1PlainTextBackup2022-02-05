@@ -5651,3 +5651,12 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 至于拿LL当垫脚石这点，不同人看法不一样。说点个人看法：个人对LL这个企划没那么看重，最初三四年专注LL的活动还可以，越往后LL的活动频率越少肯定应该发展个人活动，只回来参加大活动场合其实也行。尤其LLSP在二次元方面那么拉跨，恨不得她们五个人的个人活动都多点，Liyuu作为Liyuu这个身份展开活动而不仅仅作为唐可可的CV。（不过想再多看她们五个人互动这一点也很矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 7919#       发表于 2022-5-12 20:03
+
+这四人别是事务所明知道现在加人会导致CV风评被害还故意搞职场80硬加的，真要那样我就转路了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
