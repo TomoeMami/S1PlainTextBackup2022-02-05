@@ -10866,3 +10866,12 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 每日一抽出了超级班扬，班扬4宝了，然而老鼠还是只有1宝，自从玩了fgo感觉数学都白学了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kisskick  
+##### 87930#       发表于 2022-5-13 00:49
+
+死想其实还有人猜大理石王来着，那样德语系也有个人就是
+
