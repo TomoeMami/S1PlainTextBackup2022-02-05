@@ -5264,3 +5264,12 @@ https://b23.tv/3RQYMwN
 希望是地区5个人胜，后面4人加进来全国胜5个人没胜过那种事情不要啊 ...</blockquote>
 全国要第三季12人啊
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7887#       发表于 2022-5-12 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现上面那个声音样本p3就有动起来的彩  不太顶
+
