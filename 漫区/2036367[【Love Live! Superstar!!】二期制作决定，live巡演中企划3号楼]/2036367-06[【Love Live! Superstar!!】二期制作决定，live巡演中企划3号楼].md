@@ -5305,3 +5305,31 @@ https://b23.tv/3RQYMwN
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799838&amp;ptid=2036367" target="_blank"> 仟音一心 发表于 2022-5-12 12:17</a> 四个新人的自我介绍: 薮岛朱音：对美食没有抵抗力，到了哪里都会寻找当地美食，喜欢收集化妆品。 铃原希实：喜欢绘画，尤其是画女孩子。 绘森彩：喜欢给女偶像应援。 大熊和奏：喜欢音乐和唱歌。  有没有发现，有一个人的爱好，是四个人加起来。 </blockquote>
 hnk？来自: iPhone客户端
 
+
+
+*****
+
+####  仟音一心  
+##### 7891#       发表于 2022-5-12 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799888&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-5-12 12:20</a>
+hnk？</blockquote>
+也算，不过你这回答让我没法接了。
+
+*****
+
+####  iuhehc  
+##### 7892#       发表于 2022-5-12 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799294&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-12 11:44</a>
+
+现在凑够9个人了，是不是后面又该分3小组了？鲤鱼这大概率要进清纯组 ...</blockquote>
+在还没看到唱跳和动画二期之前我觉得要不直接一期生一组 二期生一组算了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7893#       发表于 2022-5-12 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是跨年级分组且米女四季锁死的话，一期大概率有个要分过去，那么是谁呢
+

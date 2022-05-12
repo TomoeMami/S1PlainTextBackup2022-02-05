@@ -10713,3 +10713,12 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 （老客户：我TM再馋身子，腰(包)也受不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  莉莉橙  
+##### 87920#       发表于 2022-5-12 12:28
+
+终于抽到C呆了……你们知道我这么多年是怎么过的么……
+
