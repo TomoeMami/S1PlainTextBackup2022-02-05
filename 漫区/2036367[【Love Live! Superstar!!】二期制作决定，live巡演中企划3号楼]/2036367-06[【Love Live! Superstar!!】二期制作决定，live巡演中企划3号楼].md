@@ -4975,3 +4975,15 @@ ABC所属，宫崎县出身
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7858#       发表于 2022-5-12 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797792&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-12 10:12</a>
+
+我觉着有这种隐藏分法，不过谁知道呢，就当我说着好玩的</blockquote>
+顺着这个想法，我倒是好奇这星团企划方到底准备写成9人的liella!还是5+4的liella!
+

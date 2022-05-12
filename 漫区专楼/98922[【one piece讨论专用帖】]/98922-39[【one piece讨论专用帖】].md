@@ -13003,3 +13003,17 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 至于红发怎么拦下凯多和烬这两个会飞的人，就不得而知了！
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58089#       发表于 2022-5-12 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55796910&amp;ptid=98922" target="_blank">赤魔法师 发表于 2022-5-12 09:09</a>
+
+原来凯多是白胡子带到洛克斯海贼团的，所以之前凯多顶上战争是想去帮白胡子，然后被大恶人红发阻止了[f:138 ...</blockquote>
+区区月步<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+认真点说，目前展现能力的四皇级别都会飞，飞行应该不是什么难题
+
