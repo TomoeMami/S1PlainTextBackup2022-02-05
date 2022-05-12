@@ -5099,3 +5099,14 @@ gw总共不算联动是不是就播了一两次<img src="https://static.saraba1s
 联动我都没算的</blockquote>
 你不算我算😡👊🏻
 
+
+
+*****
+
+####  十九号大侠  
+##### 10995#       发表于 2022-5-12 13:54
+
+太弱智嘞
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
