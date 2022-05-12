@@ -10613,3 +10613,17 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 （你挂的是不是带羁绊礼装的摩根啊，可能有路人看到了想开图册就借用一下？）
 
+
+
+*****
+
+####  里村紅葉  
+##### 87913#       发表于 2022-5-12 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797275&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-12 09:36</a>
+
+那个好像是助战借用最多的从者吧，还会显示给了多少友情点。
+
+（你挂的是不是带羁绊礼装的摩根啊，可能有路 ...</blockquote>
+我助战摩根带的是相扑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉是被人借去推图的？
+

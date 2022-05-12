@@ -958,3 +958,21 @@ gpdwin1，win2
 
 这不是开国际玩笑吗win3的5.5寸屏幕是最他失败的地方，居然都没有吸取这个教训吧还敢出5.5寸的屏幕
 
+
+
+*****
+
+####  DasLebewohl  
+##### 101#       发表于 2022-5-12 09:49
+
+如果价格2-3k左右能当新galgame神器？
+
+*****
+
+####  医生狼多  
+##### 102#         楼主| 发表于 2022-5-12 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797461&amp;ptid=2067043" target="_blank">DasLebewohl 发表于 2022-5-12 09:49</a>
+如果价格2-3k左右能当新galgame神器？</blockquote>
+只玩gal没必要上这个，win1，win2就行了
+
