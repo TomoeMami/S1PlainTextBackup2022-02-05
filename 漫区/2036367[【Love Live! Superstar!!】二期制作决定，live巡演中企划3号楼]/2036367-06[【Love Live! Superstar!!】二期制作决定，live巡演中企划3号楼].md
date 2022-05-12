@@ -5235,3 +5235,32 @@ https://b23.tv/3RQYMwN
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要瞎来那怎么玩都行 先来个一二期生之间没允许不许私自联动  几个人不得不凑一凑搞个爱生活反抗军 一番操作发现拗不过资本的大手 最后摇来个谬谬人带着大家去冲了本社 めでたしめでたし
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7884#       发表于 2022-5-12 11:55
+
+我的可c单曲，我的可个人回，未来如风solo……玛德官方<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 7885#       发表于 2022-5-12 11:57
+
+<blockquote>一个陆仁贾 发表于 2022-5-12 10:19
+这p了很多啊
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+我本人感觉是没有兄弟们吹的那么好看的样子，不过也是各有所爱了
+
+*****
+
+####  靡宜  
+##### 7886#       发表于 2022-5-12 11:59
+
+<blockquote>cybernetics31 发表于 2022-5-12 10:44
+希望是地区5个人胜，后面4人加进来全国胜5个人没胜过那种事情不要啊 ...</blockquote>
+全国要第三季12人啊
+
