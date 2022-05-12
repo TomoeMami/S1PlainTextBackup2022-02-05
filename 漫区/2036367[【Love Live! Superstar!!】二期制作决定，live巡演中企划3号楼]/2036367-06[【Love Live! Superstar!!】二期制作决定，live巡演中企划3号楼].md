@@ -5483,3 +5483,30 @@ a5af74816d37157.jpg
 
 我还以为FMT之前会来期9人生放让大家提前熟悉
 
+
+
+*****
+
+####  仟音一心  
+##### 7908#       发表于 2022-5-12 14:21
+
+消除差距&amp;突出立德
+
+B2CC0439-04F3-4CAE-A917-3D98306EEBE3.jpeg
+(189.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/142104f9rwr9xuwrsx2qek.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8ACD601A-B66D-45A0-83F6-9BD6559FA62F.jpeg
+(191.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 14:21 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/142104i49btbw8aosrzp29.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

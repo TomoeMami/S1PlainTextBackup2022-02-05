@@ -10777,3 +10777,22 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 不过FATE的尼禄塑造基本定型了，而且街机那里已经出场...总不能兽六是尼禄麻将桌吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  シャル  
+##### 87925#       发表于 2022-5-12 14:12
+
+ 本帖最后由 シャル 于 2022-5-12 14:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798414&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-5-12 10:53</a>
+
+我猜测这章登场的角色可能都有某个共性，包括某个可能出场的Beast
+
+即为“剧情里出现的形象是传奇中的形 ...</blockquote>
+的确查理曼是民间传承故事的形象，卡尔大帝才是月球史的人物
+
+查理曼出了只能说明6.5是幻想啊
+
+按卡尔大帝的说法，阿福就不是月球史的形象<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">十二勇士这里是幻想吧
+
