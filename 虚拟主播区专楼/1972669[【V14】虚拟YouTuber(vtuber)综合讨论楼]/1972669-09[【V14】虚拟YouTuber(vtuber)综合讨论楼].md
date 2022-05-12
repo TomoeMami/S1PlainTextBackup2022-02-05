@@ -12646,3 +12646,25 @@ king现在真的很强
 
 这次虹的辉煌能持续多久呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13195#       发表于 2022-5-13 00:27
+
+怎么en这4-6三期都要出16个人了本社才出3个啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+不怕像19下饺子结果直接底一堆吗，五期几个en男也才20w出头直接跟四期断层了，你六期还能更好不成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就算英语的卡池是说日语的N倍，要是还走通讯录感觉也没啥戏……而且也不能再光出男人，说实话不看好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+（能像隔壁杏一样挖点啥金盾大物男人套皮另说好吧，虽然我觉得是做梦
+
+*****
+
+####  OldGlory  
+##### 13196#       发表于 2022-5-13 00:28
+
+不出男人难道出女人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
