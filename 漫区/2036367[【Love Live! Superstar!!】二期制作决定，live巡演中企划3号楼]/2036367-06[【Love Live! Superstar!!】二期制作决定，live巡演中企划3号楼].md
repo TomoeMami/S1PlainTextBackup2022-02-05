@@ -5761,3 +5761,25 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 大概就死宅在猜鲤鱼明明打算把20年代的人生都交给ll，却被突然加人背刺了，故意的写5人的羁绊是在暗示不 ...</blockquote>
 谢了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7929#       发表于 2022-5-12 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55809424&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-12 22:46</a>
+
+我日语不好，这说了些啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实也没说啥 就是脑补（真假我也不好说）鲤鱼姐一眼就没干劲对加新人很烦 要不干脆单推鲤鱼个人活动这种
+
+*****
+
+####  tagerto  
+##### 7930#       发表于 2022-5-12 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55809652&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-12 23:00</a>
+
+大概就死宅在猜鲤鱼明明打算把20年代的人生都交给ll，却被突然加人背刺了，故意的写5人的羁绊是在暗示不 ...</blockquote>
+那鲤鱼今天因为512都没有发推，而其他四人都转了或者是写了欢迎新人信息，这么一对比岂不是坐实日本人觉得鲤鱼不欢迎新人的想法吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
