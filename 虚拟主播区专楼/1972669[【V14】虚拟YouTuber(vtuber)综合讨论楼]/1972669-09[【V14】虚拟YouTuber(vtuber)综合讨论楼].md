@@ -12610,3 +12610,12 @@ king现在真的很强
 
  4ch看到的两条，虹en新一期要来了吗，pl又是hanamori成员？
 
+
+
+*****
+
+####  Kokichi  
+##### 13191#       发表于 2022-5-12 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">白雪哥和pro的牌谱研讨有点东西
+

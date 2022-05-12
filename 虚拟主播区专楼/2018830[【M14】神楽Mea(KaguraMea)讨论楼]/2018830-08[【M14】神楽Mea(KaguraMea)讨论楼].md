@@ -5323,3 +5323,39 @@ m楼都回到19年了，麻麻的同接能回到19年吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把评论区倒过来以解决油管ai问题的智将阿咩
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11017#       发表于 2022-5-12 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55808953&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-5-12 22:11</a>
+
+把评论区倒过来以解决油管ai问题的智将阿咩</blockquote>
+还有把头像隐藏了。都是当年积累的经验啊。
+
+*****
+
+####  游山赫乃丈丶  
+##### 11018#       发表于 2022-5-12 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55808953&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-5-12 22:11</a>
+
+把评论区倒过来以解决油管ai问题的智将阿咩</blockquote>
+都是老手段了
+
+*****
+
+####  kenjjj  
+##### 11019#       发表于 2022-5-12 22:15
+
+咩の智慧！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 11020#       发表于 2022-5-12 22:19
+
+这序言伴奏真够怪的（
+
