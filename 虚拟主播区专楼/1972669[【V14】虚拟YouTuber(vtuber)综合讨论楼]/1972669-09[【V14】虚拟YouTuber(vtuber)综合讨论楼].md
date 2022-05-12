@@ -12428,3 +12428,22 @@ Syl，说MC没有突发联动，昨天inui和芙莲的世界服参观就突发�
 
 阿喵真的有那么心机吗？她好坏我好爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宫宝兔丁  
+##### 13175#       发表于 2022-5-12 18:03
+
+长尾景英语有股子假装不会讲的味道
+
+不排除可能是自然的不会讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 13176#       发表于 2022-5-12 18:08
+
+<blockquote>但看mc合服后的联动又觉得可能只是mc和ark在虹内过气了所以一时没有即兴联动的舞台而已</blockquote>
+对啊，所以我觉得可能只是因为mc过气了。不过他也说但是海外liver就比较积极比如之前有人生日纪念回变成了多人联动，可能是形容单纯本社间的突发联动吧……毕竟确实有些事en做了是节目效果在本社就会被炎<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
