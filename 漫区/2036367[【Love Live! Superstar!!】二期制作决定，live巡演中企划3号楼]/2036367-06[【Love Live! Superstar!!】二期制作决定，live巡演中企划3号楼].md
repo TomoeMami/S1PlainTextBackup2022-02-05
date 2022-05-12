@@ -5635,3 +5635,19 @@ yura
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 7918#       发表于 2022-5-12 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55804814&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-5-12 17:29</a>
+
+对杏树hnk也有，不如说这次对SMA不满就是因为杏树开始的，水团时隔两年久违回沼津开FMT，但是算上前一天 ...</blockquote>
+资源分配不均衡这点哪里都一样没什么好说（没错说的就是holy peak，事务所小就算了还养那么多新人，现在主推石飞，其他人完全没有半点工作，nako的FC鸽了两个月也没半点消息）
+
+SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊还打上水印，真的该婊
+
+至于拿LL当垫脚石这点，不同人看法不一样。说点个人看法：个人对LL这个企划没那么看重，最初三四年专注LL的活动还可以，越往后LL的活动频率越少肯定应该发展个人活动，只回来参加大活动场合其实也行。尤其LLSP在二次元方面那么拉跨，恨不得她们五个人的个人活动都多点，Liyuu作为Liyuu这个身份展开活动而不仅仅作为唐可可的CV。（不过想再多看她们五个人互动这一点也很矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
