@@ -12566,3 +12566,13 @@ king现在真的很强
 
 这次可不得把selly哥哄高兴点，再不夺冠估计以后真不想参加这种娱乐赛了
 
+
+
+*****
+
+####  Kokichi  
+##### 13188#       发表于 2022-5-12 20:31
+
+猜到了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">6pt的三号位king属实性价比战士。
+不知道玩胖子的会不会转几个去玩新英雄，这次比赛构成应该会挺有趣的。
+

@@ -5660,3 +5660,12 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 这四人别是事务所明知道现在加人会导致CV风评被害还故意搞职场80硬加的，真要那样我就转路了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 7920#       发表于 2022-5-12 20:24
+
+霓虹偶像搞这么多年了，操作也不是我独家专利，对风险一清二楚，只能说玉碎味儿很足，成了就成了，不成，不成还能咋办，过着呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

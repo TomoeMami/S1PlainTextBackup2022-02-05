@@ -1039,3 +1039,19 @@ NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  distrowatch  
+##### 109#       发表于 2022-5-12 20:22
+
+券是4399-400，那就是首发3999起了
+
+*****
+
+####  医生狼多  
+##### 110#         楼主| 发表于 2022-5-12 20:27
+
+满4399可用，-400<img src="https://p.sda1.dev/5/59f62e54665554dcd0330e588ec96c86/CMP_20220512202724199.jpg" referrerpolicy="no-referrer">
+
