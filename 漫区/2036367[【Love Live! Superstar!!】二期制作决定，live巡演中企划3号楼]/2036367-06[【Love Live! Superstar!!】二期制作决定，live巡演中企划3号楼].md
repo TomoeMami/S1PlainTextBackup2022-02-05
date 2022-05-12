@@ -5836,3 +5836,53 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 あs老师永不缺席
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7938#       发表于 2022-5-12 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55810142&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-12 23:32</a>
+あs老师永不缺席</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有啥梗吗。。
+
+*****
+
+####  a92063256  
+##### 7939#       发表于 2022-5-12 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55810165&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-5-12 23:33</a>
+
+有啥梗吗。。</blockquote>
+你往前几页翻，有人发过新的官图，图里可恋的姿势就是这个
+
+*****
+
+####  仟音一心  
+##### 7940#       发表于 2022-5-12 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55810002&amp;ptid=2036367" target="_blank">Cryogenian 发表于 2022-5-12 23:22</a>
+记得之前pay小作文写得太敷衍还重发了一遍，当时有没有人给她加戏啊</blockquote>
+没重发，就是一开始只转发了消息，没有像另外4人一样写小作文，最后补上了。
+要说真“敷衍”，鲤鱼推上写了好多，微博上就写了一句话。
+
+*****
+
+####  仟音一心  
+##### 7941#       发表于 2022-5-12 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55810165&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-5-12 23:33</a>
+
+有啥梗吗。。</blockquote>
+可恋姿势
+
+4B41E5DF-FBAB-46CD-994D-FF6CB9866EFF.jpeg
+(119.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 23:36 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/233612mkrtkprjmmj6jsfz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

@@ -13100,3 +13100,16 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 伏特加王国是想暗示什么<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOBI  
+##### 58099#       发表于 2022-5-12 23:39
+
+这话看着还是很有意境的
+
+但凯多这个武之极点败给了更强的个人还是哪里怪怪的。
+
+虽然从整篇的角度来看是没什么问题。。。
+
