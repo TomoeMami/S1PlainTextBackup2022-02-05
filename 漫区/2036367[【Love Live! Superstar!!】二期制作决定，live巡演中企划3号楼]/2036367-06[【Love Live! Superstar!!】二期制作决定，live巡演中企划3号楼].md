@@ -5706,3 +5706,26 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 2022-5-12 22:36 上传
 
+
+
+*****
+
+####  D麦林  
+##### 7924#       发表于 2022-5-12 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55807399&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-5-12 20:24</a>
+
+霓虹偶像搞这么多年了，操作也不是我独家专利，对风险一清二楚，只能说玉碎味儿很足，成了就成了，不成，不 ...</blockquote>
+理解这个世界的草台性以后我进入了一种理智的绝望感情
+
+我要干一件事情 成了就成了 不成那就不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想想我自己平常做决策也其实差不多就是这样 我表示相当理解 就是真不成了会玉玉一阵罢了
+
+*****
+
+####  aoaoaodedede  
+##### 7925#       发表于 2022-5-12 22:46
+
+我日语不好，这说了些啥
+
