@@ -1079,3 +1079,30 @@ NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smi
 
 等一款这样的产品
 
+
+
+*****
+
+####  任天索尼子  
+##### 113#       发表于 2022-5-12 21:14
+
+等6800了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  巨馍蘸酱  
+##### 114#       发表于 2022-5-12 21:15
+
+4000还行，还可以考虑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  医生狼多  
+##### 115#         楼主| 发表于 2022-5-12 21:18
+
+6800u现在笔记本都出不来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
