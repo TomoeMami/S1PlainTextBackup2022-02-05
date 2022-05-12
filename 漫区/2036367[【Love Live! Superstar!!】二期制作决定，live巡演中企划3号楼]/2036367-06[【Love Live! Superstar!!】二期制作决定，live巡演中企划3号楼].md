@@ -5273,3 +5273,35 @@ https://b23.tv/3RQYMwN
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发现上面那个声音样本p3就有动起来的彩  不太顶
 
+
+
+*****
+
+####  靡宜  
+##### 7888#       发表于 2022-5-12 12:14
+
+<blockquote>lj205 发表于 2022-5-12 11:44
+现在凑够9个人了，是不是后面又该分3小组了？鲤鱼这大概率要进清纯组 ...</blockquote>
+感觉鲤鱼姐只要不带两新人就问题不大
+
+*****
+
+####  仟音一心  
+##### 7889#       发表于 2022-5-12 12:17
+
+四个新人的自我介绍:
+薮岛朱音：对美食没有抵抗力，到了哪里都会寻找当地美食，喜欢收集化妆品。
+铃原希实：喜欢绘画，尤其是画女孩子。
+绘森彩：喜欢给女偶像应援。
+大熊和奏：喜欢音乐和唱歌。
+
+有没有发现，有一个人的爱好，是四个人加起来。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 7890#       发表于 2022-5-12 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799838&amp;ptid=2036367" target="_blank"> 仟音一心 发表于 2022-5-12 12:17</a> 四个新人的自我介绍: 薮岛朱音：对美食没有抵抗力，到了哪里都会寻找当地美食，喜欢收集化妆品。 铃原希实：喜欢绘画，尤其是画女孩子。 绘森彩：喜欢给女偶像应援。 大熊和奏：喜欢音乐和唱歌。  有没有发现，有一个人的爱好，是四个人加起来。 </blockquote>
+hnk？来自: iPhone客户端
+
