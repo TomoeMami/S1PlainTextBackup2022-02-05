@@ -10670,3 +10670,32 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 （希望不是从街机引流过来的...）
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87917#       发表于 2022-5-12 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799059&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-12 11:29</a>
+
+摩根带相扑就如同17年的源赖光带宝石翁，新手借一个就能所向披靡。
+
+貌似换了新公司后新玩家确实多了不少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">街机那玩意儿除了手游老玩家谁会去碰啊
+
+*****
+
+####  Jamaisvu  
+##### 87918#       发表于 2022-5-12 11:37
+
+<blockquote>UNISONIA 发表于 2022-5-12 10:53
+我猜测这章登场的角色可能都有某个共性，包括某个可能出场的Beast
+
+即为“剧情里出现的形象是传奇中的形 ...</blockquote>
+挺有可能的，“死想显现”可能就是指历史上的英雄已死，但人们想象中的传说不灭。
+
+在这片幻境异闻带中，史实英雄和幻想从者风云对垒，决定哪种形象值得流芳百世，哪段故事需要事象剪定。
+
+如果真是如此，忽然感觉拿破仑archer也挺适合在这章出场的...当然，还让樱井光写剧本就算了...
+
