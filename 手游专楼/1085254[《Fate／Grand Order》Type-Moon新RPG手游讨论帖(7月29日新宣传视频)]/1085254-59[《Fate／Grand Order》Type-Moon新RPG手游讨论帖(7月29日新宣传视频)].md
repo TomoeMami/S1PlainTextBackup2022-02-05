@@ -10582,3 +10582,34 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 早上登陆的时候跳出来个用的最多的五星啥的，我怎么是摩根<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么想都是拐用的最多吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87911#       发表于 2022-5-12 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55796700&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-5-12 08:54</a>
+
+旧版耶路撒冷按照talk看原本要登场又因为一些原因被删掉的是真理查，查理曼骑士原本就不会在早期策划里的 ...</blockquote>
+因为traum这个指代不明的位置很奇怪，我就有些怀疑是不是本来的地名因为敏感因素被和谐了...
+
+另外君士坦丁+梦境可以索引到文艺复兴时期皮耶罗的画作《君士坦丁之梦》，描述了君士坦丁一世在军帐中睡眠的场景，预示着罗马的宗教将在米兰赦令后奉基督教为正统。
+
+君士坦丁大帝是重新统一罗马帝国的强者，如果这章是樱井来写很可能带他玩，虽然罗马已经有奎里努斯这个天花板了...
+
+俗话说王不见王，希望2.6.5还是让查理曼好好表现一下吧。
+
+*****
+
+####  Jamaisvu  
+##### 87912#       发表于 2022-5-12 09:36
+
+ 本帖最后由 Jamaisvu 于 2022-5-12 09:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797078&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-5-12 09:21</a>
+
+早上登陆的时候跳出来个用的最多的五星啥的，我怎么是摩根怎么想都是拐用的最多吧 ...</blockquote>
+那个好像是助战借用最多的从者吧，还会显示给了多少友情点。
+
+（你挂的是不是带羁绊礼装的摩根啊，可能有路人看到了想开图册就借用一下？）
+

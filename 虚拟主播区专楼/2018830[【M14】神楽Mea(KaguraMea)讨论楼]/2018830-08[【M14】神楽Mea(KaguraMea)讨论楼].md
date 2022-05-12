@@ -4892,3 +4892,21 @@ v生命不长 mea已经算坚持的久了的 观众也是这样好吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有人理我是没想到的
 
+
+
+*****
+
+####  zc1996zc  
+##### 10972#       发表于 2022-5-12 09:38
+
+这盖楼速度，加上某些老熟人，好像出事的事麻一样
+
+*****
+
+####  朝颜  
+##### 10973#       发表于 2022-5-12 09:41
+
+m楼都回到19年了，麻麻的同接能回到19年吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

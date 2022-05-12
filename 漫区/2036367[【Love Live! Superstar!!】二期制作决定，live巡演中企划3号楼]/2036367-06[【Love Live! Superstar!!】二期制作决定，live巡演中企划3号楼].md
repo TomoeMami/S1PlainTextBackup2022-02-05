@@ -4859,3 +4859,19 @@ ABC所属，宫崎县出身
 
 <img src="https://img.saraba1st.com/forum/202205/12/093153l507oww5585theu0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cryogenian  
+##### 7846#       发表于 2022-5-12 09:34
+
+这四人刚进组，化妆造型和打光都没找着感觉，以后再观察观察
+
+*****
+
+####  stygian  
+##### 7847#       发表于 2022-5-12 09:38
+
+绘森的颜比较浓就不适合现在这些造型，学下川口春奈微调完后的风格比较适合
+
