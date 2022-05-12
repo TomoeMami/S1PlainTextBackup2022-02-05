@@ -4907,3 +4907,58 @@ ABC所属，宫崎县出身
 
 四舍五入跟小百合差不多，这两期leader都是东北出身都是150身高，就看看后期舞台表现和担当
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7851#       发表于 2022-5-12 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797604&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-12 10:00</a>
+
+四舍五入跟小百合差不多，这两期leader都是东北出身都是150身高，就看看后期舞台表现和担当 ...</blockquote>
+啊，二期生有提到分Leader的么？
+
+*****
+
+####  iuhehc  
+##### 7852#       发表于 2022-5-12 10:09
+
+宫崎不是南边的么
+
+*****
+
+####  仟音一心  
+##### 7853#       发表于 2022-5-12 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797077&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-12 09:21</a>
+鈴原希実真就是Apollo Bay的</blockquote>
+是AB也就代表着极大概率是海选时一并签的。
+嘛，只能暂定她真的有仅此于Sayu Nagi的实力吧。
+
+*****
+
+####  梶原ひかり  
+##### 7854#       发表于 2022-5-12 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">伊达是我们裂裂永恒的leader 内部不要搞小圈子
+
+*****
+
+####  lj205  
+##### 7855#       发表于 2022-5-12 10:10
+
+ 本帖最后由 lj205 于 2022-5-12 10:12 编辑 
+
+编辑
+
+*****
+
+####  lj205  
+##### 7856#       发表于 2022-5-12 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797653&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-12 10:03</a>
+
+啊，二期生有提到分Leader的么？</blockquote>
+我觉着有这种隐藏分法，不过谁知道呢，就当我说着好玩的
+
