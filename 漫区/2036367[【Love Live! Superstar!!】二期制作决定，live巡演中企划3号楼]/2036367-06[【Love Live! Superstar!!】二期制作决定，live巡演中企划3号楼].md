@@ -5445,3 +5445,32 @@ Im也和sma一个德行吗
 不过昨天看B站有人在海内和海外拉拉圈子里做了千百来份的投票问卷，海外有过半的票数都认为该整合的，总 ...</blockquote>
 因为不整合就真裂啦，不如直接搞个新团，但只想五角星的我不关心，反正都是个圈钱企划假惺惺卖什么情怀<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 7905#       发表于 2022-5-12 13:13
+
+无题
+
+a5af74816d37157.jpg
+(335.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 13:13 上传
+
+<img src="https://img.saraba1st.com/forum/202205/12/131305k5hh70euvk5hdurp.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 7906#       发表于 2022-5-12 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799838&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-12 12:17</a>
+四个新人的自我介绍:
+薮岛朱音：对美食没有抵抗力，到了哪里都会寻找当地美食，喜欢收集化妆品。
+铃原希实 ...</blockquote>
+难道可可是郭嘉？遗计摸上来四张牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

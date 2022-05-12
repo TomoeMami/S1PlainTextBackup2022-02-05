@@ -10745,3 +10745,19 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 终于抽到C呆了……你们知道我这么多年是怎么过的么……</blockquote>
 我当年可是只有梅林<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 87923#       发表于 2022-5-12 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55799174&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-12 11:37</a>
+
+挺有可能的，“死想显现”可能就是指历史上的英雄已死，但人们想象中的传说不灭。
+
+在这片幻境异闻带中， ...</blockquote>
+应该是黑幕（可能是Beast）制造了Traum这一个领域然后把具有相同性质的人拉进来实现他的目的，要是再整查理曼卡尔那一套幻想侧与史实侧互殴，那东出也太江郎才尽了……
+
+东出的活动写的水平忽上忽下，我这次还挺期待他翻车的
+
