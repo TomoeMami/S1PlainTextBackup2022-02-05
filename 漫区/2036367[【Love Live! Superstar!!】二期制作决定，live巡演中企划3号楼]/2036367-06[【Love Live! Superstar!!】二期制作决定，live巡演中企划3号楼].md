@@ -4713,3 +4713,45 @@ C64C2B8A-3FB7-4676-A367-D30E0AB3D6BB.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/12/085324t9y245ra46r8vmy8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 7839#       发表于 2022-5-12 09:20
+
+💫ラブライブ！スーパースター!!💫
+
+#Liella! 2期生4名のキャスト情報を発表🎊
+
+桜小路きな子役：鈴原希実
+
+米女メイ役：薮島朱音
+
+若菜四季役：大熊和奏
+
+鬼塚夏美役：絵森 彩
+
+本日発売の「LoveLive!Days Liella! SPECIAL Vol.02 2022 May」にはコメントも掲載✨
+[https://lovelive-anime.jp/yuigaoka/topics/detail.php?p=01_528](https://lovelive-anime.jp/yuigaoka/topics/detail.php?p=01_528)
+
+💫ラブライブ！スーパースター!!💫
+
+さらに、Liella!の新アーティスト写真を公開🎊
+
+また、9人初の「Liella!生放送」を6/8(水)20時より配信することが決定📺
+
+6/11(土)より始まるライブ＆ファンミーティングツアーの直前に、9人勢ぞろいでお届けします✨
+
+是非お楽しみに🎶
+<img src="https://p.sda1.dev/5/f3cac8b81c5c367773e57a9b265831b7/20220512_091955.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/1128939127f6a17598b95af01f27f82b/20220512_091956.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/5/3b421adfc237e33ecbaa11c75b7872b1/20220512_091957.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 7840#       发表于 2022-5-12 09:21
+
+鈴原希実真就是Apollo Bay的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
