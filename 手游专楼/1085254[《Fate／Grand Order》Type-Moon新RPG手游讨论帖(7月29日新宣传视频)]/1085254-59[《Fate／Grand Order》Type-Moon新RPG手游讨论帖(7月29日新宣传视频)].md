@@ -10654,3 +10654,19 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 我助战摩根带的是相扑感觉是被人借去推图的？</blockquote>
 估计是有新入坑的关注了你吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87916#       发表于 2022-5-12 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55797428&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-5-12 09:47</a>
+
+我助战摩根带的是相扑感觉是被人借去推图的？</blockquote>
+摩根带相扑就如同17年的源赖光带宝石翁，新手借一个就能所向披靡。
+
+貌似换了新公司后新玩家确实多了不少，follower上限都从5加到10了，看来新的500WDL也不全是阴兵啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（希望不是从街机引流过来的...）
+

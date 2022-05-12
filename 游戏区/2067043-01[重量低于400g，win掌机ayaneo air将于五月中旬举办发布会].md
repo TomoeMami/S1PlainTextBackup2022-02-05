@@ -990,3 +990,14 @@ gpdwin1，win2
 只玩gal没必要上这个，win1，win2就行了</blockquote>
 主要是gpd这个牌子给人印象很差 我现在是用平板串流玩的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 如果这类新品便宜的话倒是可以冲来玩玩 太重还是不行 之前试过朋友的AYA NEXT 感觉还是比较重的 而且那个屏幕感觉一般般 可能是分辨率的问题 感觉有点糙
 
+
+
+*****
+
+####  cc-2  
+##### 104#       发表于 2022-5-12 11:26
+
+就是因为5.5太小，我没有买WIN3而是买了WIN MAX 2021
+
+不然真的看不清
+

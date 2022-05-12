@@ -5171,3 +5171,42 @@ https://b23.tv/3RQYMwN
 
 2022-5-12 11:20 上传
 
+
+
+*****
+
+####  lj205  
+##### 7877#       发表于 2022-5-12 11:22
+
+ 本帖最后由 lj205 于 2022-5-12 11:24 编辑 
+
+星团2单还是没影子
+
+可可的单人ED，可可的C位单，妈的
+
+*****
+
+####  竹筷  
+##### 7878#       发表于 2022-5-12 11:23
+
+我倒很好奇为什么OPED情报图是紫蓝撞色，难道OP是五老星ED是新四
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 7879#       发表于 2022-5-12 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能够吧 搞小团体？
+
+*****
+
+####  Enakina  
+##### 7880#       发表于 2022-5-12 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55798924&amp;ptid=2036367" target="_blank">lj205 发表于 2022-05-12 11:22:52</a>
+星团2单还是没影子
+
+可可的单人ED，可可的C位单，妈的</blockquote>二单c早就没戏了，9人在出道单又是小百合c。短时间内也不会开三单了，不然对新人不公平，二期可可c的机会没准还大点
+
