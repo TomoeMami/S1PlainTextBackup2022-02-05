@@ -1705,3 +1705,29 @@ paytan这不老熟人了吗，大惊小怪<img src="https://static.saraba1st.com
 这么多年过去殊途同归
 结果都是ling人
 
+
+
+*****
+
+####  面具13  
+##### 9178#       发表于 2022-5-12 17:41
+
+给什么游戏配音，手游吗？
+
+*****
+
+####  Scardy  
+##### 9179#       发表于 2022-5-12 17:44
+
+很久之前就发表的那个游戏吧，也不知道做成啥样了
+
+<img src="https://img.saraba1st.com/forum/202205/12/174418umc5ubqxbk2zzxkv.png" referrerpolicy="no-referrer">
+
+<strong>445045872ca110c9.png</strong> (342.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-12 17:44 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
