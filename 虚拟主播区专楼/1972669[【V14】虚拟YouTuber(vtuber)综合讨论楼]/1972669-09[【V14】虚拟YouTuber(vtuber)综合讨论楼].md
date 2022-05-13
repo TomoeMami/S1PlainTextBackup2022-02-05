@@ -13019,3 +13019,54 @@ apex和哈弟举办的大会（）
 
 说起来虹男起来之后真的没有人想过试试VSPO性转箱吗，如果vspo是虹女的上位替代的话，不限制男女联动和炒cp的竞男箱感觉也挺有戏的
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13230#       发表于 2022-5-13 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820454&amp;ptid=1972669" target="_blank">fastary 发表于 2022-5-13 16:41</a>
+
+说起来虹男起来之后真的没有人想过试试VSPO性转箱吗，如果vspo是虹女的上位替代的话，不限制男女联动和炒cp ...</blockquote>
+那不就是“偶像化”的职业选手主播箱……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Kokichi  
+##### 13231#       发表于 2022-5-13 16:45
+
+cr streamer不就是这个定位么……
+新箱要怎么打真王daruma，看哈弟箱男人那个样子都没法从个人势强手里抢饭吃
+
+*****
+
+####  天天座理世  
+##### 13232#       发表于 2022-5-13 16:45
+
+有个cr势在，你搞个性转箱自寻死路
+
+*****
+
+####  bluebaby  
+##### 13233#       发表于 2022-5-13 16:48
+
+缺个退役日本fps冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+等日本人盼到了世界冠军，赶紧退役当日本yyf好吧
+
+*****
+
+####  poipanchao  
+##### 13234#       发表于 2022-5-13 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820454&amp;ptid=1972669" target="_blank">fastary 发表于 2022-5-13 16:41</a>
+说起来虹男起来之后真的没有人想过试试VSPO性转箱吗，如果vspo是虹女的上位替代的话，不限制男女联动和炒cp ...</blockquote>
+曾经大家觉得哈弟箱会是这样，从条件上也只有他最合适
+现在看来可能是真的招不到枪刚又有嘴条的人
+像daruma这种型号的真稀罕
+
+竞男需要对比的是ras、selly这种职业哥，现阶段11区那几个本土枪男，全是闷葫芦
+枪力不够的就得嘴条凑，那就是king这型号了
+
