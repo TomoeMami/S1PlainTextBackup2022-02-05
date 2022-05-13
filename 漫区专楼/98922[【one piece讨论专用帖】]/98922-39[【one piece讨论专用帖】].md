@@ -13189,3 +13189,19 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 当然怎么也死不掉的了。不然不就改写未来了么
 
+
+
+*****
+
+####  武男  
+##### 58104#       发表于 2022-5-13 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55812610&amp;ptid=98922" target="_blank">DGIL 发表于 2022-5-13 08:14</a>
+
+我受到了启发！
+
+凯多看了御田的日记，撕去了一页！
+
+他知道未来要发生的事，也知道了他会注定由乔伊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">贴吧版海贼王貌似有类似的剧情？
+
