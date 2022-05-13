@@ -6385,3 +6385,47 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 
 未梦：完全不喜欢百合呢
 
+
+
+*****
+
+####  cybernetics31  
+##### 7982#       发表于 2022-5-13 17:14
+
+论营业隔壁虹营业上头了都
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">9色棒还是来了，手头1st 5色棒再也用不上了，哎
+
+*****
+
+####  仟音一心  
+##### 7983#       发表于 2022-5-13 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820790&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-13 16:56</a>
+两个名场面
+
+奈酱：未梦她不会是喜欢我吧
+
+未梦：完全不喜欢百合呢</blockquote>
+主要这两个就是同一天发布的，奈酱视频评论区都是：从隔离过来嘲笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  仟音一心  
+##### 7984#       发表于 2022-5-13 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820450&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-5-13 16:41</a>
+哈哈其实无所谓吧都是LL企划
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我基本上都发在虹咲专楼了，你点只看我的回贴应该能找到很多。
+
+*****
+
+####  lj205  
+##### 7985#       发表于 2022-5-13 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55821137&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-13 17:14</a>
+论营业隔壁虹营业上头了都
+9色棒还是来了，手头1st 5色棒再也用不上了，哎 ...</blockquote>
+绝版的还不好？我还有1st海报<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
