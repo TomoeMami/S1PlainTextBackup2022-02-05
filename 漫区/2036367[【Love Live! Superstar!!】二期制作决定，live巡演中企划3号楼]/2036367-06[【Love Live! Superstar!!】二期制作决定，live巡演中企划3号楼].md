@@ -6479,3 +6479,12 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 9色棒还是来了，手头1st 5色棒再也用不上了，哎 ...</blockquote>
 绝版了，保值<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 7991#       发表于 2022-5-13 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">一直没买场贩无所谓，唯一遗憾的是没买到始空可可趴
+
