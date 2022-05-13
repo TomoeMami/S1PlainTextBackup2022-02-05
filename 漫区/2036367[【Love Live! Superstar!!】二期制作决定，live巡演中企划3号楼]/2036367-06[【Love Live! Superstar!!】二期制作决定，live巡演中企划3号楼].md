@@ -6041,3 +6041,38 @@ im的不一定开推。。。不过参加这个企划确实应该开一开<img s
 
 两新人连前辈也不提一下，说好的日本人尊上呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 7957#       发表于 2022-5-13 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55815468&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-13 11:22</a>
+
+两新人连前辈也不提一下，说好的日本人尊上呢</blockquote>
+就怕下克上<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 7958#       发表于 2022-5-13 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55815254&amp;ptid=2036367" target="_blank">forgetit 发表于 2022-5-13 11:11</a>
+im的不一定开推。。。不过参加这个企划确实应该开一开</blockquote>
+那不至于，不开推多少有点离谱了，她那三个马甲还在那里摆着呢<img src="https://p.sda1.dev/5/a3262aeb2150ea11fbdd14f421777b67/IMG_CMP_121216451.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 7959#       发表于 2022-5-13 11:27
+
+<blockquote>引用第7955楼lj205于2022-05-13 11:22发表的  :
+
+两新人连前辈也不提一下，说好的日本人尊上呢</blockquote>
+@lj205
+
+缪动画一话专门讲先辈禁止。这波是三次元妇科<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
