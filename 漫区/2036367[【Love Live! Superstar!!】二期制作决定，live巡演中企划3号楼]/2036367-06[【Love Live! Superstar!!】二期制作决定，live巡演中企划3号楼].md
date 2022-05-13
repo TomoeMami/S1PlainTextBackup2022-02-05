@@ -6353,3 +6353,18 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 
 等等，这里是星团专楼吧。
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7980#       发表于 2022-5-13 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820021&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-13 16:21</a>
+第三光源_ThirdLight，不过主要是围绕奈酱的。
+
+等等，这里是星团专楼吧。 ...</blockquote>
+哈哈其实无所谓吧都是LL企划<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
