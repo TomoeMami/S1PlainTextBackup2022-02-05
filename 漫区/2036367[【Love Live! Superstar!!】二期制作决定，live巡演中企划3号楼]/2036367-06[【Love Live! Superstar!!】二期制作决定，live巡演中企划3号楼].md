@@ -6819,3 +6819,20 @@ B.L.T7月号Liella！企画第四弹登场的是Liyuu
 不希望鲤鱼进清纯组就是</blockquote>
 其实清纯组是哪组捏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 8022#       发表于 2022-5-13 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等分组再说吧…………
+鱼要上anjuju的anige-eleven节目了
+
+*****
+
+####  ViyViy  
+##### 8023#       发表于 2022-5-13 22:35
+
+是指恋+树奈子+可可吧？
+
