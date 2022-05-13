@@ -6255,3 +6255,30 @@ B3E73107-350D-4C55-9060-4526242594A2.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/13/144834lpunjrpm22v35752.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7971#       发表于 2022-5-13 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55818480&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-13 14:41</a></blockquote>
+这是个啥？虚拟技术？
+
+*****
+
+####  forgetit  
+##### 7972#       发表于 2022-5-13 15:38
+
+原来已经开了。。。
+
+*****
+
+####  仟音一心  
+##### 7973#       发表于 2022-5-13 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819221&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-13 15:37</a>
+这是个啥？虚拟技术？</blockquote>
+扩展现实(Extended Reality，简称XR)，是指通过计算机将真实与虚拟相结合，打造一个可人机交互的虚拟环境，这也是AR、VR、MR等多种技术的统称。通过将三者的视觉交互技术相融合，为体验者带来虚拟世界与现实世界之间无缝转换的“沉浸感”。
+感觉上有点像虹咲动画的场地魔法，但应该没这么先进。
+
