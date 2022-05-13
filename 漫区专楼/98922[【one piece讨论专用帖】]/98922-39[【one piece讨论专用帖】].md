@@ -13214,3 +13214,19 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 凯多是因为肚子饿才故意被海军抓的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DGIL  
+##### 58106#       发表于 2022-5-13 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55815926&amp;ptid=98922" target="_blank">武男 发表于 2022-5-13 11:49</a>
+
+贴吧版海贼王貌似有类似的剧情？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">其实可不是嘛~既然已经在未来被决定了命运
+
+那现在是就勿论如何都死不了,不管是被抓还是自己寻死
+
+除非能够改变未来
+
