@@ -6744,3 +6744,50 @@ B.L.T7月号Liella！企画第四弹登场的是Liyuu
 正好隔壁在聊分组的事，要真能这么分也没啥，可惜一定是要投票的。</blockquote>
 这要是分组，第二组综合水平强得过了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8015#       发表于 2022-5-13 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55825767&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-13 21:39</a>
+
+正好隔壁在聊分组的事，要真能这么分也没啥，可惜一定是要投票的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这还是太离谱了，几个cp全在一块了，我觉得nga楼里放的这张图大概率投完票之后也是这结果
+
+<img src="https://img.saraba1st.com/forum/202205/13/220408gyeu6xuu2pgew0kw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-13 22:04 上传
+
+*****
+
+####  仟音一心  
+##### 8016#       发表于 2022-5-13 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55826123&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-13 22:00</a>
+这要是分组，第二组综合水平强得过了。</blockquote>
+十有八九还是333，而且五老星要带四新星。
+
+*****
+
+####  iuhehc  
+##### 8017#       发表于 2022-5-13 22:06
+
+红蓝毛肯定要捆绑啊我觉得
+
+*****
+
+####  仟音一心  
+##### 8018#       发表于 2022-5-13 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55826184&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-13 22:04</a>
+你这还是太离谱了，几个cp全在一块了，我觉得nga楼里放的这张图大概率投完票之后也是这结果
+
+ ...</blockquote>
+不知道分组投票中华炮能不能起作用了。
+
