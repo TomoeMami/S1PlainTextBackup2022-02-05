@@ -6654,3 +6654,28 @@ nga专楼从海报猜分组我觉得还挺合理的<img src="https://static.sara
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绘森彩的出演告知推文的回复/转发/点赞已经超过伊达当年的推文了
 
+
+
+*****
+
+####  ykyin09  
+##### 8008#       发表于 2022-5-13 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新人上完生放就该准备投票分小组了吧
+
+*****
+
+####  仟音一心  
+##### 8009#       发表于 2022-5-13 21:17
+
+发言很是老练
+
+D6CC702F-954C-45C3-B094-2957E4EABB49.jpeg
+(220.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-13 21:17 上传
+
+<img src="https://img.saraba1st.com/forum/202205/13/211706vsy6prqy2f9yentg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

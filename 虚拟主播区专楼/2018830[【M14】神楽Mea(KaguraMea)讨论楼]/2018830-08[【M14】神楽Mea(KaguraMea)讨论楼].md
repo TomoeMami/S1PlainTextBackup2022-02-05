@@ -5502,3 +5502,16 @@ LZSB</blockquote>
 
 肥婆昨晚的小夜子挺好听的，可惜漏了词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 11036#       发表于 2022-5-13 21:18
+
+今晚矮乐多出咩咩耶<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+竟然在nga的m楼看到了冒菜<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
