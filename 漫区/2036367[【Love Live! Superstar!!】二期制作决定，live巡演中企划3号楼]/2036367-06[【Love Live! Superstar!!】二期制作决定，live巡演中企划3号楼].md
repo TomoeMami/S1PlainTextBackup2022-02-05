@@ -6324,3 +6324,32 @@ DD组发糖多吗，不知道b站搜什么关键词命中率高
 
 DD那营业力度大的离谱好吧，不过我感觉是她们在自救了
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7978#       发表于 2022-5-13 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819642&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-13 16:00</a>
+DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组了。</blockquote>
+求个字幕组名字
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 7979#       发表于 2022-5-13 16:21
+
+ 本帖最后由 仟音一心 于 2022-5-13 16:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819914&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-5-13 16:16</a>
+
+求个字幕组名字
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+
+第三光源_ThirdLight，不过主要是围绕奈酱的。
+
+等等，这里是星团专楼吧。
+
