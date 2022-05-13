@@ -6870,3 +6870,44 @@ B.L.T7月号Liella！企画第四弹登场的是Liyuu
 
 BS11频道5月20日，前后两个电视节目，写真集和蓝光一起宣传了，希望后面赶紧来更多活动
 
+
+
+*****
+
+####  仟音一心  
+##### 8027#       发表于 2022-5-13 23:29
+
+mezashiozsn
+
+C900CD9B-D1E7-4F72-A1D4-2547D76CD10E.jpeg
+(150.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-13 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202205/13/232916pmawsa5cwg8zsc7g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+44916826-A762-45A2-B81D-5764CFDA4289.jpeg
+(135.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-13 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202205/13/232916k332g2l3k12nz3uu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 8028#       发表于 2022-5-13 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55827011&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-5-13 22:46</a>
+
+虹咲其实是两轮 第一轮提供分组组合 第二轮在人气排前的组合中投票...
+
+水团其实也是这样...
+
+有了组合之后 ...</blockquote>
+好吧，谢谢科普，我确实不太了解分组投票的流程
+
