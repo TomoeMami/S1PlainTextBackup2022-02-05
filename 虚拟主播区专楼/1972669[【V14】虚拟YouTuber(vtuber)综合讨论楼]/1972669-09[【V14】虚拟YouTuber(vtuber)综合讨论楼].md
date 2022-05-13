@@ -13081,3 +13081,15 @@ cr streamer不就是这个定位么……
 
 cr势是…指一位打枪强又会聊的大热个人势daruma？我不造啊，其实我不看打枪的只知道竞男(打枪)火所以随口说的<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">其实也不一定要对标vspo，不过现在新箱除了打枪参加大会好像很难吸引路人注意了
 
+
+
+*****
+
+####  winda  
+##### 13236#       发表于 2022-5-13 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820338&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-5-13 16:36</a>
+体感起飞最初是凭借oreapo剪辑、参与各种大企划联动两点吧，然后靠技术留住观众。但主要还是cp火了，毕竟丽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">丽姐和叶师联动打塔科夫把她带上3000成为vspo一姐算是vspo最早崛起了
+花芽姐妹带懒狗也没这效果
+

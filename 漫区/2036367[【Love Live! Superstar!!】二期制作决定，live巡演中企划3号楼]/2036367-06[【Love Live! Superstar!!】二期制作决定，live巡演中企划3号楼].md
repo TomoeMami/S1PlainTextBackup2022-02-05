@@ -6429,3 +6429,23 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 9色棒还是来了，手头1st 5色棒再也用不上了，哎 ...</blockquote>
 绝版的还不好？我还有1st海报<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 7986#       发表于 2022-5-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55821258&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-13 17:21</a>
+绝版的还不好？我还有1st海报</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样的绝版…………哎
+
+*****
+
+####  csolfans  
+##### 7987#       发表于 2022-5-13 17:26
+
+<blockquote>lj205 发表于 2022-5-13 17:21
+绝版的还不好？我还有1st海报</blockquote>
+想买1st海报买不到，只收了1st场刊。不过2nd的场刊，海报，棒子还能买
+
