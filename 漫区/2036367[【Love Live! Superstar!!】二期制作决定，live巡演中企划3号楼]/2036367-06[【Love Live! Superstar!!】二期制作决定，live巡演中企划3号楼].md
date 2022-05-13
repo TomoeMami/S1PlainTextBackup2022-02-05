@@ -6488,3 +6488,18 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">一直没买场贩无所谓，唯一遗憾的是没买到始空可可趴
 
+
+
+*****
+
+####  DarthAka  
+##### 7992#       发表于 2022-5-13 18:46
+
+<blockquote>一个陆仁贾 发表于 2022-5-13 16:16
+求个字幕组名字
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+艾氵连
+
+这UP是久保田单推
+
