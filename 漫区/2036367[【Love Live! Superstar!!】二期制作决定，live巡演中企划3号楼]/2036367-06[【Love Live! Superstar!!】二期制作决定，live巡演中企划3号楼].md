@@ -6717,3 +6717,30 @@ D6CC702F-954C-45C3-B094-2957E4EABB49.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/13/213928dobbieiuu5g24goh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 8013#       发表于 2022-5-13 21:56
+
+B.L.T7月号Liella！企画第四弹登场的是Liyuu
+
+<img src="https://img.saraba1st.com/forum/202205/13/215606lldnnnrjlrx120bz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220513215450.png</strong> (27.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-13 21:56 上传
+
+*****
+
+####  靡宜  
+##### 8014#       发表于 2022-5-13 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55825767&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-13 21:39</a>
+
+正好隔壁在聊分组的事，要真能这么分也没啥，可惜一定是要投票的。</blockquote>
+这要是分组，第二组综合水平强得过了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
