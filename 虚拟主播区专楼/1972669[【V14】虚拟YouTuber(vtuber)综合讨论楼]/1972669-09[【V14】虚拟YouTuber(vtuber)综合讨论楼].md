@@ -13106,3 +13106,12 @@ cr势是…指一位打枪强又会聊的大热个人势daruma？我不造啊，
 要找fps creater，riddle有vodka，zeta有stylishnoob，市场也饱和了
 syl，neoporte这批相比打枪，明显音乐才是中心啊，np一姐现在是靠歌回上w的绯月yui
 
+
+
+*****
+
+####  OldGlory  
+##### 13238#       发表于 2022-5-13 17:47
+
+虹女要靠和虹男联动才有数字的时候已经是完蛋了，vspo最多算最后一根稻草。
+

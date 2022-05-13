@@ -13205,3 +13205,12 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 他知道未来要发生的事，也知道了他会注定由乔伊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">贴吧版海贼王貌似有类似的剧情？
 
+
+
+*****
+
+####  刹那の劍  
+##### 58105#       发表于 2022-5-13 17:42
+
+凯多是因为肚子饿才故意被海军抓的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
