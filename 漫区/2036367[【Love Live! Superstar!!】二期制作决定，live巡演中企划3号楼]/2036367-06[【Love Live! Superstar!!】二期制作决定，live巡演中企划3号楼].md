@@ -6633,3 +6633,15 @@ nga专楼从海报猜分组我觉得还挺合理的<img src="https://static.sara
 
 没必要想那么多，同事而已，先不管水平如何，但她要能给整两首中文歌就不赖
 
+
+
+*****
+
+####  靡宜  
+##### 8006#       发表于 2022-5-13 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55824545&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-13 20:36</a>
+
+没必要想那么多，同事而已，先不管水平如何，但她要能给整两首中文歌就不赖 ...</blockquote>
++1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
