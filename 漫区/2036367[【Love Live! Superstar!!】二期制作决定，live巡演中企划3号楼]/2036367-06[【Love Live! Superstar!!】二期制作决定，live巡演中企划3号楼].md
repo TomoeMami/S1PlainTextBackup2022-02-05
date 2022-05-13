@@ -5954,3 +5954,19 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 中之人露脸这一特性决定了这边的企划不会搞到皮套人那样的毫无底线的压榨
 当然你说单纯强度高的话那我不好说 星1st强度就够高了 但是我相信是有相应的待遇的 不然也不会那么多人趋之若鹜
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7949#       发表于 2022-5-13 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55811585&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-13 01:27</a>
+
+那我倒觉得不会
+
+中之人露脸这一特性决定了这边的企划不会搞到皮套人那样的毫无底线的压榨
+
+当然你说单纯强 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果能露脸的话确实会少很多可能的顶级烂活
+
