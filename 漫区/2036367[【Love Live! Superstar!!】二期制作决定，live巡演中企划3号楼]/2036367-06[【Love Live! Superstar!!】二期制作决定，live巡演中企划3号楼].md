@@ -6543,3 +6543,36 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 
 鲤鱼初广播下周是新签的那个写歌的要上节目啊，看来真的可能让她后面给鲤鱼写歌？不过两个中国人，节目里用日语聊天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JustW_2  
+##### 7997#       发表于 2022-5-13 19:44
+
+<blockquote>兔姬姬姬姬姬 发表于 2022-5-12 00:17
+贴吧攻击性怎么感觉比s1还强</blockquote>
+s1很久没有攻击性很强了
+
+*****
+
+####  靡宜  
+##### 7998#       发表于 2022-5-13 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55823309&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-13 19:30</a>
+
+鲤鱼初广播下周是新签的那个写歌的要上节目啊，看来真的可能让她后面给鲤鱼写歌？不过两个中国人，节目里用 ...</blockquote>
+好兄弟还有没有科普，好像是有一丢丢印象<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  宋西湖  
+##### 7999#       发表于 2022-5-13 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55820021&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-13 16:21</a>
+
+第三光源_ThirdLight，不过主要是围绕奈酱的。
+
+等等，这里是星团专楼吧。 ...</blockquote>
+唬哈哈哈哈，不提我都没想起来，两边专楼刷，有时候我就会蒙了，
+
