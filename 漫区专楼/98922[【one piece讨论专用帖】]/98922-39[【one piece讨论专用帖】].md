@@ -13142,3 +13142,50 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 不是很明白，凯多这个死不了是宿命上的必须死在joyboy手上还是自己太强了
 
+
+
+*****
+
+####  DGIL  
+##### 58103#       发表于 2022-5-13 08:14
+
+ 本帖最后由 DGIL 于 2022-5-13 08:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55810905&amp;ptid=98922" target="_blank">南条一间 发表于 2022-5-13 00:31</a>
+
+不是很明白，凯多这个死不了是宿命上的必须死在joyboy手上还是自己太强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">我受到了启发！
+
+凯多看了御田的日记，撕去了一页！
+
+他知道未来要发生的事，也知道了他会注定由乔伊波伊轰杀
+
+凯多想要打破这个注定的命运
+
+我命由我不由天！死我也要自己死！
+
+但是不管他怎么寻死都死不掉
+
+对于这个一切都注定好了的世界很失望，什么都是注定好的命运很无聊~于是想要干碎这个无聊的世界
+
+但是现在也失败了，一切还是像注定一样由乔伊波伊击败了他
+
+正如他所说只有乔伊波伊才能打败他自己
+
+因为那时未来早已注定了这个结局
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">算了编不下去了，看着这回忆。。回忆中凯多像革命军的人又和剧场版的巴雷特似的、、
+
+说乔伊波伊和御田的时候带着亲切的笑。。这简直不像反派。。
+
+直接拿这话来看会以为他是友军
+
+最后凯多还是能洗的
+
+把贵族都拉下马人人平等。倒是个好口号，像革命军似的
+
+但是做法怎么那么奇怪呢，完全的暴君路线<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+既然未来已经注定凯多是乔伊波伊打倒，那他在此之前
+
+当然怎么也死不掉的了。不然不就改写未来了么
+
