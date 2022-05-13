@@ -6282,3 +6282,25 @@ B3E73107-350D-4C55-9060-4526242594A2.jpeg
 扩展现实(Extended Reality，简称XR)，是指通过计算机将真实与虚拟相结合，打造一个可人机交互的虚拟环境，这也是AR、VR、MR等多种技术的统称。通过将三者的视觉交互技术相融合，为体验者带来虚拟世界与现实世界之间无缝转换的“沉浸感”。
 感觉上有点像虹咲动画的场地魔法，但应该没这么先进。
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 7974#       发表于 2022-5-13 15:57
+
+DD组发糖多吗，不知道b站搜什么关键词命中率高
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 7975#       发表于 2022-5-13 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819584&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-5-13 15:57</a>
+DD组发糖多吗，不知道b站搜什么关键词命中率高
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5. ...</blockquote>
+DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组了。
+
