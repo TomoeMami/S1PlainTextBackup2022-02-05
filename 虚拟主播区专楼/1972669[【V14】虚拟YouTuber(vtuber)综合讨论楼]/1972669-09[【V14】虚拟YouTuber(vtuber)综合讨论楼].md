@@ -12956,3 +12956,28 @@ as之死又不新鲜，不管是游戏部还是点生活都品鉴过了
 
 插播山神3d 5.20披露，织姬星全员ddd，等一个同台
 
+
+
+*****
+
+####  空集  
+##### 13224#       发表于 2022-5-13 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819341&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-13 15:43</a>
+
+as之死又不新鲜，不管是游戏部还是点生活都品鉴过了
+
+想看vspo哈弟箱之类的，再上演一次皇帝轮流做的戏码 ...</blockquote>
+哈弟箱感觉还够不上 不过vspo现在同接啥是真的不容小觑坐稳第三箱<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">，很多时候甚至solo超大箱中底。。。但是问题是业界头部两箱这些年又进化了数次，感觉这皇帝很难轮流做
+
+*****
+
+####  poipanchao  
+##### 13225#       发表于 2022-5-13 16:28
+
+说起来这事也没别的地方讨论，楼友觉得vspo的关键牌是哪几个
+我之前看串里忆往昔
+丽分别跟黑黑的切片崭露头角
+noah横空出世
+oreapo的cp营业大热后正式起飞
+
