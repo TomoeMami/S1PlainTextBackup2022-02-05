@@ -6576,3 +6576,22 @@ s1很久没有攻击性很强了
 等等，这里是星团专楼吧。 ...</blockquote>
 唬哈哈哈哈，不提我都没想起来，两边专楼刷，有时候我就会蒙了，
 
+
+
+*****
+
+####  lj205  
+##### 8000#       发表于 2022-5-13 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55823540&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-13 19:44</a>
+
+好兄弟还有没有科普，好像是有一丢丢印象</blockquote>
+叫葛佳慧，不过跟群友打听好像人不怎样，混过101、48这些，B站还能搜到视频，但是好像特别想红，讲不定还瞧不起鲤鱼呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 8001#       发表于 2022-5-13 20:00
+
+可可OP趴趴好像日本那边延期发售了，我叔叔那儿买的，估计要等到年底了
+
