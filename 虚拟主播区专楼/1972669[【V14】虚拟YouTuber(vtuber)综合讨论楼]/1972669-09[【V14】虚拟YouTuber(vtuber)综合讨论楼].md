@@ -12911,3 +12911,30 @@ eden绑得给人感觉新衣服也会压着接力发布……公司组合投入�
 
 为什么虹女杏女对比如此强烈，我觉得你反过来再看看虹男杏男为啥对比如此强烈就能明白了，运营方针的影响还是蛮大的
 
+
+
+*****
+
+####  poipanchao  
+##### 13219#       发表于 2022-5-13 15:43
+
+ 本帖最后由 poipanchao 于 2022-5-13 15:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819006&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-5-13 15:22</a>
+不要着急，一步一个脚印，现在先看最新最靓的as死</blockquote>
+as之死又不新鲜，不管是游戏部还是点生活都品鉴过了
+想看vspo哈弟箱之类的，再上演一次皇帝轮流做的戏码，774就算了
+
+*****
+
+####  越动天下  
+##### 13220#       发表于 2022-5-13 15:44
+
+我还巴不得管人都死了算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉好烦
+
+*****
+
+####  真飞鸟i  
+##### 13221#       发表于 2022-5-13 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底整体箱的氛围已经定型了，进而也明确了粉丝群体方向。
+
