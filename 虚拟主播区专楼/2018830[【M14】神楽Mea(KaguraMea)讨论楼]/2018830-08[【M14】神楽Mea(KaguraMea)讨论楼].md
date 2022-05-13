@@ -5649,3 +5649,12 @@ no,个人势，参加了企划而已
 
 sony music旗下另一个虚拟艺人企划vee从7月中旬到现在人没选拔好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yanghaozhend  
+##### 11049#       发表于 2022-5-14 01:13
+
+啊，我是不是可以理解为纵贯线？
+
