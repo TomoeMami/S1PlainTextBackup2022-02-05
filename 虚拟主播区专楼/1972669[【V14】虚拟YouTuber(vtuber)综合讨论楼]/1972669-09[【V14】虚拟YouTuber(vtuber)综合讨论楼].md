@@ -13162,3 +13162,18 @@ syl，neoporte这批相比打枪，明显音乐才是中心啊，np一姐现在�
 
 不要靠近管人，会变得不幸.jpg
 
+
+
+*****
+
+####  fastary  
+##### 13244#       发表于 2022-5-14 04:06
+
+看到有不少人被瓦的Cpart回想起黑客那时候的心理创伤，真怀念啊……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+总觉得瓦也没黑客那时候严重，毕竟瓦背景故事很胃疼但明显还是很积极当v的，而黑客当时我觉得真的有做顺势毕业的准备…
+
+现在能轻松讨论的时候再回顾，黑客剧情演出很厉害只可惜剧情圆的不算高明，感觉还是本来想一起推od组但霞决定毕业所以临时改大纲，砍掉组织和胜那边的剧情伏笔完全转成他自己的故事，还要在两年内完结所以最后写的糙了点。而瓦共世界观又都想做剧情，目前的剧情完成度感觉就高不少<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+说起来黑客之后3D披露的cpart好像没一个不刀的，果然还是悲剧比较有故事性？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">紧接着的雪城和相羽那会儿还有老有人调侃黛导黛导差点给人家粉丝气的anti，还好后面黑客不走剧情新粉都不知道这茬，玩梗小鬼才没了
+
