@@ -6092,3 +6092,20 @@ im的不一定开推。。。不过参加这个企划确实应该开一开</bloc
 
 坏了第二季不会要花一集来搞先辈禁止复刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 7961#       发表于 2022-5-13 12:07
+
+<blockquote>引用第7959楼D麦林于2022-05-13 11:33发表的  :
+
+引用:cat1230 发表于 2022-5-13 11:27@lj205缪动画一话专门讲先辈禁止。这......</blockquote>
+@D麦林
+
+没搞过正常，一季这不是还没有先辈么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+现在可以搞了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
