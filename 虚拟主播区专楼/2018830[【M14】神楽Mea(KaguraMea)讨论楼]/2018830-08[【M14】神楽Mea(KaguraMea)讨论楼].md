@@ -5614,3 +5614,21 @@ no,个人势，参加了企划而已
 
 这个企划定一年限定也是非常合理的。目前看来前途多舛。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11047#       发表于 2022-5-14 00:51
+
+给你们看看sony music旗下当初沸沸扬扬的VERSEⁿ企划。21年11月中旬开始活动的，现在是这么个情况。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/14/005106mna973yikkqxf3z4.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220514004852946.jpg</strong> (39.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 00:51 上传
+
