@@ -6118,3 +6118,12 @@ im的不一定开推。。。不过参加这个企划确实应该开一开</bloc
 
 什么新人感想？先宣传我自己<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 7963#       发表于 2022-5-13 13:18
+
+新人这也正常吧，宣传自己无功无过。不过小百合昨天那个推提了四个人的名字了，这个我倒是觉得还是回一下比较好吧
+
