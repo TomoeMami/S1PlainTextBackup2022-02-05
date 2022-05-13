@@ -13093,3 +13093,16 @@ cr势是…指一位打枪强又会聊的大热个人势daruma？我不造啊，
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">丽姐和叶师联动打塔科夫把她带上3000成为vspo一姐算是vspo最早崛起了
 花芽姐妹带懒狗也没这效果
 
+
+
+*****
+
+####  winda  
+##### 13237#       发表于 2022-5-13 17:33
+
+ 本帖最后由 winda 于 2022-5-13 17:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说vspo性转竞男的，看不起我一年从同接3000飞跃到4w8的cr所属大主播drm么
+要找fps creater，riddle有vodka，zeta有stylishnoob，市场也饱和了
+syl，neoporte这批相比打枪，明显音乐才是中心啊，np一姐现在是靠歌回上w的绯月yui
+
