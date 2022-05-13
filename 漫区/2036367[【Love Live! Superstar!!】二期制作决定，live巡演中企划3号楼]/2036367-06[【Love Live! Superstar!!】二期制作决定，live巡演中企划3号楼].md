@@ -6032,3 +6032,12 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 那两个新人还没开推啊，im 和贤pro这运营水平………………鱼：小作文太难写了，先转发了吧 ...</blockquote>
 im的不一定开推。。。不过参加这个企划确实应该开一开<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7956#       发表于 2022-5-13 11:22
+
+两新人连前辈也不提一下，说好的日本人尊上呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
