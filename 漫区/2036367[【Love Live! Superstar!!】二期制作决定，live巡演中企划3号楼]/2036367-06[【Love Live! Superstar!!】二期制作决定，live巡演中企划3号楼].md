@@ -5979,3 +5979,21 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 皮套企划。。。也不知道什么时候出来。。。
 
+
+
+*****
+
+####  cybernetics31  
+##### 7951#       发表于 2022-5-13 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中之人暴露了还能叫虚拟吗………………
+
+*****
+
+####  Enakina  
+##### 7952#       发表于 2022-5-13 10:30
+
+<img src="https://p.sda1.dev/5/97901fcc27dac594cd6a1b556c6166c0/IMG_CMP_223663462.jpeg" referrerpolicy="no-referrer">
+转推了，等个小感想喽
+话说nako妈妈也还没发，是在等做最后的总结吗
+
