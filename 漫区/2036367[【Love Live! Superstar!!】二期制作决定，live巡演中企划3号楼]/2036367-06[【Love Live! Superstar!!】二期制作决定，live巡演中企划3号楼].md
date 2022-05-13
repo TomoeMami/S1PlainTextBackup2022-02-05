@@ -6465,3 +6465,17 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 
 1st棒子场刊海报都买了，毕竟有纪念意义，到2nd就只买了场刊
 
+
+
+*****
+
+####  靡宜  
+##### 7990#       发表于 2022-5-13 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55821137&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-13 17:14</a>
+
+论营业隔壁虹营业上头了都
+
+9色棒还是来了，手头1st 5色棒再也用不上了，哎 ...</blockquote>
+绝版了，保值<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

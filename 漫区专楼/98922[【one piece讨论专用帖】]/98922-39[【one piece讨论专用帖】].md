@@ -13247,3 +13247,15 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 进度差不多要到明弟看报了吧
 
+
+
+*****
+
+####  renkan119  
+##### 58108#       发表于 2022-5-13 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55810905&amp;ptid=98922" target="_blank">南条一间 发表于 2022-5-13 00:31</a>
+
+不是很明白，凯多这个死不了是宿命上的必须死在joyboy手上还是自己太强了</blockquote>
+就是强 凯多那句不是什么预言宿命之类的  就是听说御田开国是为了乔伊波伊 然后他打算闭关锁国 于是觉得真的有乔伊波伊的话那必须先打败自己
+
