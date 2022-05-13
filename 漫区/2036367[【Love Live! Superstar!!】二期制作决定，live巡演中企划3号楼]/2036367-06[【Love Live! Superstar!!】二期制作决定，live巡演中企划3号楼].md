@@ -6688,3 +6688,32 @@ D6CC702F-954C-45C3-B094-2957E4EABB49.jpeg
 
 啊。鲤鱼不考虑练练开球吗？我总预感她会直接往地上砸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 8011#       发表于 2022-5-13 21:34
+
+ 本帖最后由 Enakina 于 2022-5-13 21:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55825211&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-13 21:10</a>
+绘森彩的出演告知推文的回复/转发/点赞已经超过伊达当年的推文了</blockquote>
+有一说一，这也没啥好骄傲的。这是liella奋斗一年的成果体现罢了，我要是新人，我肯定慌得一笔，觉得自己真的能否配得上。不过绘森好像挺老道的，估计也挺有想法的
+同样是以前混偶像的pay可真是一张白纸啊，绘森这种大概才是前偶像的该有的水平 （指营业）
+
+*****
+
+####  仟音一心  
+##### 8012#       发表于 2022-5-13 21:39
+
+正好隔壁在聊分组的事，要真能这么分也没啥，可惜一定是要投票的。
+
+543A743C-0B58-4FB4-ADF3-8A4FFD041266.jpeg
+(114.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-13 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202205/13/213928dobbieiuu5g24goh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
