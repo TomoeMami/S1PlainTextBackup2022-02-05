@@ -5632,3 +5632,20 @@ no,个人势，参加了企划而已
 
 2022-5-14 00:51 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11048#       发表于 2022-5-14 01:04
+
+<img src="https://img.saraba1st.com/forum/202205/14/010308lor4nwn9qqkn2pnb.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220514010248544.jpg</strong> (42.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 01:03 上传
+
+sony music旗下另一个虚拟艺人企划vee从7月中旬到现在人没选拔好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
