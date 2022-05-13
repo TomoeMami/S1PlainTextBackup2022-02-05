@@ -5997,3 +5997,19 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 转推了，等个小感想喽
 话说nako妈妈也还没发，是在等做最后的总结吗
 
+
+
+*****
+
+####  D麦林  
+##### 7953#       发表于 2022-5-13 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55814267&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-13 10:21</a>
+
+中之人暴露了还能叫虚拟吗………………</blockquote>
+官方说的会有露脸活动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+既然官方觉得虚拟那肯定由他的独特之处
+
+纠结什么虚拟性这种事情管人痴才做
+
