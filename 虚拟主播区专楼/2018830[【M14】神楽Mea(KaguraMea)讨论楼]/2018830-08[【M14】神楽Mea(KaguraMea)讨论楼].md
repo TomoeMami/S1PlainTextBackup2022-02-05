@@ -5515,3 +5515,16 @@ LZSB</blockquote>
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11037#       发表于 2022-5-13 22:27
+
+vcp联动倒不一定是mea的人脉，
+
+苔苔的直播回放很直接的显示付费宣传，两次联动都是。
+
+恰的是sony和b站的钱。
+

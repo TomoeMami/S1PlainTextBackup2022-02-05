@@ -6800,3 +6800,22 @@ B.L.T7月号Liella！企画第四弹登场的是Liyuu
 
 分组就算投票应该也是在官方给出的组合可能里选吧？我之前看别人发的虹团看起来是那样的。如果是那样的话我个人感觉官方肯定会只给出老带新的分组，要不然大家基本都会选择新老分开吧
 
+
+
+*****
+
+####  lj205  
+##### 8020#       发表于 2022-5-13 22:26
+
+不希望鲤鱼进清纯组就是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 8021#       发表于 2022-5-13 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55826651&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-13 22:26</a>
+
+不希望鲤鱼进清纯组就是</blockquote>
+其实清纯组是哪组捏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
