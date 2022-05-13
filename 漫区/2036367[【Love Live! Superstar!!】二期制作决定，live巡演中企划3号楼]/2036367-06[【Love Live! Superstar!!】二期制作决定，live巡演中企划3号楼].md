@@ -6304,3 +6304,23 @@ DD组发糖多吗，不知道b站搜什么关键词命中率高
 —— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5. ...</blockquote>
 DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组了。
 
+
+
+*****
+
+####  cybernetics31  
+##### 7976#       发表于 2022-5-13 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55819584&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-5-13 15:57</a>
+DD组发糖多吗，不知道b站搜什么关键词命中率高
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搜中之人就行，目前双方属于单箭头阶段
+
+*****
+
+####  Enakina  
+##### 7977#       发表于 2022-5-13 16:06
+
+DD那营业力度大的离谱好吧，不过我感觉是她们在自救了
+
