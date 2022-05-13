@@ -6595,3 +6595,12 @@ s1很久没有攻击性很强了
 
 可可OP趴趴好像日本那边延期发售了，我叔叔那儿买的，估计要等到年底了
 
+
+
+*****
+
+####  cybernetics31  
+##### 8002#       发表于 2022-5-13 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知乎上有她的料 反正就emmm
+
