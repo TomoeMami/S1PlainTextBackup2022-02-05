@@ -6013,3 +6013,22 @@ SMA的照片管制略有耳闻，跨年Live的返图，灯的照片不但模糊�
 
 纠结什么虚拟性这种事情管人痴才做
 
+
+
+*****
+
+####  cybernetics31  
+##### 7954#       发表于 2022-5-13 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼：小作文太难写了，先转发了吧
+
+*****
+
+####  forgetit  
+##### 7955#       发表于 2022-5-13 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55815197&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-13 11:09</a>
+
+那两个新人还没开推啊，im 和贤pro这运营水平………………鱼：小作文太难写了，先转发了吧 ...</blockquote>
+im的不一定开推。。。不过参加这个企划确实应该开一开<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
