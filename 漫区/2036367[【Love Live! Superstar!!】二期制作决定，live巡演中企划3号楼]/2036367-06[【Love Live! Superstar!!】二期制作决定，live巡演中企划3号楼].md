@@ -6368,3 +6368,20 @@ DD组要戏里还是戏外？戏里其实不多，戏外都有专门的字幕组
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  优妮可  
+##### 7981#       发表于 2022-5-13 16:56
+
+<blockquote>一个陆仁贾 发表于 2022-5-13 16:41
+哈哈其实无所谓吧都是LL企划
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+两个名场面
+
+奈酱：未梦她不会是喜欢我吧
+
+未梦：完全不喜欢百合呢
+

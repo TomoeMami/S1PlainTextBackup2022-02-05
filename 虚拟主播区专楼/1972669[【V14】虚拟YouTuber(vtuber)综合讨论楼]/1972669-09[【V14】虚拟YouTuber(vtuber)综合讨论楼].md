@@ -13070,3 +13070,14 @@ cr streamer不就是这个定位么……
 竞男需要对比的是ras、selly这种职业哥，现阶段11区那几个本土枪男，全是闷葫芦
 枪力不够的就得嘴条凑，那就是king这型号了
 
+
+
+*****
+
+####  fastary  
+##### 13235#       发表于 2022-5-13 16:55
+
+ 本帖最后由 fastary 于 2022-5-13 16:59 编辑 
+
+cr势是…指一位打枪强又会聊的大热个人势daruma？我不造啊，其实我不看打枪的只知道竞男(打枪)火所以随口说的<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">其实也不一定要对标vspo，不过现在新箱除了打枪参加大会好像很难吸引路人注意了
+
