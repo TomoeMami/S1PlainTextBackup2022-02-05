@@ -7035,3 +7035,23 @@ B1774FF2-4848-4A89-9E92-1A274CE1E990.jpeg
 至今搞不懂这一期生二期生说法</blockquote>
 不要想太多，再整个三期，第三季罢了。再者，咧啦的团名也不至于那么响吧
 
+
+
+*****
+
+####  CharlieZ-  
+##### 8039#       发表于 2022-5-14 12:50
+
+7月的动画现在还没pv，是不是可以鉴定为寄了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 8040#       发表于 2022-5-14 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55833802&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-5-14 12:50</a>
+7月的动画现在还没pv，是不是可以鉴定为寄了</blockquote>
+看看fmt会不会放吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1149,3 +1149,32 @@ neo2 不是 oled 屏吗，这么绿
 5.5 OLED瞎狗眼，明明去拿点老任的屏就好成本也不高，非要自作聪明</blockquote>
 他说了，老任专门定制的，他拿不到
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 121#       发表于 2022-5-14 12:41
+
+这个直播一直在diss其他win掌机厂商啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  mjzs07  
+##### 122#       发表于 2022-5-14 12:46
+
+<blockquote>Mephisto 发表于 2022-5-12 16:17
+NS有针对性优化。。。吗</blockquote>
+博德之门极乐迪斯科
+
+*****
+
+####  keytomylife  
+##### 123#       发表于 2022-5-14 12:50
+
+4399 6800u？？？
+
+感觉这家不可能卖这么便宜，6399还差不多
+
