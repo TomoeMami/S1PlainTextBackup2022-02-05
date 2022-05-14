@@ -7535,3 +7535,27 @@ sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专业点也好 NGA专楼都快车起来了
 
+
+
+*****
+
+####  Enakina  
+##### 8082#       发表于 2022-5-14 18:15
+
+这波绘森是最大赢家了，各种营业已经吸了一波粉了。铃原太青涩了，基本不怎么发推和发图，朱音开了个号就没了，大熊甚至还没号。你们四个好姐妹是约好了，先捧绘森的吗，替夏美分担点压力<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8083#       发表于 2022-5-14 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“俺寻思也妹人说不能营业啊”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至还挺符合角色设定
+
+*****
+
+####  稀勢のささ  
+##### 8084#       发表于 2022-5-14 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">营业是本分  是骡子是马还得等上台
+
