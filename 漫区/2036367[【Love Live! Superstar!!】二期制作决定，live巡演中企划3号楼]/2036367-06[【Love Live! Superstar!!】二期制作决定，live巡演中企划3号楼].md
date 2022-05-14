@@ -7187,3 +7187,12 @@ B站上的up主钟老板（锺嵐珠）会转播，你可以私信问他房间�
 
 这么早就上了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 8052#       发表于 2022-5-14 15:30
+
+sayuri这段时间还是没把唱法改改，听着我都觉得她嗓子难受..
+
