@@ -7559,3 +7559,15 @@ sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">营业是本分  是骡子是马还得等上台
 
+
+
+*****
+
+####  starring  
+##### 8085#       发表于 2022-5-14 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55838174&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-5-14 17:46</a>
+这么大一间公司，很难想象没有专业人士给sayu建议？</blockquote>
+从一巡中播放的影片来看，初期是有上专业课，这就更奇怪sayu为什么会那样唱
+回看一遍下午的live，最后唱SV和WAWD情况又好转不少
+

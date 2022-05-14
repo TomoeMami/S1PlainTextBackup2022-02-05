@@ -5737,3 +5737,27 @@ aut切的可爱合集 不得不品
 
 像绯赤同志参加活动都是坐飞机住旅馆的啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  病態極端  
+##### 11057#       发表于 2022-5-14 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55836113&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-5-14 15:55</a>
+
+钱出在哪了
+
+—— 来自 S1Fun</blockquote>
+每次活動多訂十份便當給愛小姐
+
+*****
+
+####  やト  
+##### 11058#       发表于 2022-5-14 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55838787&amp;ptid=2018830" target="_blank">病態極端 发表于 2022-5-14 18:25</a>
+
+每次活動多訂十份便當給愛小姐</blockquote>
+你这话恶毒了，9份就够了，3个人一个人3份，还能打包回去当夜宵
+
