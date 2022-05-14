@@ -7196,3 +7196,42 @@ B站上的up主钟老板（锺嵐珠）会转播，你可以私信问他房间�
 
 sayuri这段时间还是没把唱法改改，听着我都觉得她嗓子难受..
 
+
+
+*****
+
+####  D麦林  
+##### 8053#       发表于 2022-5-14 15:34
+
+不是你们别在专楼里贴人家的频道二维码啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+怎么说也是人家im@s的频道 引到一群人扎堆去加还连验证问题都答不出来不是让人看笑话吗
+
+*****
+
+####  优妮可  
+##### 8054#       发表于 2022-5-14 15:35
+
+我在虹群也看到爱马仕的链接
+
+*****
+
+####  寒风夜  
+##### 8055#       发表于 2022-5-14 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55835697&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-14 15:34</a>
+
+不是你们别在专楼里贴人家的频道二维码啊
+
+怎么说也是人家im@s的频道 引到一群人扎堆去加还连验证问 ...</blockquote>
+真尴尬
+
+*****
+
+####  Enakina  
+##### 8056#       发表于 2022-5-14 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55835697&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-14 15:34</a>
+不是你们别在专楼里贴人家的频道二维码啊
+怎么说也是人家im@s的频道 引到一群人扎堆去加还连验证问 ...</blockquote>
+不用验证问题也能看的吧
+
