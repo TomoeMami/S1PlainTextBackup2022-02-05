@@ -7427,3 +7427,72 @@ M6. What a Wonderful Dream!!
 
 突然发现鱼今天的拍手歌能拍到自己的脚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起一巡时变强了呢
 
+
+
+*****
+
+####  仟音一心  
+##### 8074#       发表于 2022-5-14 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55836903&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-14 16:35</a>
+
+绘彩森都开始营业了还有人没开推</blockquote>
+太熟练了，真不愧是前偶像
+
+FD172A0A-CADE-4A96-8995-430ED6B517E1.jpeg
+(151.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:43 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/164336hw8s3w6w63tqkiwt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 8075#       发表于 2022-5-14 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55836487&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 16:13</a>
+
+阿兔嘭说拿到了nagi的line，等会也把另外四人拿下，都跨组D起来</blockquote>
+所以说岚珠什么时候请可可吃肉<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+“STAFF拜托啦”
+
+*****
+
+####  仟音一心  
+##### 8076#       发表于 2022-5-14 16:45
+
+主持人问虹星有交流吗？菜鱼比❤️，秀也比了个。
+
+D54DA042-71F6-41DC-8FF9-916A6411980B.jpeg
+(232.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/164513xn1yo7ahmlycchoy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C4928353-B5A1-464D-9690-B0DF824666F8.jpeg
+(225.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/164527uara4xs57tztx7tz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8077#       发表于 2022-5-14 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55837070&amp;ptid=2036367" target="_blank">adw667 发表于 2022-5-14 16:44</a>
+所以说岚珠什么时候请可可吃肉
+
+“STAFF拜托啦”</blockquote>
+吃过了啊，狼蛛裤裤节目二期说的
+
