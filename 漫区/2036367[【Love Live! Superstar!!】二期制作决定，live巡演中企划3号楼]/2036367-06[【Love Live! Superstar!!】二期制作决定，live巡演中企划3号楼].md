@@ -6926,3 +6926,39 @@ C900CD9B-D1E7-4F72-A1D4-2547D76CD10E.jpeg
 [http://gs.dengeki.com/news/157497/](http://gs.dengeki.com/news/157497/)
 <img src="https://p.sda1.dev/6/0c2910186303dbf5b04ff277ddb856fc/20220514_090638.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 8030#       发表于 2022-5-14 09:59
+
+nagi
+
+83206537-40F1-4008-93A6-CE9F5D71D0C2.jpeg
+(182.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 09:58 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/095857uxs91a811vhpvv3v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+686391D7-D13A-4F6A-B217-3A83B2E08EA9.jpeg
+(147.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 09:58 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/095857y3az0ccj1j4jc0aa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B1774FF2-4848-4A89-9E92-1A274CE1E990.jpeg
+(142.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 09:58 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/095857lxrxow21uzl71x0k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
