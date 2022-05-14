@@ -7510,3 +7510,28 @@ sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听�
 其她四人一如既往的安定，大场也完全hold ...</blockquote>
 这么大一间公司，很难想象没有专业人士给sayu建议？
 
+
+
+*****
+
+####  iuhehc  
+##### 8079#       发表于 2022-5-14 17:52
+
+ 本帖最后由 iuhehc 于 2022-5-14 17:53 编辑 
+
+新人这就开始营业了吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 8080#       发表于 2022-5-14 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大熊还没开推啊。。。。。。
+
+*****
+
+####  稀勢のささ  
+##### 8081#       发表于 2022-5-14 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">专业点也好 NGA专楼都快车起来了
+
