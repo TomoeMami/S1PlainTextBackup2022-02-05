@@ -6962,3 +6962,24 @@ B1774FF2-4848-4A89-9E92-1A274CE1E990.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/14/095857lxrxow21uzl71x0k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 8031#       发表于 2022-5-14 10:07
+
+<blockquote>仟音一心 发表于 2022-5-13 21:39
+正好隔壁在聊分组的事，要真能这么分也没啥，可惜一定是要投票的。</blockquote>
+应该不会这么分，要想资源利用最大化的话，小百合和鲤鱼这两个最大的流量入口大概率是要单独分出来带新人的
+
+*****
+
+####  仟音一心  
+##### 8032#       发表于 2022-5-14 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55831683&amp;ptid=2036367" target="_blank">qty 发表于 2022-5-14 10:07</a>
+应该不会这么分，要想资源利用最大化的话，小百合和鲤鱼这两个最大的流量入口大概率是要单独分出来带新人 ...</blockquote>
+未必真分开，虹咲那边，AZUNA就有人气就高的步雪。
+要是加中华炮第一轮就加入票池，信不信真给你整一个可香出来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
