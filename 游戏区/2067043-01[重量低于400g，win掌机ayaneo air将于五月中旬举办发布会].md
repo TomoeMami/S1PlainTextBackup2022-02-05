@@ -1463,3 +1463,12 @@ NS有针对性优化。。。吗</blockquote>
 
 —— 来自 HUAWEI hi3660, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  samchen007  
+##### 151#       发表于 2022-5-15 07:20
+
+这AIR这么小这么薄，续航是多少？
+
