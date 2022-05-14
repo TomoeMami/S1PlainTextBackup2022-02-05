@@ -7113,3 +7113,45 @@ B站上的up主钟老板（锺嵐珠）会转播，你可以私信问他房间�
 B站上的up主钟老板（锺嵐珠）会转播，你可以私信问他房间地址</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没事了，刚问完就发现偶像大师这边的qq频道有转播
 
+
+
+*****
+
+####  starring  
+##### 8047#       发表于 2022-5-14 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55834139&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-14 13:21</a>
+没事了，刚问完就发现偶像大师这边的qq频道有转播</blockquote>
+能也发一下地址给我吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cowboyblue  
+##### 8048#       发表于 2022-5-14 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55834163&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 13:24</a>
+
+能也发一下地址给我吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202205/14/132917aluc7x7uqxr6tug6.jpg" referrerpolicy="no-referrer">
+
+<strong>qq_guild_qrcode1652506059357.jpg</strong> (221.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 13:29 上传
+
+只有手机端
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| starring| + 2|谢谢！|
+
+查看全部评分
+
