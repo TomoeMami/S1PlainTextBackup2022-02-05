@@ -1451,3 +1451,15 @@ NS有针对性优化。。。吗</blockquote>
 
 反防疫还能怎么反
 
+
+
+*****
+
+####  Flyfish233  
+##### 150#       发表于 2022-5-15 02:20
+
+这个东西多半就是个电子垃圾
+真想玩不如moonlight串流得了
+
+—— 来自 HUAWEI hi3660, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
