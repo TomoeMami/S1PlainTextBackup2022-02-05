@@ -1394,3 +1394,12 @@ NS有针对性优化。。。吗</blockquote>
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  WenhaoWu293  
+##### 145#       发表于 2022-5-14 23:22
+
+这种寨厂抠抠索索的样子真不好看，上一代没赚钱吗
+
