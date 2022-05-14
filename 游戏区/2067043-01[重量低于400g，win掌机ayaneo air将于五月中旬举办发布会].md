@@ -1264,3 +1264,18 @@ NS有针对性优化。。。吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  医生狼多  
+##### 133#         楼主| 发表于 2022-5-14 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55839530&amp;ptid=2067043" target="_blank">keytomylife 发表于 2022-5-14 19:08</a>
+真3999可以不考虑STEAM DECK了
+
+6800U去BIOS屏蔽掉4个核心功耗应该很更好看
+
+另外那些宣传人员真是蠢</blockquote>
+这楼是air，不是6800u的，那款是neo2
+

@@ -7757,3 +7757,12 @@ BDD7C338-0984-4410-89FC-6AF2837D79EE.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/14/192133ljj1550kauq89j1c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qty  
+##### 8094#       发表于 2022-5-14 19:31
+
+话说今天这live这导播的水平是不是差了点啊？切镜乱七八糟的，根本对不上节奏，好几次都是一个成员在唱，结果镜头给了另一个成员，还有好几次在跑位的时候给镜头，突出一个莫名其妙，给人感觉之前都没做过功课，上来就凭着感觉糊弄糊弄完事了。
+
