@@ -1290,3 +1290,54 @@ NS有针对性优化。。。吗</blockquote>
 
 原来是真盲拍不敢公布配置
 
+
+
+*****
+
+####  共谍常凯申  
+##### 135#       发表于 2022-5-14 20:03
+
+做梦呢，这价格给你6800u<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xbhuang  
+##### 136#       发表于 2022-5-14 20:05
+
+这规则有点过分了，预订还能多退少补的？要不就别公布价格，这不是明示了要拿预订款去用吗？
+
+<img src="https://img.saraba1st.com/forum/202205/14/200550hpka9gzpusuprsk0.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220514_200222.jpg</strong> (138.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:05 上传
+
+*****
+
+####  古畑任三郎2015  
+##### 137#       发表于 2022-5-14 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55840462&amp;ptid=2067043" target="_blank">xbhuang 发表于 2022-5-14 20:05</a>
+
+这规则有点过分了，预订还能多退少补的？要不就别公布价格，这不是明示了要拿预订款去用吗？
+
+ ...</blockquote>
+看了眼下面举的例子
+
+全是加价的情景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以最后肯定是少补，不会多退
+
+*****
+
+####  xbhuang  
+##### 138#       发表于 2022-5-14 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55840564&amp;ptid=2067043" target="_blank">古畑任三郎2015 发表于 2022-5-14 20:09</a>
+看了眼下面举的例子
+
+全是加价的情景所以最后肯定是少补，不会多退 ...</blockquote>
+虽说可以退款，但是这段时间钱都在他们手上的，然后就公布个价格就把钱拿到手了，无息的，这比银行贷款还便利
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
