@@ -5667,3 +5667,12 @@ sony music旗下另一个虚拟艺人企划vee从7月中旬到现在人没选拔
 
 隔壁谭不是有个名词挺好的吗，虚拟雇佣兵
 
+
+
+*****
+
+####  Mr.shelter  
+##### 11051#       发表于 2022-5-14 13:45
+
+喜欢一些歌曲切片<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">感觉又是萌萌纯良天狗了
+
