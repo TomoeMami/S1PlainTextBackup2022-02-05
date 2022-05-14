@@ -5770,3 +5770,16 @@ aut切的可爱合集 不得不品
 
 看来又是休息的一天，滚去压东西咯
 
+
+
+*****
+
+####  往世雷书  
+##### 11060#       发表于 2022-5-14 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55838787&amp;ptid=2018830" target="_blank">病態極端 发表于 2022-5-14 18:25</a>
+每次活動多訂十份便當給愛小姐</blockquote>
+你还真别说，我记得她bls就毛了后台一箱零食还是便当，去索尼节目抱着吃自助的心态敞开肚皮也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

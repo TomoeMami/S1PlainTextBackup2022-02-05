@@ -7766,3 +7766,14 @@ BDD7C338-0984-4410-89FC-6AF2837D79EE.jpeg
 
 话说今天这live这导播的水平是不是差了点啊？切镜乱七八糟的，根本对不上节奏，好几次都是一个成员在唱，结果镜头给了另一个成员，还有好几次在跑位的时候给镜头，突出一个莫名其妙，给人感觉之前都没做过功课，上来就凭着感觉糊弄糊弄完事了。
 
+
+
+*****
+
+####  Enakina  
+##### 8095#       发表于 2022-5-14 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55839863&amp;ptid=2036367" target="_blank">qty 发表于 2022-5-14 19:31</a>
+话说今天这live这导播的水平是不是差了点啊？切镜乱七八糟的，根本对不上节奏，好几次都是一个成员在唱，结 ...</blockquote>
+毕竟拼盘，但我的评价是比超次元音乐寄的导播强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
