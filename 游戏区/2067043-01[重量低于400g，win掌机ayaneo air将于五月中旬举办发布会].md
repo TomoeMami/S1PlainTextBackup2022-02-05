@@ -1438,3 +1438,16 @@ NS有针对性优化。。。吗</blockquote>
 他是反防疫分子，为了逃避核酸检查在家里不开灯不开门拔了手机SIM卡</blockquote>
 没事，他已经得到报应了，脑溢血还是啥，住院了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  keytomylife  
+##### 149#       发表于 2022-5-15 01:50
+
+ 本帖最后由 keytomylife 于 2022-5-15 01:52 编辑 
+
+隔壁说了熊猫早前脑瘫只有半边身能动
+
+反防疫还能怎么反
+
