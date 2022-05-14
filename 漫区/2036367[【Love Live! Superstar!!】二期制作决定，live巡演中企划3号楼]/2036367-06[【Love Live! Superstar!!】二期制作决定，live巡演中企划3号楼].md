@@ -7917,3 +7917,128 @@ E603B7CE-F2B0-4985-8C4B-3C18392289D1.jpeg
 十人</blockquote>
 这样一对比，星的打歌服真的朴素，r3这套衣服真好看
 
+
+
+*****
+
+####  仟音一心  
+##### 8104#       发表于 2022-5-14 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55840945&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 20:28</a>
+
+这样一对比，星的打歌服真的朴素，r3这套衣服真好看</blockquote>
+
+打歌服都是按CD封面来的，这次对应的是
+
+AZUNA《Maze Town》
+
+R3BIRTH《Monster Girls》
+
+Liella!《What a wonderful dream!!》
+
+所以就这样了
+
+C16FB55D-5073-437F-83AA-7CCBFEF12EF3.jpeg
+(156.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204227ifm3gscap5txtdta.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CFC73444-3F81-42B0-A167-75C73B3178F1.jpeg
+(169.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204227fpdx8mx1vupu4v31.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BA2C0CAF-7879-4D4E-B72A-101BA30096E7.jpeg
+(113.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204227taaa8d816lj2w01g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 8105#       发表于 2022-5-14 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55840945&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 20:28</a>
+这样一对比，星的打歌服真的朴素，r3这套衣服真好看</blockquote>
+毕竟全年龄偶像
+
+*****
+
+####  仟音一心  
+##### 8106#       发表于 2022-5-14 20:47
+
+吃豆人
+
+35B68CB6-1CA7-4180-95F1-2C874B3D8594.jpeg
+(334.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204721zav29hf2h92s2m7a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4212E6A9-C1FF-4A90-BAF1-5C6C8C2A5AC6.jpeg
+(345.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204721t8pspg0a8fbqq1it.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D75509FD-7F1F-457D-81B2-751E2F43110C.jpeg
+(328.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204721pqvvxejegq5nrt7g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C25E0ED4-91E1-44C7-95F1-F88C09EF09E7.jpeg
+(317.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204721f66bqgxlvfgwbjd6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F029507B-5136-4EB0-8CF1-D5731E8B4879.jpeg
+(387.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204721l0rtztewfnwrhitr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1A586D34-8BA3-443D-AD09-1A8E0F3CD78B.jpeg
+(384.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/204721xd4466od667nozdl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8107#       发表于 2022-5-14 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">啊美好的5人
+
