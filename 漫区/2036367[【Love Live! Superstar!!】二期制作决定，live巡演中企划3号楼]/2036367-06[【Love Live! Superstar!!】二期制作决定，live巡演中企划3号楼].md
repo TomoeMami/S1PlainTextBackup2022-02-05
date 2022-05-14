@@ -7285,3 +7285,78 @@ sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听�
 
 看到那几个弹幕和id了，是紫吧那几个。只能说爱马仕那边管理也大度，处理的很好。
 
+
+
+*****
+
+####  lj205  
+##### 8063#       发表于 2022-5-14 16:02
+
+估计臭名远扬了，别家都能看出是搞事的
+
+*****
+
+####  仟音一心  
+##### 8064#       发表于 2022-5-14 16:02
+
+．
+
+EBBC6606-EE6D-4AA1-B8CA-EFA4C0D6B342.jpeg
+(194.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:02 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/160245il5ba2f1kkfi91kf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+20E7B785-40B7-49F7-8D94-D8281AEB216F.jpeg
+(170.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:02 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/160245acd02edbtllg3m90.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3B0DD01A-57E5-4AC0-B546-C0B84FDA208E.jpeg
+(151.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:02 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/160245q990ssmygs999i5l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2CE08545-362E-4477-B741-FD451229375A.jpeg
+(100.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:02 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/160246d3xnlrslxo32x247.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7E52528C-957D-4695-87E5-C2E1F016C486.jpeg
+(171.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-14 16:02 上传
+
+<img src="https://img.saraba1st.com/forum/202205/14/160246g5qaajquvydjujr2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8065#       发表于 2022-5-14 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">怎么话筒还能只给两个的啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8066#       发表于 2022-5-14 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特话题底下也有不少老哥对22场表示惊叹
+

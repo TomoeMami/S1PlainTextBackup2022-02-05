@@ -5709,3 +5709,31 @@ aut切的可爱合集 不得不品
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  游山赫乃丈丶  
+##### 11055#       发表于 2022-5-14 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55836113&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-5-14 15:55</a>
+
+钱出在哪了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">出在生活费吧
+
+*****
+
+####  古战场亡魂  
+##### 11056#       发表于 2022-5-14 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55836113&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-5-14 15:55</a>
+
+钱出在哪了
+
+—— 来自 S1Fun</blockquote>
+交通补贴和生活费啊。
+
+像绯赤同志参加活动都是坐飞机住旅馆的啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
