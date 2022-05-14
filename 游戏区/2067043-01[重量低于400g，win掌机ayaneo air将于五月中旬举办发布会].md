@@ -1376,3 +1376,21 @@ NS有针对性优化。。。吗</blockquote>
 这人估计还在家里断电断网缩卵吧</blockquote>
 熊猫怎么了？
 
+
+
+*****
+
+####  zdn  
+##### 143#       发表于 2022-5-14 22:44
+
+这预定真的有种ffjz的感觉
+
+*****
+
+####  geminixxf  
+##### 144#       发表于 2022-5-14 22:51
+
+这骚操作，有初代的风范。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

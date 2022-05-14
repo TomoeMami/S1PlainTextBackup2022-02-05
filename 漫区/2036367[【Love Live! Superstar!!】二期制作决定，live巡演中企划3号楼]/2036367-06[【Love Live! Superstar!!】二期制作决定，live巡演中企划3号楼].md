@@ -8139,3 +8139,12 @@ B23114ED-F20C-485D-A734-917C042A2A44.jpeg
 
 姐姐今天电音部啊
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8114#       发表于 2022-5-14 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鞋子应该跟live动作幅度大有关系吧（虽然棒团跳得也挺厉害的）隔壁偶像大师舞蹈动作幅度就小很多基本是站桩输出，鞋子都是还原角色的，很好看
+
