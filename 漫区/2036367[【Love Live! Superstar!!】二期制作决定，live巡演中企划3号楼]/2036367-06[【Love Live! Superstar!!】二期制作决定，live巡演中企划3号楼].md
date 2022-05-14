@@ -7360,3 +7360,45 @@ EBBC6606-EE6D-4AA1-B8CA-EFA4C0D6B342.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特话题底下也有不少老哥对22场表示惊叹
 
+
+
+*****
+
+####  iuhehc  
+##### 8067#       发表于 2022-5-14 16:12
+
+加line去了哈哈哈哈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 8068#       发表于 2022-5-14 16:13
+
+阿兔嘭说拿到了nagi的line，等会也把另外四人拿下，都跨组D起来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8069#       发表于 2022-5-14 16:16
+
+バンフェス  Liella
+M1. START!! True dreams
+M2. だから僕らは鳴らすんだ！
+M3. ノンフィクション!!
+M4. Day1
+M5. Shooting Voice!!
+M6. What a Wonderful Dream!!
+
+大汗淋漓
+
+*****
+
+####  仟音一心  
+##### 8070#       发表于 2022-5-14 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55836487&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 16:13</a>
+阿兔嘭说拿到了nagi的line，等会也把另外四人拿下，都跨组D起来</blockquote>
+外星联合，可以建一个大line群
+
