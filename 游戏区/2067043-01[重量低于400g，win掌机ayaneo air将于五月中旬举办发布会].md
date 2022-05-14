@@ -1341,3 +1341,26 @@ NS有针对性优化。。。吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  whzfjk  
+##### 139#       发表于 2022-5-14 20:16
+
+人家先行订单是 10 元，你先行订单是 4000 元<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少女终末旅行  
+##### 140#       发表于 2022-5-14 20:19
+
+跑的动ps2模拟器吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  allenz3  
+##### 141#       发表于 2022-5-14 20:21
+
+什么弱智操作，还是离这家厂远点吧
+
