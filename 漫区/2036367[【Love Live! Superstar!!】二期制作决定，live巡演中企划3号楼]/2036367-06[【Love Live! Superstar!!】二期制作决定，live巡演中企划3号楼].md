@@ -6911,3 +6911,18 @@ C900CD9B-D1E7-4F72-A1D4-2547D76CD10E.jpeg
 有了组合之后 ...</blockquote>
 好吧，谢谢科普，我确实不太了解分组投票的流程
 
+
+
+*****
+
+####  Piano-Forest  
+##### 8029#       发表于 2022-5-14 09:07
+
+【表紙イラスト公開🌟】
+
+7月15日発売予定の書籍『ラブライブ!スーパースター!! Liella!のMy Favorite』、1期生メンバー5人が描かれた表紙イラストを公開🎵
+
+この絵柄のアクリルスタンド付き限定版が５月１９日まで予約受付中です💕
+[http://gs.dengeki.com/news/157497/](http://gs.dengeki.com/news/157497/)
+<img src="https://p.sda1.dev/6/0c2910186303dbf5b04ff277ddb856fc/20220514_090638.jpg" referrerpolicy="no-referrer">
+
