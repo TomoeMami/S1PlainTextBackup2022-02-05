@@ -1115,3 +1115,26 @@ NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smi
 
 实机正面<img src="https://p.sda1.dev/6/4f40c57091373502196d50194dac517e/CMP_20220514120436093.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whzfjk  
+##### 117#       发表于 2022-5-14 12:17
+
+neo2 不是 oled 屏吗，这么绿
+
+*****
+
+####  mjzs07  
+##### 118#       发表于 2022-5-14 12:19
+
+不是lcd啊 lcd神教可以买蒸汽那个
+
+*****
+
+####  allenz3  
+##### 119#       发表于 2022-5-14 12:20
+
+5.5 OLED瞎狗眼，明明去拿点老任的屏就好成本也不高，非要自作聪明
+
