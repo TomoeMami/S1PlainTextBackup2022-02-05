@@ -1242,3 +1242,25 @@ NS有针对性优化。。。吗</blockquote>
 
 真3999可以不考虑STEAM DECK了
 
+
+
+*****
+
+####  ssd  
+##### 131#       发表于 2022-5-14 19:14
+
+卷起来了
+
+*****
+
+####  巨馍蘸酱  
+##### 132#       发表于 2022-5-14 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55839530&amp;ptid=2067043" target="_blank">keytomylife 发表于 2022-5-14 19:08</a>
+真3999可以不考虑STEAM DECK了
+
+6800U去BIOS屏蔽掉4个核心功耗应该很更好看</blockquote>
+6800U的是另一款
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
