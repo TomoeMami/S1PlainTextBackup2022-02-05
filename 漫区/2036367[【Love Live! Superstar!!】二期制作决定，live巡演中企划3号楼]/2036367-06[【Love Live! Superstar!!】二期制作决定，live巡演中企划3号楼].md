@@ -7612,3 +7612,24 @@ FEB6B7E4-8FB3-4514-874B-45E1266D7DC9.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/14/184229zvlgnsd7rfg5su1g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 8090#       发表于 2022-5-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55839019&amp;ptid=2036367" target="_blank">stygian 发表于 2022-5-14 18:39</a>
+
+sayu需要的是自己找个老师</blockquote>
+我也觉得，加上企划的声乐老师肯定在基础上对角色音有要求的，肯定要公司再另外找老师从基础好好练，几十场演出看下来sayuri毕竟是海选，歌唱技巧处理不够圆滑，基础还没pay酱一半扎实只能说，但如果没有打算尝试歌手路线，就这样也还可以了。
+
+*****
+
+####  lj205  
+##### 8091#       发表于 2022-5-14 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55839094&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-14 18:42</a>
+三丽鸥</blockquote>
+可可<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
