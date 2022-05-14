@@ -7571,3 +7571,26 @@ sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听�
 从一巡中播放的影片来看，初期是有上专业课，这就更奇怪sayu为什么会那样唱
 回看一遍下午的live，最后唱SV和WAWD情况又好转不少
 
+
+
+*****
+
+####  cybernetics31  
+##### 8086#       发表于 2022-5-14 18:36
+
+下午除了那么点的mc基本是连唱6首吧 新人做好觉悟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 8087#       发表于 2022-5-14 18:39
+
+sayu需要的是自己找个老师
+
+*****
+
+####  稀勢のささ  
+##### 8088#       发表于 2022-5-14 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好吧 毕竟以后人多了总好安排些 这种全程全员上的活动大概也没那么多
+

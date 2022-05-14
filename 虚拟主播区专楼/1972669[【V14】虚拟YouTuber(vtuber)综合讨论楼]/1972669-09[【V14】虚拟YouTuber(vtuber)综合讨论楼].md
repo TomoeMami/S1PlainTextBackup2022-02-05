@@ -13187,3 +13187,12 @@ syl，neoporte这批相比打枪，明显音乐才是中心啊，np一姐现在�
 kmt hnn lisa<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑白头这真是临时拉人啊。
 vspo7人参战确定
 
+
+
+*****
+
+####  FCCHua  
+##### 13246#       发表于 2022-5-14 18:33
+
+今天凌晨直播kmt说这回cr杯自己是队长的时候我就看到了结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
