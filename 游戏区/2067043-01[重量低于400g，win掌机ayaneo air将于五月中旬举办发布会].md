@@ -1138,3 +1138,14 @@ neo2 不是 oled 屏吗，这么绿
 
 5.5 OLED瞎狗眼，明明去拿点老任的屏就好成本也不高，非要自作聪明
 
+
+
+*****
+
+####  医生狼多  
+##### 120#         楼主| 发表于 2022-5-14 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55833397&amp;ptid=2067043" target="_blank">allenz3 发表于 2022-5-14 12:20</a>
+5.5 OLED瞎狗眼，明明去拿点老任的屏就好成本也不高，非要自作聪明</blockquote>
+他说了，老任专门定制的，他拿不到
+
