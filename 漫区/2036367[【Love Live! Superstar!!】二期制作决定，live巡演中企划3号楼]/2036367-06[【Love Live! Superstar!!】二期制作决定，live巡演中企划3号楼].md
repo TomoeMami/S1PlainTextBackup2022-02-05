@@ -7064,3 +7064,15 @@ B1774FF2-4848-4A89-9E92-1A274CE1E990.jpeg
 
 这两天演出4个人应该会在台下观摩
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8042#       发表于 2022-5-14 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55833919&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-14 13:00</a>
+
+这两天演出4个人应该会在台下观摩</blockquote>
+说不定之前的Live就观摩过了呢，谁知道她们都是什么时候认识的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
