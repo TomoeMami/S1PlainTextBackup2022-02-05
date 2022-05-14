@@ -1178,3 +1178,24 @@ NS有针对性优化。。。吗</blockquote>
 
 感觉这家不可能卖这么便宜，6399还差不多
 
+
+
+*****
+
+####  任天索尼子  
+##### 124#       发表于 2022-5-14 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55833765&amp;ptid=2067043" target="_blank">mjzs07 发表于 2022-5-14 12:46</a>
+
+博德之门极乐迪斯科</blockquote>
+哪来的博德之门 你说的是神界原罪吧
+
+*****
+
+####  hurtwind  
+##### 125#       发表于 2022-5-14 12:51
+
+我是创始人版用户，7寸感觉尺寸刚好，我有switfch lite，5.5寸太小了
+
+如果能做到Switch oled的大小轻薄和windows掌机的性能就完美了
+
