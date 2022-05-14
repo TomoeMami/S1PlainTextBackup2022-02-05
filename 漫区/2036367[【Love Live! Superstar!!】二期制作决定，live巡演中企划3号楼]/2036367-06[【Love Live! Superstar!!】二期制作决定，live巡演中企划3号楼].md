@@ -7777,3 +7777,12 @@ BDD7C338-0984-4410-89FC-6AF2837D79EE.jpeg
 话说今天这live这导播的水平是不是差了点啊？切镜乱七八糟的，根本对不上节奏，好几次都是一个成员在唱，结 ...</blockquote>
 毕竟拼盘，但我的评价是比超次元音乐寄的导播强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8096#       发表于 2022-5-14 19:46
+
+虽然运镜不咋地，但是有几个特写还是挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
