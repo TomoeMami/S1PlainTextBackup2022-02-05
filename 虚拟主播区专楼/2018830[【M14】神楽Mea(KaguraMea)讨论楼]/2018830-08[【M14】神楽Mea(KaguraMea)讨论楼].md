@@ -5676,3 +5676,16 @@ sony music旗下另一个虚拟艺人企划vee从7月中旬到现在人没选拔
 
 喜欢一些歌曲切片<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">感觉又是萌萌纯良天狗了
 
+
+
+*****
+
+####  ashero  
+##### 11052#       发表于 2022-5-14 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55834429&amp;ptid=2018830" target="_blank">Mr.shelter 发表于 2022-5-14 13:45</a>
+喜欢一些歌曲切片感觉又是萌萌纯良天狗了</blockquote>
+aut切的可爱合集 不得不品
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
