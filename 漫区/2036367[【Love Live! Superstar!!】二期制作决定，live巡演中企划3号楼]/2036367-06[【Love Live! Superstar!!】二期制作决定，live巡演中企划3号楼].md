@@ -7496,3 +7496,17 @@ C4928353-B5A1-464D-9690-B0DF824666F8.jpeg
 “STAFF拜托啦”</blockquote>
 吃过了啊，狼蛛裤裤节目二期说的
 
+
+
+*****
+
+####  csolfans  
+##### 8078#       发表于 2022-5-14 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55835953&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 15:48</a>
+
+sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听得难受
+
+其她四人一如既往的安定，大场也完全hold ...</blockquote>
+这么大一间公司，很难想象没有专业人士给sayu建议？
+
