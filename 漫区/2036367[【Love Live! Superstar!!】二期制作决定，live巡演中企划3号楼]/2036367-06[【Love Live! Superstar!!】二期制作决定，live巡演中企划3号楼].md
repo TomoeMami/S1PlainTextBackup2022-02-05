@@ -7076,3 +7076,40 @@ B1774FF2-4848-4A89-9E92-1A274CE1E990.jpeg
 这两天演出4个人应该会在台下观摩</blockquote>
 说不定之前的Live就观摩过了呢，谁知道她们都是什么时候认识的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8043#       发表于 2022-5-14 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起这个有无这两天的万南fes转播
+
+*****
+
+####  starring  
+##### 8044#       发表于 2022-5-14 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55834057&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-14 13:13</a>
+说起这个有无这两天的万南fes转播</blockquote>
+B站上的up主钟老板（锺嵐珠）会转播，你可以私信问他房间地址
+
+*****
+
+####  we89623  
+##### 8045#       发表于 2022-5-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55833802&amp;ptid=2036367" target="_blank">CharlieZ- 发表于 2022-5-14 12:50</a>
+7月的动画现在还没pv，是不是可以鉴定为寄了</blockquote>
+不可能的 拉拉的pv都是会场或者生放送时放出的，不可能平日放
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8046#       发表于 2022-5-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55834114&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-14 13:20</a>
+
+B站上的up主钟老板（锺嵐珠）会转播，你可以私信问他房间地址</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没事了，刚问完就发现偶像大师这边的qq频道有转播
+
