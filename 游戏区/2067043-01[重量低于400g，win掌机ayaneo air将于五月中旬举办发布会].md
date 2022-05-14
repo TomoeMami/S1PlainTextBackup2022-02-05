@@ -1414,3 +1414,15 @@ NS有针对性优化。。。吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  瓦拉几亚之夜  
+##### 147#       发表于 2022-5-15 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55843229&amp;ptid=2067043" target="_blank">kina 发表于 2022-5-14 22:27</a>
+
+熊猫怎么了？</blockquote>
+他是反防疫分子，为了逃避核酸检查在家里不开灯不开门拔了手机SIM卡
+
