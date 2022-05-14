@@ -1106,3 +1106,12 @@ NS有针对性优化。。。吗<img src="https://static.saraba1st.com/image/smi
 
 6800u现在笔记本都出不来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 116#         楼主| 发表于 2022-5-14 12:04
+
+实机正面<img src="https://p.sda1.dev/6/4f40c57091373502196d50194dac517e/CMP_20220514120436093.jpg" referrerpolicy="no-referrer">
+
