@@ -7235,3 +7235,37 @@ sayuri这段时间还是没把唱法改改，听着我都觉得她嗓子难受..
 怎么说也是人家im@s的频道 引到一群人扎堆去加还连验证问 ...</blockquote>
 不用验证问题也能看的吧
 
+
+
+*****
+
+####  cybernetics31  
+##### 8057#       发表于 2022-5-14 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">频道百万粉纷纷对星20+场次的一巡表示震惊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8058#       发表于 2022-5-14 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">预料到有钓鱼了，没想到还引来紫吧团建了，这群人是不是所到之处都想搞的乌烟瘴气啊
+
+*****
+
+####  starring  
+##### 8059#       发表于 2022-5-14 15:48
+
+sayu的唱法还是没改，这样唱下去太伤嗓子，唱高音的部分听得难受
+
+其她四人一如既往的安定，大场也完全hold得住
+
+*****
+
+####  Enakina  
+##### 8060#       发表于 2022-5-14 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55835903&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-14 15:45</a>
+预料到有钓鱼了，没想到还引来紫吧团建了，这群人是不是所到之处都想搞的乌烟瘴气啊 ...</blockquote>
+你说紫吧不是特意捣乱，真心喜欢爱马仕我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
