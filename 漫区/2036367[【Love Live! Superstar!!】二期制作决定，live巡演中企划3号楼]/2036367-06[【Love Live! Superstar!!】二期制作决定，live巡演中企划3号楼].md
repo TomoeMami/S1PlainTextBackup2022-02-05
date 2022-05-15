@@ -8215,3 +8215,59 @@ B23114ED-F20C-485D-A734-917C042A2A44.jpeg
 
 如果有新游戏，说不定会再现岚珠请可可吃肉。
 
+
+
+*****
+
+####  仟音一心  
+##### 8121#       发表于 2022-5-15 11:18
+
+Nako拍的
+
+00BA0A61-0CB4-4BFD-A690-AA03A19792FC.jpeg
+(405.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-15 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/15/111832qjzgzdesm9bqlvyj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C01FA4BC-8271-4B9D-9263-7656A398F5F2.jpeg
+(369.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-15 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/15/111832br7905z947z5mxjy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+85D09409-0048-43D1-9AAC-BD8C2843C593.jpeg
+(321.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-15 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/15/111833se2igyu2rxjy5uyr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AF1E01B1-E872-433C-9FA0-07DE3C9DD8CE.jpeg
+(188.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-15 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202205/15/111833r1oijyoi39kospxv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8122#       发表于 2022-5-15 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55846949&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-5-15 08:57</a>
+现在星团会换年级，肯定是不可能进as了，更何况as大概率只有卡面角色的常规更新了。
+
+如果有新游戏，说不定 ...</blockquote>
+不进AS是好事啊，各种方面。
+
