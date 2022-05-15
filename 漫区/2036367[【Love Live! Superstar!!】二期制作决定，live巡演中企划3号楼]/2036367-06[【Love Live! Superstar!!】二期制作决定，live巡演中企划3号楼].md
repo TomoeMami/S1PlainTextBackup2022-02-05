@@ -8575,3 +8575,34 @@ SNS苦手
 
 不是167.8吗？直接写168不好？其实我怀疑她可能不止168
 
+
+
+*****
+
+####  仟音一心  
+##### 8139#       发表于 2022-5-15 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55853635&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-15 18:53</a>
+
+和绘同学比起来 sns水平差好多啊 大熊同学干脆还没号，，，，，，鱼这推特加了身高  ...</blockquote>
+这个com就很憨
+
+01F5E593-C192-4E7D-8ADD-05297ECB4A5F.jpeg
+(295.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202205/15/191121y26fw5x6cjbvsc2b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  caicaistar  
+##### 8140#       发表于 2022-5-15 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55853810&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-15 19:11</a>
+
+这个com就很憨</blockquote>
+167com XD 什么鲤语
+
