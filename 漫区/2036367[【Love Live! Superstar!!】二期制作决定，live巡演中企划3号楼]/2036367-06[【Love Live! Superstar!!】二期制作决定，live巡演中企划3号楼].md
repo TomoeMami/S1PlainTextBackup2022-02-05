@@ -8204,3 +8204,14 @@ B23114ED-F20C-485D-A734-917C042A2A44.jpeg
 吃过了啊，狼蛛裤裤节目二期说的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">我说的是角色
 
+
+
+*****
+
+####  ads147147  
+##### 8120#       发表于 2022-5-15 08:57
+
+现在星团会换年级，肯定是不可能进as了，更何况as大概率只有卡面角色的常规更新了。
+
+如果有新游戏，说不定会再现岚珠请可可吃肉。
+
