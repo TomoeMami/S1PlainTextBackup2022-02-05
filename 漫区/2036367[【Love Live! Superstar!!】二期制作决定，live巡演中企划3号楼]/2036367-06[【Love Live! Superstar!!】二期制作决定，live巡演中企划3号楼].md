@@ -8464,3 +8464,15 @@ QQ图片20220515125154.png
 已订了BOX，好想再收个宫城day2</blockquote>
 可以蹲一个咸鱼或者煤炉的无特
 
+
+
+*****
+
+####  ykyin09  
+##### 8134#       发表于 2022-5-15 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55848370&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-15 11:43</a>
+
+注意Pay子表情</blockquote>
+严查入团动机
+
