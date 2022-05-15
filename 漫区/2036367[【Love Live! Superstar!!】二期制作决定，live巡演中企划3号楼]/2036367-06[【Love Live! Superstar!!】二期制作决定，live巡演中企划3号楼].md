@@ -8557,3 +8557,21 @@ SNS苦手
 
 <img src="https://img.saraba1st.com/forum/202205/15/182923s5tp5lguhgtguvpl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 8137#       发表于 2022-5-15 18:53
+
+ 本帖最后由 cybernetics31 于 2022-5-15 18:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼这推特加了身高 写成167com 草
+
+*****
+
+####  lj205  
+##### 8138#       发表于 2022-5-15 19:00
+
+不是167.8吗？直接写168不好？其实我怀疑她可能不止168
+
