@@ -1483,3 +1483,12 @@ NS有针对性优化。。。吗</blockquote>
 
 现在我们做了一台用6800u的掌机，性能好nb，说完了，开air的预订了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xu5891166  
+##### 153#       发表于 2022-5-15 08:08
+
+完全不像是在卖掌机，隔着屏幕都能闻出味来
+
