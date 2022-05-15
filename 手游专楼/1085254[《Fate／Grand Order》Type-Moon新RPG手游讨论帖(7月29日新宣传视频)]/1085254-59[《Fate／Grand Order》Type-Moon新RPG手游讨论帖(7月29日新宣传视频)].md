@@ -10972,3 +10972,15 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 送4星想了10秒还是换黑呆了.....然后从去年8月的光狐后除了CBA就再没抽过卡了...这都给我攒出一个保底来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 87941#       发表于 2022-5-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55850491&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-5-15 14:39</a>
+
+送4星想了10秒还是换黑呆了.....然后从去年8月的光狐后除了CBA就再没抽过卡了...这都给我攒出一个保底来了[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明你欧
+
