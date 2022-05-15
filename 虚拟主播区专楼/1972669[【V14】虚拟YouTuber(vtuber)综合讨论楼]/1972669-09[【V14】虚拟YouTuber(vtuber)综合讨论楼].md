@@ -13286,3 +13286,19 @@ vspo7人参战确定
 
 今天这波听了Reza感觉挺不错的，就是这皮太难顶了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13256#       发表于 2022-5-15 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55856330&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2022-5-15 22:16</a>
+
+今天这波听了Reza感觉挺不错的，就是这皮太难顶了
+
+syl, 接力组的人aftertalk在围观星川的翻唱Diamo ...</blockquote>
+reza和nara歌力都不错，reza还会经常做些原创和remix，可惜皮debuff实在太厉害了
+
+说实话真的不明白你虹当初在ID搞的那个本土画师扶植计划有什么意义，收上来一堆美监都不应该给过稿的东西
+
