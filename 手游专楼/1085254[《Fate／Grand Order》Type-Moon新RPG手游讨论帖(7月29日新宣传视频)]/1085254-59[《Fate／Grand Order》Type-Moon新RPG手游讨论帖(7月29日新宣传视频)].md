@@ -10984,3 +10984,12 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 送4星想了10秒还是换黑呆了.....然后从去年8月的光狐后除了CBA就再没抽过卡了...这都给我攒出一个保底来了[ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明你欧
 
+
+
+*****
+
+####  白金口袋  
+##### 87942#       发表于 2022-5-15 15:59
+
+官方数据找回不知道要多久，2500万DL的登录奖励看来是黄了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
