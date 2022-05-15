@@ -6046,3 +6046,21 @@ https://www.lightnovel.us/c ...</blockquote>
 
 合理猜测今天也摸了。
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 11086#       发表于 2022-5-16 07:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">三年前的今天这时候我还没睡
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aisakahammer  
+##### 11087#       发表于 2022-5-16 07:30
+
+三年前这时候一堆人都没睡吧，早上出去做完核酸，开好电脑，开始干活了，才发现今天516，她现在活的挺好的，也是成年人了，都是好事，希望她以后不当vtb的时候能总结下自己年轻时的故事，想看。
+
