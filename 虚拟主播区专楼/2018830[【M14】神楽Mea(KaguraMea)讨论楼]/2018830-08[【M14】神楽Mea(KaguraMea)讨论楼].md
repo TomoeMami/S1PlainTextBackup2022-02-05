@@ -5896,3 +5896,29 @@ aut切的可爱合集 不得不品
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  我单推副会长  
+##### 11073#       发表于 2022-5-15 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55853427&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-5-15 18:38</a>
+
+会不会录节目去了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">昨天有可能，今天不知道。
+
+mea啥都不在推特上说，其他两位啥都写。
+
+花园猫昨天说是去收录了，当然是是录节目还是录自己的事情不好说。
+
+绯赤反正现在发烧烧着，不然看看她每次发的坐飞机就知道了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+个人不建议推论在干活也不建议推论不在干活。
+
+自顾自期待自顾自失落挺没意思的。
+
+不过确实3天没打lol了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
