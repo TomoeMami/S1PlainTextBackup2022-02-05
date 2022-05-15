@@ -5922,3 +5922,17 @@ mea啥都不在推特上说，其他两位啥都写。
 
 不过确实3天没打lol了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我单推副会长  
+##### 11074#       发表于 2022-5-15 20:16
+
+觉得闲的话，可以试着读读这个《承认欲求女子图鉴～社交媒体上的问题女孩～》
+[https://www.lightnovel.us/cn/detail/1099978](https://www.lightnovel.us/cn/detail/1099978)
+
+作者にゃるら同时也是游戏《主播女孩重度依赖》的制作人。
+
+官组不是快把mea配音那个视频的汉化快做好了吗，可以作为游戏的作料。
+
