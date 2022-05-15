@@ -13302,3 +13302,20 @@ reza和nara歌力都不错，reza还会经常做些原创和remix，可惜皮deb
 
 说实话真的不明白你虹当初在ID搞的那个本土画师扶植计划有什么意义，收上来一堆美监都不应该给过稿的东西
 
+
+
+*****
+
+####  free  
+##### 13257#       发表于 2022-5-16 00:13
+
+[https://twitter.com/kaf_info/status/1525868710829125632](https://twitter.com/kaf_info/status/1525868710829125632)
+
+<img src="https://img.saraba1st.com/forum/202205/16/001312al5j7b6fx06b5t7f.jpg" referrerpolicy="no-referrer">
+
+<strong>谱皇.jpg</strong> (256.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 00:13 上传
+
