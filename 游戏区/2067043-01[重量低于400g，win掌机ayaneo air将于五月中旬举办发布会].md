@@ -1505,3 +1505,12 @@ NS有针对性优化。。。吗</blockquote>
 反防疫还能怎么反</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我被骗了五块钱  
+##### 155#       发表于 2022-5-16 00:23
+
+还是定了一台，虽然全款盲定确实挺无语的，但是感觉体积上来说很符合我的要求，毕竟只是用来串流和模拟，其实奥丁那个掌机我就很够了，可惜奥丁也无货，又不想去便宜黄牛
+
