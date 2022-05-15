@@ -11004,3 +11004,25 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 巴巴罗萨不知道有没有可能，资料声称他是大理石之王这个母题的起源
 
+
+
+*****
+
+####  森兰丸  
+##### 87944#       发表于 2022-5-15 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55850799&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-15 15:06</a>
+
+说明你欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧你妹.....出保底前CBA还沉了次...不然都要攒出2个保底来了
+
+*****
+
+####  alucardcz  
+##### 87945#       发表于 2022-5-15 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55851951&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-5-15 16:35</a>
+
+欧你妹.....出保底前CBA还沉了次...不然都要攒出2个保底来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在只有30石 最近好像就一个new 你还是太欧 毕竟5宝(
+
