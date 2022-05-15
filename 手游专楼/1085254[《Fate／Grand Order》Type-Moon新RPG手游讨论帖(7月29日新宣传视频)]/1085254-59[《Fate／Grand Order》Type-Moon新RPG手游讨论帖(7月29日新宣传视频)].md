@@ -10963,3 +10963,12 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 狄大王大理石王，查理曼大理石王，君十一大理石王
 
+
+
+*****
+
+####  森兰丸  
+##### 87940#       发表于 2022-5-15 14:39
+
+送4星想了10秒还是换黑呆了.....然后从去年8月的光狐后除了CBA就再没抽过卡了...这都给我攒出一个保底来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
