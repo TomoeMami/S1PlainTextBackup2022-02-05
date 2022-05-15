@@ -13328,3 +13328,26 @@ reza和nara歌力都不错，reza还会经常做些原创和remix，可惜皮deb
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">森中怎么去动手术了...？
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13259#       发表于 2022-5-16 07:13
+
+<img src="https://img.saraba1st.com/forum/202205/16/071238silwwi06d6wih3qh.png" referrerpolicy="no-referrer">
+
+<strong>1650081674636.png</strong> (115.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 07:12 上传
+
+Lazulight to the moon~~~
+
+and it crashed.
+
+First vtubers in space!
+
+太牛了pomu
+
