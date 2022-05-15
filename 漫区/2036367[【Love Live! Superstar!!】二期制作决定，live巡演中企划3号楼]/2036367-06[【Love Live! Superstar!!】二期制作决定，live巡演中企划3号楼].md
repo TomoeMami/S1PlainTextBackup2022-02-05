@@ -8271,3 +8271,34 @@ AF1E01B1-E872-433C-9FA0-07DE3C9DD8CE.jpeg
 如果有新游戏，说不定 ...</blockquote>
 不进AS是好事啊，各种方面。
 
+
+
+*****
+
+####  lj205  
+##### 8123#       发表于 2022-5-15 11:32
+
+这bd宣传片花絮也才几分钟，水煮鱼就玩了两次亲亲<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 8124#       发表于 2022-5-15 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">必须买了 
+
+*****
+
+####  优妮可  
+##### 8125#       发表于 2022-5-15 11:39
+
+<img src="https://img.saraba1st.com/forum/202205/15/113856x4bqey80lf5b04t4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220515_112956_com.huawei.himovie.jpg</strong> (154.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-15 11:38 上传
+
+买爆
+
