@@ -8937,3 +8937,16 @@ B99B30A9-4A7C-4BDA-AED3-C0D1C12A9A2C.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不仲！
 
+
+
+*****
+
+####  gaayas  
+##### 8164#       发表于 2022-5-16 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55868363&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-16 17:46</a>
+微博上看到这图，虽然是巧合……但</blockquote>
+故意的吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
