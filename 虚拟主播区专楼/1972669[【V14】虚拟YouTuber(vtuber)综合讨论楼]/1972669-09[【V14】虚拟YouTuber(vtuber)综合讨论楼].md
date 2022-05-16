@@ -13752,3 +13752,25 @@ raindrop什么尸体派对
 种24h可还行......
 这个确实应该是最能梦回你虹2018的企划，没有之一了。
 
+
+
+*****
+
+####  蓬莱广告  
+##### 13290#       发表于 2022-5-17 00:49
+
+黄豆复播没来得及看，不过她怎么还挂着774？
+
+
+
+*****
+
+####  格林卡罗尔  
+##### 13291#       发表于 2022-5-17 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55873999&amp;ptid=1972669" target="_blank">蓬莱广告 发表于 2022-5-17 00:49</a>
+黄豆复播没来得及看，不过她怎么还挂着774？</blockquote>
+是脱离anmr,仍属774inc，只不过hnst和anmr都不是
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
