@@ -13447,3 +13447,24 @@ eden图好看！
 海外的几个歌势一个比一个卷
 特别是kr的，不愧是内卷天国出来的
 
+
+
+*****
+
+####  free  
+##### 13268#       发表于 2022-5-16 13:19
+
+这个圆脸出道5年，唱的越来越难听，怎么还好意思发歌的，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+卖各种乱七八糟的周边倒是越来越上心，赶紧毕业吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/tokino_sora/status/1525895366268551169](https://twitter.com/tokino_sora/status/1525895366268551169)
+
+<img src="https://img.saraba1st.com/forum/202205/16/131931zrd4cp2r64aazr4x.jpg" referrerpolicy="no-referrer">
+
+<strong>四专.jpg</strong> (394.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 13:19 上传
+
