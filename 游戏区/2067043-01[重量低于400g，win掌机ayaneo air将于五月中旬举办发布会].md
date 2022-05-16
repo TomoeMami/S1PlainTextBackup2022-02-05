@@ -1557,3 +1557,15 @@ NS有针对性优化。。。吗</blockquote>
 —— 来自  ...</blockquote>
 用ssd，至少读取不用这么折磨<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我现在玩ns中型游戏和部分独立游戏最大的痛点就是这个，load半天
 
+
+
+*****
+
+####  翼宿一  
+##### 160#       发表于 2022-5-16 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55860069&amp;ptid=2067043" target="_blank">mcq_2 发表于 2022-5-16 08:25</a>
+
+也不全是缩水，lite的按钮手感好很多。</blockquote>
+因为去掉了电池和震动包所以才换来了能放导电胶的宝贵空间啊，只是玩了一段时间 Lite 后换回原版还是能感受到 HD 震动的震撼以及能底座输出的便利。Lite 除了轻便、按键手感，以及不会松动的手柄之外在我看来都是比原版缩水的。
+
