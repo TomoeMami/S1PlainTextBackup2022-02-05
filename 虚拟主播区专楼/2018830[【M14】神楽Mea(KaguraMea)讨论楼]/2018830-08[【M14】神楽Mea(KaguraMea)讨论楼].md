@@ -6082,3 +6082,23 @@ https://www.lightnovel.us/c ...</blockquote>
 
 每年不得不一品，想听麻唱歌
 
+
+
+*****
+
+####  Dualist彩  
+##### 11090#       发表于 2022-5-16 09:20
+
+虽然是516，但却只会去听522的歌，516的黑屏我看不来<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 11091#       发表于 2022-5-16 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55860768&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2022-5-16 09:20</a>
+虽然是516，但却只会去听522的歌，516的黑屏我看不来</blockquote>
+这是神乐Mea形象补完的重要一环，不看不完整，看不下去就静音二倍速看字幕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
