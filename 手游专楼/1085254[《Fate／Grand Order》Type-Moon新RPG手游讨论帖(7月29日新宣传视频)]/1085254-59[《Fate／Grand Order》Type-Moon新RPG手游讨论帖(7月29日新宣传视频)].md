@@ -11079,3 +11079,15 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 一宝faker输出如何？打上三和术什么水平，基本只想换她，但怕一宝太水枪
 
+
+
+*****
+
+####  黑上シグマ  
+##### 87951#       发表于 2022-5-16 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55870435&amp;ptid=1085254" target="_blank">areklose 发表于 2022-5-16 20:12</a>
+
+一宝faker输出如何？打上三和术什么水平，基本只想换她，但怕一宝太水枪</blockquote>
+faker一宝挺水枪的，我这次是换了她升到三宝了
+
