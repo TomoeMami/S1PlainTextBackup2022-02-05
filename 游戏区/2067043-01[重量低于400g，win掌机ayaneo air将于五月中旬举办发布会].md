@@ -1569,3 +1569,24 @@ NS有针对性优化。。。吗</blockquote>
 也不全是缩水，lite的按钮手感好很多。</blockquote>
 因为去掉了电池和震动包所以才换来了能放导电胶的宝贵空间啊，只是玩了一段时间 Lite 后换回原版还是能感受到 HD 震动的震撼以及能底座输出的便利。Lite 除了轻便、按键手感，以及不会松动的手柄之外在我看来都是比原版缩水的。
 
+
+
+*****
+
+####  UCXCU  
+##### 161#       发表于 2022-5-16 18:11
+
+曝光了
+
+<img src="https://img.saraba1st.com/forum/202205/16/181055cei7f5mmkz6ilo0b.png" referrerpolicy="no-referrer">
+
+<strong>97fdf3d0-8123-4f72-b113-107497fcd119.png</strong> (120.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 18:10 上传
+
+AMD R5 5560U难怪遮遮掩掩的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
