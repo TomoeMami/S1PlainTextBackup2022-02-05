@@ -13655,3 +13655,24 @@ https://t.co/3TbAskwE5m
 Ara是不是有过80骚动的那个？记不太清了</blockquote>
 是的，Niji KR超级加强版myy姐贵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 13281#       发表于 2022-5-16 19:55
+
+dmzj的事能不能去dmzj搞定，下次泥哥谭打架是不是也要发v综
+
+*****
+
+####  我单推副会长  
+##### 13282#       发表于 2022-5-16 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55869488&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-5-16 19:12</a>
+
+星雲賞・日本短編部門の参考候補作
+[https://t.co/3TbAskwE5m](https://t.co/3TbAskwE5m)</blockquote>你们彩虹社连社外的v都在出手，社内v什么样真是不敢想。
+
+妻子（丈夫）原本是运营彩虹社的公司ICHIKARA（现ANYCOLOR）的艺人事业本部长。 作者：届木羽华official [https://www.bilibili.com/read/cv14389759](https://www.bilibili.com/read/cv14389759) 出处：bilibili
+
