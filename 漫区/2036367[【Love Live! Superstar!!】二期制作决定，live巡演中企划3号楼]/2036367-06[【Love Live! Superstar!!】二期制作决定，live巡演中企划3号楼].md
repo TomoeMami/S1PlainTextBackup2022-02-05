@@ -8855,3 +8855,23 @@ B99B30A9-4A7C-4BDA-AED3-C0D1C12A9A2C.jpeg
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Enakina  
+##### 8157#       发表于 2022-5-16 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55867978&amp;ptid=2036367" target="_blank">cao1rui2 发表于 2022-5-16 17:16</a>
+这丝丝丝口癖好难受，北海道人是这样的么
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 S1Next-鹅版 v2.5. ...</blockquote>
+单纯的萌点，现实里应该不会有人这么说话吧，像花丸的zara之类的
+
+*****
+
+####  cybernetics31  
+##### 8158#       发表于 2022-5-16 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对比强烈，大熊妹子还没推，绘各种营业
+
