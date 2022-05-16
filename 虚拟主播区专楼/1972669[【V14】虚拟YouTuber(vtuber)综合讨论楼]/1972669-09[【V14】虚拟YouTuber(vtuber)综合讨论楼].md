@@ -13615,3 +13615,31 @@ Syl，你虹元KR的채아라 / Ara Chae频道全部内容设置私享了，SNS�
 
 Ara是不是有过80骚动的那个？记不太清了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13279#       发表于 2022-5-16 19:12
+
+星雲賞・日本短編部門の参考候補作
+https://t.co/3TbAskwE5m
+
+<img src="https://img.saraba1st.com/forum/202205/16/191034yaz8mkgkm8g8z5g6.jpg" referrerpolicy="no-referrer">
+
+<strong>FSzib4gUsAAyvaZ.jpg</strong> (76.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 19:10 上传
+
+此外宣布了自己的one man live，粗看像是能桌面端和手机端观看的
+
+<img src="https://img.saraba1st.com/forum/202205/16/191055sf6zhh1nhii1wwe5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220516191053.png</strong> (163.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 19:10 上传
+

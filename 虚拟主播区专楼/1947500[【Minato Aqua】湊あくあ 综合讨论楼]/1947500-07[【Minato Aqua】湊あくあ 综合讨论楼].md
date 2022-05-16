@@ -1817,3 +1817,21 @@ whats up， bro！
 
 前面的没看，有说最近的直播打算吗
 
+
+
+*****
+
+####  cIrcler  
+##### 9190#       发表于 2022-5-16 19:13
+
+刚想夸肺活量上去了，气足了一些，结果一首暧昧模糊就打回原形，唱的还是虚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  越动天下  
+##### 9191#       发表于 2022-5-16 19:13
+
+我才知道前面那个歌是日常的主题曲 二次元失格
+
