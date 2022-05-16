@@ -13676,3 +13676,27 @@ dmzj的事能不能去dmzj搞定，下次泥哥谭打架是不是也要发v综
 
 妻子（丈夫）原本是运营彩虹社的公司ICHIKARA（现ANYCOLOR）的艺人事业本部长。 作者：届木羽华official [https://www.bilibili.com/read/cv14389759](https://www.bilibili.com/read/cv14389759) 出处：bilibili
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13283#       发表于 2022-5-16 20:56
+
+<img src="https://img.saraba1st.com/forum/202205/16/205542dcddv4cn4olt9lid.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220516205541.png</strong> (38.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 20:55 上传
+
+差点以为是转发过去推文，这是在做什么
+
+*****
+
+####  FCCHua  
+##### 13284#       发表于 2022-5-16 21:01
+
+绿仙<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
