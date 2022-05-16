@@ -9141,3 +9141,16 @@ IMG_8538.JPG
 
 这套就怪怪的………………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 8180#       发表于 2022-5-16 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55872206&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-16 22:09</a>
+推上看到有人说</blockquote>
+没确认吧，也就看到那一位发。要是一起坐在关系者席应该很多人看到的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
