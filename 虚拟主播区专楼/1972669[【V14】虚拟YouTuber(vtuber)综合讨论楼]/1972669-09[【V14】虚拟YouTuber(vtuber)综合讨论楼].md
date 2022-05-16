@@ -13533,3 +13533,29 @@ dmzj上了杏那个衍生漫画，一看评论果然开始ttk了，然后果然�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那你说个正确神田记忆来听听
 
+
+
+*****
+
+####  poipanchao  
+##### 13273#       发表于 2022-5-16 18:25
+
+错的估计是张冠李戴把别人的事按神田头上呗
+底边的事不用搞的这么清楚！
+
+*****
+
+####  布莱士·西伯利  
+##### 13274#       发表于 2022-5-16 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55868755&amp;ptid=1972669" target="_blank">空集 发表于 2022-5-16 18:17</a>
+
+那你说个正确神田记忆来听听</blockquote>
+-           
+
+         
+
+            
+
+笑一桑曾经有纯正的ykw口音做了一道美味的四川料理，最后还唱蝴蝶飞。我觉得他爱国。
+
