@@ -8896,3 +8896,44 @@ B99B30A9-4A7C-4BDA-AED3-C0D1C12A9A2C.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/16/173603q9yatvxa0r9y9hr5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8160#       发表于 2022-5-16 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大熊能否在角色动画更新前建号还是个问题
+
+
+
+*****
+
+####  凡人  
+##### 8161#       发表于 2022-5-16 17:44
+
+或许大熊一直不建号也是一种营业？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8162#       发表于 2022-5-16 17:46
+
+微博上看到这图，虽然是巧合……但
+
+03D762C7-AB6B-4E31-A750-42F5495C6250.jpeg
+(318.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202205/16/174603coo825mb6vu9osrr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8163#       发表于 2022-5-16 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不仲！
+
