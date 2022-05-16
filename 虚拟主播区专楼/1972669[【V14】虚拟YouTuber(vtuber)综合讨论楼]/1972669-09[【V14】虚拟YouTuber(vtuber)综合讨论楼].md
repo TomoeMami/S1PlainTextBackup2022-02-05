@@ -13495,3 +13495,32 @@ eden图好看！
 
 dmzj上了杏那个衍生漫画，一看评论果然开始ttk了，然后果然也有杏奴围虹救杏搬神田的事出来讲还讲的各种错………要不是没举例委员长迪士尼以下略我恐怕会以为是2000
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13271#       发表于 2022-5-16 17:17
+
+<img src="https://img.saraba1st.com/forum/202205/16/171606xqa54egqygj2szgk.png" referrerpolicy="no-referrer">
+
+<strong>【1 YEAR WITH LAZULIGHT #LAZU1IGHTANNIVERSARY】  premiere watchalong!【NIJISANJI.png</strong> (116.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 17:16 上传
+
+<img src="https://img.saraba1st.com/forum/202205/16/170021ea062ztl4sz026i2.png" referrerpolicy="no-referrer">
+
+<strong>【1 YEAR WITH LAZULIGHT #LAZU1IGHTANNIVERSARY】  premiere watchalong!【NIJISANJI.png</strong> (55.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 17:00 上传
+
+昨天只看了elira台的一周年，今天补pomu台才知道她那个lazulight太空计划是完全自己休假弄出来的（开始以为是和sana粉丝的生日计划一样购买了专门的服务）
+
+制作探空气球+无人机+Go Pro多次尝试，期间经历了电池耗光、对焦出现问题、不得不找消防部门帮忙从树上取回气球等诸多困难......我得说pomu一周年这个活真的令人印象深刻
+
+不愧是囚人，有行动力又够疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+

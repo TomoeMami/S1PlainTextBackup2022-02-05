@@ -8844,3 +8844,14 @@ B99B30A9-4A7C-4BDA-AED3-C0D1C12A9A2C.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/16/170801bf9xib9bc5gc4u74.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cao1rui2  
+##### 8156#       发表于 2022-5-16 17:16
+
+这丝丝丝口癖好难受，北海道人是这样的么
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
