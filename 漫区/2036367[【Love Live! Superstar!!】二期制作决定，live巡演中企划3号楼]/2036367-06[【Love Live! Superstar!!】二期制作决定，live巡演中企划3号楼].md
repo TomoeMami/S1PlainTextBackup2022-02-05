@@ -9239,3 +9239,19 @@ CDFBB780-BDEB-4A2D-B85D-6C60D2A70E8D.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/16/232228iqv95vpzt3j95jte.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 8184#       发表于 2022-5-16 23:35
+
+推上发的节目单：
+M1.タマシイレボリューション (Superfly)
+M2.アポロ (ポルノグラフィティ)
+M3.最後の雨 (中西保志)
+M4.Let It Go〜ありのままで〜 (松たか子)
+选let it go 的原因是青山アナ这个梗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
