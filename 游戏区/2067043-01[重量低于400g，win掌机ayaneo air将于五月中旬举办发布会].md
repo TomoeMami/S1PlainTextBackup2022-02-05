@@ -1523,3 +1523,15 @@ NS有针对性优化。。。吗</blockquote>
 
 有可能前期预定量会影响最终定价？
 
+
+
+*****
+
+####  mcq_2  
+##### 157#       发表于 2022-5-16 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55656106&amp;ptid=2067043" target="_blank">翼宿一 发表于 2022-5-1 14:14</a>
+
+所以 Switch 原版就是刑具啊，轻量化的 Lite 明显更接近掌机标准，只是 Lite 阉割太猛没法替代原版的很多 ...</blockquote>
+也不全是缩水，lite的按钮手感好很多。
+
