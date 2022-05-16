@@ -13724,3 +13724,12 @@ dmzj的事能不能去dmzj搞定，下次泥哥谭打架是不是也要发v综
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13287#       发表于 2022-5-16 21:14
+
+心情复杂，如果绿仙有什么毕业前一定要做的事，估计就是这个
+

@@ -9077,3 +9077,12 @@ IMG_8538.JPG
 
 <img src="https://img.saraba1st.com/forum/202205/16/205257kz60qhhlrjxdqyxh.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8174#       发表于 2022-5-16 21:16
+
+五老星其他四人也都去现场了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
