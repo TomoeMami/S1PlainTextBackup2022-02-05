@@ -11035,3 +11035,12 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 这就找回来了，意外得挺快，姑且当24小时叶卫兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  atomicink  
+##### 87947#       发表于 2022-5-16 09:45
+
+隔壁几个帖子一本正经教人自建号刷初始四星入坑，谁信谁傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
