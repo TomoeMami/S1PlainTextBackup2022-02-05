@@ -1535,3 +1535,25 @@ NS有针对性优化。。。吗</blockquote>
 所以 Switch 原版就是刑具啊，轻量化的 Lite 明显更接近掌机标准，只是 Lite 阉割太猛没法替代原版的很多 ...</blockquote>
 也不全是缩水，lite的按钮手感好很多。
 
+
+
+*****
+
+####  Tomoyo1  
+##### 158#       发表于 2022-5-16 11:06
+
+只是这个体积性能能比有专门游戏优化的ns强多少呢，如果只是能多玩几个独立游戏实在感觉没必要
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+*****
+
+####  医生狼多  
+##### 159#         楼主| 发表于 2022-5-16 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55862697&amp;ptid=2067043" target="_blank">Tomoyo1 发表于 2022-5-16 11:06</a>
+只是这个体积性能能比有专门游戏优化的ns强多少呢，如果只是能多玩几个独立游戏实在感觉没必要
+
+—— 来自  ...</blockquote>
+用ssd，至少读取不用这么折磨<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我现在玩ns中型游戏和部分独立游戏最大的痛点就是这个，load半天
+
