@@ -13468,3 +13468,21 @@ eden图好看！
 
 2022-5-16 13:19 上传
 
+
+
+*****
+
+####  rzrbtk  
+##### 13269#       发表于 2022-5-16 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55864641&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-16 12:59</a>
+
+你虹别的不说，本社歌势连个事业逼都没
+
+想了想chima都可以算最卷的了
+
+（其实也有事业的，不想做v就是了）</blockquote>
+茜宝那个发歌率可以说是很卷了（虽然我不很常听
+
+自由的灵魂才能养成独特的风格，说的对吧！又在搞失踪的东堂琥珀小姐！
+
