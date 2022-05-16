@@ -8805,3 +8805,42 @@ CelticWhite老师画了水渚鱼亲亲震惊到Pay子
 
 <img src="https://img.saraba1st.com/forum/202205/16/115813sv1gga11xmg6xaaq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 8153#       发表于 2022-5-16 17:04
+
+💫動画更新💫
+
+ラブライブ！スーパースター!! Liella!自己紹介動画【桜小路きな子 編】を公開いたしました❗🎊
+
+→ [https://youtu.be/T5R14kRKfXg](https://youtu.be/T5R14kRKfXg)
+
+是非ご視聴ください🌟よろしくお願いいたします✨
+<img src="https://p.sda1.dev/6/2884cdef3ced08755d178dd0e68b133a/20220516_170414.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 8154#       发表于 2022-5-16 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">声音还不错
+
+*****
+
+####  仟音一心  
+##### 8155#       发表于 2022-5-16 17:08
+
+彩也太熟练了
+
+B99B30A9-4A7C-4BDA-AED3-C0D1C12A9A2C.jpeg
+(112.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-16 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202205/16/170801bf9xib9bc5gc4u74.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
