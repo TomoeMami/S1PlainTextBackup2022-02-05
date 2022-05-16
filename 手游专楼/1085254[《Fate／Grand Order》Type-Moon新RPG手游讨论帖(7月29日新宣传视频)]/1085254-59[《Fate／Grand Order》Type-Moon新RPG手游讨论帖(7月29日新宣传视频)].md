@@ -11044,3 +11044,15 @@ Traum是德语“梦想，幻境”的意思，好像没有对应 ...</blockquot
 
 隔壁几个帖子一本正经教人自建号刷初始四星入坑，谁信谁傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 87948#       发表于 2022-5-16 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55844417&amp;ptid=1085254" target="_blank">kissout 发表于 2022-5-14 23:43</a>
+
+真这么说，闪电哥可以是狄奥多里克大帝的传奇人物伯瓦尼的狄特里希</blockquote>
+这个我之前考虑过，不过东出对凯旋王的传说非常不熟
+
