@@ -9653,3 +9653,15 @@ C43C726D-E2BE-4645-87D1-D4F56635F21E.jpeg
 这就是拥有9年艺龄的前偶像吧，跟另外三个差距巨大
 sayu和pay玩sns都挺佛系，大多都几天才发一次推
 
+
+
+*****
+
+####  a92063256  
+##### 8217#       发表于 2022-5-17 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55877538&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-17 11:20</a>
+彩妹营业</blockquote>
+挡住香音暗示自己将要取而代之拿走c位<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+开玩笑，不过这位的营业力度是真的大啊，感觉像是挺外向的人，不知道生放表现如何
+
