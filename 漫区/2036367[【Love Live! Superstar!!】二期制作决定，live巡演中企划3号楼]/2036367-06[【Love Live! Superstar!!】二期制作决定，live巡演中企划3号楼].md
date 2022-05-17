@@ -9798,3 +9798,57 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
 
 没可能吧，顶多是看完了完整的二期台本+录好了前几集要上的歌
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8230#       发表于 2022-5-17 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哇，米女的声线和想象中的完全不同啊
+
+*****
+
+####  iuhehc  
+##### 8231#       发表于 2022-5-17 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55877835&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-17 11:39</a>
+鲤鱼酷爱的衬衣，t恤，牛仔裤搭配</blockquote>
+我觉得鲤鱼这样穿就挺显身材的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  离心  
+##### 8232#       发表于 2022-5-17 16:53
+
+红毛还行啊，少年感配的不错。看蓝毛和夏美怎么样了
+
+*****
+
+####  仟音一心  
+##### 8233#       发表于 2022-5-17 16:54
+
+来了，和人设差不多，比较T
+
+C1E012FB-7A3F-49B9-8DF0-44623832A03F.jpeg
+(113.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-17 16:53 上传
+
+<img src="https://img.saraba1st.com/forum/202205/17/165302b9nnvv6ibuan2vaq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 8234#       发表于 2022-5-17 16:57
+
+https://youtu.be/jEHhFBLrE_4
+
+比香哥哥更男人婆了。真就是要属性一一对标吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
