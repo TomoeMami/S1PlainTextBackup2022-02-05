@@ -9295,3 +9295,16 @@ M4.Let It Go〜ありのままで〜 (松たか子)
 第二套主要是看着………………下垂………………………………………………………… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">塞太多了
 
+
+
+*****
+
+####  Enakina  
+##### 8189#       发表于 2022-5-17 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55872978&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-5-16 23:21</a>
+没确认吧，也就看到那一位发。要是一起坐在关系者席应该很多人看到的
+
+—— 来自 S1Fun ...</blockquote>
+微博有人写repo了，几个现地都确实过了，4个人的确都去了
+
