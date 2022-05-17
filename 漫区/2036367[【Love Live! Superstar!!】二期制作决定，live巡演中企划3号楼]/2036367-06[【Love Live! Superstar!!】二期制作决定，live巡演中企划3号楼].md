@@ -9632,3 +9632,24 @@ C43C726D-E2BE-4645-87D1-D4F56635F21E.jpeg
 
 真好啊
 
+
+
+*****
+
+####  愛さ実  
+##### 8215#       发表于 2022-5-17 11:59
+
+上次三昧好像也是，只有鲤鱼穿裤子<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 8216#       发表于 2022-5-17 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55877728&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-17 11:32</a>
+我觉得那个彩妹比佩佩和打铁来的还要老道成熟</blockquote>
+这就是拥有9年艺龄的前偶像吧，跟另外三个差距巨大
+sayu和pay玩sns都挺佛系，大多都几天才发一次推
+
