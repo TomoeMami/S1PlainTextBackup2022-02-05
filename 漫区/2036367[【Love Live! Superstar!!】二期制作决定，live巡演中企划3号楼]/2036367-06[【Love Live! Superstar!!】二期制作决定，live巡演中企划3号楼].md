@@ -9875,3 +9875,40 @@ https://youtu.be/jEHhFBLrE_4
 
 考虑到外部条件，我觉得花田能在第二季写好四个角色，让恋的人气滑落到七八位左右就挺不错了。
 
+
+
+*****
+
+####  仟音一心  
+##### 8237#       发表于 2022-5-17 17:23
+
+【广播】LoveLive! ANNG广播
+
+时间：5月27日 晚上九点（北京时间）
+
+出演：
+
+MC：降幡爱 
+
+Aqours：小宫有纱
+
+虹ヶ咲：小泉萌香、法元明菜
+
+Liella!：伊达小百合、Liyuu  
+
+29486976-1EFE-4C98-8C8E-2B20914CC4E6.jpeg
+(218.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-17 17:23 上传
+
+<img src="https://img.saraba1st.com/forum/202205/17/172325afd4f2caggyd2diz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 8238#       发表于 2022-5-17 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在对第二季唯一的期待就是看蓝毛到底是不是重女
+
