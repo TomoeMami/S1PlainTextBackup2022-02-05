@@ -13904,3 +13904,16 @@ OOR好耶
 因为健身环直播，还有西楚霸王同期对比吧</blockquote>
 健身环和西楚霸王的节目效果早就是不知道几个版本前的梗了，同期黛妈妈和配虑之鬼的梗早八百年没人提了，只有弱不禁风的印象一直是新老粉丝的共识………不得不说他雪白的脸和竹节虫的3D还有技术人员的设定真的很容易让人产生错觉
 
+
+
+*****
+
+####  Ketestrait  
+##### 13305#       发表于 2022-5-18 01:52
+
+<img src="https://tvax3.sinaimg.cn/large/7c16af6bly1h2bxjjnwi2j20xt0j30wq.jpg" referrerpolicy="no-referrer">
+<img src="https://tva3.sinaimg.cn/large/7c16af6bly1h2bxju30cmj20xu0j142h.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax4.sinaimg.cn/large/7c16af6bly1h2bxjzlua0j20xm0ixgpt.jpg" referrerpolicy="no-referrer">
+
+有一说一小绿的人设是第二正中个人好球区的，仅次于手机妹<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
