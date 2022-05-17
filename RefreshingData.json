@@ -48,9 +48,9 @@
     "newtitle": "[星期一的满杯讨论楼]"
   },
   "1966145": {
-    "totalreply": 27471,
+    "totalreply": 27472,
     "title": "[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]",
-    "lastedit": 1652790024,
+    "lastedit": 1652793625,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]"
@@ -96,9 +96,9 @@
     "newtitle": "[千年戦争アイギス 4.0（？）]"
   },
   "1972669": {
-    "totalreply": 13299,
+    "totalreply": 13300,
     "title": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1652793182,
+    "lastedit": 1652793720,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]"
@@ -144,18 +144,18 @@
     "newtitle": "[【千鸟Official】千鸟Official综合讨论楼]"
   },
   "2018830": {
-    "totalreply": 11112,
+    "totalreply": 11114,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
-    "lastedit": 1652793194,
+    "lastedit": 1652793627,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]"
   },
   "2021563": {
-    "totalreply": 1135,
+    "totalreply": 1136,
     "title": "[【星瞳offical】建个星瞳的综合讨论楼吧（8月28日 20点直播）]",
     "newtitle": "[【星瞳offical】星瞳综合讨论楼 专属装扮已上线预约！]",
-    "lastedit": 1652793194,
+    "lastedit": 1652793765,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -168,18 +168,18 @@
     "active": true
   },
   "2033655": {
-    "totalreply": 18748,
+    "totalreply": 18758,
     "title": "[DOTA2 TI11赛季转会期专楼]",
     "newtitle": "[DOTA2 7.31C版本更新，石油佬ti亚洲赛区即将开战]",
-    "lastedit": 1652793121,
+    "lastedit": 1652793771,
     "category": "游戏区",
     "active": true
   },
   "2036367": {
-    "totalreply": 8243,
+    "totalreply": 8244,
     "title": "[【Love Live! Superstar!!】二期制作决定，live巡演中企划3号楼]",
     "newtitle": "[【Love Live! Superstar!!】二期七月放送预定企划3号楼]",
-    "lastedit": 1652785993,
+    "lastedit": 1652793771,
     "category": "漫区",
     "active": true
   },
@@ -264,10 +264,10 @@
     "active": true
   },
   "2050817": {
-    "totalreply": 15350,
+    "totalreply": 15351,
     "title": "[原神（多平台）攻略讨论专楼#5（禁止新开讨论）]",
     "newtitle": "[原神（多平台）攻略讨论专楼#5（禁止新开讨论）]",
-    "lastedit": 1652792432,
+    "lastedit": 1652793632,
     "category": "手游专楼",
     "active": true
   },
@@ -640,10 +640,10 @@
     "active": false
   },
   "2067266": {
-    "totalreply": 380,
+    "totalreply": 382,
     "title": "[2022年5月网文综合推荐交流楼]",
     "newtitle": "[2022年5月网文综合推荐交流楼]",
-    "lastedit": 1652793167,
+    "lastedit": 1652793725,
     "category": "外野",
     "active": true
   },
@@ -886,14 +886,6 @@
     "lastedit": 1652601721,
     "category": "游戏区",
     "active": true
-  },
-  "2067641": {
-    "totalreply": 67,
-    "title": "[骚想干是成为男女朋友的必要条件吗？]",
-    "newtitle": "[骚想干是成为男女朋友的必要条件吗？]",
-    "lastedit": 1651583569,
-    "category": "外野",
-    "active": false
   },
   "2067369": {
     "totalreply": 66,
@@ -2288,10 +2280,10 @@
     "active": true
   },
   "2068729": {
-    "totalreply": 14041,
+    "totalreply": 14052,
     "title": "[【B58】VUP综合讨论楼]",
     "newtitle": "[【B58】VUP综合讨论楼]",
-    "lastedit": 1652793129,
+    "lastedit": 1652793792,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2365,7 +2357,7 @@
     "newtitle": "[笑傲周：全盛时期的林远图能否单挑东方不败]",
     "lastedit": 1652188323,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2068755": {
     "totalreply": 187,
@@ -2496,10 +2488,10 @@
     "active": true
   },
   "2068882": {
-    "totalreply": 24579,
+    "totalreply": 24607,
     "title": "[【A29】A-SOUL讨论楼（5月20日晚上8点，珈乐休眠演唱会）]",
     "newtitle": "[【A29】A-SOUL讨论楼（5月14日A-SOUL官方最新回应）]",
-    "lastedit": 1652793060,
+    "lastedit": 1652793802,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -3560,10 +3552,10 @@
     "active": true
   },
   "2069639": {
-    "totalreply": 1713,
+    "totalreply": 1723,
     "title": "[上海疫情 9#]",
     "newtitle": "[上海疫情 9#]",
-    "lastedit": 1652793092,
+    "lastedit": 1652793757,
     "category": "外野",
     "active": true
   },
@@ -3928,18 +3920,18 @@
     "active": true
   },
   "2069816": {
-    "totalreply": 153,
+    "totalreply": 157,
     "title": "[紫罗兰原作那么差 动画为何要投入那么好的制作资源]",
     "newtitle": "[紫罗兰原作那么差 动画为何要投入那么好的制作资源]",
-    "lastedit": 1652793110,
+    "lastedit": 1652793713,
     "category": "漫区",
     "active": true
   },
   "2069903": {
-    "totalreply": 604,
+    "totalreply": 607,
     "title": "[鹅乌专楼#5，又双叒叕的直接塞]",
     "newtitle": "[鹅乌专楼#5，又双叒叕的直接塞]",
-    "lastedit": 1652793160,
+    "lastedit": 1652793713,
     "category": "外野",
     "active": true
   },
@@ -4016,18 +4008,18 @@
     "active": true
   },
   "2069951": {
-    "totalreply": 125,
+    "totalreply": 126,
     "title": "[在我坛的评价体系内，二本女艺术生在婚恋市场什么档次？]",
     "newtitle": "[在我坛的评价体系内，二本女艺术生在婚恋市场什么档次？]",
-    "lastedit": 1652790709,
+    "lastedit": 1652793787,
     "category": "外野",
     "active": true
   },
   "2069952": {
-    "totalreply": 121,
+    "totalreply": 122,
     "title": "[见识到了层层转包的无限可能性]",
     "newtitle": "[见识到了层层转包的无限可能性]",
-    "lastedit": 1652790713,
+    "lastedit": 1652793712,
     "category": "外野",
     "active": true
   },
@@ -4112,10 +4104,10 @@
     "active": true
   },
   "2070003": {
-    "totalreply": 137,
+    "totalreply": 141,
     "title": "[泥潭：经济完了。财政部：并没有。]",
     "newtitle": "[泥潭：经济完了。财政部：并没有。]",
-    "lastedit": 1652793111,
+    "lastedit": 1652793800,
     "category": "外野",
     "active": true
   },
@@ -4144,10 +4136,18 @@
     "active": true
   },
   "2070001": {
-    "totalreply": 65,
+    "totalreply": 68,
     "title": "[ff15销量破1000万]",
     "newtitle": "[ff15销量破1000万]",
-    "lastedit": 1652793116,
+    "lastedit": 1652793716,
+    "category": "游戏区",
+    "active": true
+  },
+  "2070016": {
+    "totalreply": 63,
+    "title": "[索GP公布后的欢喜与惆怅]",
+    "newtitle": "[索GP公布后的欢喜与惆怅]",
+    "lastedit": 1652793723,
     "category": "游戏区",
     "active": true
   }

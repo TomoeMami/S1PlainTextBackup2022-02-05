@@ -6296,3 +6296,21 @@ https://www.lightnovel.us/c ...</blockquote>
 
 除了偶像的事情，个人的问题需要早起。这说的一副在上班的样子。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 11113#       发表于 2022-5-17 21:18
+
+坦克即将成为过去，桀桀
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  游山赫乃丈丶  
+##### 11114#       发表于 2022-5-17 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我要说句多谢索尼哥？ 肥婆居然能健身了！
+
