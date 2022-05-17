@@ -6339,3 +6339,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 卡
 
+
+
+*****
+
+####  Klience  
+##### 11118#       发表于 2022-5-17 23:42
+
+你不说还差点忘了这人养了仓鼠 看来这仓鼠运气不错 还活到现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
