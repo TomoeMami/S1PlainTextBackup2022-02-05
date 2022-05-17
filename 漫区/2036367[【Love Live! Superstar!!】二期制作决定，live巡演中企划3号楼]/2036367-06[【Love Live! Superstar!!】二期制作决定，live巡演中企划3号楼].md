@@ -9556,3 +9556,63 @@ C43C726D-E2BE-4645-87D1-D4F56635F21E.jpeg
 
 说起来鲤鱼这打扮真的跟其他4人差挺多，什么HOMO打扮
 
+
+
+*****
+
+####  cat1230  
+##### 8206#       发表于 2022-5-17 11:32
+
+这种程度已经不能单说是营业了，自己真喜欢ll也肯定在里头。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  稀勢のささ  
+##### 8207#       发表于 2022-5-17 11:34
+
+ 本帖最后由 稀勢のささ 于 2022-5-17 11:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有半个多月才生放 建号还来得及
+
+   会营业又不是啥坏事 不营业我看啥
+
+*****
+
+####  aoaoaodedede  
+##### 8208#       发表于 2022-5-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55877677&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-17 11:28</a>
+
+救救大熊妹子吧，实在看不下去了，事务所是搁那吃干饭的？</blockquote>
+贤Production当时转LL官方cast公布的推貌似挺积极的，就是这给声优开个推也不知道为什么不积极了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  megapikachu  
+##### 8209#       发表于 2022-5-17 11:38
+
+如果一天一个，明天应该轮到四季，算是建号开推好机会了。
+
+*****
+
+####  靡宜  
+##### 8210#       发表于 2022-5-17 11:39
+
+鲤鱼酷爱的衬衣，t恤，牛仔裤搭配
+
+*****
+
+####  甘蓝巧克力  
+##### 8211#       发表于 2022-5-17 11:39
+
+鲤鱼的露脐装被nagi的手挡住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 8212#       发表于 2022-5-17 11:39
+
+正在办卡，正在买手机，正在学手机，正在下软件，正在学使用。
+
