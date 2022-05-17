@@ -9506,3 +9506,53 @@ C43C726D-E2BE-4645-87D1-D4F56635F21E.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/17/112049tv6x9h8pzkpmxohx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 8201#       发表于 2022-5-17 11:26
+
+这……其他人的营业差距也太大了
+
+*****
+
+####  cybernetics31  
+##### 8202#       发表于 2022-5-17 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">救救大熊妹子吧，实在看不下去了，事务所是搁那吃干饭的？
+
+*****
+
+####  aoaoaodedede  
+##### 8203#       发表于 2022-5-17 11:29
+
+现在是四个新人是四个形式的sns营业水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8204#       发表于 2022-5-17 11:30
+
+ 本帖最后由 仟音一心 于 2022-5-17 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55877693&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-17 11:29</a>
+
+现在是四个新人是四个形式的sns营业水平</blockquote>
+
+高水平
+
+一般人水平
+
+新手水平
+
+无账号
+
+*****
+
+####  lj205  
+##### 8205#       发表于 2022-5-17 11:32
+
+我觉得那个彩妹比佩佩和打铁来的还要老道成熟
+
+说起来鲤鱼这打扮真的跟其他4人差挺多，什么HOMO打扮
+
