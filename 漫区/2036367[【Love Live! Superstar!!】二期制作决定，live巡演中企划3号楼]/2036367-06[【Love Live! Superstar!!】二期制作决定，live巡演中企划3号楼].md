@@ -9697,3 +9697,31 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
 
 我现在有点担心大熊会是第二个灯。。。
 
+
+
+*****
+
+####  仟音一心  
+##### 8221#       发表于 2022-5-17 13:43
+
+．
+
+802CE0EA-D636-4A3F-BC55-322155803F71.jpeg
+(269.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-17 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202205/17/134326tb0k889b8czw9gaj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8222#       发表于 2022-5-17 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55879290&amp;ptid=2036367" target="_blank">stygian 发表于 2022-5-17 13:31</a>
+
+我现在有点担心大熊会是第二个灯。。。</blockquote>
+又不是SMA的艺人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
