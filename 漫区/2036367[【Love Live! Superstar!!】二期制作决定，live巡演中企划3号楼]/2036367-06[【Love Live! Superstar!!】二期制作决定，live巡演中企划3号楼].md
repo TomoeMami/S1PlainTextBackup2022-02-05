@@ -9665,3 +9665,17 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推
 挡住香音暗示自己将要取而代之拿走c位<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 开玩笑，不过这位的营业力度是真的大啊，感觉像是挺外向的人，不知道生放表现如何
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8218#       发表于 2022-5-17 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55878184&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-17 12:01</a>
+
+这就是拥有9年艺龄的前偶像吧，跟另外三个差距巨大
+
+sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
+并没有吧，sayu的活多一点，至少最近很少有好几天没发推的情况，pay的活没那么多，发推频率确实没那么高（前几个月好像明显一点）
+
