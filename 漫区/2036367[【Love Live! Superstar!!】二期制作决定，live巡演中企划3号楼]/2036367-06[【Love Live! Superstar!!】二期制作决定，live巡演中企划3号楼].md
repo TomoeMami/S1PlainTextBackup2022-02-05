@@ -9852,3 +9852,26 @@ https://youtu.be/jEHhFBLrE_4
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 8235#       发表于 2022-5-17 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55881462&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-17 16:29</a>
+口胡一下，现阶段配音工作应该完成得差不多，中之人知道角色寄了只好先营业起来以后能减轻一些伤害
+ ...</blockquote>
+花田现在就是财阀篇前的辉夜，已经用佛弥篇恶心人了，现在又是一副大的要来的味道。完全不可能保有任何期待。我只祈祷京极花田千万别再整什么的大活了，甚至这一年别去参赛，多写喝茶，把人物拉起来都好。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  凡人  
+##### 8236#       发表于 2022-5-17 17:10
+
+很酷的声线啊，不愧是im的。红蓝的声优演技挺值得期待。
+
+考虑到外部条件，我觉得花田能在第二季写好四个角色，让恋的人气滑落到七八位左右就挺不错了。
+
