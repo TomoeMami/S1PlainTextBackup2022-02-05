@@ -11100,3 +11100,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 每天合成6个苹果，我还可以咸鱼200天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kissout  
+##### 87953#       发表于 2022-5-17 23:23
+
+看到外网一个奶狄摩高根，突然有个点子，不过似乎太暴论了
+
