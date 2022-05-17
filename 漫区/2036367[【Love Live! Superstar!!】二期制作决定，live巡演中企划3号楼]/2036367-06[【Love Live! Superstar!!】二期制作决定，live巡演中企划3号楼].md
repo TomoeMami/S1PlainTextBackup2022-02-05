@@ -9789,3 +9789,12 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
 口胡一下，现阶段配音工作应该完成得差不多，中之人知道角色寄了只好先营业起来以后能减轻一些伤害<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 要是花田大师能打我脸那就最好
 
+
+
+*****
+
+####  ViyViy  
+##### 8229#       发表于 2022-5-17 16:38
+
+没可能吧，顶多是看完了完整的二期台本+录好了前几集要上的歌
+
