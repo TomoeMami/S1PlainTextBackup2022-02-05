@@ -9761,3 +9761,21 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
 开玩笑，不过这位的营业力度是真的大啊，感觉像是挺外向的 ...</blockquote>
 好黑泥，记下了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 8226#       发表于 2022-5-17 16:05
+
+工商营业的水平的确可以，希望以后的百合营业，团爱营业能给点力。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他三个就不说了，突出一个摆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 8227#       发表于 2022-5-17 16:09
+
+一个顶三个了
+
