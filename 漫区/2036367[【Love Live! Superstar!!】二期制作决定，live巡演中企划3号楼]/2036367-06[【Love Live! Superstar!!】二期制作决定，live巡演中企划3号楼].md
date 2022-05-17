@@ -9930,3 +9930,21 @@ C52D0017-278E-48E6-945A-4143B6E315DF.jpeg
 
 <img src="https://img.saraba1st.com/forum/202205/17/173321ueppm4e0eudrszuk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 8240#       发表于 2022-5-17 17:53
+
+营业狂魔看出来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  靡宜  
+##### 8241#       发表于 2022-5-17 18:01
+
+黄毛不会是逆输入吧😂。感觉这熟练的营业就很人设（非贬义的方面哈）
+
