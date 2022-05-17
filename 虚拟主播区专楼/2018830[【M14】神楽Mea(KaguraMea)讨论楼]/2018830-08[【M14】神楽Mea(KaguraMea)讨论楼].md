@@ -6246,3 +6246,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 我们失去了肥羊（暂时的
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11108#       发表于 2022-5-17 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
