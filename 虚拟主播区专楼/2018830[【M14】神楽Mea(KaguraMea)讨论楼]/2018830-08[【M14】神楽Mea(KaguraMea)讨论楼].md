@@ -6282,3 +6282,17 @@ https://www.lightnovel.us/c ...</blockquote>
 
 估计是为live做准备吧
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11112#       发表于 2022-5-17 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55885188&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-5-17 20:44</a>
+
+估计是为live做准备吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+除了偶像的事情，个人的问题需要早起。这说的一副在上班的样子。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
