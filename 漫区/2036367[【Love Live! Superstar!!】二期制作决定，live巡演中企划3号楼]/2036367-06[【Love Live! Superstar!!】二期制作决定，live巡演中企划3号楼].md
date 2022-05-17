@@ -9308,3 +9308,27 @@ M4.Let It Go〜ありのままで〜 (松たか子)
 —— 来自 S1Fun ...</blockquote>
 微博有人写repo了，几个现地都确实过了，4个人的确都去了
 
+
+
+*****
+
+####  adw667  
+##### 8190#       发表于 2022-5-17 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55870721&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-16 20:30</a>
+
+—— 来自 HONOR RNA-AN00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">突然觉得有点像南条爱乃
+
+
+
+*****
+
+####  adw667  
+##### 8191#       发表于 2022-5-17 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55868363&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-16 17:46</a>
+
+微博上看到这图，虽然是巧合……但</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">干得漂亮
+
