@@ -9725,3 +9725,15 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
 我现在有点担心大熊会是第二个灯。。。</blockquote>
 又不是SMA的艺人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 8223#       发表于 2022-5-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55879403&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-17 13:44</a>
+
+又不是SMA的艺人</blockquote>
+主要是指对artist活动的热衷度
+
