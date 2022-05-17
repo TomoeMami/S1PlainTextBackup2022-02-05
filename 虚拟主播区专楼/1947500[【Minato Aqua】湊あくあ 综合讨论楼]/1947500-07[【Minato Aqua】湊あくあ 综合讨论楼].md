@@ -1835,3 +1835,30 @@ whats up， bro！
 
 我才知道前面那个歌是日常的主题曲 二次元失格
 
+
+
+*****
+
+####  lightsuger  
+##### 9192#       发表于 2022-5-17 18:11
+
+<img src="https://img.saraba1st.com/forum/202205/17/180954oplz4yriaalaw3lh.png" referrerpolicy="no-referrer">
+
+<strong>lude.png</strong> (142.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-17 18:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 9193#       发表于 2022-5-17 18:16
+
+<blockquote>おきてからまだ5分だけど
+
+おしごといってくる(つω-｀).｡oO</blockquote>
+之前一眼看成了おしっこいってくる，还想着夸宝怎么突然没偶像包袱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
