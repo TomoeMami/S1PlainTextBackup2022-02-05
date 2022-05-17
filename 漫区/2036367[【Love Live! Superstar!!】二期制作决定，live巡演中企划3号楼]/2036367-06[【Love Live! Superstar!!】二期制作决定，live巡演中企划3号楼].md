@@ -9737,3 +9737,27 @@ sayu和pay玩sns都挺佛系，大多都几天才发一次推 ...</blockquote>
 又不是SMA的艺人</blockquote>
 主要是指对artist活动的热衷度
 
+
+
+*****
+
+####  adw667  
+##### 8224#       发表于 2022-5-17 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55877538&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-17 11:20</a>
+
+彩妹营业</blockquote>
+该说不愧是管人吗<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 8225#       发表于 2022-5-17 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55878241&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-5-17 12:05</a>
+
+挡住香音暗示自己将要取而代之拿走c位
+
+开玩笑，不过这位的营业力度是真的大啊，感觉像是挺外向的 ...</blockquote>
+好黑泥，记下了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
