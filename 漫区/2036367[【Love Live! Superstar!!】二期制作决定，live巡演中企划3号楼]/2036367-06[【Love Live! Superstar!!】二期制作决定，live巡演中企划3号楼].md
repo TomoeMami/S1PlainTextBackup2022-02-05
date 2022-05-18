@@ -10148,3 +10148,91 @@ DF630429-1552-4B66-8E92-BAD51DDCCE98.jpeg
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ykyin09  
+##### 8256#       发表于 2022-5-18 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为蓝毛是类似少歌里香子的声线，没想到也是这么帅哥系，红蓝谁是1啊。来自: iPhone客户端
+
+*****
+
+####  寒风夜  
+##### 8257#       发表于 2022-5-18 17:04
+
+ 本帖最后由 寒风夜 于 2022-5-18 17:07 编辑 
+
+想象一致，真贴脸
+
+*****
+
+####  ads147147  
+##### 8258#       发表于 2022-5-18 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896152&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-5-18 17:03</a>
+还以为蓝毛是类似少歌里香子的声线，没想到也是这么帅哥系，红蓝谁是1啊。 ...</blockquote>
+红毛是0啊，很明显的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8259#       发表于 2022-5-18 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">就决定是蓝毛了
+
+*****
+
+####  仟音一心  
+##### 8260#       发表于 2022-5-18 17:07
+
+来了，和感觉上一样，偏无口。
+
+怎么有点天王寺的感觉？
+
+32FD79CB-1819-4352-A9A3-644AB1D967C2.jpeg
+(108.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202205/18/170651sjrnonas6rs3jrjj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7927E34A-6C9D-4060-9A6E-1DF1E81C4EEB.jpeg
+(125.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202205/18/170651iuznguwu3b6n0ogv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8261#       发表于 2022-5-18 17:09
+
+要不大熊不用开推了，营业全彩妹你来吧。
+
+700623DA-9D83-429B-8564-B1D0CF5CC6BD.jpeg
+(108.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202205/18/170940kktbvf5mkvfbqqz5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 8262#       发表于 2022-5-18 17:11
+
+日本人有开小号的习惯吗
+
+—— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
