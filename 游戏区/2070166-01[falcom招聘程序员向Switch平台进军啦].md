@@ -723,3 +723,12 @@ ns什么销量，psp什么销量，ns蓝海还能捞两三盘游戏，psp多媒�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  415452356  
+##### 77#       发表于 2022-5-19 06:29
+
+  一个小小的法老控能引得泥潭阵营玩家集体破防我是没想到
+
