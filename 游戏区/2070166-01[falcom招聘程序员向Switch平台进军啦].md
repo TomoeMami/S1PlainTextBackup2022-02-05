@@ -732,3 +732,15 @@ ns什么销量，psp什么销量，ns蓝海还能捞两三盘游戏，psp多媒�
 
   一个小小的法老控能引得泥潭阵营玩家集体破防我是没想到
 
+
+
+*****
+
+####  ffmzsj  
+##### 78#       发表于 2022-5-19 06:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55902618&amp;ptid=2070166" target="_blank">415452356 发表于 2022-5-19 06:29</a>
+
+一个小小的法老控能引得泥潭阵营玩家集体破防我是没想到</blockquote>
+我咋感觉只有你破防了
+
