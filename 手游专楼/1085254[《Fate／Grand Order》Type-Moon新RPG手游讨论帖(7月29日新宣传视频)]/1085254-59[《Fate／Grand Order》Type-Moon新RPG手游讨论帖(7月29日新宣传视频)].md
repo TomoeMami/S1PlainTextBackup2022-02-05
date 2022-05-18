@@ -11621,3 +11621,19 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以为什么都会有奇怪的现代元素混杂进里面呢
 
+
+
+*****
+
+####  シャル  
+##### 88005#       发表于 2022-5-18 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897550&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-18 18:47</a>
+
+这次还开了几个新章关联从者的新幕间：
+
+阿斯托尔福和布拉达曼特是十二勇士，查理曼相关；</blockquote>
+克里姆和布伦是敌人啊
+
+都是两个女人吵架才引发后面那么多问题
+
