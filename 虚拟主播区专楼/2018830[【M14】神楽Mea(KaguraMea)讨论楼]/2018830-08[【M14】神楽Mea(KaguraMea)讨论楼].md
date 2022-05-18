@@ -6601,3 +6601,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 矛盾螺旋的阿咩（阿宅kimo，但是阿宅的钱不kimo
 
+
+
+*****
+
+####  ashero  
+##### 11147#       发表于 2022-5-18 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿宅恶心 但是喜欢我就还行 我很可爱我很有趣
+

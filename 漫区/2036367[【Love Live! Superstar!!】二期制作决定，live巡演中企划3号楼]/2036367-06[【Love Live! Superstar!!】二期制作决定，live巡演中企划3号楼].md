@@ -10433,3 +10433,15 @@ Nagi：初中二年级的时候我参加过体操部，有在体操垫子上完�
 
 Nagi，我的超人。</blockquote>
 
+
+
+*****
+
+####  凡人  
+##### 8277#       发表于 2022-5-18 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897233&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-18 18:23</a>
+
+不过四季这个属性设定，我太相信花田能写好，不管是对待学院偶像的心路历程变化还是对待米女的情感 ...</blockquote>
+花田信者是吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
