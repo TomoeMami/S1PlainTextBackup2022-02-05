@@ -11167,3 +11167,81 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  angelooo  
+##### 87961#       发表于 2022-5-18 17:20
+
+居然是个限定，这样就没有歪出来的危险了，但福袋就......
+
+*****
+
+####  黑上シグマ  
+##### 87962#       发表于 2022-5-18 17:21
+
+这宝具也太微妙了…………
+
+*****
+
+####  シャル  
+##### 87963#       发表于 2022-5-18 17:22
+
+君11的宝具真TM帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果上崇祯的话会不会是歪脖子树特写呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 87964#       发表于 2022-5-18 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这宝具倒是挺好看的,但是立绘一言难尽
+
+*****
+
+####  angelooo  
+##### 87965#       发表于 2022-5-18 17:23
+
+不对啊眼镜灵衣呢，不要以为我们没有白情的记忆了啊23333
+
+*****
+
+####  里村紅葉  
+##### 87966#       发表于 2022-5-18 17:23
+
+麻痹一发十连出了，到手一看怎么是个...拐？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87967#       发表于 2022-5-18 17:25
+
+<blockquote>シャル 发表于 2022-5-18 17:22
+君11的宝具真TM帅啊
+
+如果上崇祯的话会不会是歪脖子树特写呢</blockquote>
+真·宝具动画23333
+
+*****
+
+####  cckuku  
+##### 87968#       发表于 2022-5-18 17:26
+
+怎么感觉又丑又菜呢？
+
+*****
+
+####  保罗赫伯特  
+##### 87969#       发表于 2022-5-18 17:29
+
+单看宝具是个shielder，但职介是rider，为了捍卫马修第一盾兵的地位随便给的职介吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 87970#       发表于 2022-5-18 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上已经在“陈宫炮弹+1”了wwwww
+
