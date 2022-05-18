@@ -11741,3 +11741,17 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 死于雷击。
 
+
+
+*****
+
+####  khxooo  
+##### 88010#       发表于 2022-5-19 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55901945&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-19 00:47</a>
+
+闪电哥我奶一个马库斯·努梅利乌斯·卡鲁斯（马可•奥勒留•卡鲁斯，Marcus Aurelius Carus）好了：
+
+罗马 ...</blockquote>
+我倒是认为死于雷击而令画师将呆毛化成雷电状这个猜测更靠谱。
+
