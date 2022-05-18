@@ -13965,3 +13965,12 @@ iwa都去搞nft了 感觉这人就没做过什么正常事情
 
 因主队输球，社霸德龙欲棍击对手球迷（误<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 13310#       发表于 2022-5-18 23:53
+
+岩永桑现在就比较像满嘴web3，nft，metaverse的新时代互联网创业者了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
