@@ -6348,3 +6348,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 你不说还差点忘了这人养了仓鼠 看来这仓鼠运气不错 还活到现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  记莫更寂寞  
+##### 11119#       发表于 2022-5-18 09:09
+
+坦克民的末路来了
+
