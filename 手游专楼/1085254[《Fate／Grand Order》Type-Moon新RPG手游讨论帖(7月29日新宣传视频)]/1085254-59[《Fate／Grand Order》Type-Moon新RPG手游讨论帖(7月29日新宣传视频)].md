@@ -11603,3 +11603,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 话说FGO官方同人冰室天地与七伟人里面已经有买买提二世了，是Archer：</blockquote>
 看起来像搞笑角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kisskick  
+##### 88003#       发表于 2022-5-18 20:32
+
+因为就是搞笑角色
+
