@@ -13954,3 +13954,14 @@ OOR好耶
 
 iwa都去搞nft了 感觉这人就没做过什么正常事情
 
+
+
+*****
+
+####  Ketestrait  
+##### 13309#       发表于 2022-5-18 14:27
+
+[https://youtu.be/bELhS3mgZgg](https://youtu.be/bELhS3mgZgg)
+
+因主队输球，社霸德龙欲棍击对手球迷（误<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
