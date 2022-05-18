@@ -10574,3 +10574,16 @@ sayu同款，女童装
 
 草，5厕那个鲤鱼D全团的贴，我怎么记得之前也看过一个，鲤鱼啊鲤鱼
 
+
+
+*****
+
+####  ads147147  
+##### 8283#       发表于 2022-5-18 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897233&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-18 18:23</a>
+不过四季这个属性设定，我不太相信花田能写好，不管是对待学院偶像的心路历程变化还是对待米女的情 ...</blockquote>
+捆绑销售肯定是一起卖给你的啊，花田老传统了，等花田来个干吧露比啥的每集刷一次口癖。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
