@@ -11483,3 +11483,21 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 鉴定白给（满破白马，有去无回）。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87994#       发表于 2022-5-18 18:31
+
+ 本帖最后由 Jamaisvu 于 2022-5-18 18:33 编辑 
+
+君十一第三个被动技能是archer特攻，可能265某个反派新人是弓阶？不知道奥斯曼帝国的法提赫会不会实装...
+
+*****
+
+####  zore  
+##### 87995#       发表于 2022-5-18 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">头身比越看越搞笑
+
