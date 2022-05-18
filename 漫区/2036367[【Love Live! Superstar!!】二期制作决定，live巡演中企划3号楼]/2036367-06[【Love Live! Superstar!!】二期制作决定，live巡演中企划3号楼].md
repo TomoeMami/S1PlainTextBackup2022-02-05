@@ -10108,3 +10108,15 @@ DF630429-1552-4B66-8E92-BAD51DDCCE98.jpeg
 
 学会了去跟鲤鱼炫耀？
 
+
+
+*****
+
+####  星降る森  
+##### 8253#       发表于 2022-5-18 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55879470&amp;ptid=2036367" target="_blank">stygian 发表于 2022-5-17 13:52</a>
+
+主要是指对artist活动的热衷度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">楠木哪有不热衷？早年sma管的没那么多的时候可不是现在这样，楠木不出席LL活动又不是她自己不想来
+
