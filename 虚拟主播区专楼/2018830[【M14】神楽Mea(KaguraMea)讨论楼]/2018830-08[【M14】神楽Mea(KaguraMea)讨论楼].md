@@ -6610,3 +6610,14 @@ https://www.lightnovel.us/c ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿宅恶心 但是喜欢我就还行 我很可爱我很有趣
 
+
+
+*****
+
+####  三つの光  
+##### 11148#       发表于 2022-5-18 20:59
+
+你两什么时候再联动
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
