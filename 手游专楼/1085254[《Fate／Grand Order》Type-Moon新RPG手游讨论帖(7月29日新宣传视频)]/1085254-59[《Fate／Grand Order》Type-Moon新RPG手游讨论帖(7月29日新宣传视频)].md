@@ -11612,3 +11612,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 因为就是搞笑角色
 
+
+
+*****
+
+####  zore  
+##### 88004#       发表于 2022-5-18 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以为什么都会有奇怪的现代元素混杂进里面呢
+
