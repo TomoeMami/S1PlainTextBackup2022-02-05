@@ -11591,3 +11591,15 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 2022-5-18 20:10 上传
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 88002#       发表于 2022-5-18 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55898584&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-18 20:12</a>
+
+话说FGO官方同人冰室天地与七伟人里面已经有买买提二世了，是Archer：</blockquote>
+看起来像搞笑角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
