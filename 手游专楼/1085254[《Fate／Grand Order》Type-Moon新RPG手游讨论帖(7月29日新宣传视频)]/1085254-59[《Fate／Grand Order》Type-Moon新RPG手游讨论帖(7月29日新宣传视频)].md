@@ -11501,3 +11501,39 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">头身比越看越搞笑
 
+
+
+*****
+
+####  zore  
+##### 87996#       发表于 2022-5-18 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">射手,指乌尔班大炮买买提II
+
+*****
+
+####  Jamaisvu  
+##### 87997#       发表于 2022-5-18 18:47
+
+ 本帖最后由 Jamaisvu 于 2022-5-18 18:49 编辑 
+
+这次还开了几个新章关联从者的新幕间：
+
+阿斯托尔福和布拉达曼特是十二勇士，查理曼相关；
+
+弗拉德三世历史上被奥斯曼帝国击败，买买提二世实装存疑？
+
+齐格弗里德....嗯，剪影最左的大剑妹可能是克里姆希尔德？
+
+福尔摩斯，是出来科普历史刷刷存在感，还是“内鬼”有翻脸的预兆了吗...
+
+莎乐美和清姬，俩病娇，如果齐格飞对应西格鲁德，那克里姆希尔德也许和布伦希尔德有些类似？也就是...病娇？
+
+剑刷，之前好像没出过他剧情吧？爱尔兰的英雄感觉没啥可讲的了，也许就是拉出来当打手吧...
+
+突然好想知道闪电呆毛哥是谁，不会真是买买提二世吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+君十一：我将被闪电（呆毛的男人）送回来<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+谜之声：我知道！闪电呆毛，不就是哀川润吗！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
