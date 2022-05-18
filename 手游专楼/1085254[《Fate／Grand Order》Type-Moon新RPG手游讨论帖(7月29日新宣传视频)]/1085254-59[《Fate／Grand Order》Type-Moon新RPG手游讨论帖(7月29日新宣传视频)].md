@@ -11411,3 +11411,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 没抽 这卡真的下不了手</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真的是这两年少有的垃圾五星角色了
 
+
+
+*****
+
+####  rooarr  
+##### 87986#       发表于 2022-5-18 18:14
+
+又沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年不适合抽卡
+
