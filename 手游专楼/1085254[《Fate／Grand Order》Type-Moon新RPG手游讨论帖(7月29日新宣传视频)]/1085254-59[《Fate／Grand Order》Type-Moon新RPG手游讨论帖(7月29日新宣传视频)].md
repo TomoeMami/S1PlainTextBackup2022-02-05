@@ -11344,3 +11344,70 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 话说这能叫拐?..
 
+
+
+*****
+
+####  angelooo  
+##### 87980#       发表于 2022-5-18 18:01
+
+<blockquote>alucardcz 发表于 2022-5-18 17:54
+这3破卡面我吐了...........
+
+话说这能叫拐?..</blockquote>
+有人说这是红卡刑部姬233
+
+*****
+
+####  我不太会吹  
+##### 87981#       发表于 2022-5-18 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896888&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-18 17:54</a>
+
+这3破卡面我吐了...........
+
+话说这能叫拐?..</blockquote>
+可以拿来送掉，增幅数值还不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 87982#       发表于 2022-5-18 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897011&amp;ptid=1085254" target="_blank">我不太会吹 发表于 2022-5-18 18:04</a>
+
+可以拿来送掉，增幅数值还不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送不掉 我又不玩陈宫 不对 我根本不打算抽
+
+*****
+
+####  qixinno2  
+##### 87983#       发表于 2022-5-18 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896888&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-18 17:54</a>
+
+这3破卡面我吐了...........
+
+话说这能叫拐?..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又豹了么
+
+*****
+
+####  alucardcz  
+##### 87984#       发表于 2022-5-18 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897036&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-5-18 18:06</a>
+
+萌新又豹了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽 这卡真的下不了手
+
+*****
+
+####  qixinno2  
+##### 87985#       发表于 2022-5-18 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897045&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-18 18:07</a>
+
+没抽 这卡真的下不了手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真的是这两年少有的垃圾五星角色了
+

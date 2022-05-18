@@ -10307,3 +10307,21 @@ CelticWhite老师还是接受了
 【中日双语】Liella! 若菜四季（CV. 大熊和奏）自我介绍 UP主: No_10字幕组 https://www.bilibili.com/vide ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卑女不是这个意思啊，感觉就是cool系里比较无口的那种
 
+
+
+*****
+
+####  仟音一心  
+##### 8270#       发表于 2022-5-18 18:09
+
+除了大熊自己都在营业
+
+9E93FF51-55F9-49EF-AAB3-79DCCB81E8ED.jpeg
+(109.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202205/18/180929v8w5h5yzyreyw7yr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
