@@ -6512,3 +6512,22 @@ https://www.lightnovel.us/c ...</blockquote>
 
 竟然有miumea糖<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashero  
+##### 11137#       发表于 2022-5-18 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897054&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-5-18 18:07</a>
+
+喝东西聊漫画，说什么紫色的xx最喜欢，听不懂那啥东西，还聊bl</blockquote>
+聊染发 染过很多颜色除了黄毛 粉色染了之后掉色很麻烦 染过白色 带点紫色（？） 白毛要染好多次才好看
+
+*****
+
+####  Rem-清曲  
+##### 11138#       发表于 2022-5-18 18:29
+
+怎么有麻将pro来听   <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

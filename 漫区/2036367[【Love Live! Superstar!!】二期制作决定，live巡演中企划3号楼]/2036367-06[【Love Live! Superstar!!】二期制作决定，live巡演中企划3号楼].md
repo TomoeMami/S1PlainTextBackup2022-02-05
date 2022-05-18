@@ -10325,3 +10325,19 @@ CelticWhite老师还是接受了
 
 <img src="https://img.saraba1st.com/forum/202205/18/180929v8w5h5yzyreyw7yr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8271#       发表于 2022-5-18 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过四季这个属性设定，我太相信花田能写好，不管是对待学院偶像的心路历程变化还是对待米女的情感
+
+*****
+
+####  稀勢のささ  
+##### 8272#       发表于 2022-5-18 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么南桐cp
+

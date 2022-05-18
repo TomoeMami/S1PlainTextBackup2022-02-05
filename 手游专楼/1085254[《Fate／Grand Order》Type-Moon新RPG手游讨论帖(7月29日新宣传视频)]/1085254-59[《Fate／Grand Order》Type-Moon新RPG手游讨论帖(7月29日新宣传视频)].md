@@ -11420,3 +11420,66 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 又沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年不适合抽卡
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 87987#       发表于 2022-5-18 18:21
+
+没感觉又没强度的男人是最好的了。就怕那种不喜欢还要为了刷本体验不得不抽的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kisskick  
+##### 87988#       发表于 2022-5-18 18:23
+
+君十一的三破应该是已经闪电归来了 白甲是梗大理石，头上光环是你已经升天了
+
+*****
+
+####  stunflare  
+##### 87989#       发表于 2022-5-18 18:23
+
+草，确实像丁真，回不去了
+
+*****
+
+####  里村紅葉  
+##### 87990#       发表于 2022-5-18 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896888&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-5-18 17:54</a>
+
+这3破卡面我吐了...........
+
+话说这能叫拐?..</blockquote>
+打手就更不能叫了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  alucardcz  
+##### 87991#       发表于 2022-5-18 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897260&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-5-18 18:24</a>
+
+打手就更不能叫了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以叫另丁
+
+*****
+
+####  Jamaisvu  
+##### 87992#       发表于 2022-5-18 18:26
+
+宝具看似要自己活着打输出，但技能貌似放完后赶紧死比较好...如果宝具红卡up是群体buff，再加个X回合后强制退场，应该可堪一用，可惜...当玩具也不太行，还是当炮弹吧...
+
+*****
+
+####  Jamaisvu  
+##### 87993#       发表于 2022-5-18 18:29
+
+一一丁真（11世君士坦丁是真实），
+
+鉴定白给（满破白马，有去无回）。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
