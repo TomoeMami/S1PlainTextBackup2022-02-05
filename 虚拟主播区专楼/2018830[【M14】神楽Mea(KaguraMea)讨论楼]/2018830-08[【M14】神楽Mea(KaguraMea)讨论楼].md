@@ -6424,3 +6424,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 重生之我在东京当私教，被重坦肥婆缠上的晦暗人生
 
+
+
+*****
+
+####  JY要塞  
+##### 11127#       发表于 2022-5-18 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">减得再多，早晚要反弹的，坦克民赢！
+
