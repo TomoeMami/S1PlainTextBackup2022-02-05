@@ -11711,3 +11711,33 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 我只是觉得既然飞哥和西哥都是龙癌晚期屠龙英雄和saber，那么他们的妻子也应该有对应之处，搞不好克里姆希尔德会是个四星红光炮病娇Lancer呢...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88008#       发表于 2022-5-19 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55900471&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-5-18 22:19</a>
+
+隔壁有个帖子在奶闪电哥是教授马甲，理由是这个剪影轮廓很像某张礼装上的教授，然后克里姆希尔德按原典不 ...</blockquote>
+教授马甲...惊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我个人觉得，闪电呆毛这么有特色的东西，应该用在新人身上加强印象，教授这种当过主线（？）章节主角的人物，哪怕出场也不用安排太多新tag吧..
+
+还有就是貌似几个卫星都是西方古代的君王和骑士，一个近代数学教授掺和进来怪怪的...而且他不是在小说里一章退场吗，幻想中的生与死也轮不上他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 88009#       发表于 2022-5-19 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55900471&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-5-18 22:19</a>
+
+隔壁有个帖子在奶闪电哥是教授马甲，理由是这个剪影轮廓很像某张礼装上的教授，然后克里姆希尔德按原典不 ...</blockquote>
+闪电哥我奶一个马库斯·努梅利乌斯·卡鲁斯（马可•奥勒留•卡鲁斯，Marcus Aurelius Carus）好了：
+
+罗马皇帝，僭主上位，在位不足一年，因为东征胜利而被称为“伟大的波斯征服者”。
+
+死于雷击。
+
