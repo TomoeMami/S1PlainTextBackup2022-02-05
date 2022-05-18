@@ -658,3 +658,23 @@ ns什么销量，psp什么销量，ns蓝海还能捞两三盘游戏，psp多媒�
 
 我的建议是先换个画师
 
+
+
+*****
+
+####  鸡翼大绅士  
+##### 71#       发表于 2022-5-18 19:25
+
+[@gg142857](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=218135)   <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没对象我发那贴干嘛，你是真的搞笑
+
+*****
+
+####  冰寒之月  
+##### 72#       发表于 2022-5-18 19:26
+
+翻译错了
+
+明明说的是希望自己的游戏在NS上能像在psp上一样对更广泛的(蓝海)用户有影响力  
+
+怎么塞氏翻译成ns有psp的影响力了
+
