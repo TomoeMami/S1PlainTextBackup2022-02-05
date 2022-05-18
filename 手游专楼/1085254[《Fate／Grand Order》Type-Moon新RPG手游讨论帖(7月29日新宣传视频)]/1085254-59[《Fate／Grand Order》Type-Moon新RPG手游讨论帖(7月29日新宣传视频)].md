@@ -11651,3 +11651,63 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 </blockquote>
 隔壁有个帖子在奶闪电哥是教授马甲，理由是这个剪影轮廓很像某张礼装上的教授，然后克里姆希尔德按原典不太像是病娇那类，不过谁知道你游到时候怎么搞
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88007#       发表于 2022-5-19 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55900147&amp;ptid=1085254" target="_blank">シャル 发表于 2022-5-18 21:55</a>
+
+克里姆和布伦是敌人啊
+
+都是两个女人吵架才引发后面那么多问题</blockquote>
+现实版本肯定是两位女性争风吃醋（无崖子并感），但是月球史的话，强行将不同文化体系下的同位体分成齐格弗里德和西格鲁特两个人（法芙纳：是谁杀了我？），也就导致两个老婆也变成平均分配了。
+
+根据大王的幕间1，布伦希尔德因为某件事产生冲动，要来杀阿提拉，而事情的缘由就在于：
+
+阿提拉娶了克里姆希尔德，
+
+齐格弗里德也娶过克里姆希尔德，
+
+齐格弗里德和西格鲁特很像，
+
+所以回归性原理，阿提拉就是西格鲁（迫真）
+
+<img src="https://img.saraba1st.com/forum/202205/19/003101blx8m9lvzts9mk0l.jpg" referrerpolicy="no-referrer">
+
+<strong>42D7CE2A76C9ED34AD056E778F43F353.jpg</strong> (87.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/003102tcmrmymyc0umz5wz.jpg" referrerpolicy="no-referrer">
+
+<strong>ADD7ADA09ECE1A1AFBD755418E4DF6CA.jpg</strong> (87.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/003109wib4o3bmh7ih77sm.jpg" referrerpolicy="no-referrer">
+
+<strong>313687317C78335F0D071C2AE28EE92A.jpg</strong> (70.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/003110qqxqtpub65xsaqq6.jpg" referrerpolicy="no-referrer">
+
+<strong>A1AC4BE7098A331307415B957D058C61.jpg</strong> (106.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 00:31 上传
+
+总而言之，齐格飞+克琳希德是一对，西格鲁特+布伦希尔德是一对，月球史上这辆对大概是分开的。
+
+我只是觉得既然飞哥和西哥都是龙癌晚期屠龙英雄和saber，那么他们的妻子也应该有对应之处，搞不好克里姆希尔德会是个四星红光炮病娇Lancer呢...
+
