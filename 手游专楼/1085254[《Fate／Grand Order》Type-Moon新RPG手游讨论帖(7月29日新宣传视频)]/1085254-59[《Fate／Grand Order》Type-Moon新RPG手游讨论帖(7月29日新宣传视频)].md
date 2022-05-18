@@ -11574,3 +11574,20 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 我不是头大只是个子不高还关了二次元身材滤镜（指171cm）
 
+
+
+*****
+
+####  Jamaisvu  
+##### 88001#       发表于 2022-5-18 20:12
+
+话说FGO官方同人冰室天地与七伟人里面已经有买买提二世了，是Archer：
+
+<img src="https://img.saraba1st.com/forum/202205/18/201029ybdurx0rxxp5rjfj.jpg" referrerpolicy="no-referrer">
+
+<strong>641.jpg</strong> (29.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 20:10 上传
+
