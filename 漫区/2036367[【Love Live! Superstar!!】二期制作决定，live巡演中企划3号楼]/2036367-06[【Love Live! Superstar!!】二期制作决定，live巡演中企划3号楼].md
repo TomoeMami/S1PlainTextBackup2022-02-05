@@ -10394,3 +10394,42 @@ E8EA6EFC-F488-4B83-A0D5-ED08E1237EBA.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
 
+
+
+*****
+
+####  仟音一心  
+##### 8275#       发表于 2022-5-18 19:11
+
+这图也有点草
+
+4AAA28B4-3F0E-4A9A-8049-6E2703A48FD1.jpeg
+(82.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202205/18/191137jw8933ftgc379bdi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8276#       发表于 2022-5-18 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> <blockquote>ABC发了Nagi挑战后空翻的生日会幕间视频，在训练Nagi做基础动作的时候，Nagi被教练的Orakio看出来是练过的。
+
+Orakio：？？？
+
+Nagi：？？？
+
+Orakio：原来小丑竟是我自己？？（原话）
+
+Nagi：初中二年级的时候我参加过体操部，有在体操垫子上完成过侧翻，虽然初中时候的社团活动是一年一换。
+
+能一脸平静说出不可思议的事真的是Nagi的牛逼之处
+
+最后Nagi四个半小时内成功挑战了后空翻，动画里的千歌都不敢这么编。
+
+Nagi，我的超人。</blockquote>
+

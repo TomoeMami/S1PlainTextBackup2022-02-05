@@ -11549,3 +11549,19 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 有人说这是红卡刑部姬233</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">别逗了，刑部姬还能单挑部分高难呢
 
+
+
+*****
+
+####  Jamaisvu  
+##### 87999#       发表于 2022-5-18 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55897478&amp;ptid=1085254" target="_blank">zore 发表于 2022-5-18 18:41</a>
+
+射手,指乌尔班大炮买买提II</blockquote>
+买买提二世的宝具语音我都想好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">：
+
+“蜘蛛在帝国的宫殿里织下它的丝网，猫头鹰却已在阿弗拉希阿卜的塔上唱完了夜歌。
+
+————Muhammed’s Great Gun！”
+
