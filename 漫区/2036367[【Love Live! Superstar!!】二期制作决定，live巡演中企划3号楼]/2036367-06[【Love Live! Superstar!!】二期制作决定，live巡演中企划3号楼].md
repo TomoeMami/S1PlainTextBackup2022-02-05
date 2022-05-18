@@ -10445,3 +10445,15 @@ Nagi，我的超人。</blockquote>
 不过四季这个属性设定，我太相信花田能写好，不管是对待学院偶像的心路历程变化还是对待米女的情感 ...</blockquote>
 花田信者是吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8278#       发表于 2022-5-18 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55898201&amp;ptid=2036367" target="_blank">凡人 发表于 2022-5-18 19:39</a>
+
+花田信者是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我才发现我少打了个“不”
+
