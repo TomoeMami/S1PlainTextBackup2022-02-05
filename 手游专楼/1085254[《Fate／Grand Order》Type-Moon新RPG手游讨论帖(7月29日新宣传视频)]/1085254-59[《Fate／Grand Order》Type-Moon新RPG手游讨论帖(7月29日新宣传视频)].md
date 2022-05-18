@@ -11245,3 +11245,58 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上已经在“陈宫炮弹+1”了wwwww
 
+
+
+*****
+
+####  爱丽丝梦游我家  
+##### 87971#       发表于 2022-5-18 17:32
+
+仓花是真的拉，这卡面画的是什么东西。
+
+*****
+
+####  保罗赫伯特  
+##### 87972#       发表于 2022-5-18 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896472&amp;ptid=1085254" target="_blank">シャル 发表于 2022-5-18 17:22</a>
+
+君11的宝具真TM帅啊
+
+如果上崇祯的话会不会是歪脖子树特写呢</blockquote>
+充满恨意的宝具，适合avenger职介<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+老歪脖子树 is watching you .jpg
+
+*****
+
+####  承尘  
+##### 87973#       发表于 2022-5-18 17:34
+
+又丑又菜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  保罗赫伯特  
+##### 87974#       发表于 2022-5-18 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896596&amp;ptid=1085254" target="_blank">爱丽丝梦游我家 发表于 2022-5-18 17:32</a>
+
+仓花是真的拉，这卡面画的是什么东西。</blockquote>
+感觉不如白情立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来也奇怪，fgo实装卡面不如先行立绘的情况也不是第一次了，比如之前的平井清，平安京的两张战败cg惊为天人，一对比实装之后的卡面，差距就像网恋照片与线下真人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 87975#       发表于 2022-5-18 17:40
+
+<blockquote>保罗赫伯特 发表于 2022-5-18 17:37
+感觉不如白情立绘
+
+说起来也奇怪，fgo实装卡面不如先行立绘的情况也不是第一次了，比如之前的平井 ...</blockquote>
+白情立绘不就是初始卡面加个眼镜嘛，因为当时看不到这拉胯的下半身23333，平景清才是真欺诈，但凡把那个战损立绘做成满破图，然后把满破做成三破，喷的人可能会少很多
+

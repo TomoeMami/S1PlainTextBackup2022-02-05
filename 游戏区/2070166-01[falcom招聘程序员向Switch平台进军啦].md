@@ -586,3 +586,14 @@ ns什么销量，psp什么销量，ns蓝海还能捞两三盘游戏，psp多媒�
 后面那种3d化人丑的要死 技术力不行画面又更烂
 那之后就没玩过法老控的游戏了
 
+
+
+*****
+
+####  鸡翼大绅士  
+##### 63#       发表于 2022-5-18 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55895567&amp;ptid=2070166" target="_blank">gg142857 发表于 2022-5-18 16:19</a>
+没问题，NS，新时代的PSP！</blockquote>
+别给你🔒psp贴金了
+

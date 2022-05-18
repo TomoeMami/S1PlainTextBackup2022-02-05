@@ -10296,3 +10296,14 @@ CelticWhite老师还是接受了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896210&amp;ptid=2036367" target="_blank"> 仟音一心 发表于 2022-5-18 17:07</a> 来了，和感觉上一样，偏无口。 怎么有点天王寺的感觉？附件： </blockquote>
 快进到四季板来自: iPhone客户端
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8269#       发表于 2022-5-18 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896144&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-5-18 17:03</a>
+【中日双语】Liella! 若菜四季（CV. 大熊和奏）自我介绍 UP主: No_10字幕组 https://www.bilibili.com/vide ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卑女不是这个意思啊，感觉就是cool系里比较无口的那种
+
