@@ -11118,3 +11118,52 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 艹 直接实装可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 87955#       发表于 2022-5-18 17:14
+
+常驻还是限定啊，还没搞清楚呢，扔了3个护肤就出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 87956#       发表于 2022-5-18 17:14
+
+这开幕前送的还不错……30个树苗300个绿块3个金块5个金苹果1个结晶……好像预热最大方一次了吧？
+
+*****
+
+####  quanlix  
+##### 87957#       发表于 2022-5-18 17:17
+
+福袋地雷+1
+
+*****
+
+####  J-002  
+##### 87958#       发表于 2022-5-18 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896343&amp;ptid=1085254" target="_blank">zakki 发表于 2022-5-18 17:14</a>
+
+常驻还是限定啊，还没搞清楚呢，扔了3个护肤就出了</blockquote>
+目前期间限定
+
+*****
+
+####  zore  
+##### 87959#       发表于 2022-5-18 17:18
+
+怎么是个rider辅助<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  承尘  
+##### 87960#       发表于 2022-5-18 17:20
+
+绝赞长草<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

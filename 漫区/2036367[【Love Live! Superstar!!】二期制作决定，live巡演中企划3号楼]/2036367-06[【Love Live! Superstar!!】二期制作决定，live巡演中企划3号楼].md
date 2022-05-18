@@ -10236,3 +10236,53 @@ DF630429-1552-4B66-8E92-BAD51DDCCE98.jpeg
 
 —— 来自 OPPO PDRM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cybernetics31  
+##### 8263#       发表于 2022-5-18 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">救救大熊啊 这角色介绍都有了中之人还没开推也太扯了 企划搞毛 事务所搞毛
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8264#       发表于 2022-5-18 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">又不是没先例，别急
+
+*****
+
+####  凡人  
+##### 8265#       发表于 2022-5-18 17:14
+
+等第二季红蓝两个人有CP剧情闭上眼估计会觉得是BL<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8266#       发表于 2022-5-18 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896292&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-5-18 17:11</a>
+日本人有开小号的习惯吗
+
+—— 来自 OPPO PDRM00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+可能有，但是没必要啊，都等着营业呢。
+
+*****
+
+####  仟音一心  
+##### 8267#       发表于 2022-5-18 17:17
+
+CelticWhite老师还是接受了
+
+723D0133-7F73-4C55-BCB3-EC0A37E291BA.jpeg
+(343.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-18 17:17 上传
+
+<img src="https://img.saraba1st.com/forum/202205/18/171704v83hx582sg5w1181.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
