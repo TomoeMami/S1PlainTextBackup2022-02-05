@@ -11300,3 +11300,36 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 说起来也奇怪，fgo实装卡面不如先行立绘的情况也不是第一次了，比如之前的平井 ...</blockquote>
 白情立绘不就是初始卡面加个眼镜嘛，因为当时看不到这拉胯的下半身23333，平景清才是真欺诈，但凡把那个战损立绘做成满破图，然后把满破做成三破，喷的人可能会少很多
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 87976#       发表于 2022-5-18 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896701&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-5-18 17:40</a>
+
+白情立绘不就是初始卡面加个眼镜嘛，因为当时看不到这拉胯的下半身23333，平景清才是真欺诈，但凡把那个 ...</blockquote>
+是啊，不看下半身感觉还不错，一看全身就感觉头好大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还是等等二池子的查理曼吧
+
+*****
+
+####  爱丽丝梦游我家  
+##### 87977#       发表于 2022-5-18 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896657&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-5-18 17:37</a>
+
+感觉不如白情立绘
+
+说起来也奇怪，fgo实装卡面不如先行立绘的情况也不是第一次了，比如之前的平井 ...</blockquote>
+你游三大画师，苍月，坂本，高桥，画出来的卡面就和开盲盒一样。
+
+*****
+
+####  xiongxingyu  
+##### 87978#       发表于 2022-5-18 17:48
+
+君十一唐突落地，这真的不是在玩梗吗？“我如闪电般归来”，上个礼拜生放送最后刚打个招呼，这礼拜就落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样看来2.6.5除了夏露露还得再来个5星，估计那几个剪影是没打算藏着了，2.6.5这一波应该会全员落地。
+
