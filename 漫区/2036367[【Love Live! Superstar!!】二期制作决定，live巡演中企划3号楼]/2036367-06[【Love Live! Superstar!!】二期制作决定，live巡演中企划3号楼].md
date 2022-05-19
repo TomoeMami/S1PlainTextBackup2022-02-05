@@ -10851,3 +10851,35 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 本来 ...</blockquote>
 说的好直接，居然还能刊登出来
 
+
+
+*****
+
+####  优妮可  
+##### 8303#       发表于 2022-5-19 11:26
+
+<img src="https://img.saraba1st.com/forum/202205/19/112652xadaxdzwy9vuvvuv.jpg" referrerpolicy="no-referrer">
+
+<strong>20220519_111714.jpg</strong> (280.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 11:26 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/112652l9eusgy6zua33u3u.jpg" referrerpolicy="no-referrer">
+
+<strong>20220519_111732.jpg</strong> (139.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 11:26 上传
+
+*****
+
+####  aoaoaodedede  
+##### 8304#       发表于 2022-5-19 11:28
+
+ 本帖最后由 aoaoaodedede 于 2022-5-19 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55905493&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-19 11:26</a></blockquote>
+又是一个不知道上5人还是9人的活动，虽然9人的可能性很低<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
