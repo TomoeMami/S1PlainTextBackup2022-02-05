@@ -11074,3 +11074,14 @@ QQ图片20220519115046.jpg
 
 感想大家回复，一开始没联想到虹团，我还以为虹信是啥术语或者是新鲜词汇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 8322#       发表于 2022-5-19 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55907098&amp;ptid=2036367" target="_blank">stygian 发表于 2022-5-19 13:38</a>
+虹信处于拉板鄙视层最底端，再低端的是灯骑士</blockquote>
+感觉伊達おじ在鄙视链里也挺低的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
