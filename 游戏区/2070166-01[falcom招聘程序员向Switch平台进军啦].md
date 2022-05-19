@@ -1212,3 +1212,23 @@ ns都快末期了才想起来，法老控选平台的眼光果然永远是个笑
 NS还不如与psp的影响力吗？ 这真的是2022年的发言？</blockquote>
 先爬一爬楼，我3楼就给原文了，搞笑的是，微博上都修改了，这楼主竟然还不改。
 
+
+
+*****
+
+####  Kojimaru  
+##### 116#       发表于 2022-5-19 20:43
+
+ 本帖最后由 Kojimaru 于 2022-5-19 20:44 编辑 
+
+<img src="https://img.saraba1st.com/forum/202205/19/203321jd2m5uu1njujmnug.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 20:33 上传
+
+都是选择性翻译，索九是歪屁股，知任就是理性客观？
+[https://www.falcom.co.jp/archives/games_type/switch](https://www.falcom.co.jp/archives/games_type/switch)   ps4上的法老控全家桶除了树海、东轨加强版和最新的黎轨外，其他游戏ns上都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是谁在装瞎子
+
