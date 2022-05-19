@@ -1171,3 +1171,33 @@ Q：抛开硬件战争不谈，在 PSP 上推出游戏这个决定让 Falcom 的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这公司没倒闭每一个轨迹侠都有责任
 
+
+
+*****
+
+####  陈乔恩  
+##### 112#       发表于 2022-5-19 16:53
+
+NS还不如与psp的影响力吗？ 这真的是2022年的发言？
+
+*****
+
+####  陈乔恩  
+##### 113#       发表于 2022-5-19 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55894271&amp;ptid=2070166" target="_blank">斯芬克斯的鱼 发表于 2022-5-18 14:39</a>
+
+ns都快末期了才想起来，法老控选平台的眼光果然永远是个笑话</blockquote>
+可能不是眼光问题，是脑子问题
+
+当年在nds上3d重制伊苏编年史，在psp上出2d移植伊苏编年史，然后nds上暴死以后说这个平台不适合<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沧兰殇  
+##### 114#       发表于 2022-5-19 16:59
+
+<img src="https://p.sda1.dev/6/ee9c4254c7c7f84a1b10355edc7b2243/559dfebe91ec12a1.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

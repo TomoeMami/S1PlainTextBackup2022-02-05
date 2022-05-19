@@ -11225,3 +11225,93 @@ Op ed 插一的发售日都定了，不会延的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某种意义上，没有推特，不就是安心演出的表演派吗，是好事哦。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8336#       发表于 2022-5-19 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">夏美这语调怎么这么怪，有种外国人的感觉
+
+*****
+
+####  稀勢のささ  
+##### 8337#       发表于 2022-5-19 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皮套人PV来咯
+
+*****
+
+####  ykyin09  
+##### 8338#       发表于 2022-5-19 16:55
+
+这口音好怪哦，这就是管人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  cybernetics31  
+##### 8339#       发表于 2022-5-19 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是很懂，管人说话这样的？
+
+*****
+
+####  仟音一心  
+##### 8340#       发表于 2022-5-19 16:57
+
+声音和想象的不一样，居然不是那种卖萌装可爱的型
+
+6E59634F-9CEF-4EE6-AC65-38BB08260915.jpeg
+(127.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 16:57 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/165737ucnoujllw1jfgppc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
+(149.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 16:57 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/165737qdvnmwvfr7aztmpl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 8341#       发表于 2022-5-19 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55909321&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-19 16:56</a>
+
+不是很懂，管人说话这样的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按那些个凹口癖的为标准这还不够夹
+
+*****
+
+####  ads147147  
+##### 8342#       发表于 2022-5-19 17:00
+
+什么鬼玩意啊，不就是更装腔作势的民警么，花田hold的住这种人设？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  寒风夜  
+##### 8343#       发表于 2022-5-19 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这啥，一股方言味
+
+*****
+
+####  cybernetics31  
+##### 8344#       发表于 2022-5-19 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新一代吃瘪役？查询花田提桶情况
+
