@@ -11388,3 +11388,15 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是吧 JK语不该是用词完全听不懂的玩意吗
 
+
+
+*****
+
+####  竹筷  
+##### 8354#       发表于 2022-5-19 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55909697&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-5-19 17:28</a>
+
+不是吧 JK语不该是用词完全听不懂的玩意吗</blockquote>
+“JK语”中的自造词的词源基本都是来自油管和TikTok，倒是跟这个人设很契合
+
