@@ -11315,3 +11315,40 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新一代吃瘪役？查询花田提桶情况
 
+
+
+*****
+
+####  ViyViy  
+##### 8345#       发表于 2022-5-19 17:04
+
+我个人听着感觉有些难受…一定要这样配吗…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 8346#       发表于 2022-5-19 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正到配音的时候多少会变一点的，可可那个自我介绍和动画里头比就差很多
+
+*****
+
+####  Enakina  
+##### 8347#       发表于 2022-5-19 17:07
+
+我也觉得好怪，你们管人都这么说话的吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 8348#       发表于 2022-5-19 17:07
+
+确实是跟民警是相同类型的替身能力，不过区别是一个为名一个为利了属于是
+
+*****
+
+####  a92063256  
+##### 8349#       发表于 2022-5-19 17:12
+
+说话有点推销员内味
+
