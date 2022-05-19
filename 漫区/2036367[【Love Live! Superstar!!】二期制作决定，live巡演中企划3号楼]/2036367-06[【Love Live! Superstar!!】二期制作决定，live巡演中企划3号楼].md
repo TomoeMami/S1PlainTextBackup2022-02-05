@@ -11097,3 +11097,35 @@ QQ图片20220519115046.jpg
 感觉伊達おじ在鄙视链里也挺低的</blockquote>
 粉丝基数大了，粉丝的情况也复杂了，问题几乎不可避免的就多了，国内鲤鱼的粉丝不也差不多在鄙视链的底层么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 8324#       发表于 2022-5-19 14:12
+
+话说二期pv是时候出，都下半旬了。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8325#       发表于 2022-5-19 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv应该要等下次生放的时候公布吧
+
+*****
+
+####  cybernetics31  
+##### 8326#       发表于 2022-5-19 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大熊………………
+
+*****
+
+####  stygian  
+##### 8327#       发表于 2022-5-19 14:21
+
+虹都还不知道画完没呢
+
+第八工作室现在地狱状态不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

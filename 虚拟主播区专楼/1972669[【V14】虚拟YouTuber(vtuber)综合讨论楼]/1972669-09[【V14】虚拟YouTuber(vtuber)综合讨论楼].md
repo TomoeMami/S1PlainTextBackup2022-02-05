@@ -13985,3 +13985,15 @@ iwa都去搞nft了 感觉这人就没做过什么正常事情
 
 rfm这种论外，最近半年enkr出乱炖周边带eden的频率总觉得突出的高，到底是我的错觉还是真的啊
 
+
+
+*****
+
+####  Porsche  
+##### 13312#       发表于 2022-5-19 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55901479&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-5-18 23:53</a>
+岩永桑现在就比较像满嘴web3，nft，metaverse的新时代互联网创业者了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">去年他们满嘴nft，前年满嘴元宇宙，再往前是区块链，vr，ai
+看来今年关键词就是web3.0了
+
