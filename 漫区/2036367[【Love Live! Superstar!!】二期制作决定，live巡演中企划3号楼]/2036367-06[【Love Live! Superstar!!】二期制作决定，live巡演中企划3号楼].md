@@ -11145,3 +11145,26 @@ QQ图片20220519115046.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">6月才生放 还来得及 -- 7月才播动画 还来得及 -- 动画还没完 还来得及 ----- 不建号也无所谓的
 
+
+
+*****
+
+####  ads147147  
+##### 8330#       发表于 2022-5-19 14:34
+
+日升地狱片场很正常jpg
+
+虹我倒是不担心，我有点担心星会延期。
+
+*****
+
+####  Enakina  
+##### 8331#       发表于 2022-5-19 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55907636&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-5-19 14:34</a>
+日升地狱片场很正常jpg
+
+虹我倒是不担心，我有点担心星会延期。</blockquote>
+Op ed 插一的发售日都定了，不会延的
+不过三集后就不好说了呢
+
