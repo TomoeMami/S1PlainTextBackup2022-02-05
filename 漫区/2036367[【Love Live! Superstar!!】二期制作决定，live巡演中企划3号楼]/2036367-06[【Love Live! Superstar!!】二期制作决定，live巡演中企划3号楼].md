@@ -11168,3 +11168,42 @@ QQ图片20220519115046.jpg
 Op ed 插一的发售日都定了，不会延的
 不过三集后就不好说了呢
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8332#       发表于 2022-5-19 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55907688&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-19 14:38</a>
+
+Op ed 插一的发售日都定了，不会延的
+
+不过三集后就不好说了呢</blockquote>
+三集定律是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，你还别说，星团一期动画的三集定律属实算玩的比较好的了
+
+*****
+
+####  仟音一心  
+##### 8333#       发表于 2022-5-19 14:50
+
+彩妹3万纪念
+
+139E5BD4-65F0-47CA-94C6-373E96EFDA40.jpeg
+(546.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/145030qhmfu6m603y3yi4a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0B925E38-C6AE-4228-9D8B-1010B419845C.jpeg
+(145.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 14:50 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/145030v41s47sn3qarqaa1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
