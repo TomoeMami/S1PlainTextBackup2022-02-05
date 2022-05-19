@@ -11372,3 +11372,19 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 有她，堇宝不用吃瘪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  竹筷  
+##### 8352#       发表于 2022-5-19 17:23
+
+哦我突然想到了，这就是“JK语”吧
+
+*****
+
+####  稀勢のささ  
+##### 8353#       发表于 2022-5-19 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是吧 JK语不该是用词完全听不懂的玩意吗
+
