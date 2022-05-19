@@ -896,3 +896,18 @@ PSP：“哦艹，你们公司傻逼别扯上我。”
 相比K社那种，大概晚了两年吧，毕竟日厂还有几个现 ...</blockquote>
 SEGA本社那边主要怪玻尿酸脸，17年去站台纯粹是出工不出力，现在他滚蛋了后续合作应该就更好开展了，atlus那边倒是一直很巴结有不停出东西
 
+
+
+*****
+
+####  悠悠你心  
+##### 92#       发表于 2022-5-19 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在日厂有几个做不到多语言多平台同步发售的？
+
+做不到就是做不到，偶尔做到了也就是因为文本少了点，云豹效率高比你法紧一点罢了。
+
+哪天你法把nisa吃下来做翻译和移植部门，我拍手叫好好叭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
