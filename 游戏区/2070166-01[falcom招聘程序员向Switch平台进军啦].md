@@ -1019,3 +1019,19 @@ Jawikipedia： <blockquote>売上本数は、『空の軌跡』シリーズ累�
 Falcom官推：
 [https://twitter.com/nihonfalcom/status/410274148053569536](https://twitter.com/nihonfalcom/status/410274148053569536)
 
+
+
+*****
+
+####  孔方兄  
+##### 102#         楼主| 发表于 2022-5-19 13:16
+
+<blockquote>酷乐 发表于 2022-5-19 13:12
+不好意思，还记错了，PSP空轨FC长卖7年，超过50万：
+
+Jawikipedia：
+</blockquote>
+Switch肯定达不到这高度
+
+首先肯定不能是移植作品，再者玩家转移到另一个平台是需要时间的，需要后续各种作品都出现在Switch平台的才行
+
