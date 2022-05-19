@@ -11451,3 +11451,16 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 —— 来自 HONOR NTH-AN00, Android 11上的 S1N ...</blockquote>
 这不是皮套人吧 看之前杂志图应该是拍Vlog那型的
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8359#       发表于 2022-5-19 18:24
+
+ 本帖最后由 稀勢のささ 于 2022-5-19 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55910280&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-19 18:20</a>
+
+这不是皮套人吧 看之前杂志图应该是拍Vlog那型的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是生造了个ltuber然后都叫这个吗  虽然动画内对应的应该是普通ytb 但对观众其实差不多  总不能让人再套层皮吧
+
