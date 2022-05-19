@@ -11778,3 +11778,17 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 我一开始看文字描述也以为是队伍最后一个，后面一想这样技能特效什么的都不好写，试了一下果然是算场上的
 
+
+
+*****
+
+####  hououmon  
+##### 88013#       发表于 2022-5-19 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55904685&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-5-19 10:38</a>
+
+场上最右边（自己在最右就加中间那个）
+
+我一开始看文字描述也以为是队伍最后一个，后面一想这样技能特效 ...</blockquote>
+谢谢
+
