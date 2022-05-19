@@ -11352,3 +11352,23 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 说话有点推销员内味
 
+
+
+*****
+
+####  saya1892  
+##### 8350#       发表于 2022-5-19 17:14
+
+看了那帖还是不太明白日本人的逻辑，「因为她们的发言可能会被曲解，建议不要流传」→路人「她们不只是实话实说吗」
+
+「转载付费杂志来批判并不代表捏造方就胜利了」→楼主「这是我买的公式书啊」
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  靡宜  
+##### 8351#       发表于 2022-5-19 17:15
+
+有她，堇宝不用吃瘪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
