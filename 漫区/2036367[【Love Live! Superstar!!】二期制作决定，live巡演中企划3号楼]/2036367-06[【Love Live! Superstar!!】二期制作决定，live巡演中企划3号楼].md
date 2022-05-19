@@ -11216,3 +11216,12 @@ Op ed 插一的发售日都定了，不会延的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">4个人的sns差距就这么大了………………往后…………
 
+
+
+*****
+
+####  ads147147  
+##### 8335#       发表于 2022-5-19 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某种意义上，没有推特，不就是安心演出的表演派吗，是好事哦。
+
