@@ -11400,3 +11400,30 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 不是吧 JK语不该是用词完全听不懂的玩意吗</blockquote>
 “JK语”中的自造词的词源基本都是来自油管和TikTok，倒是跟这个人设很契合
 
+
+
+*****
+
+####  仟音一心  
+##### 8355#       发表于 2022-5-19 17:55
+
+仅隔一分钟
+
+9496C2ED-1904-4959-A4C2-B87272E7B496.jpeg
+(246.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/175536zkbvnvmr87vkl32k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  长日留痕  
+##### 8356#       发表于 2022-5-19 17:56
+
+高强度冲浪
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
