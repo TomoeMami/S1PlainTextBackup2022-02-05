@@ -792,3 +792,16 @@ PSP：“哦艹，你们公司傻逼别扯上我。”
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 83#       发表于 2022-5-19 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55902898&amp;ptid=2070166" target="_blank">minysun 发表于 2022-5-19 08:00</a>
+他法要是能有这样重视中国市场何故到现在依旧连个首发中文还搞不利索</blockquote>
+发售前一个月还在改剧本的游戏，你叫代理商同步个中文还是挺难的。
+
+—— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
