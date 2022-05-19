@@ -11473,3 +11473,16 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 说起来星团确认的学霸应该有3个吧？可可恋恋四季
 
+
+
+*****
+
+####  竹筷  
+##### 8361#       发表于 2022-5-19 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55910498&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-19 18:41</a>
+说起来星团确认的学霸应该有3个吧？可可恋恋四季</blockquote>
+文科学霸理科学霸都有了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
