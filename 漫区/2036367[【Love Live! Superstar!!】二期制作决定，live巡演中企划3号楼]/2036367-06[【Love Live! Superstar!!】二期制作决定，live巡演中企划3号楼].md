@@ -11058,3 +11058,19 @@ QQ图片20220519115046.jpg
 笑死，不是很懂日语，前几天看63回辣酒的熟肉，直接上图了</blockquote>
 写作64读作63么？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 8320#       发表于 2022-5-19 13:38
+
+虹信处于拉板鄙视层最底端，再低端的是灯骑士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8321#       发表于 2022-5-19 13:40
+
+感想大家回复，一开始没联想到虹团，我还以为虹信是啥术语或者是新鲜词汇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

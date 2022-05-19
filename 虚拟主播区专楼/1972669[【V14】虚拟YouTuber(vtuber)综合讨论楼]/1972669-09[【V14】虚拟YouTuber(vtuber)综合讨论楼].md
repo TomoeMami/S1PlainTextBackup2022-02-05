@@ -13974,3 +13974,14 @@ iwa都去搞nft了 感觉这人就没做过什么正常事情
 
 岩永桑现在就比较像满嘴web3，nft，metaverse的新时代互联网创业者了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13311#       发表于 2022-5-19 13:32
+
+ 本帖最后由 fastary 于 2022-5-19 13:33 编辑 
+
+rfm这种论外，最近半年enkr出乱炖周边带eden的频率总觉得突出的高，到底是我的错觉还是真的啊
+
