@@ -11085,3 +11085,15 @@ QQ图片20220519115046.jpg
 虹信处于拉板鄙视层最底端，再低端的是灯骑士</blockquote>
 感觉伊達おじ在鄙视链里也挺低的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8323#       发表于 2022-5-19 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55907159&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-19 13:45</a>
+
+感觉伊達おじ在鄙视链里也挺低的</blockquote>
+粉丝基数大了，粉丝的情况也复杂了，问题几乎不可避免的就多了，国内鲤鱼的粉丝不也差不多在鄙视链的底层么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
