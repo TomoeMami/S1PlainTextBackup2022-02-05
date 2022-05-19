@@ -845,3 +845,14 @@ PSP：“哦艹，你们公司傻逼别扯上我。”
 我写app和web的，自己看了点unity写过点demo，日语二级，在日企呆过2年，他这岗位会要我吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个月20w看你要不要做
 
+
+
+*****
+
+####  plok201  
+##### 88#       发表于 2022-5-19 09:45
+
+要说迟嘛也不迟，目前来看NS要和PS5，XSX拼完这个世代
+
+相比K社那种，大概晚了两年吧，毕竟日厂还有几个现在还没转过来的，比如世嘉，法老控努力一点说不定能吃上肉
+

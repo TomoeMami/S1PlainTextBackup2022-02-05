@@ -10724,3 +10724,46 @@ A917BEE0-3A9A-42F2-978A-311BE743464D.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">AAO这劲有点大，现在一静下来满脑子都是AAO
 
+
+
+*****
+
+####  saya1892  
+##### 8296#       发表于 2022-5-19 09:44
+
+[https://fate.5ch.net/test/read.cgi/lovelive/1652798367](https://fate.5ch.net/test/read.cgi/lovelive/1652798367)
+
+这两天在追看这个帖，没想到讨论了这么多。
+
+本来以为拉板算是日本批评剧情比较多的讨论地了，没想到看到水渚鱼的比较直白的评论还会惊异为「以为是恶搞图」「如果是本国人可能会被删掉的程度」，不过也有人表示这种直言不讳很珍贵收获了一部分人的好感。
+
+说句题外话这本公式书花田没有出来，京极也是客套话，所以很多人没买，而且也表示不及虹那本干货多。 <blockquote>L「すみれいじめが酷くて可哀想」
+
+A「恋ちゃんやっちまったなあ」「見ていて辛くて仕方なかったです」
+
+<img src="https://img.saraba1st.com/forum/202205/19/094239fy79l79nawkwew29.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (29.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 09:42 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/094246uiqdo53e5yle5f73.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (49.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 09:42 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/094253unovgjvl3n3gnbdv.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (51.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 09:42 上传
+
+</blockquote>
+
