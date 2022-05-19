@@ -744,3 +744,31 @@ ns什么销量，psp什么销量，ns蓝海还能捞两三盘游戏，psp多媒�
 一个小小的法老控能引得泥潭阵营玩家集体破防我是没想到</blockquote>
 我咋感觉只有你破防了
 
+
+
+*****
+
+####  狸狸狐  
+##### 79#       发表于 2022-5-19 07:58
+
+emmmm
+
+18051d80-f131-4f96-b092-f4f4d65ee6a0.jpg
+(46.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 07:57 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/075754pr1sm6yebsqueesr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  minysun  
+##### 80#       发表于 2022-5-19 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55895034&amp;ptid=2070166" target="_blank">qderaaa 发表于 2022-5-18 15:38</a>
+
+大概2010年的时候，带我入坑NDS和psp的朋友跟我讲，别看世界范围内，NDS销量暴打psp，但是国内绝对是PSP知 ...</blockquote>
+他法要是能有这样重视中国市场何故到现在依旧连个首发中文还搞不利索
+
