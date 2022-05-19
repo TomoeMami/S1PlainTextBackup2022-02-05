@@ -13997,3 +13997,15 @@ rfm这种论外，最近半年enkr出乱炖周边带eden的频率总觉得突出
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">去年他们满嘴nft，前年满嘴元宇宙，再往前是区块链，vr，ai
 看来今年关键词就是web3.0了
 
+
+
+*****
+
+####  FCCHua  
+##### 13313#       发表于 2022-5-19 22:03
+
+ 本帖最后由 FCCHua 于 2022-5-19 22:05 编辑 
+
+郊游队练习赛吃鸡了，草
+果然hnn玩不来大块头的角色，电妹比毒气有用的多
+
