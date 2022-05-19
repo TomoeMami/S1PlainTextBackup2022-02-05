@@ -1201,3 +1201,14 @@ ns都快末期了才想起来，法老控选平台的眼光果然永远是个笑
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  酷乐  
+##### 115#       发表于 2022-5-19 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55909281&amp;ptid=2070166" target="_blank">陈乔恩 发表于 2022-5-19 16:53</a>
+NS还不如与psp的影响力吗？ 这真的是2022年的发言？</blockquote>
+先爬一爬楼，我3楼就给原文了，搞笑的是，微博上都修改了，这楼主竟然还不改。
+

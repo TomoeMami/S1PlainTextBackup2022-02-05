@@ -11427,3 +11427,14 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 —— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  长日留痕  
+##### 8357#       发表于 2022-5-19 18:05
+
+皮套人身份是给之前就决定的lovelive皮套人企划做铺垫吗？
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
