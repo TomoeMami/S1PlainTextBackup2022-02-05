@@ -10883,3 +10883,28 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55905493&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-19 11:26</a></blockquote>
 又是一个不知道上5人还是9人的活动，虽然9人的可能性很低<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 8305#       发表于 2022-5-19 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55903896&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-5-19 09:44</a>
+
+https://fate.5ch.net/test/read.cgi/lovelive/1652798367
+
+这两天在追看这个帖，没想到讨论了这么多。
+
+本来 ...</blockquote>
+笑死，不是很懂日语，前几天看63回辣酒的熟肉，直接上图了
+
+QQ图片20220519115046.jpg
+(139.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202205/19/115145mky99jk9ojh3k93o.jpg" referrerpolicy="no-referrer">
+
