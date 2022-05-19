@@ -10836,3 +10836,18 @@ https://fate.5ch.net/test/read.cgi/lovelive/1652798367
 本来 ...</blockquote>
 太草了，中之人都受不了了。
 
+
+
+*****
+
+####  Enakina  
+##### 8302#       发表于 2022-5-19 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55903896&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-5-19 09:44</a>
+https://fate.5ch.net/test/read.cgi/lovelive/1652798367
+
+这两天在追看这个帖，没想到讨论了这么多。
+
+本来 ...</blockquote>
+说的好直接，居然还能刊登出来
+
