@@ -11464,3 +11464,12 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 这不是皮套人吧 看之前杂志图应该是拍Vlog那型的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是生造了个ltuber然后都叫这个吗  虽然动画内对应的应该是普通ytb 但对观众其实差不多  总不能让人再套层皮吧
 
+
+
+*****
+
+####  lj205  
+##### 8360#       发表于 2022-5-19 18:41
+
+说起来星团确认的学霸应该有3个吧？可可恋恋四季
+
