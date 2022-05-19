@@ -10776,3 +10776,48 @@ A「恋ちゃんやっちまったなあ」「見ていて辛くて仕方なか�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草这真的能直接写杂志里的吗，怎么好像之前完全没人讨论过
 
+
+
+*****
+
+####  ViyViy  
+##### 8298#       发表于 2022-5-19 10:26
+
+这本10组会翻译吗
+
+*****
+
+####  saya1892  
+##### 8299#       发表于 2022-5-19 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55904119&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-19 10:00</a>
+
+草这真的能直接写杂志里的吗，怎么好像之前完全没人讨论过</blockquote>
+这书日本都没多少人买，加上没人翻译，自然没能形成话题
+
+我个人比较不能理解的是小百合6话的解读
+
+<img src="https://img.saraba1st.com/forum/202205/19/102146lxp5tun5pt5nxo5c.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (30.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-19 10:21 上传
+
+怎么就突然变对手了，你们在什么方面竞争啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 8300#       发表于 2022-5-19 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55903896&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-5-19 09:44</a>
+
+https://fate.5ch.net/test/read.cgi/lovelive/1652798367
+
+这两天在追看这个帖，没想到讨论了这么多。
+
+本来 ...</blockquote>
+花田居然怂了，就算是铁血，冈妈和长井龙雪可相当得自豪送团长去死呢，京极说客套话的话不就是默认是花田的锅。
+
