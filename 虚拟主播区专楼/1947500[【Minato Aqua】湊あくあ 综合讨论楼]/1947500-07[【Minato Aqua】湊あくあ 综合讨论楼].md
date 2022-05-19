@@ -1940,3 +1940,26 @@ whats up， bro！
 
 被画师逼着换头像，顺便还更新了一则fanbox：别对更新频率什么的有期待，如果有希望物有所值的想法马上退订把这钱拿去买点爱吃的东西吧，这里是单纯收割喜爱税的地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 9202#       发表于 2022-5-19 21:20
+
+然而这文也是付费饭盒文，饭盒能退钱的么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 9203#       发表于 2022-5-19 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55912389&amp;ptid=1947500" target="_blank">バーチャルS1er 发表于 2022-5-19 21:20</a>
+
+然而这文也是付费饭盒文，饭盒能退钱的么？</blockquote>
+头个月的钱算学费<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+退是不可能退的。
+
+真要是在1w档放腿照不知道会有多少人订
+
