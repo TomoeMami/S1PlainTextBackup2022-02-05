@@ -6645,3 +6645,28 @@ https://www.lightnovel.us/c ...</blockquote>
 
 实质苔箱<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11151#       发表于 2022-5-19 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">全肯定式对谈，基本上等于在其他人直播间开杂谈了。
+
+从健身谈到柏青哥，从喜欢的歌到想要的东西，再到座右铭。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">杂谈了40分钟然后现在开始玩游戏……
+
+我擦，差点忘了这是游戏回了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这种联动形式倒是不错，苔箱的人挺有想法。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 11152#       发表于 2022-5-19 21:46
+
+杂谈好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
