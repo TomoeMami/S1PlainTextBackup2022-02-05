@@ -1060,3 +1060,18 @@ Switch肯定达不到这高度
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轨迹首发上NS？除非加藤要求一年不出一个新作差不多，不然做新作还要做NS移植肯定时间不够
 
+
+
+*****
+
+####  plok201  
+##### 106#       发表于 2022-5-19 14:26
+
+<blockquote>绿冰 发表于 2022-5-19 12:46
+K的炸弹人可是跟随Switch首发，卖了一百万，那可是起步最快的日厂了
+
+世嘉虽然上头傻逼，但除了如龙和新樱 ...</blockquote>
+所以我夸k转的快啊，吃香喝辣的
+
+sega的如龙不说，樱花应该上ns的，上了的话，那销量起码没那么难看
+

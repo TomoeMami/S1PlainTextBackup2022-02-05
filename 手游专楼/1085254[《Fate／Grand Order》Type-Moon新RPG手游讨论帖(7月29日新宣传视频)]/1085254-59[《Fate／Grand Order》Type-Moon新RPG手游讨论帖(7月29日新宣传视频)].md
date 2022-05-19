@@ -11792,3 +11792,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 我一开始看文字描述也以为是队伍最后一个，后面一想这样技能特效 ...</blockquote>
 谢谢
 
+
+
+*****
+
+####  levy320  
+##### 88014#       发表于 2022-5-19 14:28
+
+新英灵什么玩意啊，难得的一宝也不想要。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -11129,3 +11129,19 @@ QQ图片20220519115046.jpg
 
 第八工作室现在地狱状态不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蜜梨柑  
+##### 8328#       发表于 2022-5-19 14:24
+
+已经没有什么八组了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在都是二组在做
+
+*****
+
+####  稀勢のささ  
+##### 8329#       发表于 2022-5-19 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">6月才生放 还来得及 -- 7月才播动画 还来得及 -- 动画还没完 还来得及 ----- 不建号也无所谓的
+
