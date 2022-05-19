@@ -1162,3 +1162,12 @@ Q：抛开硬件战争不谈，在 PSP 上推出游戏这个决定让 Falcom 的
 
 法老控一直这种死样啊   当年一直挂念pc平台被不少人嘲讽 差一点混不下去 后面搭上psp的车才续了下来  
 
+
+
+*****
+
+####  blackll7  
+##### 111#       发表于 2022-5-19 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这公司没倒闭每一个轨迹侠都有责任
+
