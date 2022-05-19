@@ -11801,3 +11801,27 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 新英灵什么玩意啊，难得的一宝也不想要。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holyblood  
+##### 88015#       发表于 2022-5-20 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55898584&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-5-18 20:12</a>
+
+话说FGO官方同人冰室天地与七伟人里面已经有买买提二世了，是Archer：</blockquote>
+这长相能骗氪么？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holyblood  
+##### 88016#       发表于 2022-5-20 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55896472&amp;ptid=1085254" target="_blank">シャル 发表于 2022-5-18 17:22</a>
+
+君11的宝具真TM帅啊
+
+如果上崇祯的话会不会是歪脖子树特写呢</blockquote>
+要不和秦良玉联动一下？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
