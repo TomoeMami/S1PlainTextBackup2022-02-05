@@ -856,3 +856,43 @@ PSP：“哦艹，你们公司傻逼别扯上我。”
 
 相比K社那种，大概晚了两年吧，毕竟日厂还有几个现在还没转过来的，比如世嘉，法老控努力一点说不定能吃上肉
 
+
+
+*****
+
+####  蓮華  
+##### 89#       发表于 2022-5-19 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55902590&amp;ptid=2070166" target="_blank">ariettamix 发表于 2022-5-19 06:11</a>
+
+来组图看法老控的态度转变
+
+只是你老是不是醒的太晚了一点</blockquote>
+来自京都的怪物（中略）快要抵达他忠诚的伊帝斯了？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tlozfan  
+##### 90#       发表于 2022-5-19 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55903907&amp;ptid=2070166" target="_blank">plok201 发表于 2022-5-19 09:45</a>
+
+要说迟嘛也不迟，目前来看NS要和PS5，XSX拼完这个世代
+
+相比K社那种，大概晚了两年吧，毕竟日厂还有几个现 ...</blockquote>
+举世嘉这个例子可还行。世嘉的阿特拉斯的女神异闻录在索系上能吃香喝辣。p5和p5r想加已经冲到500万左右了。法老控单平台在索尼机子上百万可有？就连世嘉的真女神转生5都有百万了。如果你作品单平台有底力可以百万以上，那自然独守一个平台没什么。问题你自己去查查这几年轨迹在索系单平台是上升还是下降？欧美玩家看不懂的是既然你单平台上赚的不多，早就该多平台了。举K社更大可不必了，桃铁已经三百五十万了。
+
+
+
+*****
+
+####  minysun  
+##### 91#       发表于 2022-5-19 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55903907&amp;ptid=2070166" target="_blank">plok201 发表于 2022-5-19 09:45</a>
+
+要说迟嘛也不迟，目前来看NS要和PS5，XSX拼完这个世代
+
+相比K社那种，大概晚了两年吧，毕竟日厂还有几个现 ...</blockquote>
+SEGA本社那边主要怪玻尿酸脸，17年去站台纯粹是出工不出力，现在他滚蛋了后续合作应该就更好开展了，atlus那边倒是一直很巴结有不停出东西
+
