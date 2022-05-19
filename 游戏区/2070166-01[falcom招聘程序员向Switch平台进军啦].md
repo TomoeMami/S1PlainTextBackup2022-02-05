@@ -965,3 +965,57 @@ psp轨迹卖得很好吗？有没有数据
 
 英雄伝说 空の轨迹FC 33,178 14,610 06/09/28
 
+
+
+*****
+
+####  酷乐  
+##### 97#       发表于 2022-5-19 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55906758&amp;ptid=2070166" target="_blank">JudgmentEye 发表于 2022-5-19 13:02</a>
+タイトル 累计売上 初周売上 発売日
+
+英雄伝说 碧の轨迹 194,940 151,412 11/09/29
+
+英雄伝说 零の轨迹 120,2 ...</blockquote>
+这个不是最终数据，空轨FC最后都有三十万了。
+
+*****
+
+####  JudgmentEye  
+##### 98#       发表于 2022-5-19 13:05
+
+psp能卖30w？？？
+
+*****
+
+####  酷乐  
+##### 99#       发表于 2022-5-19 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55906789&amp;ptid=2070166" target="_blank">JudgmentEye 发表于 2022-5-19 13:05</a>
+psp能卖30w？？？</blockquote>
+没有这个基础，碧轨那19万哪来的
+
+*****
+
+####  JudgmentEye  
+##### 100#       发表于 2022-5-19 13:11
+
+ 本帖最后由 JudgmentEye 于 2022-5-19 13:12 编辑 
+
+这销量太吓人了
+
+*****
+
+####  酷乐  
+##### 101#       发表于 2022-5-19 13:12
+
+ 本帖最后由 酷乐 于 2022-5-19 13:13 编辑 
+
+不好意思，还记错了，PSP空轨FC长卖7年，超过50万：
+
+Jawikipedia： <blockquote>売上本数は、『空の軌跡』シリーズ累計で90万本以上[9]、続編も合わせた〈軌跡シリーズ〉全体の累計では190万本を越える[10]。PSP版『空の軌跡FC』については2006年9月発売からロングセラーを続けており、2013年12月時点での累計出荷本数は50万本を突破している[11]。</blockquote>
+
+Falcom官推：
+[https://twitter.com/nihonfalcom/status/410274148053569536](https://twitter.com/nihonfalcom/status/410274148053569536)
+

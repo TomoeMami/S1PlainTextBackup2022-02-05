@@ -10990,3 +10990,40 @@ QQ图片20220519115046.jpg
 
 <img src="https://p.sda1.dev/6/53a947b83ae8c8d0902e7314331e499e/IMG_CMP_39250134.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8315#       发表于 2022-5-19 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55906277&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-5-19 12:24</a>
+归入虹信有点草
+
+なぎりー←アニメアンチの虹信</blockquote>
+虹信是个啥
+
+*****
+
+####  Enakina  
+##### 8316#       发表于 2022-5-19 13:09
+
+ 本帖最后由 Enakina 于 2022-5-19 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55906768&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-19 13:03</a>
+虹信是个啥</blockquote>
+5ch的多团势力大战，开虹的人把虹粉丝叫虹信者。
+举一个例子，有人发帖子“（悲报）n站第几话95好评的虹动画，cd只卖了8000，虹信者大败”
+大概就这个意思吧
+
+*****
+
+####  稀勢のささ  
+##### 8317#       发表于 2022-5-19 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55906768&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-19 13:03</a>
+
+虹信是个啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹团粉 
+
+可能是之前说星78集不好在那边都会被扣这个帽子吧
+
