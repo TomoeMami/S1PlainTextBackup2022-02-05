@@ -805,3 +805,43 @@ PSP：“哦艹，你们公司傻逼别扯上我。”
 
 —— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 84#       发表于 2022-5-19 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55901823&amp;ptid=2070166" target="_blank">kll85757 发表于 2022-5-19 00:32</a>
+
+我写app和web的，自己看了点unity写过点demo，日语二级，在日企呆过2年，他这岗位会要我吗 ...</blockquote>
+怕是开不起你要的工资。
+
+*****
+
+####  fantuanxiaoyi  
+##### 85#       发表于 2022-5-19 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55902898&amp;ptid=2070166" target="_blank">minysun 发表于 2022-5-19 08:00</a>
+
+他法要是能有这样重视中国市场何故到现在依旧连个首发中文还搞不利索</blockquote>
+一个游戏发售前一个月才做完，凭什么能有同步中文？
+
+*****
+
+####  tlozfan  
+##### 86#       发表于 2022-5-19 08:47
+
+ 本帖最后由 tlozfan 于 2022-5-19 08:50 编辑 
+
+就这商业嗅觉还比不上一部分网友呢。欧美论坛早就奇怪这种在日本销量多的游戏为什么还不往日本装机量高的机子上跑。我记得有些法老控批还吹法老控要是抓住时机能发展到SE规模，瞎吹差不多得了。就这商业操作，能保住公司不倒已经很不错了。还有人辩解近藤和神谷一样是受平台支持才有续作，如果这样社长直接讲出来便可，这次的发言完全否定了这种假说。
+
+*****
+
+####  すぴぱら  
+##### 87#       发表于 2022-5-19 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55901823&amp;ptid=2070166" target="_blank">kll85757 发表于 2022-5-19 00:32</a>
+我写app和web的，自己看了点unity写过点demo，日语二级，在日企呆过2年，他这岗位会要我吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个月20w看你要不要做
+
