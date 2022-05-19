@@ -1075,3 +1075,18 @@ K的炸弹人可是跟随Switch首发，卖了一百万，那可是起步最快�
 
 sega的如龙不说，樱花应该上ns的，上了的话，那销量起码没那么难看
 
+
+
+*****
+
+####  ky怪  
+##### 107#       发表于 2022-5-19 15:33
+
+闪轨全家桶带创不是早都上了switch，然后呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卖了多少？
+
+黎轨较前作卖得不行是系列竭泽而渔+砍宣发+卖相差+日本本土ps市场萎缩共同的结果，单靠一个首发ns就能解决吗
+
+欧美玩家有空琢磨法老控为啥不首发ns不如先想想为啥他们23年才能玩上20年的创轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+绯红结系这坨都能卖100w我觉得你法真的需要好好想想了，一个做pc游戏起家的现在上pc反倒费劲
+
