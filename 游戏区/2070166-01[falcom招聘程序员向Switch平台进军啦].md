@@ -1232,3 +1232,19 @@ NS还不如与psp的影响力吗？ 这真的是2022年的发言？</blockquote>
 都是选择性翻译，索九是歪屁股，知任就是理性客观？
 [https://www.falcom.co.jp/archives/games_type/switch](https://www.falcom.co.jp/archives/games_type/switch)   ps4上的法老控全家桶除了树海、东轨加强版和最新的黎轨外，其他游戏ns上都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是谁在装瞎子
 
+
+
+*****
+
+####  xiaohao123  
+##### 117#       发表于 2022-5-19 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55911976&amp;ptid=2070166" target="_blank">Kojimaru 发表于 2022-5-19 20:43</a>
+
+都是选择性翻译，索九是歪屁股，知任就是理性客观？
+
+https://www.falcom.co.jp/archives/games_type/switch ...</blockquote>
+之前都是授权其他厂商移植，没记错的话YS8还是日本一社长和近藤喝酒时主动揽的活
+
+现在的情况是falcom评估之后觉得有利可图，于是打算亲自上场了
+
