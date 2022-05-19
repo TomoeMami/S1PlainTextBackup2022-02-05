@@ -11046,3 +11046,15 @@ QQ图片20220519115046.jpg
 
 2022-5-19 13:18 上传
 
+
+
+*****
+
+####  ddy2811  
+##### 8319#       发表于 2022-5-19 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55905823&amp;ptid=2036367" target="_blank">靡宜 发表于 2022-5-19 11:51</a>
+
+笑死，不是很懂日语，前几天看63回辣酒的熟肉，直接上图了</blockquote>
+写作64读作63么？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
