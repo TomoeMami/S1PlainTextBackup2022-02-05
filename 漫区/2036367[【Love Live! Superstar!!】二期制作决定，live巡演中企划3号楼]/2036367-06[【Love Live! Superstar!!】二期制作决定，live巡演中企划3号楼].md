@@ -11771,3 +11771,15 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 这期的初辣鸡太微妙了，听两个中国人用日语聊天<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8390#       发表于 2022-5-20 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55923242&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-20 18:03</a>
+
+这期的初辣鸡太微妙了，听两个中国人用日语聊天</blockquote>
+毕竟那广播主要服务的听众群体不是国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
