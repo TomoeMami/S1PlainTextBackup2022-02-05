@@ -11855,3 +11855,14 @@ YJ26
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管是角色生日还是中之人生日都在live的可鲤
 
+
+
+*****
+
+####  靡宜  
+##### 8398#       发表于 2022-5-20 22:03
+
+<blockquote>lj205 发表于 2022-5-20 18:34
+不过鲤鱼现在广播真短，15分钟不到的时长还放一整首歌，这期居然没有教废话中文 ...</blockquote>
+好像下一期会有。同嘉宾情况下录两期，然后第二期有的样子
+
