@@ -14168,3 +14168,22 @@ enkr去年不是赚了吗，今年出周边脸都不要了搞得像没见过钱�
 
 省一楼，看了眼你虹之前联动的卡牌二手价格。比较了一下，md武士道怕不是赚了三倍你虹市值出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13331#       发表于 2022-5-20 18:54
+
+enkr别抄了，要抄就抄主播吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">  <blockquote>Luxiem half yearのイラスト、ポーズ似すぎじゃない…？杞憂？？
+
+<img src="https://img.saraba1st.com/forum/202205/20/185402t0i75c9zne5zllb5.png" referrerpolicy="no-referrer">
+
+<strong>Luxiem half yearのイラスト、ポーズ似すぎじゃない…？杞憂？？.png</strong> (123.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-20 18:54 上传
+
+</blockquote>
+
