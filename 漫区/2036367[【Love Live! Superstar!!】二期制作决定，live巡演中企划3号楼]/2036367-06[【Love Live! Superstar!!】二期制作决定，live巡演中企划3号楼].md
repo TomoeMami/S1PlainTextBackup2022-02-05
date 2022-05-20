@@ -11733,3 +11733,32 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 可以啊，当天还是可可生日，三重惊喜了
 
+
+
+*****
+
+####  iuhehc  
+##### 8386#       发表于 2022-5-20 17:46
+
+问题来了，这时候可能动画开播了吧，所以是5人还是9？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cybernetics31  
+##### 8387#       发表于 2022-5-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55923047&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-5-20 17:46</a>
+问题来了，这时候可能动画开播了吧，所以是5人还是9？
+
+—— 来自 S1Fun</blockquote>
+这肯定5个人………………
+
+*****
+
+####  lj205  
+##### 8388#       发表于 2022-5-20 17:49
+
+要正式9人演出肯定要op活动后，首秀肯定留给自己啊，想啥呢
+
