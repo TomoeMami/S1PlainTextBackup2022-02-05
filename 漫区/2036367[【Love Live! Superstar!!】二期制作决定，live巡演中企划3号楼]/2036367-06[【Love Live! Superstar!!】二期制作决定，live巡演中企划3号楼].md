@@ -11783,3 +11783,19 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 这期的初辣鸡太微妙了，听两个中国人用日语聊天</blockquote>
 毕竟那广播主要服务的听众群体不是国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡辺梨加  
+##### 8391#       发表于 2022-5-20 18:30
+
+至高无上的鲤鱼姐于7月17日抵达她忠诚的BML<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8392#       发表于 2022-5-20 18:34
+
+不过鲤鱼现在广播真短，15分钟不到的时长还放一整首歌，这期居然没有教废话中文
+
