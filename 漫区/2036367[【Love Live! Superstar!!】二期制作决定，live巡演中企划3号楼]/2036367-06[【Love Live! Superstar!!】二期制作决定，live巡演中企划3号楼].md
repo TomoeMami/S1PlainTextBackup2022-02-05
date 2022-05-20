@@ -11528,3 +11528,14 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 一大早突发奇想，可堇不会化身管人父母角色，由她们两带管人剧情吧，毕竟设定上就是跟她们两关系最大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 8365#       发表于 2022-5-20 09:14
+
+<img src="https://p.sda1.dev/6/3da0f1058ed3969f81c6b0c5da4a8ddb/CMP_20220520091406889.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
