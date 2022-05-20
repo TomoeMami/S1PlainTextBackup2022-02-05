@@ -6696,3 +6696,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 啊西，都不知道昨晚播了
 
+
+
+*****
+
+####  笋狐  
+##### 11155#       发表于 2022-5-20 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了录播，这联动对象的声音和苔姨也太像了
+
