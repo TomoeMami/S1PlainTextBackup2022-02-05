@@ -13359,3 +13359,18 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  neverlands  
+##### 58118#       发表于 2022-5-21 01:15
+
+ 本帖最后由 neverlands 于 2022-5-21 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55927491&amp;ptid=98922" target="_blank">蚊仔蚊仔蚊仔 发表于 2022-5-21 00:51</a>
+
+从罗提出结成联盟拉四皇下马，到当初的“目标”凯多被打败已经过去了十年。
+
+—— 来自 S1Fun ...</blockquote>
+不是只过了两个月吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
