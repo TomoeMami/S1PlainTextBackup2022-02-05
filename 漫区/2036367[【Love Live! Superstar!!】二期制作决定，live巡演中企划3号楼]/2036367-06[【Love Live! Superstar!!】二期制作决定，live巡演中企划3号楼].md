@@ -11519,3 +11519,12 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55912250&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-19 21:09</a></blockquote>
 自家事务所团建<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8364#       发表于 2022-5-20 08:11
+
+一大早突发奇想，可堇不会化身管人父母角色，由她们两带管人剧情吧，毕竟设定上就是跟她们两关系最大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
