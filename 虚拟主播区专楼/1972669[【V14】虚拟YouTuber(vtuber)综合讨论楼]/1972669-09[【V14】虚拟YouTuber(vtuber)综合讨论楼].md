@@ -14260,3 +14260,14 @@ syl 未来人你“罪大恶极”！
 
 織姫星不仲てぇてぇ
 
+
+
+*****
+
+####  OldGlory  
+##### 13340#       发表于 2022-5-21 00:34
+
+[https://rentry.org/nijicopes/](https://rentry.org/nijicopes/)
+
+什么仇恨教育
+
