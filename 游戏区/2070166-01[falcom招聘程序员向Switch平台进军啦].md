@@ -1248,3 +1248,14 @@ https://www.falcom.co.jp/archives/games_type/switch ...</blockquote>
 
 现在的情况是falcom评估之后觉得有利可图，于是打算亲自上场了
 
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 118#       发表于 2022-5-20 23:22
+
+一模一样的帖子，隔壁可比这里有趣多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
