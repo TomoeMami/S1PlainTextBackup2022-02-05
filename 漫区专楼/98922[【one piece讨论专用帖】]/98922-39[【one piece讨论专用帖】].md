@@ -13277,3 +13277,85 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 变相对波还行，这一拳没有附带和之国角色的闪回分镜也算是进步了
 
+
+
+*****
+
+####  wooeason  
+##### 58111#       发表于 2022-5-16 00:57
+
+这画的什么玩意啊，罗要扳倒的凯多运营的人造果实市场，结果其实是凯多贯彻自己心目中让贵族不再享乐通过战争换取自由的自由理念，强行把凯多抬高成路飞成为乔伊波伊的试金石，当读者忘了上一话凯多大蛇给整个和之国下毒的纯坏剧情是吧，除了自我感动以为真是没一点正经故事了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  绝赞販売中  
+##### 58112#       发表于 2022-5-16 03:41
+
+讲那么多御田屁话，其实不如最后理念的碰撞。凯多：以力量为标准为人划分阶级；路宝：人生来就是平等，每个人都应该吃饱；天龙人：生下来的血脉决定阶级。凯多的形象立起来了，御田则成了彻头彻尾的小丑
+
+*****
+
+####  ahyyk  
+##### 58113#       发表于 2022-5-16 09:56
+
+凯多形象真越来越好了，从网红四皇老阴逼，变成了反抗命运的凯老师
+
+甚至被海军抓，都给了个蹭饭的理由
+
+*****
+
+####  topnice  
+##### 58114#       发表于 2022-5-17 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55812610&amp;ptid=98922" target="_blank">DGIL 发表于 2022-5-13 08:14</a>
+
+我受到了启发！
+
+凯多看了御田的日记，撕去了一页！
+
+他知道未来要发生的事，也知道了他会注定由乔伊 ...</blockquote>
+凯多洗不干净的，实打实的奴役百姓贩卖军火污染环境。好好的做他的奸雄吧。
+
+*****
+
+####  C男人  
+##### 58115#       发表于 2022-5-17 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55759133&amp;ptid=98922" target="_blank">C男人 发表于 2022-5-9 22:30</a>
+
+凯多这一仗打到现在，
+
+新外挂也开了，围殴也用了，就差……回忆了。
+
+等凯多回忆一下自己的青鱼岁月，就差不多该出个结果了。</blockquote>
+好么，1049话真就来段回忆，然后战败了。
+
+要不要这么套路？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  icewolf01  
+##### 58116#       发表于 2022-5-17 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55812610&amp;ptid=98922" target="_blank">DGIL 发表于 2022-5-13 08:14</a>
+
+我受到了启发！
+
+凯多看了御田的日记，撕去了一页！
+
+他知道未来要发生的事，也知道了他会注定由乔伊 ...</blockquote>
+能看出作者是想把凯多老师往“枭雄”“不拘一格”的方向上写的，但加上和之国这帮傻逼实在观感不太行
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58117#       发表于 2022-5-21 00:51
+
+从罗提出结成联盟拉四皇下马，到当初的“目标”凯多被打败已经过去了十年。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
