@@ -11625,3 +11625,27 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">含泪赚叔叔两份钱
 
+
+
+*****
+
+####  cybernetics31  
+##### 8374#       发表于 2022-5-20 16:15
+
+企划有amuse，咋不带上虹…………奇怪。
+现在这个形式应该是最好的，日本那边线下，这边线上，起码把国内看live的热度保持住。
+
+*****
+
+####  靡宜  
+##### 8375#       发表于 2022-5-20 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">顺便，是裤裤生日
+
+*****
+
+####  lj205  
+##### 8376#       发表于 2022-5-20 16:17
+
+可可生日拿双份，没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
