@@ -14090,3 +14090,12 @@ enkr去年不是赚了吗，今年出周边脸都不要了搞得像没见过钱�
 
 上市了吃相只会越来越难看，不然会被股东叼死
 
+
+
+*****
+
+####  asdhai  
+##### 13323#       发表于 2022-5-20 14:59
+
+骂完记得买就是了，上火不值得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
