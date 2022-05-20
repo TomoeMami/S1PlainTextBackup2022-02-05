@@ -11762,3 +11762,12 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 要正式9人演出肯定要op活动后，首秀肯定留给自己啊，想啥呢
 
+
+
+*****
+
+####  lj205  
+##### 8389#       发表于 2022-5-20 18:03
+
+这期的初辣鸡太微妙了，听两个中国人用日语聊天<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
