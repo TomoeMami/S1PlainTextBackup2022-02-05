@@ -6723,3 +6723,63 @@ https://www.lightnovel.us/c ...</blockquote>
 
 咩咩唱的露露酱的自杀配信情绪感染力真强...
 
+
+
+*****
+
+####  ロキシー  
+##### 11158#       发表于 2022-5-21 02:33
+
+什么鬼时间啊
+
+*****
+
+####  Rem-清曲  
+##### 11159#       发表于 2022-5-21 02:34
+
+？
+
+*****
+
+####  llconforever  
+##### 11160#       发表于 2022-5-21 02:48
+
+小混蛋，给你两拳
+
+
+
+*****
+
+####  璃絵和花瑠  
+##### 11161#       发表于 2022-5-21 03:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">は？
+
+*****
+
+####  andeloz  
+##### 11162#       发表于 2022-5-21 03:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个点竟然已经播了一个多小时
+
+*****
+
+####  LIPP  
+##### 11163#       发表于 2022-5-21 03:45
+
+天都亮了，结果爆唱 整晕了
+
+*****
+
+####  kenjjj  
+##### 11164#       发表于 2022-5-21 03:52
+
+守夜冠军！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 11165#       发表于 2022-5-21 05:30
+
+错过了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
