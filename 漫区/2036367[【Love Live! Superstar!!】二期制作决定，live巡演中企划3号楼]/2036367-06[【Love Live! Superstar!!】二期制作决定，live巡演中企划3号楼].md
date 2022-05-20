@@ -11676,3 +11676,33 @@ EADFF7D0-7F82-40C6-B351-A853DAE86E7C.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 8380#       发表于 2022-5-20 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">国内这也没法线下啊，md 19年sp后已经3年没去看了live了
+
+*****
+
+####  靡宜  
+##### 8381#       发表于 2022-5-20 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55922221&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-5-20 16:50</a>
+
+诶，叔叔的活动，线上的？
+
+—— 来自 S1Fun</blockquote>
+日本线下，国内线上
+
+*****
+
+####  cat1230  
+##### 8382#       发表于 2022-5-20 16:59
+
+2份工资，血赚
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
