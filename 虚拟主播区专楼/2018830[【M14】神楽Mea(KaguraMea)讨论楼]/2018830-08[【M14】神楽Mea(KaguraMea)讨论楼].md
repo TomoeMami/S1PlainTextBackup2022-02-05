@@ -6705,3 +6705,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了录播，这联动对象的声音和苔姨也太像了
 
+
+
+*****
+
+####  TiHaru  
+##### 11156#       发表于 2022-5-20 12:16
+
+一股精神老姐的味道
+
