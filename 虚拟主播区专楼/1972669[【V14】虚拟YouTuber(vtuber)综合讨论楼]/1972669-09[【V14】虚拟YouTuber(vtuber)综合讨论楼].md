@@ -14196,3 +14196,21 @@ enkr别抄了，要抄就抄主播吧<img src="https://static.saraba1st.com/imag
 
 enkr周边部有内鬼吧，出多少问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 13333#       发表于 2022-5-20 19:12
+
+姿势参考有，但一眼看都不是描的，而且这些服装配色参考也比较常见，不炎上感觉完全不会被告，
+
+好丢人啊搞这些擦边球<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 13334#       发表于 2022-5-20 19:17
+
+看原图就知道了原图有几十张各种坐椅子的，而坐椅子能摆的姿势就那么几种，与其说是抄了还不如说是偶然在几十张里被碰上几个像的…
+
