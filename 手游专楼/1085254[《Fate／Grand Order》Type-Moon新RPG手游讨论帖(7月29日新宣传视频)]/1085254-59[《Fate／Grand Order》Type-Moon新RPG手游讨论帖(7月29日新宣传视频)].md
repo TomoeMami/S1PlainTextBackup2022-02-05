@@ -11834,3 +11834,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 美服开硬币了…
 
+
+
+*****
+
+####  khxooo  
+##### 88018#       发表于 2022-5-20 15:48
+
+君11的宝具改正了，其他不见这么快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
