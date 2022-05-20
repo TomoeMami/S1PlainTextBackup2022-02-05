@@ -11843,3 +11843,14 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 君11的宝具改正了，其他不见这么快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 88019#       发表于 2022-5-20 17:15
+
+<blockquote>khxooo 发表于 2022-5-20 15:48
+君11的宝具改正了，其他不见这么快</blockquote>
+这宝具动画君11还一身血站城墙外呢，城墙里连对面的塔都竖起来了，这是什么地狱笑话，这游戏的考据到底有没有人审核.jpg
+
