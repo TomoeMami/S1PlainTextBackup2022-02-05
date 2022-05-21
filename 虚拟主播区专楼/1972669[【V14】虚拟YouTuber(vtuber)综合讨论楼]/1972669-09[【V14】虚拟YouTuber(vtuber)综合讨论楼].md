@@ -14348,3 +14348,28 @@ syl 未来人你“罪大恶极”！
 
 这也太迷了 有猜想么
 
+
+
+*****
+
+####  fastary  
+##### 13349#       发表于 2022-5-21 12:03
+
+这种神神秘秘的写法要么是菜菜子那种大物套皮要么是田角陆出道式一次性整活要么就是哪个现役liver要搞事。我是觉得不太可能现在还搞大物套皮，我赌是最后一种可能。
+
+*****
+
+####  ヒトニナル  
+##### 13350#       发表于 2022-5-21 12:03
+
+我反正觉得是整活，官号金盾的整活，开口可能是田角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ryuuseigun  
+##### 13351#       发表于 2022-5-21 12:06
+
+皮挺恶役千金味的，合理发散莫非是田角女友出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
