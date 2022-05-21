@@ -6853,3 +6853,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 通宵，下播的时候好像还说了自己不会睡。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11174#       发表于 2022-5-21 11:07
+
+什么年轻的肉体。大半夜唱歌，唱歌完打游戏，打完游戏最多中途眯了3小时，醒了接着打游戏到现在。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
