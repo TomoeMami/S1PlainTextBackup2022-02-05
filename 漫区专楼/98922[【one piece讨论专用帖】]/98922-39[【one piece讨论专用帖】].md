@@ -13476,3 +13476,22 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 桃之助不会成为和之国将军，会作为非船员跟着路飞继续航行 ...</blockquote>
 大和妥妥的新船员啊，看到这还能有疑惑
 
+
+
+*****
+
+####  klzxs  
+##### 58128#       发表于 2022-5-22 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55938302&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-5-22 00:22</a>
+
+大和妥妥的新船员啊，看到这还能有疑惑</blockquote>
+是不是船员先不提，大和肯定会跟着路飞出国是没什么疑问
+
+但桃之助也不是非得成为镇守和之国的那个人
+
+比如锦卫门也可以在这个位置
+
+桃之助会像他爹跟着罗杰一样跟着路飞去最后的小岛
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这种可能性是有的
+
