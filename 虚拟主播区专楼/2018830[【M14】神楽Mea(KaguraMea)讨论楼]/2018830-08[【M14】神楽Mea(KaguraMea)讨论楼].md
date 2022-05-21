@@ -6882,3 +6882,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Dualist彩  
+##### 11177#       发表于 2022-5-21 12:20
+
+呵呵，缺点意思，感觉不如原音抓耳捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
