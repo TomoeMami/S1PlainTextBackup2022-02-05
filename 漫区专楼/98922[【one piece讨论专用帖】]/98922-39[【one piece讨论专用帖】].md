@@ -13440,3 +13440,14 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 柯南20年也是才升了一年级
 
+
+
+*****
+
+####  klzxs  
+##### 58125#       发表于 2022-5-22 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">突然有种担忧
+
+桃之助不会成为和之国将军，会作为非船员跟着路飞继续航行
+
