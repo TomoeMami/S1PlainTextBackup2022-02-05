@@ -13495,3 +13495,19 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 桃之助会像他爹跟着罗杰一样跟着路飞去最后的小岛
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这种可能性是有的
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58129#       发表于 2022-5-22 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55938586&amp;ptid=98922" target="_blank">klzxs 发表于 2022-5-22 01:04</a>
+
+是不是船员先不提，大和肯定会跟着路飞出国是没什么疑问
+
+但桃之助也不是非得成为镇守和之国的那个人
+
+比如 ...</blockquote>
+我觉得不可能，尾田安排大和一口一个御田就是对称桃之助他爹的，和之国之后咋样根本不重要，重要的是尾田的对称强迫症，我看到大和这角色登场就知道要上船了，这也是她行为逻辑诡异的原因，因为她是船员必须找理由和五黄统一战线
+
