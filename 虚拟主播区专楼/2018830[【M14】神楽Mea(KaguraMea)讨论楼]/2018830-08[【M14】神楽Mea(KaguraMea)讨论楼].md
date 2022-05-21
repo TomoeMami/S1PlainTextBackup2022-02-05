@@ -6835,3 +6835,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 结合她上次歌回说的最近天天早起，我无法判断她是起得太早了还是食言了又开始熬夜了
 
+
+
+*****
+
+####  时间在我手中  
+##### 11172#       发表于 2022-5-21 10:37
+
+大半夜嗯唱十三首是吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
