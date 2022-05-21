@@ -12131,3 +12131,21 @@ blob
 
 看到这个笑出声了，拉板B站live那个串。
 
+
+
+*****
+
+####  仟音一心  
+##### 8412#       发表于 2022-5-21 20:50
+
+<img src="https://img.saraba1st.com/forum/202205/21/205005idp83udrpq8hury8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>66B1A390-848A-46BE-8622-C8E6A79C6571.jpeg</strong> (210.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-21 20:50 上传
+
+鱼妈以为录音录完马上就能出CD，所以在当初看CD一直没出以为鱼被骗了[笑cry] 
+
