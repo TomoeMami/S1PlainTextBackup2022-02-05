@@ -6891,3 +6891,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 呵呵，缺点意思，感觉不如原音抓耳捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呓亘  
+##### 11178#       发表于 2022-5-21 14:11
+
+羊到了 比想象中大..
+
