@@ -14592,3 +14592,14 @@ hnn第一局的小帮手准率相当不错，总感觉她刚睡醒的时候更�
 这cr正赛直接延期到6.4了，因为服务器？</blockquote>
 新赛季出现各种问题的游戏出错掉线，尤其自定义赛更严重
 
+
+
+*****
+
+####  fastary  
+##### 13374#       发表于 2022-5-22 00:02
+
+嗯男卖腐是真的饮水器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+至少这点上jp的男人输得太多……虽然我是洁癖连体人所以随便蹭了点粮见势不对就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
