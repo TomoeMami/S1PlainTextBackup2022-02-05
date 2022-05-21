@@ -13451,3 +13451,28 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 桃之助不会成为和之国将军，会作为非船员跟着路飞继续航行
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 58126#       发表于 2022-5-22 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55938156&amp;ptid=98922" target="_blank">hagaren 发表于 2022-5-21 23:59</a>
+洛克斯后人是黑胡子 我记得是
+
+柯南20年也是才升了一年级</blockquote>
+柯南没有升二年级，是一年级进入第二学期，柯南元年只过了半年。
+
+*****
+
+####  银翼的维罗西  
+##### 58127#       发表于 2022-5-22 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55938285&amp;ptid=98922" target="_blank">klzxs 发表于 2022-5-22 00:18</a>
+
+突然有种担忧
+
+桃之助不会成为和之国将军，会作为非船员跟着路飞继续航行 ...</blockquote>
+大和妥妥的新船员啊，看到这还能有疑惑
+
