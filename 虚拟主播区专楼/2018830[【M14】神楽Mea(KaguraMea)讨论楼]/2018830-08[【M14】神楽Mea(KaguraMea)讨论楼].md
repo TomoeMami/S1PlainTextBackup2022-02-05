@@ -6871,3 +6871,14 @@ https://www.lightnovel.us/c ...</blockquote>
 
 可能前两天憋坏了，终于有空放纵一下
 
+
+
+*****
+
+####  往世雷书  
+##### 11176#       发表于 2022-5-21 11:33
+
+放纵的方式就是直播给观众看（看没看到另说），好主播<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
