@@ -4,8 +4,8 @@
 name: S1B
 
 on:
-  # workflow_dispatch:
-  push
+  schedule:
+    - cron: '0 21 * * *'
 jobs:
   PushS1B:
     # needs: UpdateS1
