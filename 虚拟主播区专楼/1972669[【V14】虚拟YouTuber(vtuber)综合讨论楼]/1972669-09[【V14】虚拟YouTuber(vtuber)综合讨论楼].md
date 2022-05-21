@@ -14562,3 +14562,12 @@ hnn第一局的小帮手准率相当不错，总感觉她刚睡醒的时候更�
 [https://www.youtube.com/watch?v=KMvUdCyIVxw](https://www.youtube.com/watch?v=KMvUdCyIVxw)
 <img src="https://p.sda1.dev/6/8df6b2ead2f9b41c15cfd35a910a7cd1/image.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwera3469  
+##### 13371#       发表于 2022-5-21 22:49
+
+这cr正赛直接延期到6.4了，因为服务器？
+
