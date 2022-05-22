@@ -13074,3 +13074,12 @@ NAKO：来，妈示范给你看。接下来到你了，大胆开炮
 这不插电排练打铁怎么听着好像还在扯嗓子唱呢…………一定是我的错觉</blockquote>
 我也是同感（起码出声第一听感是如此
 
+
+
+*****
+
+####  靡宜  
+##### 8454#       发表于 2022-5-22 19:18
+
+这不插电前五秒的wh好听<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
