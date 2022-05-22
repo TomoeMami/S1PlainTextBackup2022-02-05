@@ -6909,3 +6909,14 @@ https://www.lightnovel.us/c ...</blockquote>
 
 <img src="https://p.sda1.dev/6/f9a76d96fb4e340c7502dbe7444d59d8/CMP_20220522121603004.jpg" referrerpolicy="no-referrer">呵呵，羊党的圣物要被我改造成怪人了
 
+
+
+*****
+
+####  往世雷书  
+##### 11180#       发表于 2022-5-22 13:45
+
+对玩偶二创后建议发推上让她看看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
