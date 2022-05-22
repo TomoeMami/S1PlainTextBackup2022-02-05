@@ -13123,3 +13123,16 @@ NAKO：来，妈示范给你看。接下来到你了，大胆开炮
 由手机上传
 2022-5-22 20:20 上传
 
+
+
+*****
+
+####  iuhehc  
+##### 8457#       发表于 2022-5-22 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55945019&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-22 18:19</a>
+这不插电排练打铁怎么听着好像还在扯嗓子唱呢…………一定是我的错觉</blockquote>
+不是错觉，挤卡很明显就是基础没打好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
