@@ -12528,3 +12528,33 @@ QQ图片20220522121916.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 8434#       发表于 2022-5-22 12:32
+
+第一次投，可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 8435#       发表于 2022-5-22 12:34
+
+好家伙，个子最大，力气最小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 8436#       发表于 2022-5-22 12:34
+
+只有sayu投的无触地还投中了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8437#       发表于 2022-5-22 12:41
+
+打铁还担任现场赛况播报啊
+
