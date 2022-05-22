@@ -12924,3 +12924,58 @@ NAKO：来，妈示范给你看。接下来到你了，大胆开炮
 
 草，鲤鱼说吃牛舌的感想是自己的舌头和牛舌塔塔开
 
+
+
+*****
+
+####  仟音一心  
+##### 8447#       发表于 2022-5-22 16:21
+
+<img src="https://img.saraba1st.com/forum/202205/22/162114nggta3rzwwnt3zwz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DEE6C2EA-0321-4E76-A5E9-C5DEE5116C8D.jpeg</strong> (79.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-22 16:21 上传
+
+<img src="https://img.saraba1st.com/forum/202205/22/162114jrppyypy1rymxuoq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D8C253EB-0BB1-4C0F-93D9-B0C3BE130173.jpeg</strong> (89.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-22 16:21 上传
+
+<img src="https://img.saraba1st.com/forum/202205/22/162114ooxtaaxktjjb64to.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ABA32F91-2BA4-4B1B-9F68-80590F26F4D3.jpeg</strong> (83.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-22 16:21 上传
+
+这个P的才是最搞的
+
+<img src="https://img.saraba1st.com/forum/202205/22/162114bns9j2o9qa9z2o85.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4086094F-32DD-4238-953B-6F70D107260F.jpeg</strong> (148.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-22 16:21 上传
+
+*****
+
+####  adw667  
+##### 8448#       发表于 2022-5-22 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55943840&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-22 16:21</a>
+
+这个P的才是最搞的</blockquote>
+什么人间大炮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
