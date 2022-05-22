@@ -6900,3 +6900,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 羊到了 比想象中大..
 
+
+
+*****
+
+####  时间在我手中  
+##### 11179#       发表于 2022-5-22 12:16
+
+<img src="https://p.sda1.dev/6/f9a76d96fb4e340c7502dbe7444d59d8/CMP_20220522121603004.jpg" referrerpolicy="no-referrer">呵呵，羊党的圣物要被我改造成怪人了
+
