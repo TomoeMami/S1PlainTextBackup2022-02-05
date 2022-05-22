@@ -13187,3 +13187,12 @@ NAKO：来，妈示范给你看。接下来到你了，大胆开炮
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">谢谢你うにゃ老师
 
+
+
+*****
+
+####  kata魂  
+##### 8461#       发表于 2022-5-22 23:44
+
+这个老师是国人吗？5201314这个中文谐音不了解很难用吧，虽然也挺老了
+
