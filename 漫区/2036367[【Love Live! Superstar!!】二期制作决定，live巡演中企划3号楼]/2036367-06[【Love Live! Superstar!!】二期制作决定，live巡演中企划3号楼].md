@@ -13062,3 +13062,15 @@ NAKO：来，妈示范给你看。接下来到你了，大胆开炮
 
 这不插电排练打铁怎么听着好像还在扯嗓子唱呢…………一定是我的错觉
 
+
+
+*****
+
+####  csolfans  
+##### 8453#       发表于 2022-5-22 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55945019&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-22 18:19</a>
+
+这不插电排练打铁怎么听着好像还在扯嗓子唱呢…………一定是我的错觉</blockquote>
+我也是同感（起码出声第一听感是如此
+
