@@ -1064,3 +1064,18 @@ lz点醒了我
 不适合泥头车流</blockquote>
 史莱姆那个不是最后都可以自由来回穿越了么，实际上只要想写，泥头车流也可以归乡结局的
 
+
+
+*****
+
+####  シャル  
+##### 85#       发表于 2022-5-23 13:54
+
+ 本帖最后由 シャル 于 2022-5-23 13:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55955618&amp;ptid=2070760" target="_blank">liekong 发表于 2022-5-23 13:46</a>
+
+史莱姆那个不是最后都可以自由来回穿越了么，实际上只要想写，泥头车流也可以归乡结局的 ...</blockquote>
+史莱姆这个不算泥头车流
+
+因为事实上被刺没即死
+
