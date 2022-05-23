@@ -6992,3 +6992,14 @@ https://www.lightnovel.us/c ...</blockquote>
 
 这推特，一共就俩ID，还都是错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（其中她自己的那个高仿ID属实绷
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 11187#       发表于 2022-5-23 18:47
+
+笑死了，新推@两人都是拟态虫
+
+—— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
