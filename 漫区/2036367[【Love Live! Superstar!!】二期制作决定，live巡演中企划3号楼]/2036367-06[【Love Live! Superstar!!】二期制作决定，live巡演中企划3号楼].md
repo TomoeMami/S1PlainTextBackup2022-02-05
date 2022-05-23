@@ -13548,3 +13548,15 @@ BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事�
 合拍？是我想的那个一起拍吗</blockquote>
 应该只是那种分屏成左右两边，其中一边用王心凌录好的视频，另一面根据视频做动作或者说话的那种，刚才在B站刷到了一个那种视频
 
+
+
+*****
+
+####  靡宜  
+##### 8483#       发表于 2022-5-23 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55961713&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-5-23 21:39</a>
+
+应该只是那种分屏成左右两边，其中一边用王心凌录好的视频，另一面根据视频做动作或者说话的那种，刚才在 ...</blockquote>
+差不多是这样，抖音功能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
