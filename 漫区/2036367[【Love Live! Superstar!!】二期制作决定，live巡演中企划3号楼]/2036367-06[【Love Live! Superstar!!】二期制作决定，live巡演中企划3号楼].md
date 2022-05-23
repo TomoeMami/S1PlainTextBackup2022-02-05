@@ -13340,3 +13340,30 @@ QQ图片20220522191117.jpg
 
 这种多半是找了个5ch的帖子然后改写了下，跟国内百家号一个路数
 
+
+
+*****
+
+####  lj205  
+##### 8472#       发表于 2022-5-23 12:51
+
+<img src="https://img.saraba1st.com/forum/202205/23/124910io41ovvioukg84ob.png" referrerpolicy="no-referrer">
+
+<strong>9B04163D-D56D-4862-BE8F-A0E413DF3DCE.png</strong> (338.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-23 12:49 上传
+
+<img src="https://img.saraba1st.com/forum/202205/23/124928srg6fr3ffo61pppf.png" referrerpolicy="no-referrer">
+
+<strong>1A9FC313-2D6E-48F7-BA0E-1B51B6B4D0FA.png</strong> (435.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-23 12:49 上传
+
+应该是FC的写真准备开始罚抄，说起来这次写真和蓝光宣传似乎都很佛系
+
+然后就是虚拟拼盘演唱会特意用了中文，是预着国内的人也可以参加吗
+
