@@ -1003,3 +1003,24 @@ lz点醒了我
 007电影又何尝不是一种isekai</blockquote>
 把007也送去异世界
 
+
+
+*****
+
+####  シャル  
+##### 80#       发表于 2022-5-23 13:23
+
+打穿大坟墓啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死线  
+##### 81#       发表于 2022-5-23 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55945462&amp;ptid=2070760" target="_blank">愚人节快乐 发表于 2022-5-22 19:06</a>
+
+也不能说无长物，个人技能还是有的</blockquote>
+异世界系一样有归乡结局，甚至对于反复穿越系来说归乡结局更是主流……
+
+至于个人技能，传统勇者剧的个人技能是底力反击（被打得快死了突然回忆起家乡惨死亲人然后瞬间满血满气），异世界系的个人技能则往往就是战术压制（大部分作品都要带着在家乡学到的知识，像灰与幻想的格林姆加尔那样连知识都没有的纯属卖惨）……
+
