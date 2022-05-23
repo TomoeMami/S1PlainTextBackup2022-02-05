@@ -6929,3 +6929,26 @@ https://www.lightnovel.us/c ...</blockquote>
 
 怪羊记忆体麻
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11182#       发表于 2022-5-23 13:16
+
+ 本帖最后由 古战场亡魂 于 2022-5-23 13:20 编辑 
+
+我收回之前我认为mea现在不是个人势的看法。
+
+很明显mea还是个人势，官方也是这么认为的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+三个账号分别是sony的三个vtuber企划。为什么这么认为，因为本图里有一个前个人势，19年年初开始活动的九条林檎。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/23/131506yv9j7szxbeivimuy.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220523131302303.jpg</strong> (67.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-23 13:15 上传
+
