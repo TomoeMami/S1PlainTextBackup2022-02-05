@@ -641,3 +641,15 @@ Furyu一般都是晚个半年上Steam吧</blockquote>
 一直有个疑问 这种日本小厂做的游戏怎么感觉和独立游戏差不多</blockquote>
 倒不这么觉得，情书们一个塞一个怪胎长短脚，非情书的区分度就更大了
 
+
+
+*****
+
+####  squaresfc  
+##### 68#       发表于 2022-5-23 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55962183&amp;ptid=2070480" target="_blank">Fycycy 发表于 2022-5-23 22:21</a>
+
+一直有个疑问 这种日本小厂做的游戏怎么感觉和独立游戏差不多</blockquote>
+答案很简单，因为你的感觉出了问题。
+
