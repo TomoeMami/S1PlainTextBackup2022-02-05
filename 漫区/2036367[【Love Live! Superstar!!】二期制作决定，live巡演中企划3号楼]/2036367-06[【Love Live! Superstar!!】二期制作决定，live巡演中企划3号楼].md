@@ -13503,3 +13503,12 @@ BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事�
 BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事？</blockquote>
 你不说我都不记得有这件事了，可能运营也记不得了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 8479#       发表于 2022-5-23 21:09
+
+快把鱼放出来啊，难道要同步放花絮吗
+
