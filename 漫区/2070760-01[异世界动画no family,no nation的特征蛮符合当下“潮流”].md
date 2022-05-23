@@ -1138,3 +1138,47 @@ lz点醒了我
 衣锦还乡也是归乡没错阿</blockquote>
 错了，“衣锦还乡”是装B的一段而已，“归乡”有回归之意，两者的内涵还是有很大不同的
 
+
+
+*****
+
+####  liekong  
+##### 91#       发表于 2022-5-23 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55960660&amp;ptid=2070760" target="_blank">愚人节快乐 发表于 2022-5-23 20:12</a>
+
+错了，“衣锦还乡”是装B的一段而已，“归乡”有回归之意，两者的内涵还是有很大不同的 ...</blockquote>
+那只能说纯粹是你自己再细分了，毕竟这帖子讲的是穿越者对自己的family、nation的留恋，
+
+不管是你说的衣锦还乡，还是散尽外挂回归平静生活，最终也还是回归自己的family、nation，
+
+在这个话题和语境下，是没有太大区别的
+
+*****
+
+####  笔仁SaSaSa  
+##### 92#       发表于 2022-5-23 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55954985&amp;ptid=2070760" target="_blank">愚人节快乐 发表于 2022-5-23 12:53</a>
+
+把007也送去异世界</blockquote>
+不用泥头车。
+
+007的组成：反派弱智，美女倒贴，自己有超过同时代的超能力（间谍装备），主角没有家。
+
+这不就是isekai。
+
+*****
+
+####  シャル  
+##### 93#       发表于 2022-5-23 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55955852&amp;ptid=2070760" target="_blank">liekong 发表于 2022-5-23 14:09</a>
+
+没本质区别阿，史莱姆也还是死了转生阿，他最后也没走归乡结局就是了，
+
+我只是拿来举例他这个要走归乡结 ...</blockquote>
+本质有区别的
+
+泥头车是单程车票<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
