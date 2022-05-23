@@ -1079,3 +1079,19 @@ lz点醒了我
 
 因为事实上被刺没即死
 
+
+
+*****
+
+####  liekong  
+##### 86#       发表于 2022-5-23 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55955689&amp;ptid=2070760" target="_blank">シャル 发表于 2022-5-23 13:54</a>
+
+史莱姆这个不算泥头车流
+
+因为事实上被刺没即死</blockquote>
+没本质区别阿，史莱姆也还是死了转生阿，他最后也没走归乡结局就是了，
+
+我只是拿来举例他这个要走归乡结局完全可以走的通的
+
