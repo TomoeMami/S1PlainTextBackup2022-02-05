@@ -13577,3 +13577,31 @@ BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白老师接受现实以后出图很快啊
 
+
+
+*****
+
+####  lj205  
+##### 8485#       发表于 2022-5-23 22:23
+
+翻了一下推才在当期介绍找到这段话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+アニメ「ラブライブ！スーパースター!!」からLiella!メンバー5人が連続登場するソログラビアの第4弾はLiyuu。お部屋でくつろぐキュートな表情に恋焦がれるはず。
+
+*****
+
+####  starring  
+##### 8486#       发表于 2022-5-23 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55961458&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-23 21:17</a></blockquote>
+还以为事务所这么给力把王心凌找来互动<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8487#       发表于 2022-5-23 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55962095&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-23 22:13</a>
+白老师接受现实以后出图很快啊</blockquote>
+因为今天互动了啊，我8474楼发了
+

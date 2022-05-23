@@ -605,3 +605,39 @@ Furyu一般都是晚个半年上Steam吧</blockquote>
 
 一直有个疑问 这种日本小厂做的游戏怎么感觉和独立游戏差不多
 
+
+
+*****
+
+####  415452356  
+##### 65#       发表于 2022-5-23 22:23
+
+  看着一副能种田的样子？
+
+*****
+
+####  Tring  
+##### 66#       发表于 2022-5-23 22:26
+
+ 本帖最后由 Tring 于 2022-5-23 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55962183&amp;ptid=2070480" target="_blank">Fycycy 发表于 2022-5-23 22:21</a>
+
+一直有个疑问 这种日本小厂做的游戏怎么感觉和独立游戏差不多</blockquote>
+其实先后关系反了。
+
+是现在的独立游戏越来越像日本小厂游戏的规模了。
+
+腐乳还是那个腐乳，除了营销手段变先进了外，基本是坚持初心做死中低端市场了。
+
+这片市场本就是这些三线小厂的，只是现在逐渐被独立游戏侵占了而已。
+
+*****
+
+####  whzfjk  
+##### 67#       发表于 2022-5-23 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55962183&amp;ptid=2070480" target="_blank">Fycycy 发表于 2022-5-23 22:21</a>
+
+一直有个疑问 这种日本小厂做的游戏怎么感觉和独立游戏差不多</blockquote>
+倒不这么觉得，情书们一个塞一个怪胎长短脚，非情书的区分度就更大了
+
