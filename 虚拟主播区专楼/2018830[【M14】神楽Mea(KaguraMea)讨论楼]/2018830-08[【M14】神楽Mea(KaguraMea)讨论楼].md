@@ -7012,3 +7012,18 @@ https://www.lightnovel.us/c ...</blockquote>
 
 目前放出预告的有和犬山的联动还有和木口野男人的联动
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11189#       发表于 2022-5-24 01:18
+
+<img src="https://img.saraba1st.com/forum/202205/24/011829rzpapigpiugysdum.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220524011809110.jpg</strong> (50.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 01:18 上传
+
