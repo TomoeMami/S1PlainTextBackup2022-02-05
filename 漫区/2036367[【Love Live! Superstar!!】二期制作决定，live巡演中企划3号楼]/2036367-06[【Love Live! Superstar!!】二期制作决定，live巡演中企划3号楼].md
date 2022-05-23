@@ -13605,3 +13605,15 @@ BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事�
 白老师接受现实以后出图很快啊</blockquote>
 因为今天互动了啊，我8474楼发了
 
+
+
+*****
+
+####  靡宜  
+##### 8488#       发表于 2022-5-23 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55962229&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-23 22:25</a>
+
+还以为事务所这么给力把王心凌找来互动</blockquote>
+还不至于强到这个水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
