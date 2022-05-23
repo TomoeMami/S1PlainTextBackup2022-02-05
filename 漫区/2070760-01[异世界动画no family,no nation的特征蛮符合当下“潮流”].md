@@ -1127,3 +1127,14 @@ lz点醒了我
 我觉得这可以叫衣锦还乡流</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">衣锦还乡也是归乡没错阿
 
+
+
+*****
+
+####  愚人节快乐  
+##### 90#         楼主| 发表于 2022-5-23 20:12
+
+<blockquote>liekong 发表于 2022-5-23 19:42
+衣锦还乡也是归乡没错阿</blockquote>
+错了，“衣锦还乡”是装B的一段而已，“归乡”有回归之意，两者的内涵还是有很大不同的
+
