@@ -1040,3 +1040,27 @@ lz点醒了我
 
 不适合泥头车流<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liekong  
+##### 83#       发表于 2022-5-23 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55948178&amp;ptid=2070760" target="_blank">愚人节快乐 发表于 2022-5-22 22:16</a>
+
+港漫只看过老夫子</blockquote>
+本港台播的日本动画啦
+
+*****
+
+####  liekong  
+##### 84#       发表于 2022-5-23 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55955512&amp;ptid=2070760" target="_blank">シャル 发表于 2022-5-23 13:36</a>
+
+归乡只能是传统勇者召唤=转移系
+
+不适合泥头车流</blockquote>
+史莱姆那个不是最后都可以自由来回穿越了么，实际上只要想写，泥头车流也可以归乡结局的
+
