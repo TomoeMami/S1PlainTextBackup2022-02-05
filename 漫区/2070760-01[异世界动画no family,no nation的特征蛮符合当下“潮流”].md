@@ -1182,3 +1182,23 @@ lz点醒了我
 
 泥头车是单程车票<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liekong  
+##### 94#       发表于 2022-5-23 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55960918&amp;ptid=2070760" target="_blank">シャル 发表于 2022-5-23 20:31</a>
+
+本质有区别的
+
+泥头车是单程车票</blockquote>
+没有本质区别的，能不能回原来的世界看作者怎么写而已，
+
+死亡方式完全只是个表象，所谓泥头车就是最简单粗暴的那种才会被人吐槽。
+
+只要给的外挂够凶，什么自由穿越世界、时间倒转都做到，
+
+也就没什么车票了，这是私家车
+

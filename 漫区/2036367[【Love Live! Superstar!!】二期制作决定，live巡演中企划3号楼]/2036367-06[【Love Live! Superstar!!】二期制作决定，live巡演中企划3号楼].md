@@ -13536,3 +13536,15 @@ BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">真的假的
 
+
+
+*****
+
+####  a92063256  
+##### 8482#       发表于 2022-5-23 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55961629&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-23 21:31</a>
+
+合拍？是我想的那个一起拍吗</blockquote>
+应该只是那种分屏成左右两边，其中一边用王心凌录好的视频，另一面根据视频做动作或者说话的那种，刚才在B站刷到了一个那种视频
+
