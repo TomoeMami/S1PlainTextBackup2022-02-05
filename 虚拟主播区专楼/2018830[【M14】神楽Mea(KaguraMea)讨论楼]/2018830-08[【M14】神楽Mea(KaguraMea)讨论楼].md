@@ -6952,3 +6952,14 @@ https://www.lightnovel.us/c ...</blockquote>
 
 2022-5-23 13:15 上传
 
+
+
+*****
+
+####  十九号大侠  
+##### 11183#       发表于 2022-5-23 15:50
+
+给自己打工挺好的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
