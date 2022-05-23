@@ -1104,3 +1104,26 @@ lz点醒了我
 
 小書癡的下剋上，女主地雷很重視家人
 
+
+
+*****
+
+####  愚人节快乐  
+##### 88#         楼主| 发表于 2022-5-23 19:38
+
+<blockquote>liekong 发表于 2022-5-23 14:09
+没本质区别阿，史莱姆也还是死了转生阿，他最后也没走归乡结局就是了，
+
+我只是拿来举例他这个要走归乡结 ...</blockquote>
+我觉得这可以叫衣锦还乡流
+
+*****
+
+####  liekong  
+##### 89#       发表于 2022-5-23 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55960229&amp;ptid=2070760" target="_blank">愚人节快乐 发表于 2022-5-23 19:38</a>
+
+我觉得这可以叫衣锦还乡流</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">衣锦还乡也是归乡没错阿
+
