@@ -679,3 +679,23 @@ Furyu一般都是晚个半年上Steam吧</blockquote>
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  LuciferMustDie  
+##### 71#       发表于 2022-5-24 03:03
+
+这场景美工完全配不上封面/角色立绘啊
+
+要么你精细些，要么你光影色彩上下点功夫
+
+这也太挫了
+
+*****
+
+####  whzfjk  
+##### 72#       发表于 2022-5-24 03:06
+
+这时候就看得出bdsp的含金量了
+
