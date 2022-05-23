@@ -6963,3 +6963,14 @@ https://www.lightnovel.us/c ...</blockquote>
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  往世雷书  
+##### 11184#       发表于 2022-5-23 16:12
+
+三个新人账号一开始就是索尼创建的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
