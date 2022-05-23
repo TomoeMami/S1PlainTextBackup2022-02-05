@@ -7003,3 +7003,12 @@ https://www.lightnovel.us/c ...</blockquote>
 
 —— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  呓亘  
+##### 11188#       发表于 2022-5-24 01:05
+
+目前放出预告的有和犬山的联动还有和木口野男人的联动
+

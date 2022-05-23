@@ -653,3 +653,16 @@ Furyu一般都是晚个半年上Steam吧</blockquote>
 一直有个疑问 这种日本小厂做的游戏怎么感觉和独立游戏差不多</blockquote>
 答案很简单，因为你的感觉出了问题。
 
+
+
+*****
+
+####  pf67  
+##### 69#       发表于 2022-5-24 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55961190&amp;ptid=2070480" target="_blank">soranoguiji 发表于 2022-5-23 20:54</a>
+这画面感觉不如空轨</blockquote>
+你可能美化了空轨的记忆
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
