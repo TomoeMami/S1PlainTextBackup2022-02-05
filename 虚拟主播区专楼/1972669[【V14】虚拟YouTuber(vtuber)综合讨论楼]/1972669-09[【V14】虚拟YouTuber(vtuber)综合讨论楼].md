@@ -14670,3 +14670,12 @@ jp男A这周对男B说爱下周对男C说喜欢，你猜阴湿yhm和阴湿简中
 
 <img src="http://tvax3.sinaimg.cn/large/7c16af6bly1h2hodibancj20gd0vvn0a.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13382#       发表于 2022-5-23 18:09
+
+没想到2022还能看到黛妈妈(哥哥)和女孩子们一起玩的景象，这也是他杂谈说会有很多“有怀念感”的事之一吗？
+
