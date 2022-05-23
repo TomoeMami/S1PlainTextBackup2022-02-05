@@ -13367,3 +13367,16 @@ QQ图片20220522191117.jpg
 
 然后就是虚拟拼盘演唱会特意用了中文，是预着国内的人也可以参加吗
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8473#       发表于 2022-5-23 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55954967&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-23 12:51</a>
+应该是FC的写真准备开始罚抄，说起来这次写真和蓝光宣传似乎都很佛系
+
+然后就是虚拟拼盘演唱会特意用了 ...</blockquote>
+那个XR World听说好像要日本手机号才可以注册
+

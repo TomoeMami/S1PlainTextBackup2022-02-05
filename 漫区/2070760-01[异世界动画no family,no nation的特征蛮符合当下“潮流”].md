@@ -1024,3 +1024,19 @@ lz点醒了我
 
 至于个人技能，传统勇者剧的个人技能是底力反击（被打得快死了突然回忆起家乡惨死亲人然后瞬间满血满气），异世界系的个人技能则往往就是战术压制（大部分作品都要带着在家乡学到的知识，像灰与幻想的格林姆加尔那样连知识都没有的纯属卖惨）……
 
+
+
+*****
+
+####  シャル  
+##### 82#       发表于 2022-5-23 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55955462&amp;ptid=2070760" target="_blank">死线 发表于 2022-5-23 13:32</a>
+
+异世界系一样有归乡结局，甚至对于反复穿越系来说归乡结局更是主流……
+
+至于个人技能，传统勇者剧的个人 ...</blockquote>
+归乡只能是传统勇者召唤=转移系
+
+不适合泥头车流<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
