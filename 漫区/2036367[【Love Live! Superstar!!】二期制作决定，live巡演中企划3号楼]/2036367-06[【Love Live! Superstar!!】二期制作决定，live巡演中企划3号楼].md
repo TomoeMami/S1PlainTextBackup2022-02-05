@@ -13988,3 +13988,32 @@ pay子很漂亮，但造型不好，锅盖刘海太封印颜值了。</blockquot
 
 肉肉的多好
 
+
+
+*****
+
+####  靡宜  
+##### 8516#       发表于 2022-5-24 20:03
+
+ysys，鲤鱼姐也不是十八廿贰的时候了，虽然有粉丝滤镜，但是也没有觉得阿鱼是特别好看360度无死角类型。
+
+最近的不P图的照片直接看前几天棒球赛网友返图就好了，本粉丝直接存了一瓢。
+
+阿鱼这blt拍得还是挺好的。但是也碍不住踩一下YJ，看了下YJ的偷跑，虽然总体来讲还可以，但是有部分的图看起来太素颜了，特别看着特别喜欢的部分都让我感觉这是不是同一个摄影。
+
+另外，本粉丝上油管看YJ这写真的4K花絮，就很舒服<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8517#       发表于 2022-5-24 20:03
+
+FMT有配信，每场票3000日元<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长日留痕  
+##### 8518#       发表于 2022-5-24 20:09
+
+nako圆圆的脸很戳我。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
