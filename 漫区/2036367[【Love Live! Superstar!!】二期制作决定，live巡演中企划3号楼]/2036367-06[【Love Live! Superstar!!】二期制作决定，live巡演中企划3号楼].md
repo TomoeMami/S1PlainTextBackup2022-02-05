@@ -14119,3 +14119,41 @@ ID:9hHJdM0c(2/2)
 
 和气杏未主持那个节目鱼介绍的时候说为了展现「素のリーユウ」很多地方没修包括刘海乱了也要一直忍着
 
+
+
+*****
+
+####  csolfans  
+##### 8526#       发表于 2022-5-24 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55974139&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-5-24 20:47</a>
+
+所以东北乐天联动那天所有人的返图都是修过的吗……怎么感觉那些照片上的鱼脸和身材都是全方位无死角呢
+
+也 ...</blockquote>
+没修，拍完马上上传发的。（拍得比官方还好看
+
+*****
+
+####  musicat  
+##### 8527#       发表于 2022-5-24 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55971903&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-5-24 18:23</a>
+
+论漂亮青山肯定在整个系里都能排前（top3）。但像楼上说的身高硬上，另外熊也不大。如果有那么完美在入星团 ...</blockquote>
+一直都有“青山在整个系里都能排前3”的说法，忽然觉得如果我们把全系列颜值担当的拿出来排一下，到底会排成怎么样呢？
+
+u's：森，小鹿
+
+水：杏树，小宫，丝娃娃，逢田姐，爱奈（话说水团的各位，长开之后颜值是越来越高了）
+
+虹：兔，麻园，前田
+
+星：青山，Pay子
+
+我个人排的话，杏树和森无疑是前二，
+
+第三位还真不能说青山姐一定赢，小鹿都不一定打得过。
+
+当然颜值这个东西更看个人性癖，博一乐就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
