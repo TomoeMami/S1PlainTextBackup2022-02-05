@@ -7084,3 +7084,19 @@ ho的店长还有几次联动？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很难评价到底是好活还是烂活 不过是录播
 
+
+
+*****
+
+####  时间在我手中  
+##### 11195#       发表于 2022-5-24 23:02
+
+不评价，所以什么时候唱一下术曲
+
+*****
+
+####  古战场亡魂  
+##### 11196#       发表于 2022-5-24 23:06
+
+3D基本都是录播啊，真直播的出事故出的少了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
