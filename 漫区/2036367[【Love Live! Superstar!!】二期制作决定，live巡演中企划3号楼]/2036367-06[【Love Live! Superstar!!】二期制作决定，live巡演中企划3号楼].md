@@ -13632,3 +13632,32 @@ BLT明天就开卖了吧？鲤鱼这期花絮到现在都没发是怎么回事�
 
 2022-5-23 23:43 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 8490#       发表于 2022-5-24 10:44
+
+Liella三人前几天棒球的repo
+
+右上角合鲤：sayu最开始打招呼时麦没声音，于是鲤鱼秒递自己的到sayu前面 
+
+<img src="https://img.saraba1st.com/forum/202205/24/104418ju9iho39o0hey2ed.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A06AA8B1-B8D9-4081-A013-D9B02104F93E.jpeg</strong> (149.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-24 10:44 上传
+
+<img src="https://img.saraba1st.com/forum/202205/24/104418j2aphyak225vh6az.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0C3C9576-5E97-497F-A590-CF2CB2C3B7DE.jpeg</strong> (572.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-24 10:44 上传
+
