@@ -14017,3 +14017,45 @@ FMT有配信，每场票3000日元<img src="https://static.saraba1st.com/image/s
 
 nako圆圆的脸很戳我。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 8519#       发表于 2022-5-24 20:33
+
+个人觉得Liella的五人都属于动起来比照片好看那种，尤其pay和nagi，看nagi笑起来的照片都有一点僵硬的感觉，视频的话看她笑就非常自然非常好看。
+
+pay在跨年前和后的转变简直换了个人，脸的底子是好但被厚刘海封印了，而且她的照片很考验摄影师的技术，除了鲤鱼拍的，最好看应该就是BLT拍的那套长袍配短裤，还有就是愚人节她的那张地雷妆照片也很惊艳<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+鲤鱼的话，明明平常就很好看，就是自拍的滤镜有点重，无论是看live还是其它视频都觉得她平常的样子更好看（看得太多评论说鲤鱼憨憨的，个人觉得除了鱼叫的时候都没那么憨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 8520#       发表于 2022-5-24 20:34
+
+鲤鱼姐blt激光烤肉熟了，谢谢尻肉铺<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://b23.tv/VOzGp4Y](https://b23.tv/VOzGp4Y)
+
+
+
+*****
+
+####  D麦林  
+##### 8521#       发表于 2022-5-24 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55973268&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-24 20:03</a>
+FMT有配信，每场票3000日元</blockquote>
+这是单场两日通票还是一天算一场的
+
+*****
+
+####  lj205  
+##### 8522#       发表于 2022-5-24 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55973885&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-24 20:34</a>
+
+这是单场两日通票还是一天算一场的</blockquote>
+一天算一场
+
