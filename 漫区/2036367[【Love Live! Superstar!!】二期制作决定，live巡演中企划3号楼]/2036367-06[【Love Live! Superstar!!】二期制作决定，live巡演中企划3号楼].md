@@ -14157,3 +14157,27 @@ u's：森，小鹿
 
 当然颜值这个东西更看个人性癖，博一乐就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 8528#       发表于 2022-5-24 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55974139&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-5-24 20:47</a>
+
+所以东北乐天联动那天所有人的返图都是修过的吗……怎么感觉那些照片上的鱼脸和身材都是全方位无死角呢
+
+也 ...</blockquote>
+话说求原帖地址，围观一下
+
+*****
+
+####  靡宜  
+##### 8529#       发表于 2022-5-24 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55973852&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-24 20:33</a>
+
+个人觉得Liella的五人都属于动起来比照片好看那种，尤其pay和nagi，看nagi笑起来的照片都有一点僵硬的感觉 ...</blockquote>
+特别是换了13pm，滤镜进一步upup<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
