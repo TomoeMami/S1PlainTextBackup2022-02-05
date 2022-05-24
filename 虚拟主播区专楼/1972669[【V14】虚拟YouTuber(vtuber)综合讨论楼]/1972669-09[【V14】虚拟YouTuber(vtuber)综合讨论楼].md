@@ -15175,3 +15175,12 @@ oreapo跟老叶联动，同接全比他高……
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">中间说要给观众看里面的事，说是有点恶心然后切田角转身的gif真的很懂什么叫抖包袱，而且炒作社长一套一套的
 真是新人么
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13436#       发表于 2022-5-25 07:37
+
+听大家描述，有种月之美兔第二的感觉……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
