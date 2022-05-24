@@ -15165,3 +15165,13 @@ oreapo跟老叶联动，同接全比他高……
 
 <img src="https://img.saraba1st.com/forum/202205/24/215025zmmvhlhkxpcovhml.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 13435#       发表于 2022-5-24 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">中间说要给观众看里面的事，说是有点恶心然后切田角转身的gif真的很懂什么叫抖包袱，而且炒作社长一套一套的
+真是新人么
+
