@@ -14827,3 +14827,12 @@ enkr为洛夫猫找来了假面骑士出演的南通剧片头曲tie，恭喜恭�
 
 这有啥评的呀，裸春有钱牛逼就完了，裸春不是一直被喷圈钱花样太多，前几天出个数字手办还挨喷呢，没想到是攒钱玩大的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sgssk  
+##### 13397#       发表于 2022-5-24 17:12
+
+不确定楼友听的是狮子哪次，如果是前两天的安眠歌回的话她掐个温柔声线都很费劲了，第一首歌就没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

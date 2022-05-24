@@ -13822,3 +13822,54 @@ QQ图片20220524160854.jpg
 
 2022-5-24 16:58 上传
 
+
+
+*****
+
+####  yevvet  
+##### 8503#       发表于 2022-5-24 17:13
+
+就是说有没有可能不是拍的不好看，你鲤鱼姐长相身材本身就不说很好如果鲤鱼真的有她p的自拍照片那么可爱，写真怎么拍都好看。但修图师要修的自然，不能像自拍那样瘦脸啊。鲤鱼跟其他几个樱花妹比就是大骨架还肉肉的，身高虽然有了但身材没有。而且
+
+<img src="https://img.saraba1st.com/forum/202205/24/170624mvm5ajr0v4gmr0vl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A74F3373-8AA7-48BD-90D4-C831C5BAA0DF.jpeg</strong> (135.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202205/24/170624mrr2yrfpyx2ztri3.png" referrerpolicy="no-referrer">
+
+<strong>69D8E55F-49E8-44CE-B825-52084F30D55B.png</strong> (342.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 17:06 上传
+
+也不单纯是身高高才显得巨人。比如隔壁棒团张元英，明明是最高的却是最亮眼的。加上鲤鱼的头和脸都比樱花妹大一圈。中庭长，脸型不流畅，法令纹比较重，其实本身就不是能走可爱风的脸，照片也特别看角度。她每次自拍很明显的操作是缩中庭。跟其他人比，青山姐本身那条件怎么拍怎么好看。nako虽然也是大脸盘子，但是五官集中脸型流畅，头发放下来遮一遮就有氛围感了。而且身材比较丰满拍出来比较涩。其实鲤鱼还是留长发比较好。长法真的很容易塑造美女的氛围感。她2020年这个造型我就觉得不错
+
+<img src="https://img.saraba1st.com/forum/202205/24/170935omdvmxmzxxp3mwvz.png" referrerpolicy="no-referrer">
+
+<strong>9B2681D6-3590-482D-B11B-4BB61F4B1C8E.png</strong> (177.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 17:09 上传
+
+ 我觉得她几个写真拍的还算不错了，已经尽可能是好看的角度了。脸大真的没办法
+
+*****
+
+####  cybernetics31  
+##### 8504#       发表于 2022-5-24 17:16
+
+我提过好几次了，长发鱼是最好看的，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无非没办法留长发吧
+
+*****
+
+####  player3960  
+##### 8505#       发表于 2022-5-24 17:21
+
+但就blt，除了nagi，真没觉得pay和nako拍的比鲤鱼好看，特别是nako的，衣服选的就很迷
+
