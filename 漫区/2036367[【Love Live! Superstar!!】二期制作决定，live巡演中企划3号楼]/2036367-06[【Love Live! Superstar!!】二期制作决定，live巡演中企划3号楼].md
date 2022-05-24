@@ -13712,3 +13712,48 @@ Liella三人前几天棒球的repo
 总体感觉还没有BLT那几张来的色色………………</blockquote>
 原宿店背刺了，看推直接发售。但是不是yj的露得更多吗，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 8496#       发表于 2022-5-24 16:10
+
+补几张blt花絮
+
+QQ图片20220524160841.jpg
+(264.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/24/161013r0uppdapqx26q6p6.jpg" referrerpolicy="no-referrer">
+
+QQ图片20220524160847.jpg
+(286.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/24/161013oins69mivo9sonno.jpg" referrerpolicy="no-referrer">
+
+QQ图片20220524160852.jpg
+(209.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/24/161013qm07gl47o2gns0lr.jpg" referrerpolicy="no-referrer">
+
+QQ图片20220524160854.jpg
+(338.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202205/24/161014fjpvwpa1q9vjka2y.jpg" referrerpolicy="no-referrer">
+
