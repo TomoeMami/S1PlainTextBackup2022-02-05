@@ -14793,3 +14793,19 @@ enkr为洛夫猫找来了假面骑士出演的南通剧片头曲tie，恭喜恭�
 阿床属于一首歌要练的很熟很熟自己认为很完美的那种（虽然也有半首主要自己唱不下去了）所以歌回唱出来的，演唱出来的都很能感受到她的想法和特色还有技巧，所以歌单也重复的比较多。
 但是众所周知虹的资源.png阿床现在的原创曲也就两首而且唱的也不多，很难展现出她的特色。并且阿床的录音室版本和现场差别也不是很大。
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 13393#       发表于 2022-5-24 15:34
+
+就我平时歌回听到的来说感觉还是明显床&gt;星啊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 13394#       发表于 2022-5-24 15:39
+
+要认真当然得在个人live上啦，2楼这三位的live都有，可以拖下来听听<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
