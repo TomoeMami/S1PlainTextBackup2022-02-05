@@ -13781,3 +13781,44 @@ QQ图片20220524160854.jpg
 补几张blt花絮</blockquote>
 一直想说，这屋子也太脏太乱了吧！
 
+
+
+*****
+
+####  qty  
+##### 8499#       发表于 2022-5-24 16:52
+
+这拍照场景这么磕碜的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 8500#       发表于 2022-5-24 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55970708&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-24 16:37</a>
+
+有没有可能是你的第一印象作祟呢？其他人出来的照片都是一片好好好，鲤鱼的写真永远都是各种好憨好傻的评 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有这种可能，第一眼看上去有几张就憨。
+
+*****
+
+####  adw667  
+##### 8501#       发表于 2022-5-24 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">这么磕碜不是为了画风故意整的吗
+
+*****
+
+####  靡宜  
+##### 8502#       发表于 2022-5-24 16:58
+
+被隔壁泥潭点醒，原来是这个道理的BLT吗！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/24/165848ifjkgt5ttcjg07cb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220524165823.png</strong> (8.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 16:58 上传
+
