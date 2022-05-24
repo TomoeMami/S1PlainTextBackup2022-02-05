@@ -7100,3 +7100,34 @@ ho的店长还有几次联动？</blockquote>
 
 3D基本都是录播啊，真直播的出事故出的少了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 11197#       发表于 2022-5-24 23:25
+
+<img src="https://img.saraba1st.com/forum/202205/24/232454feafiw4wlcljl2fi.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220524232441.png</strong> (47.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 23:24 上传
+
+笑死 还真的在打游戏 还输了 我笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 11198#       发表于 2022-5-24 23:28
+
+艹忘记今晚直播了，人菜瘾大
+
+*****
+
+####  古战场亡魂  
+##### 11199#       发表于 2022-5-24 23:30
+
+用直播号打排位是吧，都吊到黄金2了。
+
