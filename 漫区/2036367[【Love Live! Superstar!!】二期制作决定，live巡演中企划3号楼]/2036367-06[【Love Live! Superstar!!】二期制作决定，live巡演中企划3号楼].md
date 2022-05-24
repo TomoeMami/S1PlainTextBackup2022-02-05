@@ -13688,3 +13688,27 @@ Liella三人前几天棒球的repo
 
 写真集偷跑了
 
+
+
+*****
+
+####  靡宜  
+##### 8494#       发表于 2022-5-24 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55967699&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-24 12:32</a>
+
+鲤鱼这BLT的写真，露的比佩佩都少</blockquote>
+有一说一，啊鱼的这套blt拍得虽然也挺好看，但是感觉没有pay，nako和青山姐的惊艳。她们的三套感觉主题都很好，拍得都很有style，感觉就很好，啊鱼这套个人感觉缺了点主题和风格感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 8495#       发表于 2022-5-24 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55969848&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-24 15:34</a>
+
+写真集偷跑了
+
+总体感觉还没有BLT那几张来的色色………………</blockquote>
+原宿店背刺了，看推直接发售。但是不是yj的露得更多吗，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
