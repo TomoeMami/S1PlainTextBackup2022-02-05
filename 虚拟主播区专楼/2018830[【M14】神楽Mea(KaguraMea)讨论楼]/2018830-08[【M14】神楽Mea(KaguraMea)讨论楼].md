@@ -7047,3 +7047,16 @@ ho的店长还有几次联动？
 ho的店长还有几次联动？</blockquote>
 貌似还有5次
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11192#       发表于 2022-5-24 20:54
+
+ 本帖最后由 古战场亡魂 于 2022-5-24 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">前一个小时不错，刚好也没多少大物在播，同接最高7500。如果mea在一小时的最后摇到骰子摇到5个2反杀可能就伴随着节目效果直播结束了，可惜没有。
+
+加了半小时，冷场和感觉放送事故就有点频繁了，连黑白棋这种mea和犬山一致认为不适合直播的冷场游戏都选出来了，刚好彩虹holo的万棒也都来了，同接稳定在5400。双方游戏方向都是偏科，夕刻所有的益智游戏都被吊打，mea棒球、桌上冰球没有一点还手能力。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
