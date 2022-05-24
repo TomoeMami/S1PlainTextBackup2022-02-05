@@ -7060,3 +7060,27 @@ ho的店长还有几次联动？</blockquote>
 
 加了半小时，冷场和感觉放送事故就有点频繁了，连黑白棋这种mea和犬山一致认为不适合直播的冷场游戏都选出来了，刚好彩虹holo的万棒也都来了，同接稳定在5400。双方游戏方向都是偏科，夕刻所有的益智游戏都被吊打，mea棒球、桌上冰球没有一点还手能力。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11193#       发表于 2022-5-24 22:55
+
+犬山3D生日祭嘉宾。
+
+<img src="https://img.saraba1st.com/forum/202205/24/225450k8be7aebh1safa2a.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220524225340618.jpg</strong> (60.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-24 22:54 上传
+
+*****
+
+####  ashero  
+##### 11194#       发表于 2022-5-24 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很难评价到底是好活还是烂活 不过是录播
+
