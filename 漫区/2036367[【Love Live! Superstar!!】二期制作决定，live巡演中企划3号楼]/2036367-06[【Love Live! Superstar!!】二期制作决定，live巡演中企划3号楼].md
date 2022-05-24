@@ -14245,3 +14245,15 @@ u's：森，小鹿
 
 鲤鱼把跟王心凌的合拍做好了，然后破站一堆转<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真不如自己发微博引流…………唉
 
+
+
+*****
+
+####  靡宜  
+##### 8534#       发表于 2022-5-25 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55976770&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-24 23:27</a>
+
+鲤鱼把跟王心凌的合拍做好了，然后破站一堆转真不如自己发微博引流…………唉 ...</blockquote>
+破站内卷严重<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前新四人的宣传，艾玛了我
+
