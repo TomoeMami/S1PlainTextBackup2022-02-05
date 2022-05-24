@@ -14852,3 +14852,33 @@ enkr为洛夫猫找来了假面骑士出演的南通剧片头曲tie，恭喜恭�
 
 惊了，hinano今天同接好吓人，发生什么事了。
 
+
+
+*****
+
+####  fastary  
+##### 13400#       发表于 2022-5-24 19:01
+
+ 本帖最后由 fastary 于 2022-5-24 19:04 编辑 
+
+不会真就田角陆八美肉吧，果然就不该相信enkr有什么好活
+
+？？？？不是变声器，不会是为了这个整活学了伪声吧？？还是真的找了个妹子？？？什么情况？？
+
+*****
+
+####  格林卡罗尔  
+##### 13401#       发表于 2022-5-24 19:05
+
+整活中的整活，大家都以为是整活，实际上是真的出道？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 13402#       发表于 2022-5-24 19:06
+
+ 本帖最后由 FCCHua 于 2022-5-24 19:10 编辑 
+
+我是没想到hnn的这个企划会有如此好的同接<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+草，真 秒下，期待第二弹
+
