@@ -15399,3 +15399,21 @@ te'resa和理芽要开live了
 
 （这个单人游戏回是不是管人最高啊，好像秒了兔皇和king？不考虑圣皇apex）
 
+
+
+*****
+
+####  Suzutsuki  
+##### 13458#       发表于 2022-5-25 23:31
+
+创造都道府县，等一个大小姐版的新地图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 13459#       发表于 2022-5-25 23:37
+
+别尬黑，虚拟日本是这样的，六本木県也是存在的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+Syl，查了下豆猫当初魔界村不到5w，当初还是超新星豆皇
+
