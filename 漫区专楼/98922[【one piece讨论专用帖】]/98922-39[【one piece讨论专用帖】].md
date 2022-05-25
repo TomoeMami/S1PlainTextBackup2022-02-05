@@ -13575,3 +13575,15 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 不会真让桃子当将军吧，这也太封建不堪了，没有反转吗？哪怕让锦皇当我都比较好接受
 
+
+
+*****
+
+####  武男  
+##### 58136#       发表于 2022-5-25 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55983696&amp;ptid=98922" target="_blank">先手必胜 发表于 2022-5-25 13:54</a>
+
+不会真让桃子当将军吧，这也太封建不堪了，没有反转吗？哪怕让锦皇当我都比较好接受 ...</blockquote>
+你还是接受现实比较好
+
