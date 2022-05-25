@@ -15340,3 +15340,14 @@ te'resa和理芽要开live了
 
 之后还打算出演神田live，不是我说，之后口了回来搞个世纪大和解也不是不可能啊（郡单方面
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13451#       发表于 2022-5-25 22:59
+
+不小心提前开播五分钟，秒下播
+
+​これがにじさんじですわ〜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
