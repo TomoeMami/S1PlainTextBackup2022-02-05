@@ -14324,3 +14324,23 @@ BLT的鲤鱼访谈
 
 总算自己亲自发微博和破站，流量就是要自己赚，以后多涨点心
 
+
+
+*****
+
+####  仟音一心  
+##### 8541#       发表于 2022-5-25 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55982709&amp;ptid=2036367" target="_blank">千千千千鸟 发表于 2022-5-25 12:30</a>
+https://www.bilibili.com/video/BV16t4y1s7Yv
+
+突然发了个翻唱</blockquote>
+感觉是追星
+
+*****
+
+####  lj205  
+##### 8542#       发表于 2022-5-25 12:50
+
+喜茶又回复了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
