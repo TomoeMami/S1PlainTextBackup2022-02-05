@@ -11932,3 +11932,15 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 通古斯这个时候复刻，忽然有点怀疑265里会不会有光之高扬斯卡娅出来救个场啥的...
 
+
+
+*****
+
+####  hourousha  
+##### 88028#       发表于 2022-5-25 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55918733&amp;ptid=1085254" target="_blank">大巨傻 发表于 2022-5-20 12:14</a>
+
+美服开硬币了…</blockquote>
+然后硬币数是错的，不少从者只算了bond level，没算summon。
+
