@@ -14598,3 +14598,30 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 8566#       发表于 2022-5-25 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55986426&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-25 17:18</a>
+这，有些人确实是懒或者不想用抖音的，你不搬大概他们也不会去下抖音的。个人感觉鱼的b站粉丝和微博，抖 ...</blockquote>
+这个确实，记得去年一次直播，鲤鱼说希望大家多关注她的超话。结果弹幕反应都特别大，好多说微博太乱了，自己从不用之类的。经典的平台鄙视链。
+
+*****
+
+####  aoaoaodedede  
+##### 8567#       发表于 2022-5-25 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55986462&amp;ptid=2036367" target="_blank">愛さ実 发表于 2022-5-25 17:21</a>
+那人被锤退坑了原本阿b搬运就是带原罪的，是不是吃了流量这个见仁见智，如果不搬到阿b可能 ...</blockquote>
+所以我觉得这东西挺矛盾的，不过话说回来鲤鱼广播收听的门槛相对比较低的了，audee应该可以直连收听。
+
+*****
+
+####  甘蓝巧克力  
+##### 8568#       发表于 2022-5-25 17:26
+
+毕竟抖音的受众和b站蓝鸟尤其是b站大不相同，和微博的重合度可能比较高，有差异是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
