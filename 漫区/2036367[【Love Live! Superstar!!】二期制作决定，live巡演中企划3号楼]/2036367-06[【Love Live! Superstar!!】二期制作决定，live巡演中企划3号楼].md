@@ -14636,3 +14636,16 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 这个确实，记得去年一次直播，鲤鱼说希望大家多关注她的超话。结果弹幕反应都特别大，好多说微博太乱了， ...</blockquote>
 鱼的b站评论区里能正经评论就那几个眼熟的id，大部分人都不知道鱼干了啥。就是看最近哪个梗火就发哪个，看到发那个燕子的，理发店的实属难蚌哈哈
 
+
+
+*****
+
+####  愛さ実  
+##### 8570#       发表于 2022-5-25 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55986510&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-25 17:25</a>
+所以我觉得这东西挺矛盾的，不过话说回来鲤鱼广播收听的门槛相对比较低的了，audee应该可以直连收听。 ...</blockquote>
+你要知道有些人连百度都不会用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
