@@ -829,3 +829,80 @@ PSN（100日元……）：[https://store.playstation.com/ja ... 00-000000000000
 
 ps这有料试玩是咋回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Meltina  
+##### 85#       发表于 2022-5-26 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55918137&amp;ptid=2070480" target="_blank">Chia 发表于 2022-5-20 11:25</a>
+
+90年代有什么协力动作游戏么……</blockquote>
+最有名就是1-3人的圣剑传说2
+
+*****
+
+####  LamdaHT  
+##### 86#       发表于 2022-5-26 02:56
+
+可惜没中文啊，等回家了下一个试试
+
+*****
+
+####  whzfjk  
+##### 87#       发表于 2022-5-26 05:28
+
+打了一下，整体还不错的感觉。之前有人说色彩偏暗，但实机观感确实比较舒服耐看。
+
+战斗手感不错，平A像传说一样可以配置三段招式，分别养成，动作和弹道区分度大。砍场景物和素材吸附的手感也挺很干脆，有伊苏的风骨。怪物大招有预告和倒计时，比较友善。
+
+武器应该每人 8 种，养成界面有类似怪猎的武器统计，比较宽，不是 8 种说不过去。但人与人之间会重叠。目前看到了剑弓枪斧。
+
+大半段跑图主要在雪山，场景破坏物比较多，有冰石头（不同武器对应），雪人（？），雪堆，草（草）。冰石头用凹槽暗示对应武器，比较和谐。场景四四方方的，没什么特别的设计，岔道藏宝箱的基本功还是有的。最后一段流程是爬塔，依然四四方方，多了微弱的滑行地板，尖刺障碍和打灯开门机关。有很古风的隔岸射灯开门设计。
+
+本来还想夸夸帧率的，两个人跑图的时候感觉能稳定 60 帧，也是能一口气打完的最大润滑剂。可惜弹完结束画面后第三人入队，场景就开始稳定抽帧了，打支线雪怪 boss 时能明显看到 boss 有抽帧处理（对打 boss 而言不失为一件好事）。整个游戏规格突出一个缩逼克制因而显得内在和谐（骂的就是你符文工房5），软内容之外的底裤就是这个掉帧问题了！
+
+BGM 没什么印象，BOSS 战更是想吵闹起来却留不下印象。
+
+剧情没介绍啥世界观，男主一老实村民没出过远门，故事和旅途大概都是因女主而起。女主明明穿着粉色露背大蝴蝶结，语气和性格倒相当大姐，战斗语音怕是有点辣耳朵。身边的萌物会变成武器。考虑动作模组的开销，估计可控就封面这 3 个人了。
+
+蹦完结束画面后给了个支线，有一点特化小过场。村子里也有绕路藏宝箱的心意。
+
+【吐槽】
+
+都有剑弓枪斧了，拿这货来 cue 铸剑物语不比 maglam loard 强<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+符文 4 -&gt; 5 正常进化就应该长这样，搞什么垃圾配色全 3D<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+
+真 2D 圣剑可能是真的，规格看起来还是比 2 remake 强<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+不过感觉规格和鬼哭邦处于类似档次，不知道为什么试玩鬼哭邦就没好心情，恐怕是没有 2D 立绘 + 一上来就一堆神经病剧情的缘故吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 88#       发表于 2022-5-26 05:51
+
+做问卷，看来确实心中有古早，很重视地图探索的样子，这个我好象确实没找到？
+
+<img src="https://img.saraba1st.com/forum/202205/26/055001kaq5crllabcaxazr.jpg" referrerpolicy="no-referrer">
+
+<strong>0656430ef98f4d1ac7c77906a77ad1f.jpg</strong> (134.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-26 05:50 上传
+
+试玩动机，倒数第二行，妇幼你想笑死我
+
+<img src="https://img.saraba1st.com/forum/202205/26/055031yccrre0cvllhtr5r.jpg" referrerpolicy="no-referrer">
+
+<strong>004fa386ce65a0e18b243b66ad6a155.jpg</strong> (156.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-26 05:50 上传
+
+这次预告真的草台，这问卷做完了跳转官网竟然不能打开。
+

@@ -15501,3 +15501,39 @@ ngo打个apex都晕，她来兼职想象不出来生化7怎么收尾
 
 —— 来自 OPPO PEHT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rzrbtk  
+##### 13469#       发表于 2022-5-26 01:51
+
+ 本帖最后由 rzrbtk 于 2022-5-26 03:17 编辑 
+
+然而串民看法是gbr味，加上（疑似）特技，大学中退，实质平民属性（食物臭味那一段我幻视口了），养的要来了？
+
+感觉被质疑（？）的点：
+
+1、和rion撞属性（乐）；
+
+2、和刀抢观众（乐）；
+
+3、未来撑不住撕皮（贷款）；
+
+4、属性强烈，联动不是炎上就是地藏（贷款）；
+
+5、老年梗，疑似三十代（确实）；补，这种标题设置，很难不觉得是运营在炒（[https://www.nicovideo.jp/watch/sm40516301](https://www.nicovideo.jp/watch/sm40516301)）
+
+没想到虹甲前居然能这么热闹<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">，新人加油保持活力，生存久一点啊
+
+虽然我还是觉得这人整完活就会走人了
+
+*****
+
+####  lhawp  
+##### 13470#       发表于 2022-5-26 04:59
+
+[https://www.youtube.com/watch?v=0mqvH_dv-Is](https://www.youtube.com/watch?v=0mqvH_dv-Is)
+
+看到一个猜测是这个来信的听众就是大型新人的正体？
+
