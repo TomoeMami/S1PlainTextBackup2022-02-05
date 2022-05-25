@@ -798,3 +798,25 @@ Furyu一般都是晚个半年上Steam吧</blockquote>
 
 本作预定于9月15日发售，登陆Switch/PS4/PS5平台，风间雷太负责人物设计，游戏类型为ARPG
 
+
+
+*****
+
+####  Piano-Forest  
+##### 82#         楼主| 发表于 2022-5-25 23:27
+
+Demo上了
+
+NS：[https://store-jp.nintendo.com/list/software/70010000054855.html](https://store-jp.nintendo.com/list/software/70010000054855.html)
+
+PSN（100日元……）：[https://store.playstation.com/ja ... 00-0000000000000000](https://store.playstation.com/ja-jp/product/JP0536-CUSA32045_00-0000000000000000)
+
+<img src="https://p.sda1.dev/6/098968da29c74f840f9c120cf300b0b9/AkmGIfCkjVcsSJUTVtDInVUY.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 83#       发表于 2022-5-25 23:30
+
+居然直接上试玩版啊，下来试试看
+

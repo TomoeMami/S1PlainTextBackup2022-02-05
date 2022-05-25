@@ -15376,3 +15376,26 @@ te'resa和理芽要开live了
 
 真的是下错了嘛，我感觉就是拿全生化日程表当噱头，实际上每次都玩不同的再钓一下观众，最后再真玩一波生化这样，炒作新人大小姐可不要让观众失望啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 13455#       发表于 2022-5-25 23:25
+
+气氛感觉更像19年的搞怪而不是兔头到seeds。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 13456#       发表于 2022-5-25 23:30
+
+学到了，生化可以是任何直播
+
+*****
+
+####  poipanchao  
+##### 13457#       发表于 2022-5-25 23:30
+
+（这个单人游戏回是不是管人最高啊，好像秒了兔皇和king？不考虑圣皇apex）
+
