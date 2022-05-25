@@ -15473,3 +15473,12 @@ Syl，查了下豆猫当初魔界村不到5w，当初还是超新星豆皇
 
 建议以后各大社团出新人都这么一个个单人出，起码噱头和话题度能拉满
 
+
+
+*****
+
+####  灵魂收割机  
+##### 13466#       发表于 2022-5-26 00:44
+
+这人真要高强度整一个星期的活吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
