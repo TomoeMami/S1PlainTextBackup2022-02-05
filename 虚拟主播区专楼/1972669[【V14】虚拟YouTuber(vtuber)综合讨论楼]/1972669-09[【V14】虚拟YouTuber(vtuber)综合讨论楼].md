@@ -15482,3 +15482,22 @@ Syl，查了下豆猫当初魔界村不到5w，当初还是超新星豆皇
 
 这人真要高强度整一个星期的活吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 13467#       发表于 2022-5-26 01:23
+
+说不定招进来给单人出道就是真能连整一个星期活，我先贷款吹一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sgssk  
+##### 13468#       发表于 2022-5-26 01:28
+
+ngo打个apex都晕，她来兼职想象不出来生化7怎么收尾
+不过嘛这位确实会来事……
+
+—— 来自 OPPO PEHT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

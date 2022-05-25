@@ -11944,3 +11944,15 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 美服开硬币了…</blockquote>
 然后硬币数是错的，不少从者只算了bond level，没算summon。
 
+
+
+*****
+
+####  大巨傻  
+##### 88029#       发表于 2022-5-26 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55991347&amp;ptid=1085254" target="_blank">hourousha 发表于 2022-5-25 23:01</a>
+
+然后硬币数是错的，不少从者只算了bond level，没算summon。</blockquote>
+26日更新将修复
+
