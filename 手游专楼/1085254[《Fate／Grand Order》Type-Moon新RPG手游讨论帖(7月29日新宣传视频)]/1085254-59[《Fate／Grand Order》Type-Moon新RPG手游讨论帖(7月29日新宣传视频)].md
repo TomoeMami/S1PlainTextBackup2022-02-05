@@ -11912,3 +11912,14 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 这次居然不给茶壶有效使用机会啊，通古斯都进兑换了为啥不复刻一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vacuumsword  
+##### 88026#       发表于 2022-5-25 18:30
+
+开始种苹果之后反而开始体力溢出了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
