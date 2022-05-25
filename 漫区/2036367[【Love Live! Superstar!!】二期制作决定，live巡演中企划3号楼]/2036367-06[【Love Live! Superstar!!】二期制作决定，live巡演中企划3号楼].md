@@ -14515,3 +14515,44 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 
 绘同学又发图营业了，大熊………………
 
+
+
+*****
+
+####  仟音一心  
+##### 8559#       发表于 2022-5-25 16:55
+
+<img src="https://img.saraba1st.com/forum/202205/25/165549g5536ywaywppaty3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A69BACF3-C3A5-4ACB-8F38-0BC85AF69729.jpeg</strong> (400.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-25 16:55 上传
+
+<img src="https://img.saraba1st.com/forum/202205/25/165549fstzz7077c7seta7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C17F8CB1-B76D-4800-8EB8-6E9AABDAD704.jpeg</strong> (405.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-25 16:55 上传
+
+*****
+
+####  ykyin09  
+##### 8560#       发表于 2022-5-25 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是职业偶像吗（来自: iPhone客户端
+
+*****
+
+####  aoaoaodedede  
+##### 8561#       发表于 2022-5-25 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55985808&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-25 16:34</a>
+她缺不缺的，你自己辛苦弄的别人搬破站全在那个搬的人投币然后就完了，你觉得大部分还会去抖音再点一次？ ...</blockquote>
+说到鲤鱼的广播，我想起之前有人在最新广播播出当天就直接在B站上传全音频的，评论区也吵过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
