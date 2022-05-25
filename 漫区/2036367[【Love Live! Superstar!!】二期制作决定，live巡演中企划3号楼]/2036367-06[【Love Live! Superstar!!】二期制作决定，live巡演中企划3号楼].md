@@ -14304,3 +14304,23 @@ BLT的鲤鱼访谈
 
 突然发了个翻唱
 
+
+
+*****
+
+####  愛さ実  
+##### 8539#       发表于 2022-5-25 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55976770&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-24 23:27</a>
+鲤鱼把跟王心凌的合拍做好了，然后破站一堆转真不如自己发微博引流…………唉 ...</blockquote>
+真自己发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 8540#       发表于 2022-5-25 12:34
+
+总算自己亲自发微博和破站，流量就是要自己赚，以后多涨点心
+
