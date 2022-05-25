@@ -15255,3 +15255,13 @@ oreapo跟老叶联动，同接全比他高……
 姓氏是百万分正好遇上官号和叶百万粉不知道是巧合还是特意被拖到这个时间点才出道or名字被改过
 毕竟本人都说了是出道被推迟了，与其说是强推新人不如说是给2434造话题
 
+
+
+*****
+
+####  kakera9576  
+##### 13445#       发表于 2022-5-25 18:10
+
+te'resa和理芽要开live了
+理芽和te’resa签名的数字信息卡片是混抽的<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">真会圈钱
+
