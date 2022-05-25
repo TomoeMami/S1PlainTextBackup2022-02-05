@@ -15367,3 +15367,12 @@ te'resa和理芽要开live了
 
 随机应变，不知道该说是准备得好呢还是不好呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 13454#       发表于 2022-5-25 23:11
+
+真的是下错了嘛，我感觉就是拿全生化日程表当噱头，实际上每次都玩不同的再钓一下观众，最后再真玩一波生化这样，炒作新人大小姐可不要让观众失望啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
