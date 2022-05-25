@@ -7214,3 +7214,15 @@ sie傻逼关我sme什么事（
 
 今晚自频道要播了
 
+
+
+*****
+
+####  Klience  
+##### 11208#       发表于 2022-5-25 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55979813&amp;ptid=2018830" target="_blank">yanghaozhend 发表于 2022-5-25 09:47</a>
+
+这么多年了还在玩波比啊</blockquote>
+不如说这么多年 只有波比玩的算是顺手的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
