@@ -13557,3 +13557,12 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 凯多泡个热水澡就要死要活的，进了岩浆里会怎么样
 
+
+
+*****
+
+####  我不太会吹  
+##### 58134#       发表于 2022-5-25 10:40
+
+下一集，大妈给岩浆赋予灵魂两个人一起冲上来围殴五皇，让路飞学会对抗熔岩果实的最终方法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
