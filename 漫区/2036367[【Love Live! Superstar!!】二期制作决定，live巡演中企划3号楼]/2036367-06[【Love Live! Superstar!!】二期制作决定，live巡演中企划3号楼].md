@@ -14257,3 +14257,17 @@ u's：森，小鹿
 鲤鱼把跟王心凌的合拍做好了，然后破站一堆转真不如自己发微博引流…………唉 ...</blockquote>
 破站内卷严重<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前新四人的宣传，艾玛了我
 
+
+
+*****
+
+####  名津流  
+##### 8535#       发表于 2022-5-25 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55970817&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-24 16:48</a>
+
+一直想说，这屋子也太脏太乱了吧！</blockquote>
+这是故意布置的风格吧，就是那种上世纪欧洲摇滚乐最流行的年代，文艺青年住的小单间的感觉，斑驳的砖墙、旧旧的沙发和地毯、小而简陋的床、破电视机、到处都是的书、特别是第三张里出镜的赫赫有名的Marshall大音响，我毫不怀疑这房间里有把破木吉他
+
+总之就是种欧美青年风颓废气质
+
