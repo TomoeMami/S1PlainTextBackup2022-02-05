@@ -15417,3 +15417,41 @@ te'resa和理芽要开live了
 
 Syl，查了下豆猫当初魔界村不到5w，当初还是超新星豆皇
 
+
+
+*****
+
+####  越动天下  
+##### 13460#       发表于 2022-5-25 23:40
+
+ 本帖最后由 越动天下 于 2022-5-25 23:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55991700&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-25 23:30</a>
+（这个单人游戏回是不是管人最高啊，好像秒了兔皇和king？不考虑圣皇apex） ...</blockquote>
+就前几天35玩那个弱智捏人摔跤游戏都有8.8万人看😨😨😨 虽然有新人buff 不过这个确实可以是说话题拉满了 说不定以后播的少有低于刀子水平 播的多兔头水平呢 虹人可以期待一下 当然我还是等着她自己说这个是什么活
+
+*****
+
+####  布莱士·西伯利  
+##### 13461#       发表于 2022-5-25 23:42
+
+感觉珊瑚45%，gbr24%，叶子10%混出来的一个人。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpbzpb123123  
+##### 13462#       发表于 2022-5-25 23:49
+
+上一个虹女大型新人是谁 感觉好久没见了
+
+*****
+
+####  poipanchao  
+##### 13463#       发表于 2022-5-25 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55991813&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-5-25 23:40</a>
+
+就前几天35玩那个弱智捏人摔跤游戏都有8.8万人看😨😨😨 虽然有新人buff 不过这个确实可以是说话题拉满了  ...</blockquote>
+35那种不太想算单人，不过这个8W也是吃新人buff的
+
+含金量还是king和兔皇的比较高
+
