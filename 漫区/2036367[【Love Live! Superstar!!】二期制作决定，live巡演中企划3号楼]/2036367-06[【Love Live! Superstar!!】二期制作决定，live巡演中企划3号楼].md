@@ -14371,3 +14371,25 @@ https://www.bilibili.com/video/BV16t4y1s7Yv
 感觉是追星</blockquote>
 就是追星，之前採訪提過很多次了
 
+
+
+*****
+
+####  愛さ実  
+##### 8546#       发表于 2022-5-25 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55983184&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-25 13:09</a>
+那种不是抖音限定视频嘛，如果都发到b站来的话。那不少人就没必要下抖音去评论了 ...</blockquote>
+这次可是最近热点，和之前小打小闹不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 8547#       发表于 2022-5-25 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55983184&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-25 13:09</a>
+那种不是抖音限定视频嘛，如果都发到b站来的话。那不少人就没必要下抖音去评论了 ...</blockquote>
+都是流量那不如自己赚，这样说还不明白吗？她自己不搬其他人就搬了
+
