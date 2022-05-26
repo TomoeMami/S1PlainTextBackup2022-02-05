@@ -860,3 +860,186 @@ luka我的luka<img src="https://static.saraba1st.com/image/smiley/face2017/209.g
 
 2022-5-27 01:47 上传
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 88#       发表于 2022-5-27 01:56
+
+经典手忙脚乱
+
+我还是收拾收拾退款吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/27/015552p1e6ewx1dgbbd17d.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220527015532.jpg</strong> (187.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 01:55 上传
+
+*****
+
+####  FUZE  
+##### 89#       发表于 2022-5-27 01:59
+
+<img src="https://img.saraba1st.com/forum/202205/27/015833hzupa6uchauk6oor.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220527015628.png</strong> (736.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 01:58 上传
+
+新出的
+
+<img src="https://img.saraba1st.com/forum/202205/27/015833tvnuxcqnv5kvxqxn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220527015632.png</strong> (704.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 01:58 上传
+
+街机版
+
+我的评价是 完全照搬，打折可入，情怀另说
+
+*****
+
+####  慕容断月  
+##### 90#       发表于 2022-5-27 02:00
+
+打折再说吧，电脑上有街机版，不急
+
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 91#       发表于 2022-5-27 02:04
+
+ 本帖最后由 哈迪斯兜帽 于 2022-5-27 02:08 编辑 
+
+动画风这个渲染好怪啊
+
+同一首歌，下面是PS4上截下来当头像的。
+
+<img src="https://img.saraba1st.com/forum/202205/27/020320k6czl556azcchlcv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220527020306.png</strong> (360.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 02:03 上传
+
+<img src="https://img.saraba1st.com/forum/202205/27/020359bljlfrzvmg37v7mv.jpg" referrerpolicy="no-referrer">
+
+<strong>-1c9142aa69dcb839.jpg</strong> (34.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 02:03 上传
+
+还是这个适合我，对味了。
+
+感觉动画滤镜太不经看了，而且有种过曝的感觉。
+
+<img src="https://img.saraba1st.com/forum/202205/27/020724cpjfk9xs449lbo8l.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220527020659.jpg</strong> (303.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 02:07 上传
+
+*****
+
+####  LrGsite  
+##### 92#       发表于 2022-5-27 02:11
+
+<img src="https://img.saraba1st.com/forum/202205/27/021105uffq93lcic88v5oz.jpg" referrerpolicy="no-referrer">
+
+<strong>Q3{DQ%)MPXMBYQHOV`)F~I7.jpg</strong> (480.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 02:11 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">老了老了
+
+*****
+
+####  土路生優里  
+##### 93#       发表于 2022-5-27 02:37
+
+刚发售就有dlc吗 真有你的sega
+
+—— 来自 OnePlus KB2005, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  土路生優里  
+##### 94#       发表于 2022-5-27 02:53
+
+没忍住还是支付了
+不过街机版可以自己添加歌曲吗，可以自己加歌的话想求一个街机版的下载链接<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+我记得有一个ppd是可以自己下载谱面和歌曲的
+
+—— 来自 OnePlus KB2005, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  土路生優里  
+##### 95#       发表于 2022-5-27 03:20
+
+ 本帖最后由 土路生優里 于 2022-5-27 04:17 编辑 
+
+另外上下左右居然只能分配两个键位吗。。。。 玩ft的时候都是把肩键替换为上下左右这些的
+
+现在ex和exex想要拿满长押的分经常只能一指禅，我不想玩歌姬计划再打出腱鞘炎了啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  LrGsite  
+##### 96#       发表于 2022-5-27 03:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种同时按4个键的能不能改成其他模式啊,妈的太难按了而且LR1LR2完全没用上
+
+*****
+
+####  r_ex  
+##### 97#       发表于 2022-5-27 03:27
+
+OX是PS5风格的，不过可以在Steam的键位设置里面交换了再到游戏里面再交换一次就好了，虽然菜单里面会显示有点问题
+
+*****
+
+####  LrGsite  
+##### 98#       发表于 2022-5-27 03:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">诶,一些曲子真的都好老了,想起来以前初中的时候拿着psp在被窝里玩的日子了,好怀念
+
+*****
+
+####  法拉  
+##### 99#       发表于 2022-5-27 04:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008476&amp;ptid=2070699" target="_blank">哈迪斯兜帽 发表于 2022-5-27 02:04</a>
+
+动画风这个渲染好怪啊
+
+同一首歌，下面是PS4上截下来当头像的。</blockquote>
+我倒是很喜欢f f2那样的画面，比39这种好太多
+
+*****
+
+####  jellyfis  
+##### 100#       发表于 2022-5-27 05:48
+
+可以像ps4那样单独换发型吗？
+
