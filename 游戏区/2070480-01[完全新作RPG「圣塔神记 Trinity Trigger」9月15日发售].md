@@ -949,3 +949,15 @@ BGM 没什么印象，BOSS 战更是想吵闹起来却留不下印象。
 
 是类灵光守护者吗？
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 92#       发表于 2022-5-26 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55960921&amp;ptid=2070480" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-5-23 20:31</a>
+
+有轮盘这种现代人性化设计，期待度大涨</blockquote>
+看见有耐力条还以为有要搞耐力管理，简直最潮最in，还好只是减攻击力<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
