@@ -906,3 +906,37 @@ BGM 没什么印象，BOSS 战更是想吵闹起来却留不下印象。
 
 这次预告真的草台，这问卷做完了跳转官网竟然不能打开。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 89#         楼主| 发表于 2022-5-26 10:56
+
+アクションRPG
+
+『聖塔神記 トリニティトリガー』
+
+2022年9月15日 発売決定！
+
+3人なら運命も変えられる。
+<img src="https://p.sda1.dev/6/202733a8bf6a2c58509cbd9f46061f23/20220526_104829.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/f83b2b60b52d47ac040cf7f6f9367d4a/img_kv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 90#         楼主| 发表于 2022-5-26 10:59
+
+シアン・エルレウス（CV：市川太一）
+<img src="https://p.sda1.dev/6/79adf3fbe78c2ec897ddf638a7d1b0cf/5167-1742-8f24279a13ca3f37840e165ef30b864c-471x1000.jpg" referrerpolicy="no-referrer">
+
+エリス・クオイズ（CV：中村カンナ）
+<img src="https://p.sda1.dev/6/942b21d88aa8c4e3ced17103bbf97bd0/5167-1742-20de24e3c8e7c8d00cce5f8d1ad16a31-432x1000.jpg" referrerpolicy="no-referrer">
+
+ザンティス・ゲルダイン（CV：岩崎諒太）
+<img src="https://p.sda1.dev/6/0589c456aaa6dadd654d80183ac9b592/5167-1742-b119806d340a27031647d1453216013a-471x1000.jpg" referrerpolicy="no-referrer">
+
+トリガー
+<img src="https://p.sda1.dev/6/089976ded1f59a4fc5ba2c30e381b0b8/5167-1742-3f341ec9b3ae4ee4e96f1a5c893a1d9f-1000x994.jpg" referrerpolicy="no-referrer">
+
