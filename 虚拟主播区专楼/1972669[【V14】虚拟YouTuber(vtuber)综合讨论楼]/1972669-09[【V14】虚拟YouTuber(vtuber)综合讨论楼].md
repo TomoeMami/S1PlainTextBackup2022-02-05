@@ -15767,3 +15767,14 @@ LOVE的新衣服确实大
 
 下次直接拆一个男的单独出道，buff拉满
 
+
+
+*****
+
+####  plok201  
+##### 13493#       发表于 2022-5-26 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是太无聊了，所以有个人出来整活大家都能high起来
+
+至于看点和才能，第一次播能那么稳的保持了一整场的高语调整活就足够了啊，现在前排V全是楞玩游戏，大家总需要一点调剂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
