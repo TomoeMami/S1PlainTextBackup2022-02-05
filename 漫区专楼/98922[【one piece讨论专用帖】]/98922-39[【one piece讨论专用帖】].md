@@ -13629,3 +13629,58 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 不是要九影归来旭日升吗
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 58141#       发表于 2022-5-26 00:06
+
+凯多：只要主角方全比我崩得厉害，我的风评就好转了，闷声大发财，Joy boy还是naive
+
+*****
+
+####  cdfjg  
+##### 58142#       发表于 2022-5-26 11:27
+
+尾田开始旁白骗人了
+
+*****
+
+####  高数  
+##### 58143#       发表于 2022-5-26 16:45
+
+凯多奴役和之国这事怎么洗？
+
+*****
+
+####  klzxs  
+##### 58144#       发表于 2022-5-26 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这空中对决胜利的旁白真的让我感觉凯多还要爬起来
+
+就像屋顶战斗宣布凯多胜利那次
+
+*****
+
+####  hkguty  
+##### 58145#       发表于 2022-5-26 18:11
+
+无视掉到下面的老爹，轻轻接住路飞的大和那温柔的眼神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉萨乌姆  
+##### 58146#       发表于 2022-5-26 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  evangelina  
+##### 58147#       发表于 2022-5-26 19:07
+
+[https://bbs.saraba1st.com/2b/thread-2062735-1-1.html](https://bbs.saraba1st.com/2b/thread-2062735-1-1.html)
+
+要不要换新楼算了，这抽得新回复大半天都看不到
+
