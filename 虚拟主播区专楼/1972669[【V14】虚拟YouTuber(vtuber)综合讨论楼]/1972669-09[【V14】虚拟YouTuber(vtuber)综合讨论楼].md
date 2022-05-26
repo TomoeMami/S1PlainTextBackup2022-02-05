@@ -15729,3 +15729,16 @@ syl，这新人我也不知道大家在看什么，总有一种谜之羊群效�
 LOVE的新衣服确实大
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1h2m2k50tudj20kp0ehdhv.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13489#       发表于 2022-5-26 20:40
+
+我还以为看管厕吹莎皇有种浓浓的冠军粉+虹味控的滤镜感是因为我酸人家热度高能力强，原来不止我一个没看出来特别有才能……
+
+我个人阴谋论是enkr找到个感觉不错的素人，看看排期感觉没什么好搭的人选于是决定趁此机会试试嗯炒一波看现在的enkr能给推到什么地步<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过其实比起见证奇观我还是比较想看新男人（虽然不会加推），可能是抽卡游戏玩多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
