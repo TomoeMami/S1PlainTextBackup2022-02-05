@@ -162,3 +162,43 @@ wocao <img src="https://p.sda1.dev/6/338dfcb8b217793976ea588cf803ea9e/CMP_202205
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就直播能力而言肯定不是素人。
 
+
+
+*****
+
+####  NBXX  
+##### 13518#       发表于 2022-5-26 23:51
+
+最大視聴者数
+
+94,823人
+
+初配信
+
+最大視聴者数
+
+91,214人
+
+不过首播的高点在结尾而且还有增长趋势。
+
+*****
+
+####  poipanchao  
+##### 13519#       发表于 2022-5-26 23:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">老东西真的该死了
+
+*****
+
+####  plok201  
+##### 13520#       发表于 2022-5-26 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56007214&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2022-5-26 23:42</a>
+
+虹女本来就是虹正统。女V强是niji遗风。</blockquote>
+那年同接，虹女对虹男，我看见美兔颓坐在洗衣机上泣不成声，这个画面我永生难忘
+
+那一刻我在想，如果我能成为一名虹V，我一定赢下所有，如今同接第一就在我眼前，我必须考虑这会不会是我此生仅有的机会
+
+我相信enkr能有过去的霸主地位，虹女功不可没，重铸彩虹的荣光，我辈义不容辞<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
