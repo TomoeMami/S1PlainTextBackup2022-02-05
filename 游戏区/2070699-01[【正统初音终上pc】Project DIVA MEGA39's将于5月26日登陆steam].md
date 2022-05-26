@@ -741,3 +741,15 @@ sega赶紧把atlus也拐上pc啊<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JudgmentEye  
+##### 78#       发表于 2022-5-27 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008083&amp;ptid=2070699" target="_blank">噗呸破屁诚 发表于 2022-5-27 01:06</a>
+
+240首，盲猜是把ft有39没有的补上了冷饭大集合</blockquote>
+就是ps4那些，ps4 250首
+
