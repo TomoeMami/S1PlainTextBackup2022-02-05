@@ -940,3 +940,12 @@ BGM 没什么印象，BOSS 战更是想吵闹起来却留不下印象。
 トリガー
 <img src="https://p.sda1.dev/6/089976ded1f59a4fc5ba2c30e381b0b8/5167-1742-3f341ec9b3ae4ee4e96f1a5c893a1d9f-1000x994.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  garitaay  
+##### 91#       发表于 2022-5-26 11:15
+
+是类灵光守护者吗？
+
