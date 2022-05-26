@@ -1091,3 +1091,23 @@ PSN也有试玩，不过要100円
 
 PS 版试玩下架了，这宣发实在是太不成熟了，没拿到版号就扔上 PSN，遭遇 CERO Z 不安 combo，留下了收费试玩的坏印象
 
+
+
+*****
+
+####  宛若青空  
+##### 103#       发表于 2022-5-26 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56006648&amp;ptid=2070480" target="_blank">whzfjk 发表于 2022-5-26 22:53</a>
+PS5 版试玩下架了，PS4 版免费了，这宣发实在是太不成熟了，没拿到版号就扔上 PSN，遭遇 CERO Z 不安 combo ...</blockquote>
+PS4日版一点入库就显示error<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 104#       发表于 2022-5-26 23:16
+
+鬼哭邦感觉辣鸡的一批啊，就那么几个技能，也没能刷的东西，剧情也一般，最主要的还是手感也不好，这个应该系统深度好得多吧
+
+试玩我还得找回下我NS日区号的密码。。。
+
