@@ -702,3 +702,24 @@ PS4可以扔了(虽然早已经半年没开机了
 
 这。。。连宣发都没有，就这么一声不吭拿到steam上开卖吗？那看来歌姬计划是彻底凉凉了。
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 74#       发表于 2022-5-27 00:54
+
+sega赶紧把atlus也拐上pc啊<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星海坊主  
+##### 75#         楼主| 发表于 2022-5-27 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56007953&amp;ptid=2070699" target="_blank">nozomitech 发表于 2022-5-27 00:47</a>
+
+这。。。连宣发都没有，就这么一声不吭拿到steam上开卖吗？那看来歌姬计划是彻底凉凉了。 ...</blockquote>
+嗯，当年主机版ft本来就有点歌姬系列大结局的味道
+
+但这系列最终作tmd是街机移植而不是主机传统操作，就很烦<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
