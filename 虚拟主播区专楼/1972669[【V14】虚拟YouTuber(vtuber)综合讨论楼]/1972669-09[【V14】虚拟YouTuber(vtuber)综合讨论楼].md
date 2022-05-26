@@ -15751,3 +15751,19 @@ LOVE的新衣服确实大
 
 会炒作不就是能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 13491#       发表于 2022-5-26 20:52
+
+当初eden组出道帕特姐吃了虹人饥渴buff早间杂谈都有1w+观众呢，起手一波流作不得准的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qwera3469  
+##### 13492#       发表于 2022-5-26 20:59
+
+下次直接拆一个男的单独出道，buff拉满
+
