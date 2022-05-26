@@ -1012,3 +1012,39 @@ BGM 没什么印象，BOSS 战更是想吵闹起来却留不下印象。
 <img src="https://p.sda1.dev/6/5316d9d119753212169d8fbad5a08c8d/ノワル.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/23e30928f35b72a11d0c3e5b24496fe9/ヴァイオレット.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  治丧委  
+##### 96#       发表于 2022-5-26 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55993325&amp;ptid=2070480" target="_blank">whzfjk 发表于 2022-5-26 05:28</a>
+
+打了一下，整体还不错的感觉。之前有人说色彩偏暗，但实机观感确实比较舒服耐看。
+
+战斗手感不错，平A像传 ...</blockquote>
+问下试玩的平台
+
+*****
+
+####  Piano-Forest  
+##### 97#         楼主| 发表于 2022-5-26 13:17
+
+部分店铺特典
+<img src="https://p.sda1.dev/6/2c50a153c98326a46b8fececeebaad74/img_shopsp_amazon.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/c98bd9ce8badce4d9698f7ac3e1072f4/img_shopsp_geo.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/13039b42651256da9ee4c8f862dc2636/img_shopsp_biccamera.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/67dfae3238134f42caf511f5f42dd60a/img_shopsp_yodobashi.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/62aa20e73741d3109bcfd74fcee0940d/img_shopsp_wondergoo.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 98#       发表于 2022-5-26 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55998101&amp;ptid=2070480" target="_blank">治丧委 发表于 2022-5-26 13:15</a>
+
+问下试玩的平台</blockquote>
+switch
+
