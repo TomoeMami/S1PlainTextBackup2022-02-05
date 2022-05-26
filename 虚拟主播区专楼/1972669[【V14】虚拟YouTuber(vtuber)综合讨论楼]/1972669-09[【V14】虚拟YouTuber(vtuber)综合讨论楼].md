@@ -15647,3 +15647,19 @@ vta 剩下成员怎么凑着出道其实略好奇 剩下的女性成员会插着
 
 哈弟cr杯还能算12PT
 
+
+
+*****
+
+####  rzrbtk  
+##### 13482#       发表于 2022-5-26 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56001519&amp;ptid=1972669" target="_blank">空集 发表于 2022-5-26 17:17</a>
+
+好羡慕。。。。 不过还挺好奇军刀衣服还能整出什么新巅峰，短发都市丽人那套我觉得已经非常巅峰 ...</blockquote>
+倒是没什么好羡慕的，四件在做的（估计都是自费），一件做好的要等上雀圣发，预计明年能上吧<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">，估摸着有一套兔女郎。
+
+省一楼，百万姐的世界观应该是不会在玩生化的时候展开了，能展开想想的就是唯一点赞的无关键字推“大＠nani：とんでもねー女が現れましたわね”和漫画ゲーミングお嬢様，是熟人还是灵感来源；
+
+说实话并不觉得百万姐在配信才能上有特别优于ngo的地方，但是真的炒太厉害了有种集团作案感
+
