@@ -723,3 +723,21 @@ sega赶紧把atlus也拐上pc啊<img src="https://static.saraba1st.com/image/smi
 
 但这系列最终作tmd是街机移植而不是主机传统操作，就很烦<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  噗呸破屁诚  
+##### 76#       发表于 2022-5-27 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冷饭大集合
+
+*****
+
+####  游蜓  
+##### 77#       发表于 2022-5-27 01:10
+
+有ft渲染，确实是良心了一次吧
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

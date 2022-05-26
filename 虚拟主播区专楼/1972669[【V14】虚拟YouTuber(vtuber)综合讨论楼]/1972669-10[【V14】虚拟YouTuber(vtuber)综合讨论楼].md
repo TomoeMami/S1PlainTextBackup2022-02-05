@@ -324,3 +324,21 @@ wocao <img src="https://p.sda1.dev/6/338dfcb8b217793976ea588cf803ea9e/CMP_202205
 
 不管怎样未来一周应该能食杀很多人包括我推了<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13532#       发表于 2022-5-27 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这种伤嗓子的录视频还好，长时间直播肯定撑不下去。
+
+一个月后在回头看看比较好。
+
+*****
+
+####  IDIDIDID  
+##### 13533#       发表于 2022-5-27 01:08
+
+一个月之后搞不好都金盾了，到时候糊了也无所谓的，不要杞人忧天。
+
