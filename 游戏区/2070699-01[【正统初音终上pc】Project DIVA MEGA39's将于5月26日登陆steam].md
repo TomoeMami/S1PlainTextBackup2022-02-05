@@ -753,3 +753,21 @@ sega赶紧把atlus也拐上pc啊<img src="https://static.saraba1st.com/image/smi
 240首，盲猜是把ft有39没有的补上了冷饭大集合</blockquote>
 就是ps4那些，ps4 250首
 
+
+
+*****
+
+####  Leona_Akari  
+##### 79#       发表于 2022-5-27 01:27
+
+是NS版为底子的还是FTDX为底子的？
+
+*****
+
+####  FUZE  
+##### 80#       发表于 2022-5-27 01:30
+
+兄弟们 别买 只有242首
+
+这还是加了曲包 
+
