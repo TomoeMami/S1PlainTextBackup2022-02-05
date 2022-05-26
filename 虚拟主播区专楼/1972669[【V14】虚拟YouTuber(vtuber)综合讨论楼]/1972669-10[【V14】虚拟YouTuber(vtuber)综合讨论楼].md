@@ -234,3 +234,58 @@ wocao <img src="https://p.sda1.dev/6/338dfcb8b217793976ea588cf803ea9e/CMP_202205
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经想快进到第二周了
 
+
+
+*****
+
+####  poipanchao  
+##### 13525#       发表于 2022-5-27 00:11
+
+<img src="https://img.saraba1st.com/forum/202205/27/001136rdqc9cgedqz95t5b.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220527000941.png</strong> (89.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 00:11 上传
+
+呵呵，老东西的嫉妒
+
+*****
+
+####  布莱士·西伯利  
+##### 13526#       发表于 2022-5-27 00:15
+
+ 本帖最后由 布莱士·西伯利 于 2022-5-27 00:17 编辑 
+
+-      
+
+   
+
+    
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别说死那么难听嘛。
+
+实话说的话，我觉得这次同接高不止是新人热度和炒作，是大家真的憋慌了。很久没有看到19年以前那种直播了。哪怕钱捞的快，该觉得无聊看虹的还是觉得无聊。说虹没以前好看的都看到过无数次了。岛国也是大陆也是。一开始喜欢一样东西的初衷大家都会牢牢记住，改变什么的会很快发现。此后只能靠着努力自己继续看和追，但撑着看耗体力，会累，最后就不再看了。
+
+剩下看看以后叶美怎么整活好了，也可能因为旧了大家热情消了同接也会下来，也可能还有更大的活能再冲一冲。
+
+但如果活多的话，初配信应该看得出来，所以暂且怀疑...
+
+*****
+
+####  格林卡罗尔  
+##### 13527#       发表于 2022-5-27 00:15
+
+生化7原来是流程每隔一个小时都能找到存档点的游戏吗
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  越动天下  
+##### 13528#       发表于 2022-5-27 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55991813&amp;ptid=1972669" target="_blank">越动天下 发表于 2022-5-25 23:40</a>
+就前几天35玩那个弱智捏人摔跤游戏都有8.8万人看😨😨😨 虽然有新人buff 不过这个确实可以是说话题拉满了  ...</blockquote>
+老样子 感觉预测的差不多 你刀子能拿下顶流的数据也是靠深夜 看你虹女了 虽然我的想法还是变成兔头吧 以史为鉴大家看看会变成谁吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/728f72258be29624b0ff1c71bc7169e8/CMP_20220527001807859.jpg" referrerpolicy="no-referrer"> 看你虹什么时候特出来吧
+

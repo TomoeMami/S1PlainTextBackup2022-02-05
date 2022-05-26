@@ -632,3 +632,19 @@ Steam商店页面：https: ...</blockquote>
 
 真就不提前宣传直接到点发售了
 
+
+
+*****
+
+####  何でやねん  
+##### 66#       发表于 2022-5-27 00:15
+
+暂时也不想玩要不等打折算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 67#       发表于 2022-5-27 00:17
+
+忍不住买了 没NS版的 想看看跟FTDX有啥区别
+

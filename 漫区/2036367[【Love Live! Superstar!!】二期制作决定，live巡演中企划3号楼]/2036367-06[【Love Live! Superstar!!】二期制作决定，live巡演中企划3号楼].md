@@ -14880,3 +14880,25 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 
 鲤鱼下次直播是5.30晚7点啊，pay下回创造俱乐部也是这个时间<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 8589#       发表于 2022-5-27 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56006832&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-5-26 23:07</a>
+
+前几天在淘宝买了本blt，店家说他们不受邮政停发的影响，发售后三四周就能到，不知道他们走的是什么线路 ...</blockquote>
+据说是邮政便宜一点，但是有别的公司，贵点。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 8590#       发表于 2022-5-27 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56007530&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-27 00:06</a>
+
+鲤鱼下次直播是5.30晚7点啊，pay下回创造俱乐部也是这个时间</blockquote>
+鲤鱼姐主要唠嗑和带货，双开问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
