@@ -15742,3 +15742,12 @@ LOVE的新衣服确实大
 
 不过其实比起见证奇观我还是比较想看新男人（虽然不会加推），可能是抽卡游戏玩多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 13490#       发表于 2022-5-26 20:49
+
+会炒作不就是能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
