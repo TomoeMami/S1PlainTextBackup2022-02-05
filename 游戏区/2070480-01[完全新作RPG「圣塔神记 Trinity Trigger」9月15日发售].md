@@ -972,3 +972,43 @@ BGM 没什么印象，BOSS 战更是想吵闹起来却留不下印象。
 是类灵光守护者吗？</blockquote>
 据玩过试玩版的朋友说，像龙约
 
+
+
+*****
+
+####  Piano-Forest  
+##### 94#         楼主| 发表于 2022-5-26 13:08
+
+シアン・エルレウス（CV：市川太一）
+<img src="https://p.sda1.dev/6/1dd5cf61c44c986c20d24325532e1634/img_chara_stand_01.png" referrerpolicy="no-referrer">
+
+エリス・クオイズ（CV：中村カンナ）
+<img src="https://p.sda1.dev/6/bc321ed212d4580aa90b15584e96e47b/img_chara_stand_02.png" referrerpolicy="no-referrer">
+
+ザンティス・ゲルダイン（CV：岩崎諒太）
+<img src="https://p.sda1.dev/6/b060fa56250fcbe6f84acf9430399fb1/img_chara_stand_03.png" referrerpolicy="no-referrer">
+
+トリガー
+<img src="https://p.sda1.dev/6/089976ded1f59a4fc5ba2c30e381b0b8/5167-1742-3f341ec9b3ae4ee4e96f1a5c893a1d9f-1000x994.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/12520d4950691944ae8a3606ac1c012d/img_trigger_design_flam.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/e27187dd7ca5784b6ff4cd46e5848c27/img_trigger_design_wiz.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/51cf06b8e65be4e0767526d881f0d562/img_trigger_design_rai.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 95#         楼主| 发表于 2022-5-26 13:09
+
+<img src="https://p.sda1.dev/6/cfb56e85aac3083876d4dc2c025a7180/フィルン.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/7bb2bbc95d8a258e9ec49de014c9b216/ライム・ヴェール.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/3798740f500485aab1c5ca0985b67a73/コル・デ・グリーズ.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/ee114147a205dcb2bcbe74aa70caacbe/コル・デ・ローザ.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/c55bf0368494c407a67545e30329b0b8/イオニア・シモンズ.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/c794a35e2a0534418c2d6312b992ee3e/グレイブ・シルヴェスタン.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/89ab04424ea4036a6198cc88cc43cf1b/クラテール.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/a613fe4e058ce80c50eecfe146523b1d/バルト王.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/59139d7c3cc6e876720d187a91457fd0/アーテル.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/5aed40266fac5c3ab1b930af52c2999c/ネロ.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/5316d9d119753212169d8fbad5a08c8d/ノワル.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/23e30928f35b72a11d0c3e5b24496fe9/ヴァイオレット.png" referrerpolicy="no-referrer">
+
