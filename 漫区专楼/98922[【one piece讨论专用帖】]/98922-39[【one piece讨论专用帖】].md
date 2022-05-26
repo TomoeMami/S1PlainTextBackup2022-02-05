@@ -13684,3 +13684,12 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 要不要换新楼算了，这抽得新回复大半天都看不到
 
+
+
+*****
+
+####  宅之猴晒阴  
+##### 58148#       发表于 2022-5-26 20:17
+
+凯多不会就怎么挂了吧，凯多你不要说你当初自杀的时候没想过进岩浆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
