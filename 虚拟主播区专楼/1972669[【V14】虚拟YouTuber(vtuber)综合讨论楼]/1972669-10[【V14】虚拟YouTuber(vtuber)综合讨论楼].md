@@ -289,3 +289,12 @@ wocao <img src="https://p.sda1.dev/6/338dfcb8b217793976ea588cf803ea9e/CMP_202205
 就前几天35玩那个弱智捏人摔跤游戏都有8.8万人看😨😨😨 虽然有新人buff 不过这个确实可以是说话题拉满了  ...</blockquote>
 老样子 感觉预测的差不多 你刀子能拿下顶流的数据也是靠深夜 看你虹女了 虽然我的想法还是变成兔头吧 以史为鉴大家看看会变成谁吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/6/728f72258be29624b0ff1c71bc7169e8/CMP_20220527001807859.jpg" referrerpolicy="no-referrer"> 看你虹什么时候特出来吧
 
+
+
+*****
+
+####  OldGlory  
+##### 13529#       发表于 2022-5-27 00:35
+
+讲道理大家都是蝗虫蝗一波，真有人在乎几个月后烂不烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后变成gbr就不错了
+

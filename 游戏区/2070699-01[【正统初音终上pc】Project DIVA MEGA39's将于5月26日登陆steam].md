@@ -673,3 +673,12 @@ Steam商店页面：https: ...</blockquote>
 
 ps5可以爬了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，pc以后一统日系江山
 
+
+
+*****
+
+####  gohouruni  
+##### 71#       发表于 2022-5-27 00:35
+
+有没有买了DLC的富哥们说一下曲库包含哪一些
+
