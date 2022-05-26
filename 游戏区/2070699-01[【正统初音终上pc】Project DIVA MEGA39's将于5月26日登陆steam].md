@@ -771,3 +771,60 @@ sega赶紧把atlus也拐上pc啊<img src="https://static.saraba1st.com/image/smi
 
 这还是加了曲包 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 81#       发表于 2022-5-27 01:33
+
+ 本帖最后由 JudgmentEye 于 2022-5-27 01:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008247&amp;ptid=2070699" target="_blank">Leona_Akari 发表于 2022-5-27 01:27</a>
+
+是NS版为底子的还是FTDX为底子的？</blockquote>
+FTDX，加点ns的卡通渲染和新衣服文件
+
+*****
+
+####  哈迪斯兜帽  
+##### 82#       发表于 2022-5-27 01:38
+
+买DLC送成就
+
+<img src="https://img.saraba1st.com/forum/202205/27/013805mofldl555lew6of5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220527013727.jpg</strong> (27.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 01:38 上传
+
+*****
+
+####  JudgmentEye  
+##### 83#       发表于 2022-5-27 01:39
+
+音乐就是ogg，街机独占的镜音八八花合战和saturation那两首用当初ps4/ns版的mod就能加进去
+
+*****
+
+####  哈迪斯兜帽  
+##### 84#       发表于 2022-5-27 01:41
+
+还是没有红一叶
+
+为啥没有红一叶啊
+
+luka我的luka<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Leona_Akari  
+##### 85#       发表于 2022-5-27 01:41
+
+这游戏我乱七八糟的买了5份都不止
+
+从一开始的本体+2DLC，到FTDX，到限定，到39s
+
+这次不太想买了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
