@@ -828,3 +828,35 @@ luka我的luka<img src="https://static.saraba1st.com/image/smiley/face2017/209.g
 
 这次不太想买了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LrGsite  
+##### 86#       发表于 2022-5-27 01:41
+
+<img src="https://img.saraba1st.com/forum/202205/27/014116u8wpfinnww2wvnpd.png" referrerpolicy="no-referrer">
+
+<strong>DMNU6{6MQEA6$ZPJ[U5UK.png</strong> (374.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 01:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上了steam,插着XO手柄,ui适配了xbox键位,什么终极NTRPLAY,我还是换成ds4了
+
+*****
+
+####  Mikumiku831  
+##### 87#       发表于 2022-5-27 01:47
+
+还是索尼键位舒服
+
+<img src="https://img.saraba1st.com/forum/202205/27/014736wogklvplpyo038gg.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220527014650.png</strong> (790.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 01:47 上传
+
