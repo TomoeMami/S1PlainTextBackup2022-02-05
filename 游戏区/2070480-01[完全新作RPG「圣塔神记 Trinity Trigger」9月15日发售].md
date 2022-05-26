@@ -1057,3 +1057,28 @@ switch
 
 失落的龙约还是要华丽许多<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redsouris  
+##### 100#       发表于 2022-5-26 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55998101&amp;ptid=2070480" target="_blank">治丧委 发表于 2022-5-26 13:15</a>
+问下试玩的平台</blockquote>
+PSN也有试玩，不过要100円<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  治丧委  
+##### 101#       发表于 2022-5-26 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56002003&amp;ptid=2070480" target="_blank">redsouris 发表于 2022-5-26 17:52</a>
+
+PSN也有试玩，不过要100円
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+嗯，而且 switch 看了一下只有日服才有。用 trigger 作为关键字在港服没找到。算了。
+
