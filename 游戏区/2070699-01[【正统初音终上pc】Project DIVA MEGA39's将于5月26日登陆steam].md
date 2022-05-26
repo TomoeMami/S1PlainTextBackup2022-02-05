@@ -648,3 +648,28 @@ Steam商店页面：https: ...</blockquote>
 
 忍不住买了 没NS版的 想看看跟FTDX有啥区别
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 68#       发表于 2022-5-27 00:27
+
+正统初音上pc了，正统太鼓也上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后日厂还会死心塌地地跟着索尼混吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 69#       发表于 2022-5-27 00:27
+
+我超，这曲库太良心了
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 70#       发表于 2022-5-27 00:30
+
+ps5可以爬了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，pc以后一统日系江山
+
