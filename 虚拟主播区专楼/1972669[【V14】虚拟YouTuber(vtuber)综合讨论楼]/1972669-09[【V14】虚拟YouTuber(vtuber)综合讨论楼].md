@@ -15778,3 +15778,35 @@ LOVE的新衣服确实大
 
 至于看点和才能，第一次播能那么稳的保持了一整场的高语调整活就足够了啊，现在前排V全是楞玩游戏，大家总需要一点调剂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 13494#       发表于 2022-5-26 21:31
+
+跌丝袜30w了，没见过、真没见过.......
+
+现在两个待机室人数都破千，都成大型聊天室了.......
+
+*****
+
+####  hulaoda007  
+##### 13495#       发表于 2022-5-26 21:36
+
+说明你虹烂了有一段时间了。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 13496#       发表于 2022-5-26 21:36
+
+没见过...平时不看hololive吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 13497#       发表于 2022-5-26 21:37
+
+love酱这个粉 嫩嫩的姨感，难道是姨都喜欢粉色吗
+
