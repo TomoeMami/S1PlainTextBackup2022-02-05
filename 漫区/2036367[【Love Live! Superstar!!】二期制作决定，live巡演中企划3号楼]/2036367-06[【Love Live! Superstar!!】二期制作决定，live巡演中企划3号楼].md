@@ -14805,3 +14805,15 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 恋的周边价格比四个新人都低我是没想到的</blockquote>
 也可能新人数量少...暂时性高价
 
+
+
+*****
+
+####  仟音一心  
+##### 8581#       发表于 2022-5-26 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56002377&amp;ptid=2036367" target="_blank">we89623 发表于 2022-5-26 18:22</a>
+恋的周边价格比四个新人都低我是没想到的</blockquote>
+新人往往先定高价看看，有滞销了再降价。
+所以最惨的还是恋。
+
