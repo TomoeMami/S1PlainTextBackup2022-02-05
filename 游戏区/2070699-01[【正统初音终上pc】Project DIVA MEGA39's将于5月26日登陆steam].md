@@ -571,3 +571,64 @@ mega39s里世嘉自己做的那些pv一个赛一个的烂，非一图流歌曲�
 其实明眼人都能看出这游戏就是蹭V家热度和资源来推那五个真人团
 但又奈何不了手游持续不断的活动就是容易产生热度和收益。歌姬计划应该是真无了。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 62#       发表于 2022-5-27 00:05
+
+由虚拟歌手“初音未来”主演，“玩起来像唱歌一般”的节奏游戏首次登陆Steam平台♪
+
+Steam商店页面：[https://store.steampowered.com/app/1761390/](https://store.steampowered.com/app/1761390/)
+
+本作拥有超大曲库，游戏本篇的收录曲目超过170首，若购入追加包曲目量将突破240首！本作还收录了超过400件角色服装，更追加了PC版独有的视觉风格选择功能，能够在“动画画风”和“现实画风”两种风格中进行选择！
+
+与你一起，唱响未来――
+
+《初音未来 Project DIVA MEGA39’s+》，好评发售中♪
+
+商品名称：初音未来 Project DIVA MEGA39’s+
+
+游戏平台：PC（Steam）
+
+游戏人数：1人
+
+售价：普通版：239 RMB  VIP Edition：369 RMB
+
+※仅发售数字版
+
+发售日期：发售中
+
+支持语言：简体中文・繁体中文字幕／日语语音
+
+游戏类型：节奏游戏
+
+发行・销售 ：世嘉股份有限公司
+
+*****
+
+####  萱时令  
+##### 63#       发表于 2022-5-27 00:07
+
+支持两种视觉风格，省事了
+
+*****
+
+####  星海坊主  
+##### 64#         楼主| 发表于 2022-5-27 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56007514&amp;ptid=2070699" target="_blank">Piano-Forest 发表于 2022-5-27 00:05</a>
+
+由虚拟歌手“初音未来”主演，“玩起来像唱歌一般”的节奏游戏首次登陆Steam平台♪
+
+Steam商店页面：https: ...</blockquote>
+感谢情报！<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 65#       发表于 2022-5-27 00:10
+
+真就不提前宣传直接到点发售了
+
