@@ -11956,3 +11956,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 然后硬币数是错的，不少从者只算了bond level，没算summon。</blockquote>
 26日更新将修复
 
+
+
+*****
+
+####  khxooo  
+##### 88030#       发表于 2022-5-26 19:56
+
+将对面全杀了就不用防守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

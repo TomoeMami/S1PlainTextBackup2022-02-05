@@ -15707,3 +15707,15 @@ syl，这新人我也不知道大家在看什么，总有一种谜之羊群效�
 
 终于下播了，cheeky掉了900多分，18岁的小年轻无法拒绝JPapex话事人邀请，含泪都要打完这次联动。只能说同接比平时高五六K，值得吧
 
+
+
+*****
+
+####  poipanchao  
+##### 13487#       发表于 2022-5-26 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56002770&amp;ptid=1972669" target="_blank">Kokichi 发表于 2022-5-26 18:53</a>
+
+不至于，至少12pt这档还有cr月子垫底（</blockquote>
+天月好歹拿了一届冠军的，（看了下阵容还有不破这个“高分低能”），含金量！
+
