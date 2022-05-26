@@ -15842,3 +15842,14 @@ love酱这个粉 嫩嫩的姨感，难道是姨都喜欢粉色吗
 
 虽然说感觉不到很懂直播，但是聊到在乡下住过很长一段，尿除味，讨厌自己头发到剪超短发，高飞车但实质病病的好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13500#       发表于 2022-5-26 22:03
+
+说实话我现在就是玩手游的心态，虽然真爱永远只有一个但不定期出新角色就会觉得腻，不管新出的是幻神还是下水道<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+吹数字在隔壁vox的时候就见过了，不过那时候大部分人说是国籍+简中妹BUFF，现在吹莎皇能力强就感觉怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
