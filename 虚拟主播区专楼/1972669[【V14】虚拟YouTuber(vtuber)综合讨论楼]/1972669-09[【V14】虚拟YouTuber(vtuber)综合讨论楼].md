@@ -15575,3 +15575,43 @@ ngo打个apex都晕，她来兼职想象不出来生化7怎么收尾
 
 乐了，郡郡有五套新衣服在路上，看来新衣回真的很赚
 
+
+
+*****
+
+####  空集  
+##### 13475#       发表于 2022-5-26 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56000097&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-26 15:39</a>
+
+乐了，郡郡有五套新衣服在路上，看来新衣回真的很赚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 好羡慕。。。。 不过还挺好奇军刀衣服还能整出什么新巅峰，短发都市丽人那套我觉得已经非常巅峰了。
+
+*****
+
+####  alcoholic1000  
+##### 13476#       发表于 2022-5-26 17:17
+
+<img src="https://img.saraba1st.com/forum/202205/26/171449diylzayzylfzzc2k.png" referrerpolicy="no-referrer">
+
+<strong>ＡＮＹＣＯＬＯＲ株式会社商標.png</strong> (106.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-26 17:14 上传
+
+4ch发现的，楼里好像还没人搬运：
+
+enkr于今年4月1日申请了商标名“VOLTACTION”，恰好在“Ranunculus”后一周，商标区分能看到应该是相似用途，不出意外应该是VTA aka nijiJP的下一波出道成员
+
+en各期名字和21年出道的都没申请
+
+*****
+
+####  天天座理世  
+##### 13477#       发表于 2022-5-26 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这哈弟太搞笑了，白天和alelu uruca排位在钻3钻2反复横跳，下午找上cheeky大腿排。
+
+开播一个半小时，cheeky丢了600分
+
