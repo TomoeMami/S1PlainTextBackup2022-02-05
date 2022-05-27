@@ -15011,3 +15011,50 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 
 这期初辣鸡聊的还挺开心，然后自己还吐槽两个中国人用日语聊天，废话中文本来想福利放送（？）结果对面说南京话的研究学习发音跟普通话一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 8601#       发表于 2022-5-27 19:54
+
+<img src="https://img.saraba1st.com/forum/202205/27/195430i62i596dklfv6iu8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0156.JPG</strong> (755.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 19:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8602#       发表于 2022-5-27 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迪O尼还行，我还以为会唱高达的歌
+
+*****
+
+####  仟音一心  
+##### 8603#       发表于 2022-5-27 20:01
+
+Liellaアコースティックライブ Day1 セトリ
+M1 スタドリ
+M2 未来予測ハレルヤ
+M3 123
+M4 Tiny stars
+M5 バイバイしちゃえば
+M6 常夏
+M7 星に願いを(カバー)
+M8 瞬き
+M9 Wish Song
+M10 ノンフィクション
+M11 Dream RAINBOW
+M12 私のSymfony
+M13 スタプロ
+M14 未来は風のように
+
+不配信的原因找到了，是迪士尼！
+
