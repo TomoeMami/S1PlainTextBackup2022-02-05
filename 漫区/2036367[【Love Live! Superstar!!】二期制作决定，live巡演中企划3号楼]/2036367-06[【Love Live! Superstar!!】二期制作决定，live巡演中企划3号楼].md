@@ -15112,3 +15112,14 @@ M14 未来は風のように
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说是不插电散场时staff还在喊明天的票还有………………企划真的…………这么搞粉丝就真没钱了
 
+
+
+*****
+
+####  Enakina  
+##### 8610#       发表于 2022-5-27 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56020531&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-5-27 22:15</a>
+说是不插电散场时staff还在喊明天的票还有………………企划真的…………这么搞粉丝就真没钱了 ...</blockquote>
+太正常了，不过心里的阴暗的一面甚至还想着以后9人后，要是卖的更拉就有乐子了
+
