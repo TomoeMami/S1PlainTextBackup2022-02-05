@@ -957,3 +957,12 @@ https://greasyfork.org/ja/scripts/411442-flow-youtube-chat
 
 既然胆子这么大，希望和葛叶/vox联动，想看阴湿日本/中国htj原地爆炸。
 
+
+
+*****
+
+####  Ketestrait  
+##### 13592#       发表于 2022-5-27 17:30
+
+月之谈新人：我已经派出3人监视同为わたくし担当的社长，观察他如何出牌<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
