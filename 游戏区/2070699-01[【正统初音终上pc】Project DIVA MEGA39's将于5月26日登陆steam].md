@@ -1075,3 +1075,34 @@ OX是PS5风格的，不过可以在Steam的键位设置里面交换了再到游�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 看到群友消息才知道上steam了，世嘉都不管了吗，哦也对毕竟人家最新最IN的亲儿子是pjsk
 
+
+
+*****
+
+####  法拉  
+##### 104#       发表于 2022-5-27 08:42
+
+pjd毕竟基本已经是一只脚入土的玩意了
+
+*****
+
+####  JudgmentEye  
+##### 105#       发表于 2022-5-27 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008664&amp;ptid=2070699" target="_blank">土路生優里 发表于 2022-5-27 02:53</a>
+
+没忍住还是支付了
+
+不过街机版可以自己添加歌曲吗，可以自己加歌的话想求一个街机版的下载链接</blockquote>
+任何版本都能
+
+*****
+
+####  Sunyata  
+##### 106#       发表于 2022-5-27 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008327&amp;ptid=2070699" target="_blank">LrGsite 发表于 2022-5-27 01:41</a>
+
+上了steam,插着XO手柄,ui适配了xbox键位,什么终极NTRPLAY,我还是换成ds4了 ...</blockquote>
+换了ds4+1，键位真是有路径依赖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

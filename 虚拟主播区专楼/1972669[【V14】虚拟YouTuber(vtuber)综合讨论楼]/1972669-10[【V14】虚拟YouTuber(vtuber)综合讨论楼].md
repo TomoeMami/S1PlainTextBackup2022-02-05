@@ -413,3 +413,28 @@ V圈终归还是螺旋上升的<img src="https://static.saraba1st.com/image/smil
 
 不是我真急了，这不就是和小粉差不多的直播风格么，为什么看的人这么多啊我真搞不懂了，要真说我觉得海妹也是这一类型的啊，为啥就没人看啊，管人为什么会火这个问题真是宇宙级难题
 
+
+
+*****
+
+####  AKili  
+##### 13541#       发表于 2022-5-27 08:41
+
+这不说明无论什么还是营销厉害更nb吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 13542#       发表于 2022-5-27 08:44
+
+营销yyds 这下虹也成商品了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 13543#       发表于 2022-5-27 08:48
+
+微博女性用户居多，而男v就虹有点起色了，可不就虹浓度百分百
+
+而且管厕九成九投稿都是男v相关，整天骂男宝妈，这帮人又有几个看虹女呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
