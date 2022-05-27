@@ -13785,3 +13785,15 @@ CP9每个人都能把六式玩出花玩出专属自己的变种<img src="https:/
 
 凯多和大妈死的概率极小，估计被大妈海贼团救了。新将军就是桃之助吧，放个烟雾估计是他之前强行预支生命，身体长大了，可能还跟他爸长得一样，到时场面就是，烟雾散去，众人惊呼“御田大人！”
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58159#       发表于 2022-5-27 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56017824&amp;ptid=98922" target="_blank">kilkilo 发表于 2022-5-27 18:55</a>
+
+凯多和大妈死的概率极小，估计被大妈海贼团救了。新将军就是桃之助吧，放个烟雾估计是他之前强行预支生命， ...</blockquote>
+有画面了，已经在反胃了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
