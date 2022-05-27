@@ -15193,3 +15193,12 @@ M14 未来は風のように
 
 跨年LIVE BD 9月发，3团分不同店
 
+
+
+*****
+
+####  starring  
+##### 8619#       发表于 2022-5-27 23:58
+
+跨年live BD也算是17600円，幸好9月才发售有两个月时间给钱包回血<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

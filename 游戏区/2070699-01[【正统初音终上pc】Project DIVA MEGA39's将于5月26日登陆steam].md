@@ -1391,3 +1391,12 @@ CAPCOM炒冷饭好歹还有点改动，这世嘉是完全没有开发人员管Pr
 单纯就是照搬过来吧，多了点主机的功能像播放列表啥的，还有就是两种渲染风格ns的和ft的。 ...</blockquote>
 感谢 省钱了
 
+
+
+*****
+
+####  adw667  
+##### 136#       发表于 2022-5-27 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明可以在换装页面同时按下左右扳机快速切换到推荐换装但是就是没有操作提示，是NS屏幕不够长放不下那么多操作提示吗
+
