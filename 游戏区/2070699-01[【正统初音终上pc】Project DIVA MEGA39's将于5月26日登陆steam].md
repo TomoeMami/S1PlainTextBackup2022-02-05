@@ -1237,3 +1237,15 @@ PC版判定是不是松一些。深海少女PS4上一直只能85左右的。</bl
 
 ns版也要上新dlc了
 
+
+
+*****
+
+####  女神アイギス  
+##### 120#       发表于 2022-5-27 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56010619&amp;ptid=2070699" target="_blank">adw667 发表于 2022-5-27 10:09</a>
+
+深海少女的难度和评级感觉不符，后半段有的地方很难按</blockquote>
+深海城市才是经典的评级诈欺，7星某些地方堪比8星半，8星当9星用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
