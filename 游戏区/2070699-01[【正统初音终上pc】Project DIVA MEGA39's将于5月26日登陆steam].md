@@ -1054,3 +1054,24 @@ OX是PS5风格的，不过可以在Steam的键位设置里面交换了再到游�
 
 —— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 102#       发表于 2022-5-27 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008875&amp;ptid=2070699" target="_blank">旧梦囚心 发表于 2022-5-27 06:35</a>
+
+想要追加乐曲包是直接买豪华版吗，还是说要另外单独买。
+
+—— 来自 samsung SM-G9700, Android 11上的 S1N ...</blockquote>
+直接豪华版
+
+*****
+
+####  soranoguiji  
+##### 103#       发表于 2022-5-27 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 看到群友消息才知道上steam了，世嘉都不管了吗，哦也对毕竟人家最新最IN的亲儿子是pjsk
+

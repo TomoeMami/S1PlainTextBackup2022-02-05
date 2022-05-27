@@ -404,3 +404,12 @@ V圈终归还是螺旋上升的<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">管厕不停转生之后就没看了，去看了眼怎么感觉虹浓度接近百分之百。
 
+
+
+*****
+
+####  Suny08  
+##### 13540#       发表于 2022-5-27 08:14
+
+不是我真急了，这不就是和小粉差不多的直播风格么，为什么看的人这么多啊我真搞不懂了，要真说我觉得海妹也是这一类型的啊，为啥就没人看啊，管人为什么会火这个问题真是宇宙级难题
+
