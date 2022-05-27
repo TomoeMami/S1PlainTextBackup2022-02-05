@@ -1085,3 +1085,26 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tohellwithit  
+##### 13604#       发表于 2022-5-27 23:35
+
+究竟为什么能那么高的，活跃的日本虹粉加起来都不一定有那么多吧，更何况现在是凌晨了
+
+*****
+
+####  盐盐盐盐盐  
+##### 13605#       发表于 2022-5-27 23:38
+
+连续两天上油管急上升，人家靠的根本就不是那一小撮管人痴箱推，明显是外部看热闹的多，gaming大小姐这个梗可挺出圈的
+
+*****
+
+####  rzrbtk  
+##### 13606#       发表于 2022-5-27 23:39
+
+莎天酱的游戏力逐渐把虹的未来创死了呀<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">，我瑞平一年后不如ngo！
+
