@@ -15067,3 +15067,21 @@ M14 未来は風のように
 
 既然有迪迪尼的歌，以后无论在电视上放送或者出BD都肯定要切掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8605#       发表于 2022-5-27 20:54
+
+不知道为啥……我的内心波澜不惊……甚至几乎没关心…………大概是觉得看不到所以关系不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 8606#       发表于 2022-5-27 21:02
+
+所以说干嘛不唱高达的曲子算了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
