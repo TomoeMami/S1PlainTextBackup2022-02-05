@@ -1072,3 +1072,16 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 待机画面田角不见了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 13603#       发表于 2022-5-27 23:15
+
+<img src="https://p.sda1.dev/6/f690f18d04dd45115af9ed27ad5634cd/CMP_20220527231456087.jpg" referrerpolicy="no-referrer">
+
+今天不玩生化7，8.9w人一起看无证驾驶泥头车
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
