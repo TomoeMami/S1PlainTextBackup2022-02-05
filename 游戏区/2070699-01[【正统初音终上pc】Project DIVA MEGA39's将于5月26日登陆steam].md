@@ -1115,3 +1115,21 @@ pjd毕竟基本已经是一只脚入土的玩意了
 
 肩键不能绑定单个的上下左右吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦窗  
+##### 108#       发表于 2022-5-27 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56008749&amp;ptid=2070699" target="_blank">法拉 发表于 2022-5-27 04:02</a>
+我倒是很喜欢f f2那样的画面，比39这种好太多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">f2除了歌少就是系列最好。
+
+*****
+
+####  Aric_Bear  
+##### 109#       发表于 2022-5-27 09:56
+
+PC版判定是不是松一些。深海少女PS4上一直只能85左右的。<img src="https://s1.328888.xyz/2022/05/27/tUnWA.jpg" referrerpolicy="no-referrer">
+
