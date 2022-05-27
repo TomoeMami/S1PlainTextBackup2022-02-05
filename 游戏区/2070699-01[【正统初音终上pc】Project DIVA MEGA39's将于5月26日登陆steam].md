@@ -1249,3 +1249,14 @@ ns版也要上新dlc了
 深海少女的难度和评级感觉不符，后半段有的地方很难按</blockquote>
 深海城市才是经典的评级诈欺，7星某些地方堪比8星半，8星当9星用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lazward  
+##### 121#       发表于 2022-5-27 13:28
+
+早先的渲染风格也不错 F2的真的很好看 就NS这版显得特别怪
+
+但是既然都出冷饭合集了sega就不能顺便把X的歌也收进去吗
+
