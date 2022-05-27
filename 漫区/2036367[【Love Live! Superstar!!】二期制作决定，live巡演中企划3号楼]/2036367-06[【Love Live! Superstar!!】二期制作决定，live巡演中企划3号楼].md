@@ -15094,3 +15094,12 @@ M14 未来は風のように
 
 唱那首是因为一期生的代表就是星星吧？寓意蛮明显的
 
+
+
+*****
+
+####  qty  
+##### 8608#       发表于 2022-5-27 21:16
+
+原来是达斯米奇的歌，怪不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
