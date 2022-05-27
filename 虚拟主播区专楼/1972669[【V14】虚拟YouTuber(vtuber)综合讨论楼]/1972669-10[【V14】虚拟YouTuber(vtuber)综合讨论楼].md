@@ -1153,3 +1153,21 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 —— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蓬莱广告  
+##### 13612#       发表于 2022-5-28 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没想到今天还能有这势头
+
+*****
+
+####  克罗夏  
+##### 13613#       发表于 2022-5-28 00:18
+
+41万在你虹已经能排进前30%了
+
+按这个增速早晚磨到50万已经是你虹前20名了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
