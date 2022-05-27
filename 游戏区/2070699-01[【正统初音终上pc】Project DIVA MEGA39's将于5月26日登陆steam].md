@@ -1106,3 +1106,12 @@ pjd毕竟基本已经是一只脚入土的玩意了
 上了steam,插着XO手柄,ui适配了xbox键位,什么终极NTRPLAY,我还是换成ds4了 ...</blockquote>
 换了ds4+1，键位真是有路径依赖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一生未立寸功  
+##### 107#       发表于 2022-5-27 09:36
+
+肩键不能绑定单个的上下左右吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
