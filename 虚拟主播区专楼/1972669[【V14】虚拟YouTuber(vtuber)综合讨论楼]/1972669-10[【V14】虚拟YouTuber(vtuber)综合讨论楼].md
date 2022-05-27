@@ -459,3 +459,13 @@ V圈终归还是螺旋上升的<img src="https://static.saraba1st.com/image/smil
 反过来就是没有流量整再多活也没用。
 大部分观众该看不到还是看不到。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 13546#       发表于 2022-5-27 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">如果说salome是ngo那种半脊髓式吐槽直播那还属于劣化了
+ngo好歹有个环境保全家的内里逻辑，她看了会是播到哪里说到哪里
+
