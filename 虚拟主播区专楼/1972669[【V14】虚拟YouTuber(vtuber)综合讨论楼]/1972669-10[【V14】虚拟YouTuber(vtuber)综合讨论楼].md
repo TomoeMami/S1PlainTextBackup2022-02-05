@@ -745,3 +745,12 @@ EN开始更是加上了概念图+出道曲+官号专题节目的组合礼包，�
 
 百万叶美正好双有。说难听点，虹人确实在期待怪人搞怪事。
 
+
+
+*****
+
+####  nowaki  
+##### 13572#       发表于 2022-5-27 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到杏奴冠军粉的丑态了，心情舒畅
+
