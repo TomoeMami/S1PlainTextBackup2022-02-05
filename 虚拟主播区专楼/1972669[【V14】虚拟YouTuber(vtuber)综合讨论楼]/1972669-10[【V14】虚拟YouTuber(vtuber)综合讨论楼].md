@@ -438,3 +438,24 @@ V圈终归还是螺旋上升的<img src="https://static.saraba1st.com/image/smil
 
 而且管厕九成九投稿都是男v相关，整天骂男宝妈，这帮人又有几个看虹女呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 13544#       发表于 2022-5-27 08:56
+
+-          
+       
+       
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有啥奇怪的，开播胃镜+珊瑚式直播，至少能撑一个星期。
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">但再骂我也要说硬实力就是一切。炒作走不远，看今后活好不好。叶美那天出道也是富坚开推的时候，老贼几天内推特金盾两次了，这就是几十年积攒的硬实力，power就是power。（恶意斗虫
+
+*****
+
+####  渡鸦骑士  
+##### 13545#       发表于 2022-5-27 09:00
+
+反过来就是没有流量整再多活也没用。
+大部分观众该看不到还是看不到。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
