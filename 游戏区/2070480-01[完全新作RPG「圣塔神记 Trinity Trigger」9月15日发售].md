@@ -1136,3 +1136,12 @@ PV：[https://youtu.be/2goBIIkkbVg](https://youtu.be/2goBIIkkbVg)
 
 switch上难得的第三方60帧游戏，虽然画面实在拉胯
 
+
+
+*****
+
+####  布里兰特  
+##### 108#       发表于 2022-5-27 18:53
+
+我觉得还行？也许会试试
+

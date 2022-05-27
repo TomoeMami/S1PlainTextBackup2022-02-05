@@ -7323,3 +7323,16 @@ sie傻逼关我sme什么事（
 
 现充不挺好的，小麻整天闷家里人是要憋坏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  工作日碳酸茶  
+##### 11219#       发表于 2022-5-27 18:59
+
+DECO竟然发爱言叶四了，今年是哪一年.jpg
+
+感觉爱言叶已经是很久以前的东西了，刚刚还顺便重温了下入驻b站二周年的爱言叶组曲pv。组曲会出新曲，人也会有新的故事，不知不觉推了她三年多了，还是会期待以后的故事。
+
+顺便期待一下她会不会唱爱言叶四<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
