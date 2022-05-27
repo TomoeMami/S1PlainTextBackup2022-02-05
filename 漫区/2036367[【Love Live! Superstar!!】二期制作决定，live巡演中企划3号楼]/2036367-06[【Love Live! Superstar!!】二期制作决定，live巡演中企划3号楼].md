@@ -15002,3 +15002,12 @@ nagi的话会特别兴奋，因为自己非常喜欢这种命悬一线的状况�
 文在哪个地方，我也想瞅一瞅</blockquote>
 [https://bbs.nga.cn/read.php?tid=32010710](https://bbs.nga.cn/read.php?tid=32010710)
 
+
+
+*****
+
+####  lj205  
+##### 8600#       发表于 2022-5-27 19:12
+
+这期初辣鸡聊的还挺开心，然后自己还吐槽两个中国人用日语聊天，废话中文本来想福利放送（？）结果对面说南京话的研究学习发音跟普通话一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
