@@ -1298,3 +1298,23 @@ ns版也要上新dlc了
 
 补充二次元美少女能量买了一个，打了一下午基本弄懂自己在干嘛了，除了那种四个角出来的同时按键，这种键获取信息有什么技巧吗，先往四个角扫一眼再去按键总是失败
 
+
+
+*****
+
+####  Leona_Akari  
+##### 126#       发表于 2022-5-27 19:25
+
+[https://www.bilibili.com/video/BV1u54y1f7mY?share_source=copy_web](https://www.bilibili.com/video/BV1u54y1f7mY?share_source=copy_web)
+
+DECO*27 - 愛言葉Ⅳ feat. 初音未来
+
+所以今天是什么日子
+
+*****
+
+####  RioShiina  
+##### 127#       发表于 2022-5-27 19:25
+
+就得背版吧， 靠熟练度硬吃.
+

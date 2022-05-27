@@ -7336,3 +7336,12 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 顺便期待一下她会不会唱爱言叶四<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  やト  
+##### 11220#       发表于 2022-5-27 19:30
+
+ 今年是2022年，日本成年都只需要18岁了。
+
