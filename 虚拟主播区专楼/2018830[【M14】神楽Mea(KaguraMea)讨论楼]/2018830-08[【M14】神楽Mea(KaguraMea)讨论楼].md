@@ -7345,3 +7345,14 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
  今年是2022年，日本成年都只需要18岁了。
 
+
+
+*****
+
+####  SNOWIMEA  
+##### 11221#       发表于 2022-5-27 20:22
+
+爱言叶4，下一首管人金曲？<img src="https://p.sda1.dev/6/637a8ae24df00c57c6f61ec6e043f84a/CMP_20220527202212663.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
