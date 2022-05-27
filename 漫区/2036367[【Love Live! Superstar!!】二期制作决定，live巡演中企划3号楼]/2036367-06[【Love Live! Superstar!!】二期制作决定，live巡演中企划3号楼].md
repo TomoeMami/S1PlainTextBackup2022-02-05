@@ -15103,3 +15103,12 @@ M14 未来は風のように
 
 原来是达斯米奇的歌，怪不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 8609#       发表于 2022-5-27 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说是不插电散场时staff还在喊明天的票还有………………企划真的…………这么搞粉丝就真没钱了
+
