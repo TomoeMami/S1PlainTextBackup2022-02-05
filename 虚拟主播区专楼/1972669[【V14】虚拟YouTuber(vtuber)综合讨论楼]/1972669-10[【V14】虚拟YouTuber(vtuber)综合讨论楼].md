@@ -1171,3 +1171,20 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 按这个增速早晚磨到50万已经是你虹前20名了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 13614#       发表于 2022-5-28 00:44
+
+41w，明天醒来就食杀夜见郡郡变成虹女top10了，4天40w的怪物<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">；
+
+这几天在意的，
+
+女剑持VS剑持对决：各种buff下同接莎天酱胜，直播内容上，开车创人和旧素材复用不分高下好吧；
+
+疑似低配版金口复刻结果只是小V做了直播方向申告：[【ご報告】にじさんじ新人のサロメ様とキャラが被った件と今後の活動について - YouTube](https://www.youtube.com/watch?v=o3hP3s__K_U)；rion惯例新人cheak：算是表明态度吧，还挺正常的？体谅了莎天酱脑子不好的地图，希望关系变好，还提了鷹宮壱百満天原鹿鳴館联动（[https://youtu.be/3bl0oJJPHxo?t=1943](https://youtu.be/3bl0oJJPHxo?t=1943)）
+
+算是无内忧无外患吧，明天同接也应该能正常起来，接下来就是看个人本事了，做主播还得是【テンション高めで喋りまくる】 啊
+
