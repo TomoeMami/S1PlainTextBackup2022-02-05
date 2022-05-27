@@ -469,3 +469,12 @@ V圈终归还是螺旋上升的<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">如果说salome是ngo那种半脊髓式吐槽直播那还属于劣化了
 ngo好歹有个环境保全家的内里逻辑，她看了会是播到哪里说到哪里
 
+
+
+*****
+
+####  空集  
+##### 13547#       发表于 2022-5-27 09:23
+
+男粉想看女V 女粉想看男V 都是天经地义的正常，男宝妈这种“批评”法一直觉得莫名其妙，遵从自然的本心才是最好的，而且男性观众说自己不看男人或者不抽男人也是很普遍，这种裱糊匠善讲法使人联想起什么爱马仕的大家庭粉或者K岛管人版。感觉属于本质只是随手找个武器，包括看微博一些嗯男观众打架也是有这种，想喷人能不能直接一点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
