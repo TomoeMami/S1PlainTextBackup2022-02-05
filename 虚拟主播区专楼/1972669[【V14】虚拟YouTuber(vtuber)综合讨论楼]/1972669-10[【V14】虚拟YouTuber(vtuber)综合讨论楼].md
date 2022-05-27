@@ -688,3 +688,22 @@ EN开始更是加上了概念图+出道曲+官号专题节目的组合礼包，�
 
 也可能是单人出道不需要这些，在其他方面出力，比如拿田角陆开涮
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13568#       发表于 2022-5-27 13:14
+
+<img src="https://img.saraba1st.com/forum/202205/27/131237lzgr1h8gvwbvw0rp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (319.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 13:12 上传
+
+这live，偶像大师和lovelive都请了，神椿全家占了一半，然后微妙的塞了个hololive的组合……居心何在啊……
+
+又是神椿唯一指定广告live？
+
