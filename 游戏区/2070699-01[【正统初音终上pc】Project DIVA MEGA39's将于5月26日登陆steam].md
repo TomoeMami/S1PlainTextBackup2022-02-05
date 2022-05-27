@@ -1422,3 +1422,47 @@ discord上看到已经有一些r18 mod移植到pc版了，买了个豪华版当�
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  无尽的牙刷  
+##### 139#       发表于 2022-5-28 02:39
+
+想知道核显能玩吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  1a不解释  
+##### 140#       发表于 2022-5-28 02:57
+
+玩了一下，只能说我不适合音游，简单难度都只能将将过关
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  土路生優里  
+##### 141#       发表于 2022-5-28 03:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56022601&amp;ptid=2070699" target="_blank">无尽的牙刷 发表于 2022-5-28 02:39</a>
+想知道核显能玩吗
+
+----发送自 STAGE1 App for Android.</blockquote>
+我用的是4800h的核显 1080p下碰到稍微复杂的场景会掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jellyfis  
+##### 142#       发表于 2022-5-28 04:33
+
+<blockquote>aritionkb 发表于 2022-5-28 01:40
+discord上看到已经有一些r18 mod移植到pc版了，买了个豪华版当补票了
+
+— from OnePlus GM1917, Android 11 ...</blockquote>
+求一个指路
+
