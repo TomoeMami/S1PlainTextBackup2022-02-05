@@ -754,3 +754,34 @@ EN开始更是加上了概念图+出道曲+官号专题节目的组合礼包，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到杏奴冠军粉的丑态了，心情舒畅
 
+
+
+*****
+
+####  poipanchao  
+##### 13573#       发表于 2022-5-27 14:12
+
+ 本帖最后由 poipanchao 于 2022-5-27 14:14 编辑 
+
+当年蝗横空出世的时候，杏人也是这么看虹人的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl，说到同接，最近hnn单窗快3w，深夜ema单窗1w，都是无缘无故没有啥叠加因素的
+vspo怎么回事，突然同接暴涨的感觉
+
+*****
+
+####  rzrbtk  
+##### 13574#       发表于 2022-5-27 14:15
+
+真能分析出来那虹市场部该到v综请人了，综合来看也是虹推力和en破大圈的综合结果；逛fanart感觉挺多人对百万姐的兴趣还在于“伪大小姐”设定上，一些注重故事性而不是技术的作品也有比较高的热度（见下图），可惜一旦直播频数多了神秘感这种东西很难维持惹；
+
+题外话，fanart里十张就有一张扭曲脸哭哭的，大家果然也好这口啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/27/141518s6luok7m5al9u7u2.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 010 - て 在 Twitter_ _#サロメ百万展 こういうことが有り得るので.png</strong> (133.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 14:15 上传
+
