@@ -1372,3 +1372,22 @@ CAPCOM炒冷饭好歹还有点改动，这世嘉是完全没有开发人员管Pr
 之前有坛友分享过街机版的Project DIVA AFT，这个版本的曲包和那个有什么区别吗？ 我看AFT上也是250的总曲 ...</blockquote>
 单纯就是照搬过来吧，多了点主机的功能像播放列表啥的，还有就是两种渲染风格ns的和ft的。
 
+
+
+*****
+
+####  吃货红毛  
+##### 134#       发表于 2022-5-27 22:44
+
+玩哭了 希望还能出点DLC吧 有些歌的不同PV没有 有些能换衣服的地方也换不了 希望别彻底摆了
+
+*****
+
+####  anyasora  
+##### 135#       发表于 2022-5-27 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56020796&amp;ptid=2070699" target="_blank">mwj 发表于 2022-5-27 22:38</a>
+
+单纯就是照搬过来吧，多了点主机的功能像播放列表啥的，还有就是两种渲染风格ns的和ft的。 ...</blockquote>
+感谢 省钱了
+
