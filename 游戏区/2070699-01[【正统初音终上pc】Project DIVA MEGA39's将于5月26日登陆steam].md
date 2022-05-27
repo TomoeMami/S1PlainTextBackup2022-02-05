@@ -1164,3 +1164,28 @@ ftdx那个限定版送了两张光碟
 PC版判定是不是松一些。深海少女PS4上一直只能85左右的。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">深海少女的难度和评级感觉不符，后半段有的地方很难按
 
+
+
+*****
+
+####  adw667  
+##### 113#       发表于 2022-5-27 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56010364&amp;ptid=2070699" target="_blank">梦窗 发表于 2022-5-27 09:54</a>
+
+f2除了歌少就是系列最好。</blockquote>
+SEGA要是有给两百多首歌都重新做一个追加演出的心思早就把歌姬计划新作做出来了
+
+就FT上有追加演出的不都是F系列的老歌<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梦窗  
+##### 114#       发表于 2022-5-27 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56010682&amp;ptid=2070699" target="_blank">adw667 发表于 2022-5-27 10:13</a>
+SEGA要是有给两百多首歌都重新做一个追加演出的心思早就把歌姬计划新作做出来了
+
+就FT上有追加演出的不都 ...</blockquote>
+别说追加演出，他能把所有歌用f系的渲染风格重新过一遍都行啊。
+
