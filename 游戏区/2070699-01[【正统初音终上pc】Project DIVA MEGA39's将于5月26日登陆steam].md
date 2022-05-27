@@ -1133,3 +1133,34 @@ pjd毕竟基本已经是一只脚入土的玩意了
 
 PC版判定是不是松一些。深海少女PS4上一直只能85左右的。<img src="https://s1.328888.xyz/2022/05/27/tUnWA.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  迷途lite  
+##### 110#       发表于 2022-5-27 10:07
+
+我记得f2搭配psv的触屏特性可以摸摸头，天天歌也不打就嗯在房间里摸摸
+不知道为什么x给去掉了
+
+*****
+
+####  哈迪斯兜帽  
+##### 111#       发表于 2022-5-27 10:09
+
+说到前作
+
+ftdx那个限定版送了两张光碟
+
+里面都是前作金曲录像（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 112#       发表于 2022-5-27 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56010397&amp;ptid=2070699" target="_blank">Aric_Bear 发表于 2022-5-27 09:56</a>
+
+PC版判定是不是松一些。深海少女PS4上一直只能85左右的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">深海少女的难度和评级感觉不符，后半段有的地方很难按
+
