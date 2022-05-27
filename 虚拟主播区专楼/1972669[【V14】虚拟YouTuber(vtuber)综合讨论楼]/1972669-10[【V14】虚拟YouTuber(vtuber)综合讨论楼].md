@@ -1001,3 +1001,15 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 所以直到现在也不知道sonny打派菜是装的还是现充太久没摸fps所以荒废了……
 
+
+
+*****
+
+####  Paisley  
+##### 13596#       发表于 2022-5-27 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56015320&amp;ptid=1972669" target="_blank">fastary 发表于 2022-5-27 15:43</a>
+
+看了一眼管厕反应：没说虹男强只觉得莎皇热度有炒的成分也叫踩女，这下s1大家都是男宝妈了🏳️🏳️🏳️🏳️ ...</blockquote>
+别鸟厕妹了，她们就那几套回复方式，找到一个靶子套一个<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
