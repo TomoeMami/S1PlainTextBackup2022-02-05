@@ -975,3 +975,29 @@ https://greasyfork.org/ja/scripts/411442-flow-youtube-chat
 
 星是卖无人岛故事的声剧，跟虹的无人岛3D企划还是很不一样的吧。硬要追究都可以是抄日综，谁也别说谁（
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13594#       发表于 2022-5-27 18:02
+
+selen这行动力，最近也还有和VR（aza）的联动吧
+
+顺便一问，你们这个niji world collab，带sonny哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202205/27/180118encqjzn5qlbnnol8.png" referrerpolicy="no-referrer">
+
+<strong>savetf2 .png</strong> (42.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-27 18:01 上传
+
+*****
+
+####  fastary  
+##### 13595#       发表于 2022-5-27 18:05
+
+所以直到现在也不知道sonny打派菜是装的还是现充太久没摸fps所以荒废了……
+

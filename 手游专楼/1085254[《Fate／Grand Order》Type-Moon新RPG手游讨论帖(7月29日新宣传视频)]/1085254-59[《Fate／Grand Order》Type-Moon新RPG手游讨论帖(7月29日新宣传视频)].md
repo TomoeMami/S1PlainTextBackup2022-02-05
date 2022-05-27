@@ -11965,3 +11965,12 @@ faker一宝挺水枪的，我这次是换了她升到三宝了
 
 将对面全杀了就不用防守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kisskick  
+##### 88031#       发表于 2022-5-27 18:09
+
+刚想到一件事，其实大公和德古拉，也符合历史人物幻想身理论吧
+
