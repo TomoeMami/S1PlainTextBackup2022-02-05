@@ -1120,3 +1120,19 @@ PS4日版一点入库就显示error<img src="https://static.saraba1st.com/image/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塔顶boss的西游记后传式演出的确挺复古的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 106#         楼主| 发表于 2022-5-27 18:37
+
+PV：[https://youtu.be/2goBIIkkbVg](https://youtu.be/2goBIIkkbVg)
+
+*****
+
+####  crosz1985  
+##### 107#       发表于 2022-5-27 18:39
+
+switch上难得的第三方60帧游戏，虽然画面实在拉胯
+
