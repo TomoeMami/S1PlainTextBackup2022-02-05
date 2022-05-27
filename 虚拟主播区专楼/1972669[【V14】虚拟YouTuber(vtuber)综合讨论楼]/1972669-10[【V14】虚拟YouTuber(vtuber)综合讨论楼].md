@@ -805,3 +805,17 @@ vspo怎么回事，突然同接暴涨的感觉
 
 再请大家推荐下404用的弹幕插件，现在用的不太行了......
 
+
+
+*****
+
+####  sgssk  
+##### 13577#       发表于 2022-5-27 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56014709&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-5-27 14:58</a>
+
+再请大家推荐下404用的弹幕插件，现在用的不太行了......</blockquote>
+[https://greasyfork.org/ja/scripts/411442-flow-youtube-chat](https://greasyfork.org/ja/scripts/411442-flow-youtube-chat)
+
+需要油猴
+
