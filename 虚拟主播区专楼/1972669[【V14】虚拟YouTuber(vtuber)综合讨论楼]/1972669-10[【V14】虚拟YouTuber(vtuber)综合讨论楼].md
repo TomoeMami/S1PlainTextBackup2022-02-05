@@ -966,3 +966,12 @@ https://greasyfork.org/ja/scripts/411442-flow-youtube-chat
 
 月之谈新人：我已经派出3人监视同为わたくし担当的社长，观察他如何出牌<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13593#       发表于 2022-5-27 17:41
+
+星是卖无人岛故事的声剧，跟虹的无人岛3D企划还是很不一样的吧。硬要追究都可以是抄日综，谁也别说谁（
+
