@@ -1327,3 +1327,12 @@ DECO*27 - 愛言葉Ⅳ feat. 初音未来
 
 没法选2k分辨率 最高只有1200p，是我的问题吗
 
+
+
+*****
+
+####  percy1234  
+##### 129#       发表于 2022-5-27 20:36
+
+心里好矛盾，一边想支持出续作，一边看世嘉摆烂这么多年又不想当继续傻逼送钱<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

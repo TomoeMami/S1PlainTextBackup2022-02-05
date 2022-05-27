@@ -7356,3 +7356,14 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  十九号大侠  
+##### 11222#       发表于 2022-5-27 20:41
+
+1,2,3都唱了，4也会唱吧
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
