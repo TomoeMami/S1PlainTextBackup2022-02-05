@@ -1063,3 +1063,12 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 纽伊这套可太可了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suzutsuki  
+##### 13602#       发表于 2022-5-27 23:01
+
+待机画面田角不见了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
