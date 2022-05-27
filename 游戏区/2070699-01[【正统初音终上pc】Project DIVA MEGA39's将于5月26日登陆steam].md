@@ -1411,3 +1411,14 @@ CAPCOM炒冷饭好歹还有点改动，这世嘉是完全没有开发人员管Pr
 明明可以在换装页面同时按下左右扳机快速切换到推荐换装但是就是没有操作提示，是NS屏幕不够长放不 ...</blockquote>
 ns版记得是有按键提示的...
 
+
+
+*****
+
+####  aritionkb  
+##### 138#       发表于 2022-5-28 01:40
+
+discord上看到已经有一些r18 mod移植到pc版了，买了个豪华版当补票了
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
