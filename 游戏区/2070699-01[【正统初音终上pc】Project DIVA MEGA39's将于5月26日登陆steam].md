@@ -1550,3 +1550,15 @@ mod在哪里找啊<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 这出的也太晚了点吧。。。早几年出能比现在多卖好多好多。。。
 
+
+
+*****
+
+####  aritionkb  
+##### 151#       发表于 2022-5-28 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56022761&amp;ptid=2070699" target="_blank">jellyfis 发表于 2022-5-28 04:33</a>
+
+求一个指路</blockquote>
+谷歌搜project diva r18 mod discord能找到加入链接
+
