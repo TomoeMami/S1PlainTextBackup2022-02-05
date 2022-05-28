@@ -1367,3 +1367,12 @@ Json的人数比和聊天数比是，
 
 主要重点是这次直播对比上次的差额比，数据还是差不少。原因自己算的方法没错的话，应该是第三次的J和B的留言数和其他比起来差距少了，第二次的J和B留言人数也比其他要少。但不一定对的，主要只是想弄个表看看双方的BOT和Json的数据差距。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">不能用来斗虫。
 
+
+
+*****
+
+####  poipanchao  
+##### 13623#       发表于 2022-5-28 11:06
+
+noah和一堆en的联动来了，混入niji
+
