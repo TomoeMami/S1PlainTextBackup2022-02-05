@@ -13839,3 +13839,14 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 恭送凯老师，
 
+
+
+*****
+
+####  inconolast  
+##### 58163#       发表于 2022-5-28 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，凯老师四皇这么多年，别说他一次没跟赤犬对上过啊，自然界岩浆能跟果实能力比？那可是烧了火的岩浆啊
+
+岩浆这玩意也就能烧个烧烧果实（心虚
+
