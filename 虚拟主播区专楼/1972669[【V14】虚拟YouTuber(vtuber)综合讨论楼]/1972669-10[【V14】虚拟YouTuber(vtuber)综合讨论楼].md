@@ -1487,3 +1487,20 @@ noah和一堆en的联动来了，混入niji
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天下播应该到不了50w吧
 
+
+
+*****
+
+####  sgssk  
+##### 13635#       发表于 2022-5-28 19:50
+
+巴比伦陨落居然还找了水科葵客串cv，主持人也直接说“是的这是敝社运营偶像团队所属的水科葵”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也算好事吧
+
+<img src="https://img.saraba1st.com/forum/202205/28/194805nr292eyd4zr5zym2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220528194730.png</strong> (79 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-28 19:48 上传
+
