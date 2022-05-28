@@ -1270,3 +1270,22 @@ selen这行动力，最近也还有和VR（aza）的联动吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去留数据倒是不意外，但还蛮在意是新观众还是老观众来看的。
 
+
+
+*****
+
+####  vagoo777  
+##### 13620#       发表于 2022-5-28 09:15
+
+这数据和bot的差得有点大啊
+
+壱百満天原サロメ/Hyakumantenbara Salome
+
+【就職】トラックの運ちゃんになりましてよ！【ですわ】
+
+2022-05-28(土) 0:00:11 / 1h1m26s
+
+視聴者:約93456人
+
+チャット:13556人59300件
+
