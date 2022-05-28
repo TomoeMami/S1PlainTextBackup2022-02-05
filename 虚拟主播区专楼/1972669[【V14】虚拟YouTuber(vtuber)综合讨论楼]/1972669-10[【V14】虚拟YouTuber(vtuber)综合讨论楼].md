@@ -2182,3 +2182,86 @@ y1ys 这大小姐涉猎游戏很多啊 什么捏他都有的 刚听就听到怪�
 
 所以主要的话还是看百万姐自己要做啥。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13706#       发表于 2022-5-29 00:01
+
+仔细想了想，这是不是意味着liver要有自我包装能力或者说，自己当自己的制作人，把自己这个角色想展示的特色，吸引人的点在哪搞清楚，然后找准适当的流量曝光点来吸引人看。毕竟现在哪家运营都没有这种制作人和包装能力。
+打包一期新人宣传说这是我家最潮最火的新人到头了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 13707#       发表于 2022-5-29 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好可怕啊，这世界线仿佛被人硬扭了一遍一样
+
+本来很崩的nijien靠着男人的力量突然雄起，holo最赚钱的突然出事没了   （syl，VR成为国内最强运营
+
+en男进军B站收大米holo大部分战力因病全休了，百万姐爆诞
+
+田角作法了？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 13708#       发表于 2022-5-29 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034354&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-5-28 23:55</a>
+
+信她的rp的话就是死宅一个啊，中学不登校高中通信大学中退，在加油站打过工，不就是典型的自由职业尼特， ...</blockquote>
+主要是不相信她的口条是素人练出来的，结合兴趣在acg圈发展的话不会认不出来吧，的感觉；
+
+莎天酱日本热度接近当时myth了吧，怎么会特不出来吖<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 13709#       发表于 2022-5-29 00:08
+
+六月正式上市了吧
+好一记强心剂。
+田角大法恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 13710#       发表于 2022-5-29 00:08
+
+最近的各种发言我肯定在2020年见过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+另外杏上位势缺位，vspo也吸了不少
+
+只能说历史是个圈
+
+
+
+*****
+
+####  布莱士·西伯利  
+##### 13711#       发表于 2022-5-29 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034462&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-29 00:05</a>
+
+主要是不相信她的口条是素人练出来的，结合兴趣在acg圈发展的话不会认不出来吧，的感觉；
+
+莎天酱日本热度 ...</blockquote>
+-       
+
+        
+
+        
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怀疑是19组就该出道结果因为某些田角的问题所以一直没出道，接着三年时间默默的思考和锻炼，功夫大成出关，所以开局就内功深厚。也因此才迫害惹出事的田角。
+
+*****
+
+####  空集  
+##### 13712#       发表于 2022-5-29 00:09
+
+<blockquote>Rosefinch 发表于 2022-5-28 23:38
+虹人开始反攻倒算了，杏人呢，来点攻击性</blockquote>
+主要是没人想理nowaki
+
