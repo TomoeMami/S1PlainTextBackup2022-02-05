@@ -13866,3 +13866,14 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 尾田这么写武士文化，估计就是让人恶心武士文化的。
 
+
+
+*****
+
+####  摸鱼先锋  
+##### 58166#       发表于 2022-5-28 18:06
+
+太好啦终于结束了，迫不及待看世界会议后到底发生啥的新世界局势篇了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+不会真有人看海贼不看世界局势看主线吧？不会吧不会吧？（阴阳人上身了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
