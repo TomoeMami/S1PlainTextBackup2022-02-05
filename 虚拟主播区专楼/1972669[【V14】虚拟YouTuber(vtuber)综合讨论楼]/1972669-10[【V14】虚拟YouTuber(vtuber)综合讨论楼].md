@@ -1585,3 +1585,31 @@ noah和一堆en的联动来了，混入niji
 
 吓人，点进去前3w3，点进去5w1
 
+
+
+*****
+
+####  hulaoda007  
+##### 13643#       发表于 2022-5-28 22:17
+
+-       
+    
+      
+不知道阿社这个普通神奈子要坐牢多久了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sgssk  
+##### 13644#       发表于 2022-5-28 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56032415&amp;ptid=1972669" target="_blank">古战场亡魂 发表于 2022-5-28 21:53</a>
+
+你可能不知道这游戏涝到什么程度，还两年后没人记得。
+
+这游戏打怪倾向于联机，发售之后很多人就弃了，联机 ...</blockquote>
+我知道啊，我的意思是，【玩家角度】你就算能拉出一万字的零分批判，从【水科葵角度】这件事对她能有什么损失？SE是请声优不付钱吗？虽然连官方直播都在讲“请大家谨慎消费”这种莫名其妙的话，但有任何证据证明，游戏的低收入会影响她做配音的报酬吗？又或者今天做配音花的精力，会让她后天的歌回多二十次跑调吗？
+
+当然你说她今天配这个，明年后年也接不到SE的主角役，长远发展价值基本为0，那我双手赞成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得SE能给她整点乐呵也比gems现在这不上不下不知道干嘛的好，not bad好吧
+
