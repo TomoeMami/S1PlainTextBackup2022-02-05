@@ -1521,3 +1521,14 @@ ns178首ps4 237首<img src="https://static.saraba1st.com/image/smiley/face2017/0
 我这边只能提供操作上的建议，因为视觉提示我已经非常习惯了.....可以去设置里面把（□✕○△）四键全押 ...</blockquote>
 我已经开始嗯背了，感觉还是简单粗暴的比较有效<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 148#       发表于 2022-5-28 13:48
+
+[官方pv](https://www.bilibili.com/video/BV1E3411V7Do?share_source=copy_web)在发售后终于放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+《集大成之作》《伴您一生》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

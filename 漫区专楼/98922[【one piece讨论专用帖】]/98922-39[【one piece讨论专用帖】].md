@@ -13810,3 +13810,14 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 要不要换新楼算了，这抽得新回复大半天都看不到 ...</blockquote>
 我再说一遍，新楼多的结果就是哪个也没人用
 
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 58161#       发表于 2022-5-28 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56017824&amp;ptid=98922" target="_blank">kilkilo 发表于 2022-5-27 18:55</a>
+凯多和大妈死的概率极小，估计被大妈海贼团救了。新将军就是桃之助吧，放个烟雾估计是他之前强行预支生命， ...</blockquote>
+还得是跪着喊谢谢玉田大人
+
