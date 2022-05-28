@@ -1758,3 +1758,47 @@ noah和一堆en的联动来了，混入niji
 
 这么高同接然而推特没有趋势<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 13661#       发表于 2022-5-28 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56033524&amp;ptid=1972669" target="_blank">古战场亡魂 发表于 2022-5-28 22:51</a>
+
+委员长酸不至于，毕竟她就是彩虹顶层，年功序列在这边，水涨船高永远不怕。
+
+不过字幕组是肯定酸了，不然不 ...</blockquote>
+那就不知道了，各个粉不同吧，我看串民里的铁血虹人们基本上可以看着11w手冲了<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">；
+
+省一楼，我真的在意到底是不是初见啊，有些地方的反应也和游戏配合得太好的了，好得像演的，好得像king吖
+
+*****
+
+####  _Ra1nMaker  
+##### 13662#       发表于 2022-5-28 23:05
+
+提前做功课不也是直播主的技能之一么，只要直播好看你管他是不是演的
+
+*****
+
+####  古战场亡魂  
+##### 13663#       发表于 2022-5-28 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56033720&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-28 23:03</a>
+
+那就不知道了，各个粉不同吧，我看串民里的铁血虹人们基本上可以看着11w手冲了；
+
+省一楼，我真的 ...</blockquote>
+反正管人的技能，神反应和神台本两项总归有一项。
+
+有一项就足够了。
+
+*****
+
+####  心垂万刃  
+##### 13664#       发表于 2022-5-28 23:09
+
+其实我不明白怎么就出圈了，真的就靠胃镜图?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
