@@ -2576,3 +2576,21 @@ en男50w以上的是vox70+mysta60+和ikeluca50+，差不多明后天就不用仅
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">盒皇手握B站金盾，可不敢造次
 
+
+
+*****
+
+####  purdre  
+##### 13740#       发表于 2022-5-29 01:24
+
+转眼一看昨天尊妈的asmr超7000同接了！？好起来了，都好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  空集  
+##### 13741#       发表于 2022-5-29 01:28
+
+有一说一假设这数字来源真是新鲜jp人甚至以前不看直播的（因为已经乱杀纯日常了），那等田角想办法引到全箱再急也不迟。
+

@@ -1593,3 +1593,14 @@ PC版甩葱歌怎么没了</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  11酱  
+##### 155#       发表于 2022-5-29 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56028937&amp;ptid=2070699" target="_blank">mwj 发表于 2022-5-28 18:50</a>
+好像说版权没了，不过教程还是甩葱歌，可能是谱面的版权？</blockquote>
+教程只有伴奏 没有人声 应该就是版权没了
+
