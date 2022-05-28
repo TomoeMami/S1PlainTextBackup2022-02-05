@@ -7556,3 +7556,29 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 2022-5-29 00:29 上传
 
+
+
+*****
+
+####  Klience  
+##### 11242#       发表于 2022-5-29 00:33
+
+也不看看对面什么阵容 除了妮蔻 其他都是菜刀 妮蔻0/8的战绩 开个W往前面冲就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 11243#       发表于 2022-5-29 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034803&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-29 00:30</a>
+
+大号虐白银虐出手虐出自信来了，直播号对线白金被按着打……</blockquote>
+你这opgg界面怎么和我不同啊 新版的吗
+
+*****
+
+####  Klience  
+##### 11244#       发表于 2022-5-29 00:37
+
+好了 15分钟塔没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
