@@ -2130,3 +2130,55 @@ y1ys 这大小姐涉猎游戏很多啊 什么捏他都有的 刚听就听到怪�
 
 这下Y和B双面统治了，这是连19虹都没做到过的事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RAFano  
+##### 13700#       发表于 2022-5-28 23:50
+
+后半小时画面这么卡还能维持10万+，老实接受吧，这就是两箱规格外的怪物<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 13701#       发表于 2022-5-28 23:51
+
+这下黑客看完莎皇初配信感想推提VTA又像是反讽了，乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还记得他之前还感慨虹新时代的船估计是vta那样走偶像事务所风了，结果实际被虹味素人橄榄<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+莎皇现在这么风光也不知道日后会给她量身定做推法还是老一套出道发歌刷周边工商的流程<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 13702#       发表于 2022-5-28 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下有东卍在tiktok上病毒式传播那味了
+
+*****
+
+####  渡鸦骑士  
+##### 13703#       发表于 2022-5-28 23:53
+
+你虹要真会量身定做，月之小姐也不会是现在这个热度啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盐盐盐盐盐  
+##### 13704#       发表于 2022-5-28 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034175&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-28 23:38</a>
+ 游戏动画阅历也不差，所以以前不是那种隔离于ACG圈的人，到底以前是做什么的现在还没特出来啊，声质那么有 ...</blockquote>
+信她的rp的话就是死宅一个啊，中学不登校高中通信大学中退，在加油站打过工，不就是典型的自由职业尼特，为什么就不能信人家真是宅的时候受v启发来应聘了捏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 13705#       发表于 2022-5-28 23:56
+
+主要其实要看百万姐自己的想法吧。虹的偶像企划更像和旗下主播打磨好再推行偶像路线。没有完全到偶像企划的地步。
+
+所以主要的话还是看百万姐自己要做啥。
+
