@@ -2123,3 +2123,22 @@ haha
 
 突然和YMD这么熟很难没在一起打瓦
 
+
+
+*****
+
+####  andeloz  
+##### 9218#       发表于 2022-5-28 14:42
+
+ 本帖最后由 andeloz 于 2022-5-27 23:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202205/27/234152okkpfafdt3ydfzyy.png" referrerpolicy="no-referrer">
+
+<strong>Untitled.png</strong> (34.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-28 14:41 上传
+
+???怎么不把这个也鸽掉呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
