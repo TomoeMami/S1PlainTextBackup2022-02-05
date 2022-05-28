@@ -2070,3 +2070,63 @@ y1ys 这大小姐涉猎游戏很多啊 什么捏他都有的 刚听就听到怪�
 
 管人能原地打转管人观众也能原地打转的，历史果然是个圆啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13693#       发表于 2022-5-28 23:40
+
+一手油管11w，一手阿B50W
+
+这下又给可恶的彩虹多续一个月<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  _Ra1nMaker  
+##### 13694#       发表于 2022-5-28 23:41
+
+那只能说明VTA屁用没有，培训了半天出道结果还不如一个素人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 13695#       发表于 2022-5-28 23:42
+
+ 本帖最后由 渡鸦骑士 于 2022-5-28 23:45 编辑 
+
+这下cover又能摸着彩虹过河了，可喜可贺
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+省一楼，新人真可爱
+
+*****
+
+####  布莱士·西伯利  
+##### 13696#       发表于 2022-5-28 23:42
+
+话说百万姐数据好的话，应该也会影响什么都色做决策的，看看会不会有啥变化。<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 13697#       发表于 2022-5-28 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034175&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-28 23:38</a>
+
+游戏动画阅历也不差，所以以前不是那种隔离于ACG圈的人，到底以前是做什么的现在还没特出来啊，声质那么有 ...</blockquote>
+昨天开欧卡的时候说以前在加油站打过工，不会真是“淘”来的吧？
+
+*****
+
+####  2L模仿47哥  
+##### 13698#       发表于 2022-5-28 23:44
+
+经典对家数字好就是灌水的饭圈思维
+
+*****
+
+####  IDIDIDID  
+##### 13699#       发表于 2022-5-28 23:48
+
+这下Y和B双面统治了，这是连19虹都没做到过的事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
