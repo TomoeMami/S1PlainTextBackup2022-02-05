@@ -1937,3 +1937,136 @@ tskk还是有带动箱内其他人的同接和订阅的吧，莎皇对虹的影�
 
 在这个复杂又充满黑箱的系统里寻找现象背后的动因不是观众该干的事情，说服你自己就够了
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13679#       发表于 2022-5-28 23:31
+
+倒不如说虚拟主播就是因为多了设定才能让角色的反应多一个纬度<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhangruiy  
+##### 13680#       发表于 2022-5-28 23:31
+
+这楼是不是太酸了点<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  FCCHua  
+##### 13681#       发表于 2022-5-28 23:32
+
+居然播了不止一个小时，可以的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13682#       发表于 2022-5-28 23:33
+
+杏奴酸的牙都掉了，看得好爽啊。
+
+*****
+
+####  布莱士·西伯利  
+##### 13683#       发表于 2022-5-28 23:33
+
+ 本帖最后由 布莱士·西伯利 于 2022-5-28 23:38 编辑 
+
+-       
+
+而且说是实话，无论是king还是elu或者刀也这种临场反应快的，直播和杂谈都有趣很多。应对意外可以想到有趣的回应，有时会比计划内还有趣。又没啥奇怪的，日本本来就有大喜利比赛。
+
+明天应该就能半金了吧。不过要真金百万感觉还是要花点时间。<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死体残留  
+##### 13684#       发表于 2022-5-28 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">新人buff怎么保值这么长的 
+y1ys 这大小姐涉猎游戏很多啊 什么捏他都有的 刚听就听到怪猎换区的
+
+*****
+
+####  IL282  
+##### 13685#       发表于 2022-5-28 23:34
+
+<img src="https://p.sda1.dev/6/4430c1bc4b1d99ca1d7d2046c8201a04/CMP_20220528233428155.jpg" referrerpolicy="no-referrer">
+
+10w同接
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  chenflyyy  
+##### 13686#       发表于 2022-5-28 23:35
+
+ 本帖最后由 chenflyyy 于 2022-5-28 23:37 编辑 
+
+杏奴终将成为了最讨厌的尼哥的样子
+
+分析莎皇时能顺便分析下盒皇的工商b限买了多少码
+
+<img src="https://img.saraba1st.com/forum/202205/28/233731s5v5zuzkg95vsgsg.png" referrerpolicy="no-referrer">
+
+<strong>-zue37Qs4xs-1rlhZrT3cSs9-pw.png</strong> (106.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-28 23:37 上传
+
+*****
+
+####  nowaki  
+##### 13687#       发表于 2022-5-28 23:38
+
+冠军粉的丑态漏出来了，杏奴就这吗，还天天看不起泥哥，这不是和泥哥一摸一样的嘴脸，可能还更贱一点，尼哥好歹有个国家的底线。
+
+*****
+
+####  rzrbtk  
+##### 13688#       发表于 2022-5-28 23:38
+
+ 本帖最后由 rzrbtk 于 2022-5-28 23:40 编辑 
+
+游戏动画阅历也不差，所以以前不是那种隔离于ACG圈的人，到底以前是做什么的现在还没特出来啊，声质那么有辨别性...
+
+游戏直觉好会做反应，插着缝完善自己角色，每回都特地讲点东西来感谢观众继续陪伴自己，情绪一直高涨但不至于爆麦，最主要的是这么多人面前绷得住，
+
+虽然我还是以前那个意见，莎天酱没有什么显著特长（打枪画画唱歌），但明显基础能力都很高，VTA培训完那几位都不及她...
+
+都快50w了也从来没提过一嘴数字，尊敬的田角大人从哪淘来的互联网天使啊<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rosefinch  
+##### 13689#       发表于 2022-5-28 23:38
+
+虹人开始反攻倒算了，杏人呢，来点攻击性<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13690#       发表于 2022-5-28 23:39
+
+杏奴都憋小团体酸着呢，脑补彩虹买数据，赶紧找山田赫敏约个稿写彩虹崩溃论吧，嘻嘻。
+
+*****
+
+####  chenflyyy  
+##### 13691#       发表于 2022-5-28 23:40
+
+等下次杏数据再次反压时杏人自然会出击的，急什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 13692#       发表于 2022-5-28 23:40
+
+管人能原地打转管人观众也能原地打转的，历史果然是个圆啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
