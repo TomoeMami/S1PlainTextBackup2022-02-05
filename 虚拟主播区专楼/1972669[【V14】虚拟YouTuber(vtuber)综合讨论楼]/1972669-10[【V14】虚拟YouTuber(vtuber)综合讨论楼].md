@@ -1525,3 +1525,24 @@ noah和一堆en的联动来了，混入niji
 巴比伦陨落居然还找了水科葵客串cv，主持人也直接说“是的这是敝社运营偶像团队所属的水科葵”也算 ...</blockquote>
 为2022最差的游戏献声算神马好事……
 
+
+
+*****
+
+####  sgssk  
+##### 13638#       发表于 2022-5-28 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56029750&amp;ptid=1972669" target="_blank">古战场亡魂 发表于 2022-5-28 19:55</a>
+
+为2022最差的游戏献声算神马好事……</blockquote>
+游戏不好玩咋了，影响声优拿钱了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然说实际原因没准是用她能让SE少付点事务所抽成，配的也是两年后没人记得的角色，但拿钱干事嘛，多多益善啦
+
+*****
+
+####  Junchoon  
+##### 13639#       发表于 2022-5-28 21:47
+
+今天跌丝袜大小姐早一小时开播，现在频道里有1万3千人在那“跌丝袜、跌丝袜”......
+
