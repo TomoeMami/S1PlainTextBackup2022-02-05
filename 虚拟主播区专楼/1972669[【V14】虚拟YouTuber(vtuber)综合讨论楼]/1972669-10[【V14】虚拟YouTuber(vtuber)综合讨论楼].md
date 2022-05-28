@@ -1546,3 +1546,33 @@ noah和一堆en的联动来了，混入niji
 
 今天跌丝袜大小姐早一小时开播，现在频道里有1万3千人在那“跌丝袜、跌丝袜”......
 
+
+
+*****
+
+####  hulaoda007  
+##### 13640#       发表于 2022-5-28 21:50
+
+-       
+     
+       
+[https://b23.tv/u27ue09](https://b23.tv/u27ue09)
+顺便，阿社二战风神录。
+
+*****
+
+####  古战场亡魂  
+##### 13641#       发表于 2022-5-28 21:53
+
+ 本帖最后由 古战场亡魂 于 2022-5-28 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56032093&amp;ptid=1972669" target="_blank">sgssk 发表于 2022-5-28 21:40</a>
+
+游戏不好玩咋了，影响声优拿钱了吗
+
+虽然说实际原因没准是用她能让SE少付点事务所抽成，配的也是两 ...</blockquote>
+你可能不知道这游戏涝到什么程度，还两年后没人记得。
+
+这游戏打怪倾向于联机，发售之后很多人就弃了，联机都找不到人。
+
+3月3日发售，然后前段时间服务器甚至出现就剩1个人在线了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
