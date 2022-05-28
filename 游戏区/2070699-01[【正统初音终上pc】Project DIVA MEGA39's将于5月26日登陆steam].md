@@ -1500,3 +1500,12 @@ ns178首ps4 237首<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  mwj  
+##### 146#       发表于 2022-5-28 09:04
+
+这mod安装方式，程序里专门做了加载mod的功能吧......可能用来加载dlc的？
+
