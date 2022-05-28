@@ -1416,3 +1416,17 @@ noah和一堆en的联动来了，混入niji
 
 晚上23点obio，看来昨天是狠狠反省了一波，新人那种讨好客群的拼劲真美味啊<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adamtheo  
+##### 13628#       发表于 2022-5-28 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56022631&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-5-28 02:54</a>
+
+把壱百満天原サロメ最近四场直播的评论扒了一下，顺便做了个相对首播的留存比较。
+
+四次chat的json：「nijis ...</blockquote>
+留档的评论会比实时少很多，建议开播前就挂上chat-downloader，这样应该跟bot数字是一样的
+
