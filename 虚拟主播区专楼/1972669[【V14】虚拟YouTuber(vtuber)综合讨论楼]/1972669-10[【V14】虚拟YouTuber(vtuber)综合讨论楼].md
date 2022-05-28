@@ -1842,3 +1842,98 @@ noah和一堆en的联动来了，混入niji
 
 都直播了，肯定都要靠现场反应啊。哪有人不靠的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13670#       发表于 2022-5-28 23:20
+
+没用的，别想了
+
+鬼灭能火有一大堆理由，但是怎么就能破圈到国民程度谁也不明白<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+数字，很神奇吧
+
+*****
+
+####  渡鸦骑士  
+##### 13671#       发表于 2022-5-28 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56033951&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2022-5-28 23:19</a>
+都直播了，肯定都要靠现场反应啊。哪有人不靠的。</blockquote>
+我说的是靠“现场”反应，你说的是靠“现场反应”这不矛盾。有不少主播能做到预演游戏的某个桥段来设计自己的现场反应。这不难，只要预想一个方向就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+有过准备的游戏直播和没有准备的游戏直播差距是很大的。
+
+*****
+
+####  _Ra1nMaker  
+##### 13672#       发表于 2022-5-28 23:23
+
+ 本帖最后由 _Ra1nMaker 于 2022-5-28 23:28 编辑 
+
+tskk还是有带动箱内其他人的同接和订阅的吧，莎皇对虹的影响还得再观察观察syl如果按照楼友说的她的直播都是提前做功课的，那以后的直播能不能一直保持这个质量也难说，要保持高质量的话对直播员精神压力也太大了吧
+
+*****
+
+####  渡鸦骑士  
+##### 13673#       发表于 2022-5-28 23:25
+
+我更好奇按你虹的狼性和年功序列，会多快构建出跌丝袜的IP宣传体系。
+……以及其他虹人粉丝的反应<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpbzpb123123  
+##### 13674#       发表于 2022-5-28 23:25
+
+懂了 该早安salome了
+
+*****
+
+####  plok201  
+##### 13675#       发表于 2022-5-28 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生化7流程只要碰过管人的都能背出来了，百万姐那么懂，肯定预习过很多遍啦
+
+一个想法，生化7大结局破百万订阅，直接成为传说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  percy1234  
+##### 13676#       发表于 2022-5-28 23:27
+
+阿花自己有什么好酸的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">以委组的人员数量来说八成就是烤推的人刚醒。
+
+然后现在要分析买没买同接？这集我看过，是冲蝗人论证holo买粉买赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来终将成为泥才是不变的趋势
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|你好，虹虫楼很认真在在考虑这个可能.|
+
+查看全部评分
+
+*****
+
+####  hulaoda007  
+##### 13677#       发表于 2022-5-28 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034001&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-5-28 23:23</a>
+我说的是靠“现场”反应，你说的是靠“现场反应”这不矛盾。有不少主播能做到预演游戏的某个桥段来设计自 ...</blockquote>
+没感觉…倒是虹很多知名切片都是意外。
+
+*****
+
+####  天悬星河  
+##### 13678#       发表于 2022-5-28 23:29
+
+因特网的事情不用搞的那么清楚
+
+在这个复杂又充满黑箱的系统里寻找现象背后的动因不是观众该干的事情，说服你自己就够了
+
