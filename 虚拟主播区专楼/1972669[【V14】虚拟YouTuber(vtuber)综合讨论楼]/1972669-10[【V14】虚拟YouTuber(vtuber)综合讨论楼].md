@@ -1802,3 +1802,43 @@ noah和一堆en的联动来了，混入niji
 
 其实我不明白怎么就出圈了，真的就靠胃镜图?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpbzpb123123  
+##### 13665#       发表于 2022-5-28 23:15
+
+49了 不会下播前真能50W吧
+
+*****
+
+####  chenflyyy  
+##### 13666#       发表于 2022-5-28 23:18
+
+当初htj看tskk就你楼杏奴看莎皇一个感想吧
+
+*****
+
+####  渡鸦骑士  
+##### 13667#       发表于 2022-5-28 23:18
+
+虽然看的不多，但是事到如今好看的直播真没几个靠现场反应的。
+
+听说下周播的会少一些<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 13668#       发表于 2022-5-28 23:18
+
+说实话真没看过几个虹太监聊可可小姐<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+倒不如说太监就是这样的
+
+*****
+
+####  hulaoda007  
+##### 13669#       发表于 2022-5-28 23:19
+
+都直播了，肯定都要靠现场反应啊。哪有人不靠的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
