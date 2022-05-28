@@ -1486,3 +1486,17 @@ discord上看到已经有一些r18 mod移植到pc版了，买了个豪华版当�
 
 ns178首ps4 237首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉被背刺了
 
+
+
+*****
+
+####  JudgmentEye  
+##### 145#       发表于 2022-5-28 08:58
+
+<blockquote>引用第138楼无尽的牙刷于2022-05-28 02:39发表的  :
+
+想知道核显能玩吗----发送自 STAGE1 App for Android.</blockquote>
+街机版能玩就没问题
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
