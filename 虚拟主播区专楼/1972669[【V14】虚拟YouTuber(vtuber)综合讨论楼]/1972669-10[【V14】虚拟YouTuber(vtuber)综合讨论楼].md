@@ -1717,3 +1717,44 @@ noah和一堆en的联动来了，混入niji
 
 虽然大家都说月之在阴阳，但我真觉得月之这几天包括之前杂谈都在作为铁血虹人高兴啊😭
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13657#       发表于 2022-5-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56033503&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-28 22:49</a>
+
+虽然大家都说月之在阴阳，但我真觉得月之这几天包括之前杂谈都在作为铁血虹人高兴啊😭 ...</blockquote>
+委员长酸不至于，毕竟她就是彩虹顶层，年功序列在这边，水涨船高永远不怕。
+
+不过字幕组是肯定酸了，不然不至于下午的推现在发。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 13658#       发表于 2022-5-28 22:52
+
+开荒期出道的感觉多少都会有点感慨吧
+
+不知道tskk出道那会儿杏人什么想法
+
+虽然看不懂莎皇什么情况……如果能靠她破圈让虹箱也有一排金盾的话也没啥好说的了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+（不关心杏不知道是tskk还是鲨皇开启的杏金盾批发，说错了当我没说
+
+*****
+
+####  hulaoda007  
+##### 13659#       发表于 2022-5-28 22:53
+
+可能作为以前没看过主播的人更能了解为啥百万姐走红吧。
+
+*****
+
+####  心垂万刃  
+##### 13660#       发表于 2022-5-28 22:56
+
+这么高同接然而推特没有趋势<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
