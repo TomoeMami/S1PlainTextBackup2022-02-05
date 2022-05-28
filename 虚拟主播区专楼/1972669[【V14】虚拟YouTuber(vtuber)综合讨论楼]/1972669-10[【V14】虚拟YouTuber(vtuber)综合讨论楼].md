@@ -2471,3 +2471,41 @@ vspo最近有几个liver出现了联动同接不如solo的情况，比如ema，�
 
 md,仔细想了想我现在要是没事的话也愿意找个vspo的台挂着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 13728#       发表于 2022-5-29 00:41
+
+1,400多人在待机室里等破50万，简直了.......
+
+*****
+
+####  fastary  
+##### 13729#       发表于 2022-5-29 00:41
+
+ 本帖最后由 fastary 于 2022-5-29 00:45 编辑 
+
+…………考虑到enkr反应的话或许我还应该为莎皇出现而开心才是？<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+因为偶像式推法加狼性策略我一直觉得enkr对liver们直播题材和内容之类的辅助上挺放养的（虽然好像目前也没哪个v企业有在帮助进行直播策划的感觉），如果莎皇能带来转变倒也不错，但是又觉得enkr还是只会老一套浪费难得的紫微星
+
+syl
+
+感觉百万小姐的热度滚雪球到现在很多人比起被吸粉已经更像是隔壁小红奇迹之夜万舰的凑热闹造奇观心态了这是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 13730#       发表于 2022-5-29 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034829&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-5-29 00:33</a>
+
+towa本身又不弱……
+
+流量虽然一直提供曝光度，但是一定时间内能曝光的方向和程度都是有限的。
+
+towa少的就是 ...</blockquote>
+你这就对着数字嗯吹，towa当初被炎后只有一点白皮跟着玩空洞的时候我都看过，这人本身在箱内受众角度风格和声音不说弱也没啥优势，何谈什么少的就是流量.... 和两个职业选手数字低了这话更是太臆测了，你去看看那个多少数字先，你的意思是towa本身有皇级么。
+
