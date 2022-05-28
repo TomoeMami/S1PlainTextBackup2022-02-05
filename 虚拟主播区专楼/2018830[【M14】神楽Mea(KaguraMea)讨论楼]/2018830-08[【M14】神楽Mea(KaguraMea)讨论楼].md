@@ -7608,3 +7608,20 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 虽然但是，你麻开播那会儿就说了今天确实有事要做，但是这人现在在逃避而已<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11247#       发表于 2022-5-29 01:18
+
+要不咱换个英雄吧。不看阵容强行选波比，你实力也达不到啊。
+
+<img src="https://img.saraba1st.com/forum/202205/29/011636hj885f3mr8jtjrl8.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220529011521658.jpg</strong> (136.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-29 01:16 上传
+
