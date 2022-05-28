@@ -7478,3 +7478,81 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 草，这个点老鼠台打撸
 
+
+
+*****
+
+####  Klience  
+##### 11235#       发表于 2022-5-29 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56033823&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-28 23:10</a>
+
+29号应该播不了，花园猫和绯赤都说明天要收录，在舞蹈工作室，要从早工作到晚。 ...</blockquote>
+好奶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 11236#       发表于 2022-5-29 00:23
+
+打撸，
+
+*****
+
+####  Klience  
+##### 11237#       发表于 2022-5-29 00:24
+
+看了下 这人开播前还打了两把波比排位 都赢了 是不是手感起来就马上开播打排位呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 11238#       发表于 2022-5-29 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034712&amp;ptid=2018830" target="_blank">Klience 发表于 2022-5-29 00:23</a>
+
+好奶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">花园猫和绯赤整天很累很忙。
+
+都说了29号要收录，很辛苦。
+
+但是mea这个时间在打lol rank上分。
+
+我开始怀疑其他两位的辛劳的可信度是多少。
+
+*****
+
+####  yywzjsw  
+##### 11239#       发表于 2022-5-29 00:25
+
+快进录舞迟到
+
+*****
+
+####  Klience  
+##### 11240#       发表于 2022-5-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034739&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-29 00:25</a>
+
+花园猫和绯赤整天很累很忙。
+
+都说了29号要收录，很辛苦。
+
+但是mea这个时间在打lol rank上分。</blockquote>
+反正闲的是她 28号凌晨这人也打了两把 贪玩呗<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 11241#       发表于 2022-5-29 00:30
+
+大号虐白银虐出手虐出自信来了，直播号对线白金被按着打……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/29/002901fs9zzrrruoxhx2x5.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220529002619911.jpg</strong> (18.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-29 00:29 上传
+

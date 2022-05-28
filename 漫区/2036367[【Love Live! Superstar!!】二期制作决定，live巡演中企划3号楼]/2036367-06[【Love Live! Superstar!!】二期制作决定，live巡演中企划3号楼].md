@@ -15473,3 +15473,48 @@ QQ图片20220528201111.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56030471&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-28 20:27</a></blockquote>
 长号，贝斯，吉他，架子鼓，键盘
 
+
+
+*****
+
+####  仟音一心  
+##### 8630#       发表于 2022-5-29 00:26
+
+企划12周年
+
+<img src="https://img.saraba1st.com/forum/202205/29/002542f24tj8g6kptpg8kj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0ED2B8A1-3585-4F1B-9610-75BCB7CB6E02.jpeg</strong> (62.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/29/002542gmtu72e2clggwtuu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7A7BA087-0642-43A6-80EF-DE002CA3D60F.jpeg</strong> (192.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/29/002555o281q800tz0g3ee2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>75471ED5-6A8E-4F5C-920B-6AE41BCE291B.jpeg</strong> (561.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202205/29/002601bvqvrhvq9lvrz33t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2C78CC76-DD17-46DB-B390-94A04FDF9C37.jpeg</strong> (652.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 00:26 上传
+

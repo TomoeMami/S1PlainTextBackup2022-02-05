@@ -2324,3 +2324,85 @@ vspo的mc是正统百合mc，你觉得杏人喜不喜欢
 对啊，但是到头来当VTB讲述设定维持角色实际上是在自我包装做自己的制作人这一点，我觉得没有想象中的那么在V圈里普及。单单只沉溺于炒作之类的说法而不考虑包装手法活像农业社会看不起技术进步的奇技淫巧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 娱乐圈玩了多少年的包装手法。哪是炒作一个词能概括的呢
 
+
+
+*****
+
+####  空集  
+##### 13718#       发表于 2022-5-29 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034642&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-29 00:18</a>
+
+vspo其实从近段时间来看跟虹联动的减少了很多，主要还是各种枪男（再说虹也吸的差不多了）
+
+你杏毕竟人多 ...</blockquote>
+你的意思是mc限定独角兽友好么
+
+*****
+
+####  渡鸦骑士  
+##### 13719#       发表于 2022-5-29 00:22
+
+不是，黛灰又捐钱了？
+这次是1000万？
+
+*****
+
+####  poipanchao  
+##### 13720#       发表于 2022-5-29 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034701&amp;ptid=1972669" target="_blank">空集 发表于 2022-5-29 00:22</a>
+
+你的意思是mc限定独角兽友好么</blockquote>
+差不多吧，再说你杏也不是全是独角兽，towa同接又不算低
+
+感觉从towa那也吸了不少（）
+
+*****
+
+####  渡鸦骑士  
+##### 13721#       发表于 2022-5-29 00:25
+
+ 本帖最后由 渡鸦骑士 于 2022-5-29 00:26 编辑 
+
+我倒是觉得因为最近某个团体让holo的一大部分粉丝有机会接触到了vspo这个打枪团体……
+目前还是虹粉转的多，之后还是要抽样调查一下了。
+
+*****
+
+####  fastary  
+##### 13722#       发表于 2022-5-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034702&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-5-29 00:22</a>
+
+不是，黛灰又捐钱了？
+
+这次是1000万？</blockquote>
+ymen和黛灰啥也没说啊，你看的是啥
+
+不会是说去年他回归之后给孤儿院捐了1000万的事吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|原来如此，看到有人科普这事|
+
+查看全部评分
+
+*****
+
+####  空集  
+##### 13723#       发表于 2022-5-29 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034738&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-29 00:25</a>
+
+差不多吧，再说你杏也不是全是独角兽，towa同接又不算低
+
+感觉从towa那也吸了不少（） ...</blockquote>
+不是 你又不是不懂towa以前同接多差 我一直还觉得towa本质是吸箱外流量的呢，比如和两个真人男人打枪这种，高同接感觉和传统杏客群很难说有很大关系啊
+
