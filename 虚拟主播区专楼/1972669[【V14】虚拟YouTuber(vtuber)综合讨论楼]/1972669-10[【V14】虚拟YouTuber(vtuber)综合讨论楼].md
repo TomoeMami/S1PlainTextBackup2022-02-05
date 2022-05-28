@@ -1652,3 +1652,68 @@ noah和一堆en的联动来了，混入niji
 
 看来V圈又要扩大一圈了，以后10w同接可能也会变成常态
 
+
+
+*****
+
+####  蓬莱广告  
+##### 13650#       发表于 2022-5-28 22:43
+
+距离开播涨了1w粉，同接甚至还在往上涨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  hulaoda007  
+##### 13651#       发表于 2022-5-28 22:44
+
+速报，阿社过六面了！
+
+*****
+
+####  古战场亡魂  
+##### 13652#       发表于 2022-5-28 22:45
+
+字幕组现在搬运的，只能说真的酸了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/28/224428fz2rxtn6ptxpwpx6.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220528224417126.jpg</strong> (54.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-28 22:44 上传
+
+*****
+
+####  狐言乱语  
+##### 13653#       发表于 2022-5-28 22:45
+
+只能说新月岚领先业界一年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古战场亡魂  
+##### 13654#       发表于 2022-5-28 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 13655#       发表于 2022-5-28 22:47
+
+11w了，你虹买bot了吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+サロメ姐贵这配置好像还不太行，卡卡的
+
+*****
+
+####  rzrbtk  
+##### 13656#       发表于 2022-5-28 22:49
+
+虽然大家都说月之在阴阳，但我真觉得月之这几天包括之前杂谈都在作为铁血虹人高兴啊😭
+
