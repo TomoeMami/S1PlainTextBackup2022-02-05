@@ -2739,3 +2739,15 @@ syl 从世怜女开始虹女费拉不堪的出道太多了，这次来个平均�
 
 为什么要和tskk比，这干的明显是鲨皇的活，吸的是世一管，吸世一管哪需要和历史的尘埃比能力。jp观众已经开发了这么多年了，客群总数也少，最终数字比不了鲨皇，但这五天半金也足够起个纪念碑了。
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13757#       发表于 2022-5-29 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56035344&amp;ptid=1972669" target="_blank">purdre 发表于 2022-5-29 01:24</a>
+
+转眼一看昨天尊妈的asmr超7000同接了！？好起来了，都好起来了</blockquote>
+我记得之前有一次asmr我点进去同接就上w asmr是同接非常高的直播 但尊妈播的很少
+
