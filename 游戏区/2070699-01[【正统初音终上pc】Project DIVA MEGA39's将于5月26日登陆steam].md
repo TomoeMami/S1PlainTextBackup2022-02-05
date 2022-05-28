@@ -1509,3 +1509,15 @@ ns178首ps4 237首<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 这mod安装方式，程序里专门做了加载mod的功能吧......可能用来加载dlc的？
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 147#       发表于 2022-5-28 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56022903&amp;ptid=2070699" target="_blank">RinQ0326 发表于 2022-5-28 07:05</a>
+
+我这边只能提供操作上的建议，因为视觉提示我已经非常习惯了.....可以去设置里面把（□✕○△）四键全押 ...</blockquote>
+我已经开始嗯背了，感觉还是简单粗暴的比较有效<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
