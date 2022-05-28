@@ -1562,3 +1562,12 @@ mod在哪里找啊<img src="https://static.saraba1st.com/image/smiley/face2017/0
 求一个指路</blockquote>
 谷歌搜project diva r18 mod discord能找到加入链接
 
+
+
+*****
+
+####  Aric_Bear  
+##### 152#       发表于 2022-5-28 18:21
+
+PC版甩葱歌怎么没了
+
