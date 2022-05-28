@@ -13877,3 +13877,14 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 不会真有人看海贼不看世界局势看主线吧？不会吧不会吧？（阴阳人上身了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天使的日曜日  
+##### 58167#       发表于 2022-5-28 18:46
+
+这场仗打完全员都活蹦乱跳的，除了路飞满足的带着笑睡过去，也就剩个索隆一直瘫着搞到现在都生死未卜的
+回过头来看才发现当时提到的索隆跟大名牛丸长得像又跟龙马一样是独眼剑士，本来以为在打King的过程里会揭露的，结果打完King也没用到
+而且那死神是什么也不知道就给尾田混过去了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
