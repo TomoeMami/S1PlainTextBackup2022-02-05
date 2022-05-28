@@ -15456,3 +15456,20 @@ QQ图片20220528201111.png
 
 <img src="https://img.saraba1st.com/forum/202205/28/202317ambqpxgbmo9pmm2k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yevvet  
+##### 8628#       发表于 2022-5-28 21:12
+
+衣服好显胖
+
+*****
+
+####  starring  
+##### 8629#       发表于 2022-5-28 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56030471&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-28 20:27</a></blockquote>
+长号，贝斯，吉他，架子鼓，键盘
+
