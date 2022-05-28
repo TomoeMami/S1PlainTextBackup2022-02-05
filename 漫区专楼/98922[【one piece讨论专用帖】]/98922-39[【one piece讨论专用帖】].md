@@ -13821,3 +13821,21 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 凯多和大妈死的概率极小，估计被大妈海贼团救了。新将军就是桃之助吧，放个烟雾估计是他之前强行预支生命， ...</blockquote>
 还得是跪着喊谢谢玉田大人
 
+
+
+*****
+
+####  DGIL  
+##### 58162#       发表于 2022-5-28 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后那页我给大家带来了一位新将军
+
+有种小人得志的感觉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且庆祝前不是应该先去看看路飞？
+
+大概我实在不喜欢和之国这帮人
+
+大和就胜在颜值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+恭送凯老师，
+
