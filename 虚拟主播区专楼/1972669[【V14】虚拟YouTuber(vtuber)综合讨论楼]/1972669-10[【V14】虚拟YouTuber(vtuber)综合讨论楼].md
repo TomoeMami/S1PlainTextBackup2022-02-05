@@ -2837,3 +2837,46 @@ syl，生化7可能也是让不少人怀念的原因吧，这游戏的精彩集�
 
 留不住tskk不是因为偶像化体制走讨好主流路线要捂她嘴了
 
+
+
+*****
+
+####  rzrbtk  
+##### 13766#       发表于 2022-5-29 09:40
+
+才五天看不出未来对箱如何吧...
+
+省一楼，真路人：“好高的热度啊，是杏女！"
+
+<img src="https://img.saraba1st.com/forum/202205/29/094007nhhv3z1lvl8n5vw1.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 016 - (1) 壱百満天原サロメ - Twitter 搜索 _ Twitter - twitter.c.png</strong> (34.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-29 09:40 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 獅白ぼたん| + 1|难道不是拿她拉踩木口的多吗|
+
+查看全部评分
+
+*****
+
+####  渡鸦骑士  
+##### 13767#       发表于 2022-5-29 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034970&amp;ptid=1972669" target="_blank">空集 发表于 2022-5-29 00:44</a>
+你这就对着数字嗯吹，towa当初被炎后只有一点白皮跟着玩空洞的时候我都看过，这人本身在箱内受众角度风格 ...</blockquote>
+holo现在的皇级说句水涨船高不过分吧。
+上个一万什么的箱里还是有一半多可以做到的这有什么好吹的<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+towa的数据进步用同样主题的直播就很好看出来了啊。同样是普通歌回几个月之前最高1W2，最近都能2W5了。
+倒是昨天的Apex数据真不行。好像是没有大赛加成惹。
+
