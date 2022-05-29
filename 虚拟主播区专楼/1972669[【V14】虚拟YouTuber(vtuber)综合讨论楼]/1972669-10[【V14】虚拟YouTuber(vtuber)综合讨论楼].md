@@ -3047,3 +3047,48 @@ hhhhhhhhh 没子弹了
 
 新人总是会洗错手的
 
+
+
+*****
+
+####  心垂万刃  
+##### 13785#       发表于 2022-5-29 22:44
+
+12万已破<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shuipiao520  
+##### 13786#       发表于 2022-5-29 22:44
+
+12W了！！！！
+
+*****
+
+####  古战场亡魂  
+##### 13787#       发表于 2022-5-29 22:45
+
+？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202205/29/224517qbixs8328oiloiuu.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220529224440709.jpg</strong> (19.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-29 22:45 上传
+
+*****
+
+####  hulaoda007  
+##### 13788#       发表于 2022-5-29 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">还能涨，正常也只是维持10w吧。不会你什么都色真的买流量了吧？
+
+*****
+
+####  _Ra1nMaker  
+##### 13789#       发表于 2022-5-29 22:49
+
+那为什么不给其他人也买点，独乐乐不如众乐乐<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
