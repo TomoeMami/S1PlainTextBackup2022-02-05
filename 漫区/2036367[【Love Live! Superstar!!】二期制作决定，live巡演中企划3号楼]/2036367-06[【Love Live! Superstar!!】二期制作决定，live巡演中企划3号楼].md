@@ -15887,3 +15887,74 @@ QQ图片20220528201111.png
 是不是变相证明了她跟可可的对手戏不会少...</blockquote>
 没必要，单单之前透露的可堇和可可的戏份，再来夏美可可，第二季就是可可传了
 
+
+
+*****
+
+####  Enakina  
+##### 8659#       发表于 2022-5-29 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046973&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-29 23:36</a>
+打个预防针，如果做三季或者做到香音她们升高三和毕业，到时候肯定要再追加一年级生 ...</blockquote>
+加过一次大家都佛系了，受不了的都跑路了。我现在就很期待下一次加人了，指看乐子的心态
+
+*****
+
+####  aoaoaodedede  
+##### 8660#       发表于 2022-5-29 23:46
+
+ 本帖最后由 aoaoaodedede 于 2022-5-29 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047011&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-29 23:39</a>
+
+没必要，单单之前透露的可堇和可可的戏份，再来夏美可可，第二季就是可可传了 ...</blockquote>
+说的是之前一专Febri的采访吧，那个采访也并没有透露可可或者可堇的戏份究竟有多少，你看一期动画里的可堇也不少，但是也就第10集算是主要涉及俩人的关系，我倒是不觉得这能说明可可戏份或许会很多了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 8661#       发表于 2022-5-29 23:47
+
+这配图站位，感觉第二季估计又是香音传
+
+*****
+
+####  we89623  
+##### 8662#       发表于 2022-5-29 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047011&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-5-29 23:39</a>
+
+没必要，单单之前透露的可堇和可可的戏份，再来夏美可可，第二季就是可可传了 ...</blockquote>
+谁透漏了，貌似我知道有这么一说，但具体不太清楚，能详细说说嘛？
+
+*****
+
+####  iuhehc  
+##### 8663#       发表于 2022-5-29 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046982&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-29 23:37</a>
+这构图，总有种香音1带8的感觉</blockquote>
+反正希望别整成香音传第二部了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 8664#       发表于 2022-5-29 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047153&amp;ptid=2036367" target="_blank">we89623 发表于 2022-5-29 23:47</a>
+
+谁透漏了，貌似我知道有这么一说，但具体不太清楚，能详细说说嘛？</blockquote>
+我推断来源是鲤鱼和pay的一专Febri采访
+[https://www.bilibili.com/read/cv15591160](https://www.bilibili.com/read/cv15591160)
+[https://www.bilibili.com/read/cv15584609](https://www.bilibili.com/read/cv15584609)
+
+*****
+
+####  iuhehc  
+##### 8665#       发表于 2022-5-29 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047153&amp;ptid=2036367" target="_blank">we89623 发表于 2022-5-29 23:47</a>
+谁透漏了，貌似我知道有这么一说，但具体不太清楚，能详细说说嘛？</blockquote>
+编辑
+
