@@ -15622,3 +15622,16 @@ QQ图片20220528201111.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 8637#       发表于 2022-5-29 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56042164&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-5-29 18:32</a>
+人不少啊感觉
+
+—— 来自 S1Fun</blockquote>
+周五那天上座率不太行，毕竟工作日，周六那天基本坐满了
+
