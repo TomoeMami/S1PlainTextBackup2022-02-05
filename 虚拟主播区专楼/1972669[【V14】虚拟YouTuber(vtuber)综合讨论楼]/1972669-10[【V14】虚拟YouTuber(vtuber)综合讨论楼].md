@@ -3092,3 +3092,50 @@ hhhhhhhhh 没子弹了
 
 那为什么不给其他人也买点，独乐乐不如众乐乐<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IL282  
+##### 13790#       发表于 2022-5-29 22:51
+
+<img src="https://p.sda1.dev/6/c43394dcfc6c51d570497903890703b7/CMP_20220529225122792.jpg" referrerpolicy="no-referrer">
+
+完了，打不过老爹，今天要加班了
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cckuku  
+##### 13791#       发表于 2022-5-29 22:56
+
+我都想问一句真没买吗？<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 13792#       发表于 2022-5-29 22:58
+
+感觉会有很有趣的fanart了。
+
+*****
+
+####  シナモンロール  
+##### 13793#       发表于 2022-5-29 22:59
+
+一百万这个态势明显是数字厨专项整治企划
+
+说实话属于买了也不奇怪的类型，但我觉得没买，因为初期冲一冲其实比想象中容易，再没有其他太多东西分流的情况下在现在的vjuan拉起一波流量已经不是不可能的了
+
+不过我倒是觉得如果一百万没有更nb的专武留下人的话，感觉真的就是斗和第二
+
+当然能惠及虹女的话也算是菩萨了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qesto  
+##### 13794#       发表于 2022-5-29 23:00
+
+什么时候食杀兔头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
