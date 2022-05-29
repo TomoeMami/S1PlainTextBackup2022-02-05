@@ -598,3 +598,15 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 最近怎么厕妹大爆发，是不是点错了一次就会一直给我推厕妹，每天都能看到一百个厕妹在骂人自残说疯话，以前 ...</blockquote>
 上海封了一群人没工作了只能在互联网上发疯?
 
+
+
+*****
+
+####  aa01  
+##### 64#       发表于 2022-5-29 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56045369&amp;ptid=2072064" target="_blank">Theergold 发表于 2022-5-29 21:59</a>
+
+上海封了一群人没工作了只能在互联网上发疯?</blockquote>
+这种疯批女一直有的。关了60天的上海人远没有疯到那种程度
+
