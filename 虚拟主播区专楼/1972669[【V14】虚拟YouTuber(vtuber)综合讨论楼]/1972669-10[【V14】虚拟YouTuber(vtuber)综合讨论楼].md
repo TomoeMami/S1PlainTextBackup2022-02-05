@@ -3522,3 +3522,24 @@ syl 现在还以为这12w人是看直播内容的么，百万姐直播水平现�
 
 但直播内容还是不确定，今天看到回顾图上的欧卡logo我本来都确定莎天酱早知道流程，就是要玩这个梗才插入的一发game，但是蘑菇人、电锯决战卡关，直接把12万偏13万给干掉了，有些地方忙着扫屋直接十秒沉默也不像有足够准备，神秘女人惹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13835#       发表于 2022-5-30 06:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046592&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-5-29 23:12</a>
+
+百万姐负责同接，vox负责sc，两手都要抓，虹赢麻了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202205/30/060805cz85mjhf8thzig0t.png" referrerpolicy="no-referrer">
+
+<strong>1650081674636.png</strong> (35.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-30 06:08 上传
+
+正好看到个破图
+
