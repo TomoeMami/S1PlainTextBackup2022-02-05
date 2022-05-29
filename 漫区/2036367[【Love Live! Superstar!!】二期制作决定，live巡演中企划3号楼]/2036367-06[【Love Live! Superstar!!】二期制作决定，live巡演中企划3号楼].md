@@ -15958,3 +15958,34 @@ QQ图片20220528201111.png
 谁透漏了，貌似我知道有这么一说，但具体不太清楚，能详细说说嘛？</blockquote>
 编辑
 
+
+
+*****
+
+####  starring  
+##### 8666#       发表于 2022-5-29 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047081&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-29 23:43</a>
+
+加过一次大家都佛系了，受不了的都跑路了。我现在就很期待下一次加人了，指看乐子的心态 ...</blockquote>
+破防一次已经佛了，剧情写好就叫一声圣花田，还是那个样子的话也没什么，戏外的乐子会更好看罢了
+
+*****
+
+####  ViyViy  
+##### 8667#       发表于 2022-5-29 23:54
+
+鲤鱼Febri说的还很含糊，后面还有次采访基本就是复读pay在Febri的话（关于可堇和可可的那个承诺），很是吊胃口阿，不知道是不是烟雾弹
+
+*****
+
+####  aoaoaodedede  
+##### 8668#       发表于 2022-5-29 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047183&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-5-29 23:49</a>
+
+反正希望别整成香音传第二部了
+
+—— 来自 S1Fun</blockquote>
+唉，谁知道呢，就看企划方想怎么发展星团了，反正个人对二期动画没有期待，再离谱可能也不容易搞我心态了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
