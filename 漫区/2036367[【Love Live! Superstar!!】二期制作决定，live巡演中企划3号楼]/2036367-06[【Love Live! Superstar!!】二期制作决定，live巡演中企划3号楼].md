@@ -16011,3 +16011,14 @@ QQ图片20220528201111.png
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 8671#       发表于 2022-5-30 00:39
+
+看到这宣绘，第二季我都不想看了，这嗯推新人的意图太明显了吧，怕不是香音传与她四个新成员的故事哦，看着老人在角落，这感觉真是跟吃shi一样<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
