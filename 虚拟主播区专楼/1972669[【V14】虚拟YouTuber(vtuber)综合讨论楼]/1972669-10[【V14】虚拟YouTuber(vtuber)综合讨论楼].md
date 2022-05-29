@@ -3007,3 +3007,34 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西班牙村热不要变ngo绝唱啊
 
+
+
+*****
+
+####  rzrbtk  
+##### 13781#       发表于 2022-5-29 22:14
+
+生化7屎炸让莎天酱比vox先辱了啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">！
+
+不过说明这个意识也不错诶...
+
+*****
+
+####  alcoholic1000  
+##### 13782#       发表于 2022-5-29 22:15
+
+ですわ又10w了，今天待机时英语发言挺多开播以后反而绝迹了
+
+bot没买够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IL282  
+##### 13783#       发表于 2022-5-29 22:17
+
+<img src="https://p.sda1.dev/6/bd4302874655e9c10d3f340e579cb201/CMP_20220529221700507.jpg" referrerpolicy="no-referrer">
+
+hhhhhhhhh 没子弹了
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
