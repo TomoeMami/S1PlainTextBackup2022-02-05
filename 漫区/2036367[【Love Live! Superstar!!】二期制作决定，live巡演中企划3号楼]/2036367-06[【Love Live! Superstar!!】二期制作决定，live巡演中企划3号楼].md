@@ -15989,3 +15989,12 @@ QQ图片20220528201111.png
 —— 来自 S1Fun</blockquote>
 唉，谁知道呢，就看企划方想怎么发展星团了，反正个人对二期动画没有期待，再离谱可能也不容易搞我心态了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8669#       发表于 2022-5-30 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想什么呢，香音传二，堂堂连载
+
