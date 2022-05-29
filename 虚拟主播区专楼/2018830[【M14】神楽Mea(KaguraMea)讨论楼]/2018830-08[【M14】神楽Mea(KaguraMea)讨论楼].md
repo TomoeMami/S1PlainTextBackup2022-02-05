@@ -7655,3 +7655,15 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 2022-5-29 10:43 上传
 
+
+
+*****
+
+####  Klience  
+##### 11250#       发表于 2022-5-29 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56035290&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-5-29 01:18</a>
+
+要不咱换个英雄吧。不看阵容强行选波比，你实力也达不到啊。</blockquote>
+那么问题又来了 排位里她还有其他什么英雄能用的吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
