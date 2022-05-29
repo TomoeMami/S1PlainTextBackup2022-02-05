@@ -15712,3 +15712,15 @@ QQ图片20220528201111.png
 
 惨，国内带手机就能解决上述全部功能
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8643#       发表于 2022-5-29 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046219&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-29 22:50</a>
+
+惨，国内带手机就能解决上述全部功能</blockquote>
+手机不好当钥匙吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
