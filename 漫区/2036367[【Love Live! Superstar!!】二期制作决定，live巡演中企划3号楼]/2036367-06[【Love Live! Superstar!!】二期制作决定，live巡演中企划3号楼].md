@@ -15724,3 +15724,21 @@ QQ图片20220528201111.png
 惨，国内带手机就能解决上述全部功能</blockquote>
 手机不好当钥匙吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 8644#       发表于 2022-5-29 23:19
+
+<img src="https://p.sda1.dev/6/68349e2bbf178d237ba915dba4e2e5a7/591FCDDE07BDF448BCD60795A6500AD4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8645#       发表于 2022-5-29 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046447&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-29 23:03</a>
+手机不好当钥匙吧，难不成哪家智能门锁能用手机解锁</blockquote>
+我家就是手机锁
+

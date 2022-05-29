@@ -610,3 +610,30 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 上海封了一群人没工作了只能在互联网上发疯?</blockquote>
 这种疯批女一直有的。关了60天的上海人远没有疯到那种程度
 
+
+
+*****
+
+####  Akakaka  
+##### 65#       发表于 2022-5-29 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56044912&amp;ptid=2072064" target="_blank">MAO_DREAMER 发表于 2022-5-29 21:26</a>
+
+厕妹是啥，肉便 器的近义词？</blockquote>
+日本地雷文化和中国惨圈文化合流下的一种神秘产物，因为各种隔空喊话bot充满匿名恶臭言论所以被称为厕所，在里面活动的成为厕妹
+
+简单来说，心智不成熟精神有问题处于不稳定期的二次元女性
+
+您要真想把她们当rbq可以想想自己有没有日本那个不死鸟牛郎的命大，不然小心街头被捅死
+
+虽然她们自称地雷女但是我觉得不是地雷，是明雷
+
+*****
+
+####  Theergold  
+##### 66#       发表于 2022-5-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56045419&amp;ptid=2072064" target="_blank">aa01 发表于 2022-5-29 22:02</a>
+这种疯批女一直有的。关了60天的上海人远没有疯到那种程度</blockquote>
+我说的是做那些人与人链接工作的由于没办法和别人进行连接所以在互联网上发疯批（
+
