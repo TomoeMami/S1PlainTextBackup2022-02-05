@@ -2880,3 +2880,19 @@ holo现在的皇级说句水涨船高不过分吧。
 towa的数据进步用同样主题的直播就很好看出来了啊。同样是普通歌回几个月之前最高1W2，最近都能2W5了。
 倒是昨天的Apex数据真不行。好像是没有大赛加成惹。
 
+
+
+*****
+
+####  winda  
+##### 13768#       发表于 2022-5-29 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">40w风光大葬能叫抹布，那马上毕业的梅丽莎删光所有内容是变不可回收垃圾了么
+
+*****
+
+####  ヒトニナル  
+##### 13769#       发表于 2022-5-29 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">又开始讨论“质”了吗
+
