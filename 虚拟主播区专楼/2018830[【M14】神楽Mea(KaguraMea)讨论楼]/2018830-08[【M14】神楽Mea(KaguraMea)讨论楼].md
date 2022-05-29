@@ -7636,3 +7636,22 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古战场亡魂  
+##### 11249#       发表于 2022-5-29 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034378&amp;ptid=2018830" target="_blank">Dualist彩 发表于 2022-5-28 23:57</a>
+
+“指原桑，喜欢我摇人爆杀vcp吗？”</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202205/29/104357add1iiwpidpjjpim.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220529104349455.jpg</strong> (25.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-29 10:43 上传
+
