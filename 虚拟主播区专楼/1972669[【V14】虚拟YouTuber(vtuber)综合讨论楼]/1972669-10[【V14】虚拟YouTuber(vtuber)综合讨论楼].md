@@ -2951,3 +2951,14 @@ syl
 
 不过中午有两个3w枠，其实很强了。
 
+
+
+*****
+
+####  saintsimpler  
+##### 13775#       发表于 2022-5-29 15:41
+
+尊妈的asmr我是认的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
