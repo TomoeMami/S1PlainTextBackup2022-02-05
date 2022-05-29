@@ -586,3 +586,15 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 
 本质是初中高中生厕妹憧憬立本地雷女的模仿行为，跟发美颜过的磕药切手图差不多
 
+
+
+*****
+
+####  Theergold  
+##### 63#       发表于 2022-5-29 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56042174&amp;ptid=2072064" target="_blank">zteacally 发表于 2022-5-29 18:33</a>
+
+最近怎么厕妹大爆发，是不是点错了一次就会一直给我推厕妹，每天都能看到一百个厕妹在骂人自残说疯话，以前 ...</blockquote>
+上海封了一群人没工作了只能在互联网上发疯?
+
