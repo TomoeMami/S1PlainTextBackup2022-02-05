@@ -3255,3 +3255,26 @@ vox还是有事业心
 
 配不配位就没办法评说了
 
+
+
+*****
+
+####  hulaoda007  
+##### 13808#       发表于 2022-5-29 23:20
+
+但可以这么红，数据那么好真的意料之外…
+
+*****
+
+####  古战场亡魂  
+##### 13809#       发表于 2022-5-29 23:24
+
+反正莎皇下播以后，和她撞车的油管直播的同接都多了些。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  心垂万刃  
+##### 13810#       发表于 2022-5-29 23:25
+
+最奇怪的就是这么高的同接，推特上都没有趋势<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

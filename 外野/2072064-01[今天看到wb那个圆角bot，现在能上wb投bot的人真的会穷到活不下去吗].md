@@ -637,3 +637,27 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 这种疯批女一直有的。关了60天的上海人远没有疯到那种程度</blockquote>
 我说的是做那些人与人链接工作的由于没办法和别人进行连接所以在互联网上发疯批（
 
+
+
+*****
+
+####  zteacally  
+##### 67#       发表于 2022-5-29 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56043863&amp;ptid=2072064" target="_blank">铁自闭 发表于 2022-5-29 20:25</a>
+推点看下 在哪看</blockquote>
+忘了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">你直接搜厕妹试试？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zteacally  
+##### 68#       发表于 2022-5-29 23:28
+
+楼上解释的很到位了。厕妹点进去基本就是要死要活要自残，骂爹骂娘骂社会，人人有病看，人人有药吃。
+至于他们对纸片人发病发情骂对家的我根本看不懂了。
+和贴吧混沌程度不相上下吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

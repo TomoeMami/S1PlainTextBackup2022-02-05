@@ -15742,3 +15742,103 @@ QQ图片20220528201111.png
 手机不好当钥匙吧，难不成哪家智能门锁能用手机解锁</blockquote>
 我家就是手机锁
 
+
+
+*****
+
+####  仟音一心  
+##### 8646#       发表于 2022-5-29 23:24
+
+鬼塚夏美生日改为8.7
+
+<img src="https://img.saraba1st.com/forum/202205/29/232350mzf02nuaji3a3i9i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FEEB0B79-3DEB-4213-9345-D0D23AC927AF.jpeg</strong> (616.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 23:23 上传
+
+<img src="https://img.saraba1st.com/forum/202205/29/232357sctc8mlhe9g5782t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1E301200-A10C-40DF-A3E3-32A0BD67157C.jpeg</strong> (498.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 23:23 上传
+
+<img src="https://img.saraba1st.com/forum/202205/29/232403fmdm0dtj0ckc90ok.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>065D276F-EFF9-420C-A516-E63213F25D63.jpeg</strong> (464.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 23:24 上传
+
+*****
+
+####  we89623  
+##### 8647#       发表于 2022-5-29 23:24
+
+夏美生日改8.7日了 
+
+是不是变相证明了她跟可可的对手戏不会少...
+
+*****
+
+####  太二EricGuo  
+##### 8648#       发表于 2022-5-29 23:26
+
+还好不是817
+
+*****
+
+####  lj205  
+##### 8649#       发表于 2022-5-29 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046447&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-29 23:03</a>
+
+手机不好当钥匙吧，难不成哪家智能门锁能用手机解锁</blockquote>
+智能锁也有NFC开门功能啊，刚好今年搬新家换的智能锁
+
+*****
+
+####  aoaoaodedede  
+##### 8650#       发表于 2022-5-29 23:29
+
+好家伙，看来是我孤陋寡闻了
+
+*****
+
+####  aoaoaodedede  
+##### 8651#       发表于 2022-5-29 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046808&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-29 23:27</a>
+
+智能锁也有NFC开门功能啊，刚好今年搬新家换的智能锁</blockquote>
+好家伙，看来是我孤陋寡闻了
+
+话说这种NFC的锁安全吗
+
+*****
+
+####  lj205  
+##### 8652#       发表于 2022-5-29 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046860&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-29 23:30</a>
+
+好家伙，看来是我孤陋寡闻了
+
+话说这种NFC的锁安全吗</blockquote>
+安不安全的，现在治安那么好，特别是新楼盘，我觉得问题不大
+
+*****
+
+####  we89623  
+##### 8653#       发表于 2022-5-29 23:32
+
+最新杂志强调<strong>2年目</strong>的LIELLA，基本3年目是铁定的，星有三季TV的可能性更大了。
+
