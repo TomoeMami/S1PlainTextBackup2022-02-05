@@ -15644,3 +15644,12 @@ QQ图片20220528201111.png
 
 可恶，MTV赶快给我吐出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 8639#       发表于 2022-5-29 21:04
+
+不插电的未来如风也太棒了吧，官方快出BD啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
