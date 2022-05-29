@@ -661,3 +661,15 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  hanyuwei70  
+##### 69#       发表于 2022-5-30 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56039529&amp;ptid=2072064" target="_blank">kina 发表于 2022-5-29 14:31</a>
+
+经典有苦衷</blockquote>
+那倒不是，只不过一般这种小作文不说而已……
+

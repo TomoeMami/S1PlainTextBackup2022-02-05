@@ -3480,3 +3480,18 @@ syl 现在还以为这12w人是看直播内容的么，百万姐直播水平现�
 
 百万姐除了游戏实况不知道还有什么牌敢不敢开，就和梭哈赢了以后赌大小all or nothing一样刺激，毕竟赌注已经堆成山了而管人从来没有收手下场这个选择
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13832#       发表于 2022-5-30 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是现在每天晚上有一个10万以上的流量，然后播一个小时，一下子没了。
+
+完全不知道具体的流量去向，直播结束后流量还不怎么流到自家箱里，说是散是满天星吧也没加多少。
+
+同接榜前排每人多个500-1000，后排加个50、100。
+
+我是不明白彩虹本社在干什么。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
