@@ -15518,3 +15518,23 @@ QQ图片20220528201111.png
 由手机上传
 2022-5-29 00:26 上传
 
+
+
+*****
+
+####  a92063256  
+##### 8631#       发表于 2022-5-29 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56034751&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-29 00:26</a>
+企划12周年</blockquote>
+星团这张图笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是真没有九个人的宣传图啊
+
+*****
+
+####  仟音一心  
+##### 8632#       发表于 2022-5-29 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56037846&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-5-29 11:27</a>
+星团这张图笑喷了是真没有九个人的宣传图啊</blockquote>
+二期宣传海报没出啊
+
