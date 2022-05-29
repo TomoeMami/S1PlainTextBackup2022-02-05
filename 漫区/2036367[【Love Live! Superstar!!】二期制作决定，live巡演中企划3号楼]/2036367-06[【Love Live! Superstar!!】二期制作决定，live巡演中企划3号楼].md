@@ -15842,3 +15842,48 @@ QQ图片20220528201111.png
 
 最新杂志强调<strong>2年目</strong>的LIELLA，基本3年目是铁定的，星有三季TV的可能性更大了。
 
+
+
+*****
+
+####  lj205  
+##### 8654#       发表于 2022-5-29 23:33
+
+这新图，第二的可可都给站到最边边去了
+
+*****
+
+####  ViyViy  
+##### 8655#       发表于 2022-5-29 23:35
+
+星肯定有三期的吧，按企划硬凑9人搞传统，星二才是传统意义上的第一季<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又要被snp斩了，或者来个“神兽男”截胡
+
+*****
+
+####  starring  
+##### 8656#       发表于 2022-5-29 23:36
+
+打个预防针，如果做三季或者做到香音她们升高三和毕业，到时候肯定要再追加一年级生
+
+*****
+
+####  aoaoaodedede  
+##### 8657#       发表于 2022-5-29 23:37
+
+ 本帖最后由 aoaoaodedede 于 2022-5-29 23:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56046927&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-29 23:33</a>
+
+这新图，第二的可可都给站到最边边去了</blockquote>
+这构图，总有种香音1带8的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 8658#       发表于 2022-5-29 23:39
+
+<blockquote>we89623 发表于 2022-5-29 23:24
+夏美生日改8.7日了 
+
+是不是变相证明了她跟可可的对手戏不会少...</blockquote>
+没必要，单单之前透露的可堇和可可的戏份，再来夏美可可，第二季就是可可传了
+
