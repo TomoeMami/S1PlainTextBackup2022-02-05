@@ -3495,3 +3495,30 @@ syl 现在还以为这12w人是看直播内容的么，百万姐直播水平现�
 
 我是不明白彩虹本社在干什么。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Junchoon  
+##### 13833#       发表于 2022-5-30 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56047806&amp;ptid=1972669" target="_blank">古战场亡魂 发表于 2022-5-30 00:41</a>
+
+就是现在每天晚上有一个10万以上的流量，然后播一个小时，一下子没了。
+
+完全不知道具体的流量去向， ...</blockquote>
+睡觉啊！
+
+跌丝袜每天日本时间23～24点开播，24～1点下播，正常人都要睡了。
+
+要不是因为疫情被封在家里，我都是看不下来的。
+
+*****
+
+####  rzrbtk  
+##### 13834#       发表于 2022-5-30 00:59
+
+直播准备充分是肯定的，每次都有直播环境改进，下播立刻跟进发推，还有特意买的但慢得一比的强大电脑，
+
+但直播内容还是不确定，今天看到回顾图上的欧卡logo我本来都确定莎天酱早知道流程，就是要玩这个梗才插入的一发game，但是蘑菇人、电锯决战卡关，直接把12万偏13万给干掉了，有些地方忙着扫屋直接十秒沉默也不像有足够准备，神秘女人惹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
