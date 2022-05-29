@@ -15635,3 +15635,12 @@ QQ图片20220528201111.png
 —— 来自 S1Fun</blockquote>
 周五那天上座率不太行，毕竟工作日，周六那天基本坐满了
 
+
+
+*****
+
+####  lj205  
+##### 8638#       发表于 2022-5-29 20:18
+
+可恶，MTV赶快给我吐出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
