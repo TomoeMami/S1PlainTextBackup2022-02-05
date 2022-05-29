@@ -7667,3 +7667,12 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 要不咱换个英雄吧。不看阵容强行选波比，你实力也达不到啊。</blockquote>
 那么问题又来了 排位里她还有其他什么英雄能用的吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 11251#       发表于 2022-5-29 15:59
+
+惊了，这vcp原来真的还能让你麻和指原有点交流的啊，不是仅限于形式上的挂名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
