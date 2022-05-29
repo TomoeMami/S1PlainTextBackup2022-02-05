@@ -15538,3 +15538,30 @@ QQ图片20220528201111.png
 星团这张图笑喷了是真没有九个人的宣传图啊</blockquote>
 二期宣传海报没出啊
 
+
+
+*****
+
+####  仟音一心  
+##### 8633#       发表于 2022-5-29 12:03
+
+12周年by北原朋萌
+
+<img src="https://img.saraba1st.com/forum/202205/29/120324svxxc2c5tutvttuy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EC60DAD3-16E1-4018-BC1C-EE17B8A34B2B.jpeg</strong> (144.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202205/29/120324lma8yed2mdbdbabe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>056C45C3-DF67-4F35-94D8-6F970222D205.jpeg</strong> (164.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-29 12:03 上传
+
