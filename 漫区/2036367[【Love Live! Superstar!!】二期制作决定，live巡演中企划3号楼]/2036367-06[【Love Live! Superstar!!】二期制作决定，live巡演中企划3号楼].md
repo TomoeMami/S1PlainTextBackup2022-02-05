@@ -16424,3 +16424,26 @@ NHK Eテレにて
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">改生日说明在乎国内市场这种说法我无法接受，当初加人加得这么生硬还搞声优盾，这4个角色要是人气只比恋恋高那我只能说好死
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 8712#       发表于 2022-5-30 16:47
+
+在乎啥国内市场，顶多在乎一下你的钱给点甜头提一下就对了（所有命运的馈赠,都早已暗中标注了价格）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8713#       发表于 2022-5-30 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">5ch改生日那楼也挺乐
+
+*****
+
+####  1096beam  
+##### 8714#       发表于 2022-5-30 16:51
+
+这红蓝也锁得太死了吧
+
