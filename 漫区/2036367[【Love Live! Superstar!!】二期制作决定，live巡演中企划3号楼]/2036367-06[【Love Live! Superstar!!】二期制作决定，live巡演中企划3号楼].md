@@ -16415,3 +16415,12 @@ NHK Eテレにて
 
 鲤鱼写真集应该1000本吧
 
+
+
+*****
+
+####  adw667  
+##### 8711#       发表于 2022-5-30 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">改生日说明在乎国内市场这种说法我无法接受，当初加人加得这么生硬还搞声优盾，这4个角色要是人气只比恋恋高那我只能说好死
+
