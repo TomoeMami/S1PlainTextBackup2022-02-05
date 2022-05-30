@@ -4091,3 +4091,16 @@ rfm+黑黑的粉丝钱包是无底洞吗，我怎么觉得出其他人的周边�
 
 syl，看到肥秋系喊话早上说莎皇是乃团的rotty，有没有十年老粉鉴定下
 
+
+
+*****
+
+####  rzrbtk  
+##### 13878#       发表于 2022-5-30 14:54
+
+ 本帖最后由 rzrbtk 于 2022-5-30 14:56 编辑 
+
+郡郡帕特一起吃上饭了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">，我真是太懂郡郡喜欢的类型了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">；
+
+一看推发现月之也在乐，真有精神啊~虽然自己的身体健康不乐比较好
+
