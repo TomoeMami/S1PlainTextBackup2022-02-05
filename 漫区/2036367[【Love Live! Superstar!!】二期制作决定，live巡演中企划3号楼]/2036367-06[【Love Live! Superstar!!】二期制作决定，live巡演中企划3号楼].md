@@ -16132,3 +16132,13 @@ NHK Eテレにて
 <img src="https://p.sda1.dev/6/fa2853de46aebcc0153165854c6c6b8e/anime_before_lovelivess02.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/6/7dcc7efd5e8f397c1a1cb530a94fa8da/anime_20220530_lovelivekeyvisual.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 8683#       发表于 2022-5-30 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56049714&amp;ptid=2036367" target="_blank">Piano-Forest 发表于 2022-5-30 09:21</a></blockquote>
+7.17 可可生日＋BML buff满了
+
