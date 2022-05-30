@@ -16462,3 +16462,19 @@ NHK Eテレにて
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  we89623  
+##### 8716#       发表于 2022-5-30 17:01
+
+两次改生日都没改月份，换句话说没动星座... 是不是十二星座的可能性又大了，准备来年在加三人吧.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 8717#       发表于 2022-5-30 17:05
+
+加吧加吧，三期直接用香哥哥当封面好了，反正又摆不下，摆下了又丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
