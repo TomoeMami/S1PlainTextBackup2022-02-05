@@ -1735,3 +1735,16 @@ ps4手柄我也有 真不如jc
 
 ds4如果左边方向键独立的话确实感觉会更好，但无论如何也比jc那个小一圈的玩得舒服吧，ns上的初音打了没几首指头就受不了了
 
+
+
+*****
+
+####  Limpidity  
+##### 168#       发表于 2022-5-30 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56050298&amp;ptid=2070699" target="_blank">jellyfis 发表于 2022-5-30 10:08</a>
+中文歌词的mod求个下载</blockquote>
+下班了我找找原帖<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

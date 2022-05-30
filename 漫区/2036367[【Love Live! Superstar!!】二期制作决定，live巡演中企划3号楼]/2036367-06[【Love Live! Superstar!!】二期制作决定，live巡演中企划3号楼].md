@@ -16543,3 +16543,25 @@ NHK Eテレにて
 
 每人两集不大可能吧 再去头去尾5个人分两集？ 那还是一起打包给香音吧
 
+
+
+*****
+
+####  寒风夜  
+##### 8725#       发表于 2022-5-30 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56056638&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-5-30 18:05</a>
+
+新四个人有没有可能live走虹模式阿，先solo，等人齐了再唱团体。不知道为什么总有这种感觉。 ...</blockquote>
+我觉得不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 你看第一季1集卖歌都得给你5个一起
+
+*****
+
+####  aoaoaodedede  
+##### 8726#       发表于 2022-5-30 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56056851&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-5-30 18:22</a>
+
+我觉得不是 你看第一季1集卖歌都得给你5个一起</blockquote>
+或许第二季第一集再来复刻一个未来预报？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

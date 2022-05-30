@@ -4356,3 +4356,30 @@ SCA自和黄油有那么一点点关系的vtb都关注了啊。饼月，miko，�
 有时候真觉得车轱辘的事情交给业界自己来就完事了……https://www.youtube.com/shorts/DMXNLqjyEr4?&amp;ab_cha ...</blockquote>
 youtube收入要靠广告，短视频无法插广告自然没有收入了。短视频这种垃圾东西赶紧死掉最好
 
+
+
+*****
+
+####  rzrbtk  
+##### 13902#       发表于 2022-5-30 18:23
+
+很解释一致，太解释一致了，喜欢。月之好像也一直挺喜欢这个作者的。
+[1000年生きてる / 月ノ美兎 cover - YouTube](https://www.youtube.com/watch?v=pW1zlbBfXec)
+
+省一楼，莎天酱甚至在每一个封面图增加了内容梗图，到底白天是上班还是在准备直播内容哦
+
+*****
+
+####  烤冷面加蛋  
+##### 13903#       发表于 2022-5-30 18:26
+
+转生多次，曾直播自/慰
+
+<img src="https://img.saraba1st.com/forum/202205/30/175047l8wxj99ck88p5u54.png" referrerpolicy="no-referrer">
+
+<strong>DAA466F9-2F3F-49F4-896D-3ED6E9FB55B5.png</strong> (78.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-30 17:50 上传
+
