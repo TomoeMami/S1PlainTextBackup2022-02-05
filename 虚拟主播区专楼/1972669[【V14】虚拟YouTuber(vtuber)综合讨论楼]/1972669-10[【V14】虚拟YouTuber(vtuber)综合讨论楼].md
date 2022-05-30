@@ -3820,3 +3820,41 @@ salome之所以同接这么稳定，应该是有很多人坚持每天去看一�
 
 数字这么好了怎么还会有人开除虹籍呢，老害早该收收味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 13852#       发表于 2022-5-30 11:04
+
+ 本帖最后由 布莱士·西伯利 于 2022-5-30 11:10 编辑 
+
+话说第五次涨那么多，到底是因为各种fanart出圈，还是因为第四次卡车没啥人看，但靠卡车切片扩大影响于是大家来看第五次直播的...？
+
+货真价实的虹味还得是企划势。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">兔头遗风。
+
+*****
+
+####  盐盐盐盐盐  
+##### 13853#       发表于 2022-5-30 11:05
+
+这个是统计的发评论人的话，还有大量浮动是根本不发评论的吧（本身会给管人发评论的就很有可能是管人痴）
+
+把莎乐美当一个管人看这个走势很不可思议，但把她当大小姐梗的一部分来看，一个梗的热度还没过去也很正常，这几年反派大小姐题材在acg遍地都是，gaming大小姐漫画热度也不错（作者好像也在看莎乐美），管人x反派大小姐，两个正火的题材碰撞，加上正逢虹上市，多方面因素带起来这么一个梗也还行吧。另外网民最喜欢看热闹，数字厨滚雪球硬是把一周同接撑住了，就看这个大泡沫几时灭了
+
+好几个v早期就走大小姐角色的管人被莎乐美搞破防了这事也只能说火不火真就看一个时机和命（还有中之人确实下功夫准备了不少梗）
+
+个人还是不看好的，比起一个主播这角色真就像一个大型观众联动活动一样，能撑三个月都难，这种爆火的梗往往也容易瞬间凉凉，v圈再来点大新闻接管这个瞩目度啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好的坏的都行
+
+*****
+
+####  空集  
+##### 13854#       发表于 2022-5-30 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56051132&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-5-30 11:05</a>
+
+这个是统计的发评论人的话，还有大量浮动是根本不发评论的吧（本身会给管人发评论的就很有可能是管人痴）
+
+ ...</blockquote>
+来了 虹apex要抽选了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  我愿称田角为 虚拟登子 牌太多了 
+
