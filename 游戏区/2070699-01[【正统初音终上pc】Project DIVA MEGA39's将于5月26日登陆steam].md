@@ -1777,3 +1777,17 @@ jc那垃圾手感就别来碰瓷ds4了
 
 但是发现改成方向键了之后，很多多按变得简单多了。以前经常猪脑过载，现在变得容易的多了
 
+
+
+*****
+
+####  Limpidity  
+##### 172#       发表于 2022-5-30 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56050298&amp;ptid=2070699" target="_blank">jellyfis 发表于 2022-5-30 10:08</a>
+
+中文歌词的mod求个下载</blockquote>
+[https://keylol.com/t813745-1-1](https://keylol.com/t813745-1-1)
+
+这里面有
+
