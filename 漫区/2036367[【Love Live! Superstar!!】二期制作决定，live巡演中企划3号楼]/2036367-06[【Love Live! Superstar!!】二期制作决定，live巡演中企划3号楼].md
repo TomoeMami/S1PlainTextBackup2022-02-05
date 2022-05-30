@@ -16508,3 +16508,22 @@ NHK Eテレにて
 前提是能占够多的篇幅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 我猜这对大概率会沦落为 有人磕吗 有  主推？ 滚啊 的尴尬境地
 
+
+
+*****
+
+####  we89623  
+##### 8721#       发表于 2022-5-30 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56056467&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-5-30 17:50</a>
+前提是能占够多的篇幅 
+我猜这对大概率会沦落为 有人磕吗 有  主推？ 滚啊 的尴尬境地 ...</blockquote>
+红蓝大概率跟花凛一样是一起讲一起入队的套路，这种会比只讲单人的省了不少时间
+
+*****
+
+####  凡人  
+##### 8722#       发表于 2022-5-30 18:00
+
+二期生每人两集的话红蓝最多能有四集怎么说也够了，问题是...（看向香之巨人）
+
