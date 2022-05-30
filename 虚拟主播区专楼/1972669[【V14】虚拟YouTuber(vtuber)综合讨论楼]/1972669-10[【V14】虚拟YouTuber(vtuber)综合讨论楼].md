@@ -4423,3 +4423,25 @@ https://github.com/smy20011/Hyak ... ata/2022-05-30.json
 
 但是油管的这些操作真的很难抢短视频市场。反而tiktok可能开放中等长度的视频来分掉youtube一份流量。
 
+
+
+*****
+
+####  IL282  
+##### 13908#       发表于 2022-5-30 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56056897&amp;ptid=1972669" target="_blank">烤冷面加蛋 发表于 2022-5-30 18:26</a>
+转生多次，曾直播自/慰
+
+回复↓syl，不会被开</blockquote>
+都是6期预定？
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Suny08  
+##### 13909#       发表于 2022-5-30 18:49
+
+一个是拿到offer一个只是去面试，完全不一样的，鉴定为烂蹭
+
