@@ -16284,3 +16284,33 @@ NHK Eテレにて
 
 梅这旁若无人的勾肩搭背和四季唯一一个一点镜头不看的真是锁的不能再锁，千一期贴公开招募的香音，二期贴公开招募的樱小路，原来千你是C位夫人啊。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8698#       发表于 2022-5-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052193&amp;ptid=2036367" target="_blank">凡人 发表于 2022-5-30 12:17</a>
+梅这旁若无人的勾肩搭背和四季唯一一个一点镜头不看的真是锁的不能再锁，千一期贴公开招募的香音，二期贴公 ...</blockquote>
+二期在哪说过有公募这回事，我不记得了，麻烦指点一二
+
+*****
+
+####  凡人  
+##### 8699#       发表于 2022-5-30 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052284&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-30 12:24</a>
+
+二期在哪说过有公募这回事，我不记得了，麻烦指点一二</blockquote>
+啊，那可能是我记差了。
+
+*****
+
+####  愛さ実  
+##### 8700#       发表于 2022-5-30 12:31
+
+没公开说过，都是拿“ab所属素人”推测的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
