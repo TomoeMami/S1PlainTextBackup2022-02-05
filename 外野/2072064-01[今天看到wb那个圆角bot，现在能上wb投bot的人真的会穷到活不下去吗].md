@@ -725,3 +725,16 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  风行草偃  
+##### 75#       发表于 2022-5-30 10:16
+
+<blockquote>白色的120 发表于 2022-5-30 10:05
+这个圆角bot微博号是没了吗？我还想去见识一下呢
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 S1Next-鹅 ...</blockquote>
+都报警了，肯定被深圳的jg叔叔铁拳了啊，教唆未成年去卖，还留着干啥
+

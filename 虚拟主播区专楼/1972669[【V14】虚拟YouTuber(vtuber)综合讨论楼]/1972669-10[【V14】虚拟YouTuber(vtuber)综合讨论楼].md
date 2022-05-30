@@ -3734,3 +3734,30 @@ salome之所以同接这么稳定，应该是有很多人坚持每天去看一�
 本次分析写的代码、获取到的数据样本，都已经上传到了github
 [https://github.com/NB-XX/vtuber-retention-analysis-by-chatdata](https://github.com/NB-XX/vtuber-retention-analysis-by-chatdata)
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13844#       发表于 2022-5-30 10:12
+
+ 本帖最后由 渡鸦骑士 于 2022-5-30 10:14 编辑 
+
+草       意思奇观是holo观众接手了的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+省一楼我去看了一下playboard的月播放榜单……青铜高校好起来了啊，3d短视频攻势相当凌厉，有的都有百万播放了
+
+*****
+
+####  ヒトニナル  
+##### 13845#       发表于 2022-5-30 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">c姓老哥现在有没有在看v综的，最近杏综管厕上分很多啊
+
+*****
+
+####  伊悠  
+##### 13846#       发表于 2022-5-30 10:18
+
+希望一个月后 还有1w同接
+
