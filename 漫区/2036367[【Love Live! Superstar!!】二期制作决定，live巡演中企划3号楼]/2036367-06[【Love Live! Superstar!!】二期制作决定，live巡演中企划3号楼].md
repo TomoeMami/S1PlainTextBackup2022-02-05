@@ -16241,3 +16241,76 @@ NHK Eテレにて
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是自己撞自己？
 
+
+
+*****
+
+####  ads147147  
+##### 8694#       发表于 2022-5-30 12:01
+
+12集，九个人。反正自从恋恋回崩了后，星动画在我心里已经从泽塔变成时王了，追ta主要就看编剧还能整什么烂活。
+
+
+
+*****
+
+####  starring  
+##### 8695#       发表于 2022-5-30 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56051992&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-5-30 12:01</a>
+12集，九个人。反正自从恋恋回崩了后，星动画在我心里已经从泽塔变成时王了，追ta主要就看编剧还能整什么烂 ...</blockquote>
+乐观一点，还能降成01。对位都想好了：大尊师-香音，不破-可，灭-千，老千-堇，雷-恋
+
+*****
+
+####  仟音一心  
+##### 8696#       发表于 2022-5-30 12:15
+
+无悬念的最速
+
+<img src="https://img.saraba1st.com/forum/202205/30/121502jy73ni33inh78en8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B85B8F47-7119-4541-B7EC-5B42F0901815.jpeg</strong> (231.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-30 12:15 上传
+
+*****
+
+####  凡人  
+##### 8697#       发表于 2022-5-30 12:17
+
+梅这旁若无人的勾肩搭背和四季唯一一个一点镜头不看的真是锁的不能再锁，千一期贴公开招募的香音，二期贴公开招募的樱小路，原来千你是C位夫人啊。
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 8698#       发表于 2022-5-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052193&amp;ptid=2036367" target="_blank">凡人 发表于 2022-5-30 12:17</a>
+梅这旁若无人的勾肩搭背和四季唯一一个一点镜头不看的真是锁的不能再锁，千一期贴公开招募的香音，二期贴公 ...</blockquote>
+二期在哪说过有公募这回事，我不记得了，麻烦指点一二
+
+*****
+
+####  凡人  
+##### 8699#       发表于 2022-5-30 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052284&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-30 12:24</a>
+
+二期在哪说过有公募这回事，我不记得了，麻烦指点一二</blockquote>
+啊，那可能是我记差了。
+
+*****
+
+####  愛さ実  
+##### 8700#       发表于 2022-5-30 12:31
+
+没公开说过，都是拿“ab所属素人”推测的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
