@@ -1680,3 +1680,40 @@ PC版甩葱歌怎么没了</blockquote>
 </blockquote>
 中文歌词的mod求个下载 
 
+
+
+*****
+
+####  ChrisSnake  
+##### 163#       发表于 2022-5-30 12:37
+
+搭车问一下 有没有音游专用的pc手柄 要按键独立 左右对称
+
+joycon基本是目前最好的音游手柄 左右按键都是独立的 手感也比较脆 
+
+但是连电脑有严重的延迟 属于基本没法玩的程度
+
+*****
+
+####  Fun_Sun  
+##### 164#       发表于 2022-5-30 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052443&amp;ptid=2070699" target="_blank">ChrisSnake 发表于 2022-5-30 12:37</a>
+
+搭车问一下 有没有音游专用的pc手柄 要按键独立 左右对称
+
+joycon基本是目前最好的音游手柄 左右按键都是独 ...</blockquote>
+歌姬计划唯一指定手柄DS4
+
+*****
+
+####  Saikou  
+##### 165#       发表于 2022-5-30 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052443&amp;ptid=2070699" target="_blank">ChrisSnake 发表于 2022-5-30 12:37</a>
+
+搭车问一下 有没有音游专用的pc手柄 要按键独立 左右对称
+
+joycon基本是目前最好的音游手柄 左右按键都是独 ...</blockquote>
+joycon哪有ps4手柄好用
+
