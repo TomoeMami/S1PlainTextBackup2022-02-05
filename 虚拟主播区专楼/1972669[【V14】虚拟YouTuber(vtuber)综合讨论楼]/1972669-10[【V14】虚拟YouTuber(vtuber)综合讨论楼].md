@@ -4652,3 +4652,12 @@ https://youtu.be/mUatgKN4zYk
 
 人家也不需要破纪录，这平A数据保持到把生化7打完就行<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 13931#       发表于 2022-5-30 23:43
+
+如果不考虑中途插入其他游戏的话，每天1小时，还要打多久啊？别告诉我等生化7打完了之后无缝生化8啊……
+
