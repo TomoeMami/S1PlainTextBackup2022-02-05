@@ -16813,3 +16813,43 @@ NHK Eテレにて
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 8752#       发表于 2022-5-30 20:35
+
+真的太想着家乡人了
+
+*****
+
+####  cybernetics31  
+##### 8753#       发表于 2022-5-30 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这次是神回
+
+*****
+
+####  D麦林  
+##### 8754#       发表于 2022-5-30 20:38
+
+讲话流畅度巨幅提升 能聊的话题也放开了
+究极神回好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8755#       发表于 2022-5-30 20:42
+
+打铁还不如队友，草
+
+*****
+
+####  iuhehc  
+##### 8756#       发表于 2022-5-30 20:43
+
+队友+菜宝全被动出场了今晚这期
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
