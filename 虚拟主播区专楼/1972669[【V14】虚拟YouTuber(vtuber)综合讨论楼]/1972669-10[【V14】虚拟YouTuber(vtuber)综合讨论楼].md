@@ -4717,3 +4717,14 @@ https://youtu.be/mUatgKN4zYk
 
 看了一眼首播，怎么成为现象级的？我不理解
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 13938#       发表于 2022-5-31 00:37
+
+这说法太马后炮了，当时首播看到一个星期全是24点生化7虹人都是眼前一黑
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
