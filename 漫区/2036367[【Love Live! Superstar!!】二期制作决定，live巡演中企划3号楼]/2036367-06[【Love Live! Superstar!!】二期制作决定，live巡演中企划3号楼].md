@@ -16910,3 +16910,76 @@ NHK Eテレにて
 那么今天谁最惨？打铁还是佩佩？</blockquote>
 那还是打铁惨一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 8764#       发表于 2022-5-30 20:52
+
+我没花钱，看不了pay的直播，我们是队友
+我提小百合干嘛，她过61吗，她都19岁了
+和nagi一起逛街买了同款衣服，和nago一起吃了好吃的
+谁是真爱一目了然了
+
+*****
+
+####  稀勢のささ  
+##### 8765#       发表于 2022-5-30 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还回马枪的
+
+*****
+
+####  csolfans  
+##### 8766#       发表于 2022-5-30 20:53
+
+nagi：亲亲+一起逛街买衣服
+
+nako：出去吃时尚的美食
+
+pay：直播嘛？哈哈我没开她FC（只是队友）
+
+菜宝：吃了鲜芋仙
+
+sayu：我提她干嘛？ 61儿童节嘛 她都19岁了
+
+今天直播总结
+
+*****
+
+####  starring  
+##### 8767#       发表于 2022-5-30 20:55
+
+似乎错过了什么劲爆的信息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 8768#       发表于 2022-5-30 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56058765&amp;ptid=2036367" target="_blank">starring 发表于 2022-5-30 20:55</a>
+似乎错过了什么劲爆的信息</blockquote>
+没事，很快就有切成臊子的来了。
+
+*****
+
+####  lj205  
+##### 8769#       发表于 2022-5-30 20:56
+
+我可以告诉你们，我小学5年纪的身高，那就是153
+
+*****
+
+####  cybernetics31  
+##### 8770#       发表于 2022-5-30 20:56
+
+6月太忙了播不了就再聊一会的鱼
+
+*****
+
+####  lj205  
+##### 8771#       发表于 2022-5-30 20:57
+
+草，又开了
+
