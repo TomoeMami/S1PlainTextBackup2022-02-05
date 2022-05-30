@@ -17230,3 +17230,25 @@ BV1cS4y1B7CL<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 太可惜了，没看成等录播了
 
+
+
+*****
+
+####  tagerto  
+##### 8797#       发表于 2022-5-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56060012&amp;ptid=2036367" target="_blank">Enakina 发表于 2022-5-30 22:43</a>
+
+她拉拉营业一直特别佛系，根据我的印象，拉拉的营业她转的很少的。感觉除非那种强制作业，转不转就看她自 ...</blockquote>
+主要是这次其他人都转了加小作文，所以就稍微关注了，没想到鲤鱼居然佛系营业到这个都鸽了，看来这次的二期宣传不是加人那次的强制作业<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8798#       发表于 2022-5-30 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56060297&amp;ptid=2036367" target="_blank">tagerto 发表于 2022-5-30 23:08</a>
+
+主要是这次其他人都转了加小作文，所以就稍微关注了，没想到鲤鱼居然佛系营业到这个都鸽了，看来这次的二 ...</blockquote>
+或许也挺正常吧，我记得当时星团一专Febri采访那个，鲤鱼当时好像也没转她自己的那个采访
+
