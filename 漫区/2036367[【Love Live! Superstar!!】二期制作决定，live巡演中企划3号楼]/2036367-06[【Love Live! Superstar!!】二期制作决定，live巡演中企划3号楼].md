@@ -17252,3 +17252,22 @@ BV1cS4y1B7CL<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 主要是这次其他人都转了加小作文，所以就稍微关注了，没想到鲤鱼居然佛系营业到这个都鸽了，看来这次的二 ...</blockquote>
 或许也挺正常吧，我记得当时星团一专Febri采访那个，鲤鱼当时好像也没转她自己的那个采访
 
+
+
+*****
+
+####  we89623  
+##### 8799#       发表于 2022-5-30 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56060297&amp;ptid=2036367" target="_blank">tagerto 发表于 2022-5-30 23:08</a>
+
+主要是这次其他人都转了加小作文，所以就稍微关注了，没想到鲤鱼居然佛系营业到这个都鸽了，看来这次的二 ...</blockquote>
+可能忘了吧，也许今天会写呢，在佛系也比某人连推特都没开的佛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长日留痕  
+##### 8800#       发表于 2022-5-30 23:13
+
+年龄大的和年龄小的玩不到一起很正常。
+
