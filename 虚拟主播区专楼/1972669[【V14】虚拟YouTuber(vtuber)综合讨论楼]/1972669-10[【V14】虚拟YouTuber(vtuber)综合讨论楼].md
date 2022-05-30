@@ -3899,3 +3899,25 @@ salome之所以同接这么稳定，应该是有很多人坚持每天去看一�
 
 已经在等莎乐美的歌回了
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13860#       发表于 2022-5-30 11:37
+
+意思引了大量杏人改宗了 莎门！
+
+
+
+*****
+
+####  ParadiseMartyr  
+##### 13861#       发表于 2022-5-30 11:39
+
+这虹的新人直播看了几眼。
+为啥总感觉她在喊着说话啊…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有这个声线时间长了真的绷得住吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
