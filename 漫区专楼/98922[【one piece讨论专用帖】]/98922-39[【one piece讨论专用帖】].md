@@ -13915,3 +13915,82 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 目前看因为尾田强迫症肯定还要在和之国磨蹭个一卷左右（对应司法岛结束之后的45卷），然后会有一个剧透的工具人回来，上次说卡普，这次会是谁？红发的船长得这么北欧风不把艾鲁巴夫和他的背景混在一起说就奇怪了，    对尾田讲故事的能力已经放到最低点了，剩下的还是老问题“恶魔果实的原理”“空白的一百年”“尾田在天龙人埋的基督教梗”
 
+
+
+*****
+
+####  Supermangunv3  
+##### 58171#       发表于 2022-5-30 06:46
+
+另外桃子肯定是御田脸不用想
+
+*****
+
+####  触手皇帝  
+##### 58172#       发表于 2022-5-30 09:02
+
+撒花，终于完结这个破烂篇章了——让我们期待一下尾田接下来会给大家奉上什么新的破烂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wingzerocos  
+##### 58173#       发表于 2022-5-30 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55996487&amp;ptid=98922" target="_blank">cdfjg 发表于 2022-5-26 11:27</a>
+
+尾田开始旁白骗人了</blockquote>
+鬼岛屋顶决战——胜者凯多
+
+鬼岛天上决战——胜者路飞
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gs2-d2up  
+##### 58174#       发表于 2022-5-30 17:22
+
+狂死郎那张脸……说他是来收割残兵败将、自己坐收渔翁之利我都信。
+
+*****
+
+####  老衲还挺得住  
+##### 58175#       发表于 2022-5-30 18:40
+
+和之国的流程其实和之前的几个篇章流程是差不多的，奈何一个御田带崩了九侠，带崩了大和，带崩了除了主角团的所有人，真的是完美阐述了一颗老鼠屎带坏一锅粥<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+和之国篇现在的唯一价值就剩历史文本的来历了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 58176#       发表于 2022-5-30 18:54
+
+呃呃 还不换楼吗
+
+*****
+
+####  C男人  
+##### 58177#       发表于 2022-5-30 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718346&amp;ptid=98922" target="_blank">C男人 发表于 2021-9-12 11:12</a>
+
+路飞现在开了四挡上去，这一波怎么看都是必须打出结果了。
+
+桃之助那边，变成桃龙斗凯多，正好让老百姓看看“救世龙降临”，
+
+打完再落地变成御田的样貌，活脱脱一个真龙天子，
+
+到时候和之国满街的御田粉集体发病，桃之助顺理成章登基为王，
+
+这短线布局是挺稳的，就看长线伏笔怎么回收了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+《御田日记》 ...</blockquote>
+
+还行，基本全中，
+
+也就是说尾田彻底套路化了，谁都能猜中他要整什么活。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
