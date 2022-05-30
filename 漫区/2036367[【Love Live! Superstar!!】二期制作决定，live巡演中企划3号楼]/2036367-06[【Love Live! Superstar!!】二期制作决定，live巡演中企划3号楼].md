@@ -16478,3 +16478,21 @@ NHK Eテレにて
 
 加吧加吧，三期直接用香哥哥当封面好了，反正又摆不下，摆下了又丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ykyin09  
+##### 8718#       发表于 2022-5-30 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红蓝应该有不少东西可写，例如怎么锁一起，怎么扭起来…来自: iPhone客户端
+
+*****
+
+####  Skyline_R  
+##### 8719#       发表于 2022-5-30 17:38
+
+他们要真那么在意中国市场至于本地化做成这鬼样吗；
+
+而且光加人这个事情对海外市场就是负效应的，一堆人记不住名字是普通观众观看美少女动物园最大的障碍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
