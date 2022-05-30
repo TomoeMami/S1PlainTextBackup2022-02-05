@@ -7758,3 +7758,12 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 今天有点爽啊，完成度可太高了。
 
+
+
+*****
+
+####  YoMico  
+##### 11260#       发表于 2022-5-31 07:32
+
+有无好兄弟录了今早的推特空间，前面一个多小时没听到就很难受<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
