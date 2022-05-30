@@ -4035,3 +4035,31 @@ rfm+黑黑的粉丝钱包是无底洞吗，我怎么觉得出其他人的周边�
 
 有人从今天开始按分钟抓跌丝袜的订阅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lhawp  
+##### 13873#       发表于 2022-5-30 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56052147&amp;ptid=1972669" target="_blank">生麦之发杀 发表于 2022-5-30 12:12</a>
+这就是滚雪球了，数据越高越吸引人来看为啥这么高同接，导致同接越来越高，不知道能不能打破单人同接记录（ ...</blockquote>
+懂了，出道一个月光速宣布毕业，毕业回同接必秒tskk
+本人倒是有发推说希望长久播下去，昨天在答谢50W订阅时又说想让观众开心首先要自己开心，感觉中之人的定力（至少是表面上的）和ネットリテラシー都还不错，个人是比较看好的，现在只希望她能保护好自己的嗓子
+
+*****
+
+####  poipanchao  
+##### 13874#       发表于 2022-5-30 14:30
+
+<img src="https://img.saraba1st.com/forum/202205/30/143008lt55vw9vcn0n9z8o.jpg" referrerpolicy="no-referrer">
+
+<strong>-602fae81f012aa6a.jpg</strong> (88.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-30 14:30 上传
+
+真的假的
+
