@@ -4750,3 +4750,27 @@ kobo下周是联动周啊，还有卡拉OK。
 
 之前发推说 说不定会在卡拉OK前达成70万，很自信。
 
+
+
+*****
+
+####  IDIDIDID  
+##### 13941#       发表于 2022-5-31 00:53
+
+<blockquote>Trending
+
+#ReimuEndouBestGirl
+
+5,904 Tweets</blockquote>
+
+肥肥反击集美了？
+
+*****
+
+####  義賊  
+##### 13942#       发表于 2022-5-31 00:58
+
+<blockquote>IDIDIDID 发表于 2022-5-31 00:53
+肥肥反击集美了？</blockquote>
+女同反击的
+
