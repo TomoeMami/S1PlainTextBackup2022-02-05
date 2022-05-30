@@ -4535,3 +4535,14 @@ https://youtu.be/mUatgKN4zYk
 
 3D的德比太可爱了
 
+
+
+*****
+
+####  fastary  
+##### 13918#       发表于 2022-5-30 21:35
+
+果然一般来说听完整句话都要反应一下才能说出来，以及听到有趣的回应自己也会想笑
+
+一个小时没有笑出声的黑客果然是pro的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
