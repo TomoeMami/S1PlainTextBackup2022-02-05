@@ -16354,3 +16354,15 @@ NHK Eテレにて
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8705#       发表于 2022-5-30 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56054081&amp;ptid=2036367" target="_blank">甘蓝巧克力 发表于 2022-5-30 14:52</a>
+
+可以多次成长啊，只要上限定得够高，这次的目标是成为世界歌神 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">真要是往上蹦也可以啊  可惜第一季就不是
+

@@ -4104,3 +4104,14 @@ syl，看到肥秋系喊话早上说莎皇是乃团的rotty，有没有十年老
 
 一看推发现月之也在乐，真有精神啊~虽然自己的身体健康不乐比较好
 
+
+
+*****
+
+####  fastary  
+##### 13879#       发表于 2022-5-30 15:07
+
+吃了下reimu和vox的瓜感觉有点搞笑的，vox去reimu梦向直播和会限互动梦女睁一只眼闭一只眼，reimu在vox梦向直播打电话卖到梦女脸上就直接被炎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+en可以大炒特炒bg但是只能在女方这边跳脸否则就会炎，完了还有cp粉磕血糖说炎就说明真，好怪啊
+
