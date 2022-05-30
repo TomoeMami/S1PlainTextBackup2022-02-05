@@ -3802,3 +3802,21 @@ salome之所以同接这么稳定，应该是有很多人坚持每天去看一�
 然后杏高也不奇怪，杏的基数不大所以比例变化大蛮正常的...<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">要是算错或者搞错的话...当我没说吧...
 
+
+
+*****
+
+####  克罗夏  
+##### 13850#       发表于 2022-5-30 10:52
+
+虹味这点提出一点异议，莎乐美根本不算没虹味而是被视为虹正统的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外虹浓度下降有没有可能是观众总数上升的原因，毕竟9w的30%和12w的25%有什么差距吗
+
+*****
+
+####  味增味增  
+##### 13851#       发表于 2022-5-30 10:56
+
+数字这么好了怎么还会有人开除虹籍呢，老害早该收收味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
