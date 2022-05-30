@@ -16853,3 +16853,60 @@ NHK Eテレにて
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 8757#       发表于 2022-5-30 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼：我五年级就一米五三了
+
+*****
+
+####  ads147147  
+##### 8758#       发表于 2022-5-30 20:46
+
+小学超过鲨鱼实在是太杀人诛心了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  稀勢のささ  
+##### 8759#       发表于 2022-5-30 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难怪大家喜欢钓鱼 钓成功了对认知厨是有点爽
+
+*****
+
+####  we89623  
+##### 8760#       发表于 2022-5-30 20:49
+
+提小百合干什么？ 因为六一儿童节吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  a92063256  
+##### 8761#       发表于 2022-5-30 20:50
+
+今天直播真的好欢乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后还不忘了迫害一下sayu
+
+*****
+
+####  lj205  
+##### 8762#       发表于 2022-5-30 20:50
+
+那么今天谁最惨？打铁还是佩佩？
+
+*****
+
+####  cybernetics31  
+##### 8763#       发表于 2022-5-30 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56058719&amp;ptid=2036367" target="_blank">lj205 发表于 2022-5-30 20:50</a>
+那么今天谁最惨？打铁还是佩佩？</blockquote>
+那还是打铁惨一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
