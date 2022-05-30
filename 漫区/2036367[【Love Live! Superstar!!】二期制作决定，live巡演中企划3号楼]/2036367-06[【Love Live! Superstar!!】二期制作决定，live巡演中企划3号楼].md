@@ -16447,3 +16447,18 @@ NHK Eテレにて
 
 这红蓝也锁得太死了吧
 
+
+
+*****
+
+####  ads147147  
+##### 8715#       发表于 2022-5-30 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56055741&amp;ptid=2036367" target="_blank">1096beam 发表于 2022-5-30 16:51</a>
+这红蓝也锁得太死了吧</blockquote>
+锁cp老操作了，剧情也算好写。
+
+鬼妹倒是已经往那种家里有困难的味道拐了，每天看自己收益。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
