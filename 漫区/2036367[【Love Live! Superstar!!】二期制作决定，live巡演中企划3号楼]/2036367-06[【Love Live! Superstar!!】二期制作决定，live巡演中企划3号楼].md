@@ -16092,3 +16092,43 @@ NHK Eテレにて
 
 虽然很想拿一期OP恋堇、可千，一单可恋动画查无结果来论证二期宣绘也就看看。但是现在对企划真没啥信任度。
 
+
+
+*****
+
+####  cybernetics31  
+##### 8678#       发表于 2022-5-30 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正把动画期待值降到最低就是了，可可没戏份就没戏份吧，反正对企划已经不抱任何期待了
+
+*****
+
+####  笋狐  
+##### 8679#       发表于 2022-5-30 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐子人永远不亏（
+
+*****
+
+####  starring  
+##### 8680#       发表于 2022-5-30 09:20
+
+虽然不应该贷款吃屎，不过对staff完全不值得抱有期望<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8681#       发表于 2022-5-30 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56049590&amp;ptid=2036367" target="_blank">ViyViy 发表于 2022-5-30 09:11</a>
+这宣绘吧，就单单动画来说可可好歹是大赛主线的主推手，二期宣绘就这么直接靠边站了；还有土妹子是次主位这 ...</blockquote>
+还大赛主推手呢，第四集开始就让贤当香音单推人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 8682#       发表于 2022-5-30 09:21
+
+<img src="https://p.sda1.dev/6/fa2853de46aebcc0153165854c6c6b8e/anime_before_lovelivess02.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/7dcc7efd5e8f397c1a1cb530a94fa8da/anime_20220530_lovelivekeyvisual.jpg" referrerpolicy="no-referrer">
+
