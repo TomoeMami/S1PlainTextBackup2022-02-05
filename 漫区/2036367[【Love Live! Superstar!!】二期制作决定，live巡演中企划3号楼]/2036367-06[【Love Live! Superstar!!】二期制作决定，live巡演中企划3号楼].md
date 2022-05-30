@@ -16142,3 +16142,33 @@ NHK Eテレにて
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56049714&amp;ptid=2036367" target="_blank">Piano-Forest 发表于 2022-5-30 09:21</a></blockquote>
 7.17 可可生日＋BML buff满了
 
+
+
+*****
+
+####  lj205  
+##### 8684#       发表于 2022-5-30 09:33
+
+什么可可个人回？个人ED？想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过已转单推的我倒是已经轻松自如
+
+*****
+
+####  ViyViy  
+##### 8685#       发表于 2022-5-30 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56049697&amp;ptid=2036367" target="_blank">aoaoaodedede 发表于 2022-5-30 09:20</a>
+
+还大赛主推手呢，第四集开始就让贤当香音单推人了，工具人嘛，就是这个样，用了就用了，第二季能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不听不听，起名参赛也是可可发起的！
+
+个人回如果搞机械降神，边缘八九集突然机场，这种”可怜“的话我宁愿别写，就那样做个没有理由没有过去，普普通通的有了梦想有条件来追梦的女孩就很好了。
+
+*****
+
+####  离心  
+##### 8686#       发表于 2022-5-30 09:38
+
+艹，才发现是7月17日播？又只有12集了？
+
