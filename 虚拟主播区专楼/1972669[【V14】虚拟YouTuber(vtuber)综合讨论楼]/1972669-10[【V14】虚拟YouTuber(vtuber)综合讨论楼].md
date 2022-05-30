@@ -4728,3 +4728,25 @@ https://youtu.be/mUatgKN4zYk
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  rzrbtk  
+##### 13939#       发表于 2022-5-31 00:45
+
+明天，明天同接肯定降，今天人在敏感期格外的涩但是游戏真的很无起伏，吐槽都没地方逼着讲了外国大蟑螂故事，莎天酱应该就是这些牌了，
+
+但是会被一切事情吓到的敏感期真的太涩了反而有点虚拟（说法不太好），不知道明天会不会继续
+
+*****
+
+####  NBXX  
+##### 13940#       发表于 2022-5-31 00:49
+
+<img src="https://p.sda1.dev/6/86f3a6aa79f74a4672d5cfbc7be5fe1b/FUBNPRyXoAIFNw_.jpg" referrerpolicy="no-referrer">
+
+kobo下周是联动周啊，还有卡拉OK。
+
+之前发推说 说不定会在卡拉OK前达成70万，很自信。
+
