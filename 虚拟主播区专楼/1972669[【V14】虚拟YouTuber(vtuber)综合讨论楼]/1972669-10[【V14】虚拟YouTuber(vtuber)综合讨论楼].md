@@ -4344,3 +4344,15 @@ SCA自和黄油有那么一点点关系的vtb都关注了啊。饼月，miko，�
 
 莎皇又不是你虹第一个推特不点关注的人
 
+
+
+*****
+
+####  midearth  
+##### 13901#       发表于 2022-5-30 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56055958&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-5-30 17:09</a>
+
+有时候真觉得车轱辘的事情交给业界自己来就完事了……https://www.youtube.com/shorts/DMXNLqjyEr4?&amp;ab_cha ...</blockquote>
+youtube收入要靠广告，短视频无法插广告自然没有收入了。短视频这种垃圾东西赶紧死掉最好
+
