@@ -16496,3 +16496,15 @@ NHK Eテレにて
 
 而且光加人这个事情对海外市场就是负效应的，一堆人记不住名字是普通观众观看美少女动物园最大的障碍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8720#       发表于 2022-5-30 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56056290&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-5-30 17:35</a>
+红蓝应该有不少东西可写，例如怎么锁一起，怎么扭起来…</blockquote>
+前提是能占够多的篇幅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+我猜这对大概率会沦落为 有人磕吗 有  主推？ 滚啊 的尴尬境地
+
