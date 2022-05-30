@@ -17065,3 +17065,17 @@ nagi：
 
 这么快就上传了一堆切片和完整，回补一下
 
+
+
+*****
+
+####  lj205  
+##### 8781#       发表于 2022-5-30 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56059175&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-30 21:29</a>
+
+不是挺早之前就转了吗
+
+虽然是staff号转的</blockquote>
+stf跟本人还是不一样吧？
+
