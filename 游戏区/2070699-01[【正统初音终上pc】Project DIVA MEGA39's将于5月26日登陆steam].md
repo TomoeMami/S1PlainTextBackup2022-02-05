@@ -1666,3 +1666,17 @@ PC版甩葱歌怎么没了</blockquote>
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jellyfis  
+##### 162#       发表于 2022-5-30 10:08
+
+<blockquote>Limpidity 发表于 2022-5-30 09:02
+已经有补缺失曲目、高刷、中文歌词等mod了
+
+看起来扩展性还行的样子？
+</blockquote>
+中文歌词的mod求个下载 
+

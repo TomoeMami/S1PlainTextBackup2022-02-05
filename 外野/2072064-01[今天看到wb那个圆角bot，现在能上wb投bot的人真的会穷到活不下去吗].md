@@ -704,3 +704,24 @@ flj这些人能有多惨啊，一席上讲黄黑恋情的，那些黄女家庭�
 圆角bot又是什么</blockquote>
 专门投稿圆椒妹的自媒体，各种身世悲惨受到黑暗面迫害才被迫下海的可怜女性踊跃发声(大虚)
 
+
+
+*****
+
+####  LrGsite  
+##### 73#       发表于 2022-5-30 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56050173&amp;ptid=2072064" target="_blank">摸🐟佬 发表于 2022-5-30 09:57</a>
+
+专门投稿圆椒妹的自媒体，各种身世悲惨受到黑暗面迫害才被迫下海的可怜女性踊跃发声(大虚) ...</blockquote>
+国内搞这种没啥说的不是直接被橄榄
+
+*****
+
+####  白色的120  
+##### 74#       发表于 2022-5-30 10:05
+
+这个圆角bot微博号是没了吗？我还想去见识一下呢
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
