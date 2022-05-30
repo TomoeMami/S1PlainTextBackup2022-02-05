@@ -4794,3 +4794,34 @@ kobo下周是联动周啊，还有卡拉OK。
 
 可是杏女变成不摆烂的动机是什么……
 
+
+
+*****
+
+####  wuzhengkai  
+##### 13945#       发表于 2022-5-31 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56050295&amp;ptid=1972669" target="_blank">NBXX 发表于 2022-5-30 10:08</a>
+
+拖了一天，数据爬了一天终于算是做完了……
+
+数据来源说明</blockquote>
+一个问题是 你对比了首播的弹幕构成 但有没有可能首播的弹幕里面确实看热闹的可能更多 （即首播多多少少有点破圈情况）
+
+我觉得应该验证一下其他人后续直播里是不是V圈观众弹幕比例有增加 而slm的比例不怎么变化 那这样也可以说明slm一定程度上破圈了
+
+*****
+
+####  purdre  
+##### 13946#       发表于 2022-5-31 03:14
+
+工作日也有10w啊，确实有点意外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhawp  
+##### 13947#       发表于 2022-5-31 04:10
+
+昨天我看街霸V的大会，选手选到karin的时候都有一群人在刷跌丝袜
+一定程度上破圈了这个是肯定的
+
