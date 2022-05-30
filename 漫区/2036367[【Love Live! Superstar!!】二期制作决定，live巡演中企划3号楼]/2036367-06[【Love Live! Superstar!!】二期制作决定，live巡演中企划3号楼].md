@@ -16172,3 +16172,15 @@ NHK Eテレにて
 
 艹，才发现是7月17日播？又只有12集了？
 
+
+
+*****
+
+####  梶原ひかり  
+##### 8687#       发表于 2022-5-30 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56049934&amp;ptid=2036367" target="_blank">离心 发表于 2022-5-30 09:38</a>
+
+艹，才发现是7月17日播？又只有12集了？</blockquote>
+必然的 一般不可能第一季12集 第二季13集的..不过感觉裂裂应该会有三期
+
