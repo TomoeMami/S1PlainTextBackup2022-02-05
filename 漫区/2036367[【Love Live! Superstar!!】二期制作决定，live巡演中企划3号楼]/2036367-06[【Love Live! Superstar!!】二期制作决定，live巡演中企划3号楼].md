@@ -17156,3 +17156,52 @@ BV1cS4y1B7CL<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才看到有个B发了个450的sc让加pay的fc
 
+
+
+*****
+
+####  tagerto  
+##### 8789#       发表于 2022-5-30 22:37
+
+日本还有半小时结束这一天，鲤鱼能在最后半小时赶上工商二期的小作文吗，我真是拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 8790#       发表于 2022-5-30 22:39
+
+目前来看星团老五人..
+
+鲤鱼和nagi和nako私底下是最亲的..
+
+和小百合大概率只是百合营业..
+
+和上尉甚至连营业都没有..
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  we89623  
+##### 8791#       发表于 2022-5-30 22:42
+
+不过我发了个问题是上尉好像跟哪人都不营业...不单单只是跟鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8792#       发表于 2022-5-30 22:42
+
+也不能这么说，就是对年下组可能更多是妹妹的感觉，特别是打铁那两句损成那样的话肯定也要特别好的关系才能那么肆无忌惮的说出来，倒是佩佩就真的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 8793#       发表于 2022-5-30 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56059965&amp;ptid=2036367" target="_blank">tagerto 发表于 2022-5-30 22:37</a>
+日本还有半小时结束这一天，鲤鱼能在最后半小时赶上工商二期的小作文吗，我真是拭目以待 ...</blockquote>
+她拉拉营业一直特别佛系，根据我的印象，拉拉的营业她转的很少的。感觉除非那种强制作业，转不转就看她自己的心情了，比如不插电那几个乐队的推，她都点赞了。
+
