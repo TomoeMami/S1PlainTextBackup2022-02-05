@@ -3858,3 +3858,19 @@ salome之所以同接这么稳定，应该是有很多人坚持每天去看一�
  ...</blockquote>
 来了 虹apex要抽选了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  我愿称田角为 虚拟登子 牌太多了 
 
+
+
+*****
+
+####  percy1234  
+##### 13855#       发表于 2022-5-30 11:16
+
+就这几天的直播来看，莎皇指不定有多少牌藏着没打呢<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 13856#       发表于 2022-5-30 11:16
+
+虹pex这种一发完结也没几个人能高光的企划真的能算大新闻吗，也就虹人内部稍微热闹一下(怕不是还没有讨论大小姐数字积极)
+

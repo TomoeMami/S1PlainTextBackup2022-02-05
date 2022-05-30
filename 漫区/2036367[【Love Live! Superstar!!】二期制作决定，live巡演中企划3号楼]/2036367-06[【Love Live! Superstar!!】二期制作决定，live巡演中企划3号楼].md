@@ -16218,3 +16218,26 @@ NHK Eテレにて
 
 一般来说一期就拉胯的，，2期也差不多，
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8692#       发表于 2022-5-30 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56050970&amp;ptid=2036367" target="_blank">寒风夜 发表于 2022-5-30 10:55</a>
+
+一般来说一期就拉胯的，，2期也差不多，，歌能好点就得了</blockquote>
+二期宣布制作那么早，当时我还准备把星团当半年番看待了，当时想着就5个人嘛，一期不行的地方二期总得有机会补全吧，所谓“未来可期”，当时我还是想再相信动画制作组一次。
+
+谁知道现在要加成9人了，已经对二期动画不报任何期待了。
+
+我倒想观望二期动画能再整成什么烂活，能再塑造几个工具人出来。
+
+*****
+
+####  稀勢のささ  
+##### 8693#       发表于 2022-5-30 11:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是自己撞自己？
+
