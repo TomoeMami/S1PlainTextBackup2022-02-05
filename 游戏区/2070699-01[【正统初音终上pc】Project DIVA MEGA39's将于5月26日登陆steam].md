@@ -1641,3 +1641,16 @@ PC版甩葱歌怎么没了</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  旧梦囚心  
+##### 160#       发表于 2022-5-30 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56048221&amp;ptid=2070699" target="_blank">MRhythm 发表于 2022-5-30 01:44</a>
+想在PC上玩街机版, 求给指条路</blockquote>
+打开网页搜索“初音社”，然后点开初音社，在站内搜索栏搜索“歌姬计划街机”，第一个就是的，里面有链接和详细的安装教程。
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
