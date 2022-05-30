@@ -4706,3 +4706,14 @@ https://youtu.be/mUatgKN4zYk
 
 今天的关卡真无聊，直播效果完全靠跌丝袜......
 
+
+
+*****
+
+####  划水的B612  
+##### 13937#       发表于 2022-5-31 00:29
+
+半退V快一年了，当我看到这位叫「壱百満天原サロメ」的小姐登上pixiv 5月29日的榜一我才后知后觉意识到似乎是变天了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+看了一眼首播，怎么成为现象级的？我不理解
+
