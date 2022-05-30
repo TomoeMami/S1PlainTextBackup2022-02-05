@@ -16731,3 +16731,19 @@ NHK Eテレにて
 
 还是有玩的，不过都是key社，不过居然还有美少女梦工厂4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 8743#       发表于 2022-5-30 20:02
+
+今晚的鲤鱼语言中充满了智慧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 8744#       发表于 2022-5-30 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这期好，队友的事能说了
+
