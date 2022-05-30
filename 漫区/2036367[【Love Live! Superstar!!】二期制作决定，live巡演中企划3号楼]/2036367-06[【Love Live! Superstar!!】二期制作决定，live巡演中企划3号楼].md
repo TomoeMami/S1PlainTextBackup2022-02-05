@@ -17113,3 +17113,37 @@ stf跟本人还是不一样吧？
 
 BV1cS4y1B7CL<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队友切片合集来了
 
+
+
+*****
+
+####  仟音一心  
+##### 8785#       发表于 2022-5-30 22:15
+
+<img src="https://img.saraba1st.com/forum/202205/30/221312iwgh4xppzjw4ppn5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C9E54695-3825-43CD-B9D9-2D812E9300E9.jpeg</strong> (254.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-30 22:13 上传
+
+可可当看板娘的原宿gamers开业一周年，Sayu都转了，鲤鱼没转。
+
+*****
+
+####  cybernetics31  
+##### 8786#       发表于 2022-5-30 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忙着冲浪呢，工商啥的无所谓啦
+
+*****
+
+####  we89623  
+##### 8787#       发表于 2022-5-30 22:21
+
+ 本帖最后由 we89623 于 2022-5-30 22:23 编辑 
+
+代沟这种两人差三岁以上在现实中基本就很难以平等的方式玩在一起了。
+
