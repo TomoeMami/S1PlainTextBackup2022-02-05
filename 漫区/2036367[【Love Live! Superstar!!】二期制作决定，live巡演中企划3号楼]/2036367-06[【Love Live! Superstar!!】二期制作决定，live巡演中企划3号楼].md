@@ -16634,3 +16634,44 @@ NHK Eテレにて
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼又开美颜了吧
 
+
+
+*****
+
+####  D麦林  
+##### 8734#       发表于 2022-5-30 19:14
+
+这改生日照理说应该算是好事
+
+但是相关的讨论下都乌烟瘴气的 有的甚至撕成一片
+
+不知道怎么说好了
+
+*****
+
+####  cxj649  
+##### 8735#       发表于 2022-5-30 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56057543&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-30 19:14</a>
+
+这改生日照理说应该算是好事
+
+但是相关的讨论下都乌烟瘴气的 有的甚至撕成一片
+
+不知道怎么说好了 ...</blockquote>
+鬼子反而反应不大，最多吐槽几句<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 8736#       发表于 2022-5-30 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56057543&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-5-30 19:14</a>
+
+这改生日照理说应该算是好事
+
+但是相关的讨论下都乌烟瘴气的 有的甚至撕成一片
+
+不知道怎么说好了 ...</blockquote>
+就撕这么几天而已，如果不改基本每年都会撕
+
