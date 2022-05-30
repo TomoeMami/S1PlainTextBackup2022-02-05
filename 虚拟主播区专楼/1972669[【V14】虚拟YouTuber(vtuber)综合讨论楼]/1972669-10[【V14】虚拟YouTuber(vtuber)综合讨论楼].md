@@ -3921,3 +3921,27 @@ salome之所以同接这么稳定，应该是有很多人坚持每天去看一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  percy1234  
+##### 13862#       发表于 2022-5-30 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56051686&amp;ptid=1972669" target="_blank">ParadiseMartyr 发表于 2022-5-30 11:39</a>
+这虹的新人直播看了几眼。
+为啥总感觉她在喊着说话啊…
+还有这个声线时间长了真的绷得住吗</blockquote>
+每次就一个多小时啊，中途也喝水的
+
+*****
+
+####  plok201  
+##### 13863#       发表于 2022-5-30 11:48
+
+这就是大小姐语调啊
+
+有配音经验的话不难，难的是又要直播演梗又要保持声线
+
+我看虹粉都挺兴奋的，V圈平稳无趣这么久了，是该来点爆弹让大家high一下了，保持这增速只火一个月也够了
+
