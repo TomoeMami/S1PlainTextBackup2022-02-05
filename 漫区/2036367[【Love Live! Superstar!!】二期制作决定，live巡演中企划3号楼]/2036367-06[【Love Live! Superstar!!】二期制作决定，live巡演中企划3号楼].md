@@ -16598,3 +16598,39 @@ NHK Eテレにて
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  we89623  
+##### 8730#       发表于 2022-5-30 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56057355&amp;ptid=2036367" target="_blank">凡人 发表于 2022-5-30 18:59</a>
+这么说越来越觉得主视觉图离谱了，要给香音多少戏份才配得上这样，六集个人回？ ...</blockquote>
+不需要给香音单独的个人回时间，因为她每集都在，剧情主线就是她的个人回。
+
+
+
+*****
+
+####  car123  
+##### 8731#       发表于 2022-5-30 19:08
+
+道理我都懂，香音为什么那么大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8732#       发表于 2022-5-30 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56057355&amp;ptid=2036367" target="_blank">凡人 发表于 2022-5-30 18:59</a>
+这么说越来越觉得主视觉图离谱了，要给香音多少戏份才配得上这样，六集个人回？ ...</blockquote>
+大胆点，说不定每一集都是个人回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 8733#       发表于 2022-5-30 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼又开美颜了吧
+
