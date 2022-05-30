@@ -16565,3 +16565,18 @@ NHK Eテレにて
 我觉得不是 你看第一季1集卖歌都得给你5个一起</blockquote>
 或许第二季第一集再来复刻一个未来预报？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  we89623  
+##### 8727#       发表于 2022-5-30 18:36
+
+ 本帖最后由 we89623 于 2022-5-30 18:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56056583&amp;ptid=2036367" target="_blank">凡人 发表于 2022-5-30 18:00</a>
+
+二期生每人两集的话红蓝最多能有四集怎么说也够了，问题是...（看向香之巨人） ...</blockquote>
+不可能给那么多，正常情况就是四个人给5集个人回时间，平均一个人一集半的时间，而且红蓝俩人大概率是一起入队，大概率两集时间收俩人。 
+
+至于没入队前会每集给几个镜头在交代几句话台词那种打伏笔的不算...我是指正儿八经的个人回时间。
+

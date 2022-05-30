@@ -4383,3 +4383,43 @@ youtube收入要靠广告，短视频无法插广告自然没有收入了。短�
 
 2022-5-30 17:50 上传
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13904#       发表于 2022-5-30 18:33
+
+大嘴巴<[img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IL282  
+##### 13905#       发表于 2022-5-30 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56053472&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-5-30 14:02</a>
+https://github.com/smy20011/Hyak ... ata/2022-05-30.json
+
+有人从今天开始按分钟抓跌丝袜的订阅
+
+ ...</blockquote>
+被vox粉烧的？
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fastary  
+##### 13906#       发表于 2022-5-30 18:36
+
+不是，这截图一出来再传播一圈不是等着虹开了她吗？不过这也意味着en6期肯定不会是纯男而且快出来了吧
+
+*****
+
+####  losstoY  
+##### 13907#       发表于 2022-5-30 18:38
+
+短视频非但死不掉，tiktok在英美的观看时长甚至超过了油管。
+
+但是油管的这些操作真的很难抢短视频市场。反而tiktok可能开放中等长度的视频来分掉youtube一份流量。
+
