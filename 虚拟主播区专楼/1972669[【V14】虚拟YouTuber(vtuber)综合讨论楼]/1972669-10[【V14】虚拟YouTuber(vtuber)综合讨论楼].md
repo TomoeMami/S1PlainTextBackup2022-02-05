@@ -5114,3 +5114,28 @@ vox这事我真的只能respect了，就是不知道女粉什么想法了
 
 毕业的同接还没有胃皇高呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 13979#       发表于 2022-5-31 14:42
+
+看了一眼微博，绝大部分都是夸vox骂过激女粉。不过被直球训退坑的估计这会儿也不敢冒头被打，还是要看后面sc和同接有没有啥变化。
+
+*****
+
+####  wuzhengkai  
+##### 13980#       发表于 2022-5-31 14:43
+
+selen跟aza这个联动也太搞笑了
+
+
+
+*****
+
+####  本间日阳  
+##### 13981#       发表于 2022-5-31 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">怎么我逛了几个嗯厕都在骂vox ，主要是骂他直播时的应对方式和过激粉丝。
+

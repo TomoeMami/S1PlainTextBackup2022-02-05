@@ -1800,3 +1800,34 @@ jc那垃圾手感就别来碰瓷ds4了
 
 PC支持高帧率么？
 
+
+
+*****
+
+####  JudgmentEye  
+##### 174#       发表于 2022-5-31 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56050298&amp;ptid=2070699" target="_blank">jellyfis 发表于 2022-5-30 10:08</a>
+
+中文歌词的mod求个下载</blockquote>
+[https://pan.baidu.com/s/1NNMlLnVJeC2UzbK4KhsrzQ?pwd=x4zu](https://pan.baidu.com/s/1NNMlLnVJeC2UzbK4KhsrzQ?pwd=x4zu)
+
+*****
+
+####  mwj  
+##### 175#       发表于 2022-5-31 14:43
+
+<blockquote>bijintian 发表于 2022-5-31 00:24
+PC支持高帧率么？</blockquote>
+有mod可以高帧率
+
+*****
+
+####  蓬莱妹红  
+##### 176#       发表于 2022-5-31 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56026615&amp;ptid=2070699" target="_blank">苇原雪道 发表于 2022-5-28 14:39</a>
+
+这出的也太晚了点吧。。。早几年出能比现在多卖好多好多。。。</blockquote>
+现在就是摁炒冷饭，pjsk赚的多多了，感觉sega已经不太看得上这边了
+
