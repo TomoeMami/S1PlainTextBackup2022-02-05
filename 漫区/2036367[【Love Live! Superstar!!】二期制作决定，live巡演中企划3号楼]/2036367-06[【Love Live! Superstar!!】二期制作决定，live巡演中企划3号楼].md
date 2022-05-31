@@ -17451,3 +17451,12 @@ CelticWhite
 04年生，比Pay还小一岁，虽然红蓝中之人生日没公布，但目测就是9人乃至整个企划最年轻的。 ...</blockquote>
 那兴许以后年轻人组会玩到一起去呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8815#       发表于 2022-5-31 15:05
+
+太老油条，实在喜欢不起来
+
