@@ -6152,3 +6152,12 @@ liver视点的莎天酱（在出差时没怎么看直播的前提下），
 
 有一些不赞同，毕竟郡郡看莎的确实没我多，但既然说了ロア而不是梦月小姐那她说什么都对<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  本间日阳  
+##### 14086#       发表于 2022-6-1 07:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">说起来我记忆里第一次碰到意料外的同接奇迹就是郡道的fgo抽卡直播，现在想来这事也挺奇妙的。
+
