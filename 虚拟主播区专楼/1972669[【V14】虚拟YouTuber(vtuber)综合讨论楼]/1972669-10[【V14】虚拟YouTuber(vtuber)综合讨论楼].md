@@ -5009,3 +5009,16 @@ This was really mature of you dude and I'm so proud of you for saying this. We l
 
 不属实。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 13967#       发表于 2022-5-31 12:29
+
+答案是养gachi这种差异化粉丝群体的服务行为势必导致一部分粉丝先天必然的和其他粉丝产生差别，进而产生优越感和排外性。
+
+sc第一都有毒啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+同样是梦，贴近现实的不易破灭，超越现实的极易幻灭。
+
