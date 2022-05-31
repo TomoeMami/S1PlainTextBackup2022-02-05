@@ -17390,3 +17390,22 @@ CelticWhite
 之前绘森彩做蛋糕那推居然还有这种意思吗，发散能力真的是</blockquote>
 别人我可能觉得想太多，但如果是那个9岁就在台上忍受死宅目光的那个绘森，我觉得还挺有可能的
 
+
+
+*****
+
+####  adw667  
+##### 8809#       发表于 2022-5-31 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56066486&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-31 13:27</a>
+
+之前绘森彩做蛋糕那推居然还有这种意思吗，发散能力真的是</blockquote>
+鲤鱼王来了全吃了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8810#       发表于 2022-5-31 13:48
+
+说起来绘森彩几岁来着，之后大概率也不会和鲤鱼玩到一块吧，虽然估计她本人会积极营业的
+
