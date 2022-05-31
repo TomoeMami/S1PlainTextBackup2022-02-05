@@ -5934,3 +5934,14 @@ syl
 
 等毕业结束一瞬间看同接就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">葛叶真牛啊，文明6这种游戏都能这么高同接。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 14068#       发表于 2022-5-31 23:52
+
+总算是怂了，我初配信就在想单人深夜零点播生化7的女性直播者是什么钢铁神经
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
