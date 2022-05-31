@@ -5343,3 +5343,12 @@ vox死神那次是泄漏后画的，死神在此期间取关又关注又取关�
 
 还有这么多drama啊，我还以为老累和calliope是熟人
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 14005#       发表于 2022-5-31 16:51
+
+虽然我也觉得嗑晕了，但是这事不论是vox还是reimu纯纯的被骂活该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且多半reimu会吃亏更多
+
