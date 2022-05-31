@@ -4920,3 +4920,33 @@ vox训粉高评价 虽然不知道会产生什么样的影响
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抛开别的不说 就vox这段直球训粉我觉得确实能计入V圈史册 我从来没见过说的那么直接的人 
 
+
+
+*****
+
+####  bluebaby  
+##### 13958#       发表于 2022-5-31 11:20
+
+先来男友asmr各种rsq服务拉满，回头说是rp是单纯营业你们当真的有点大病（这个我同意），这要是个女的我一定要给个🍵的评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 13959#       发表于 2022-5-31 11:25
+
+茶会直说我是营业吗，别乱套
+
+*****
+
+####  IDIDIDID  
+##### 13960#       发表于 2022-5-31 11:25
+
+比king直球多了，我的评价是高于king，是emperor！
+
+*****
+
+####  bluebaby  
+##### 13961#       发表于 2022-5-31 11:28
+
+🍵恰完钱用不到了当然会说我们只是玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
