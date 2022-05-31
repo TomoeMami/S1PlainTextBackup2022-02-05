@@ -5228,3 +5228,30 @@ aza果然很有趣啊，就算这种语音情况下也很努力的在构建气�
 
 与之对应的，叶的油管是不是没什么起色了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 13992#       发表于 2022-5-31 16:02
+
+ 本帖最后由 alcoholic1000 于 2022-5-31 16:06 编辑 
+
+aza这apex打的很好看啊，基本上就是强冲跑图再冲，语言能用就行，观感比selen带她的菜狗同事还好
+
+Syl，原来宣布有男友的是Nyanners，不知道什么时候把她和Hiiro搞混了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  harry3  
+##### 13993#       发表于 2022-5-31 16:04
+
+老累这不是转发里被骂惨了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 13994#       发表于 2022-5-31 16:05
+
+reimu越惨越好，她越惨越凸显盒皇“爱美人不爱江山”，戏剧性就更上一层楼，加油啊。
+
