@@ -5606,3 +5606,14 @@ reimu实惨好吧，活该可还行<img src="https://static.saraba1st.com/image/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在虹讨论fair就是伪命题，刀也可以刷星川刷到星川粉退坑，别人能么
 
+
+
+*****
+
+####  vonkarajan  
+##### 14034#       发表于 2022-5-31 19:33
+
+超天酱为了一个月金盾，要搞色情直播吸粉，要游历东京逛街寻找灵感，要每隔两三天被Producer艹一次释放压力，要嗑药，要做功课研究Cult片、宅文化；百万姐只需要每天晚上播一小时生化危机7。
+
+我替超天酱不值<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
