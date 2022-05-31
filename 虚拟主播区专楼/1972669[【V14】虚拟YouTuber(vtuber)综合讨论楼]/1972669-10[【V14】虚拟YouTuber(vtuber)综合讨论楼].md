@@ -5728,3 +5728,14 @@ asmr还是比较特殊的不像游戏歌回，这种直播内容被打断确实�
 
 kamito换了个电脑提升真明显
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 14047#       发表于 2022-5-31 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56071428&amp;ptid=1972669" target="_blank">vonkarajan 发表于 2022-5-31 19:33</a>
+ 超天酱为了一个月金盾，要搞色情直播吸粉，要游历东京逛街寻找灵感，要每隔两三天被Producer艹一次释放压力 ...</blockquote>
+个人势就是艰难啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再说超天酱甚至都不是v是真人主播
+
