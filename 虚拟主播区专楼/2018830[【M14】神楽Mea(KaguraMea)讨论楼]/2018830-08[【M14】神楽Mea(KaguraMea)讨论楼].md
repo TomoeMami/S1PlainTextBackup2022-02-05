@@ -7767,3 +7767,22 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 有无好兄弟录了今早的推特空间，前面一个多小时没听到就很难受<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 11261#       发表于 2022-5-31 08:47
+
+早起阿咩
+
+<img src="https://img.saraba1st.com/forum/202205/31/084710ron7f5bqemp13pmo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9AA4D95B-CB74-45D1-802C-E47AFAD12A09.jpeg</strong> (76.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-31 08:47 上传
+
+（估计是健的
+
