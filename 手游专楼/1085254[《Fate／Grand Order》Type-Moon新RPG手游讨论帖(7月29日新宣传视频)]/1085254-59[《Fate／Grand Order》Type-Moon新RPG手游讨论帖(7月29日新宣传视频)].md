@@ -12004,3 +12004,29 @@ FGO狂大公是FA里黑色枪大公变成吸血鬼的姿态，具有史实和幻
 草，完全没注意时间，茶壶放过期了，浪费了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我也已经躺平了。最近的活动太无聊。我也都签到而已。现在也就期待一下周年和泳装出啥
 
+
+
+*****
+
+####  シャル  
+##### 88035#       发表于 2022-5-31 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56021211&amp;ptid=1085254" target="_blank">الطائر 发表于 2022-5-27 23:15</a>
+
+FGO狂大公是FA里黑色枪大公变成吸血鬼的姿态，具有史实和幻想两方面的记忆，人物介绍里写着“出处：《德古 ...</blockquote>
+EF枪大公没有吸血鬼的记忆，完全是人类的记忆
+
+狂大公这个宝具鲜血传承就是被德古拉传说给污染的
+
+*****
+
+####  シャル  
+##### 88036#       发表于 2022-5-31 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56003680&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-5-26 19:56</a>
+
+将对面全杀了就不用防守了</blockquote>
+村正能灭了对面全部
+
+攻击才是最大防御<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把攻城部队都杀了就不用守城了
+
