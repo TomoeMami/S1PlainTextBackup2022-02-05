@@ -6039,3 +6039,116 @@ ib发的小视频和在铜憨憨频道公布冥府翻唱的vtl<img src="https://
 
 朕ハ事務所政府ヲシテ、お嬢様ニ對シ、其ノ宣言ヲ受諾スル旨通告セシメタリ
 
+
+
+*****
+
+####  Junchoon  
+##### 14079#       发表于 2022-6-1 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56075378&amp;ptid=1972669" target="_blank">シナモンロール 发表于 2022-6-1 01:24</a>
+
+https://twitter.com/shirakamifubuki/status/1531660971629944832?s=21
+
+朕深ク世界ノ大勢トグループノ現 ...</blockquote>
+抛开之前的成见，单就这条推我也觉得这人极其恶心......
+
+同一时间自己同事在播，却让观众去看别人的直播？
+
+另外跌丝袜今天直播因故推迟了一会儿，她发推的这个时间点跌丝袜刚开播20多分钟，正在“探索地图，捡垃圾”，除了偶有的笑点外和“面白すぎ”不沾边......
+
+*****
+
+####  天悬星河  
+##### 14080#       发表于 2022-6-1 02:11
+
+你抛开了个屁的成见
+
+*****
+
+####  Junchoon  
+##### 14081#       发表于 2022-6-1 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56075615&amp;ptid=1972669" target="_blank">天悬星河 发表于 2022-6-1 02:11</a>
+
+你抛开了个屁的成见</blockquote>
+来，话筒给你，你来说，我倒要听听你有何高见？
+
+*****
+
+####  asdhai  
+##### 14082#       发表于 2022-6-1 02:23
+
+ 本帖最后由 asdhai 于 2022-6-1 02:31 编辑 
+
+翻了下留言，这不ccll粉嘛，胃镜一来就在v综泡着了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+狐皇亲善外交杏奴急一急也就罢了，外人起个什么哄<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 14083#       发表于 2022-6-1 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56075665&amp;ptid=1972669" target="_blank">asdhai 发表于 2022-6-1 02:23</a>
+
+翻了下留言，这不ccll粉嘛，胃镜一来就在v综泡着了
+
+狐皇亲善外交杏奴急一急也就罢了，外人起个什么 ...</blockquote>
+特地看了下，这栋楼我最早的发言是在“2021-5-9”，谁又规定我只能看一个团了？
+
+不过你说的也对，我暴躁什么呢？有的是人比我暴躁......
+
+*****
+
+####  wuzhengkai  
+##### 14084#       发表于 2022-6-1 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56071217&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-5-31 19:17</a>
+
+差不多得了，vox之前又不是没干过这种事，而且还是发了一堆
+
+reimu实惨好吧，活该可还行 还是其他en ...</blockquote>
+但问题就在于她现在没那么低边确实一大因素就是vox那边蹭来的粉 切割了恐怕又要同接几百了
+
+*****
+
+####  rzrbtk  
+##### 14085#       发表于 2022-6-1 04:14
+
+ 本帖最后由 rzrbtk 于 2022-6-1 04:16 编辑 
+
+感觉郡郡提到口了的那天我必失眠<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">；
+
+看了一下隔空喊话，说是今天有评论催促梅丽莎快点下播别给大小姐挡路，梅丽莎回了没关系可以播后，莎天酱上播说自己调试设备导致迟到，
+
+有一说是评论是杏人发的我没查证，但我看了一眼其实挺多人有在说这类话的（[https://mi.5ch.net/test/read.cgi/news4vip/1654014602](https://mi.5ch.net/test/read.cgi/news4vip/1654014602)），可能虹人冠军粉民度就是不行，
+
+我猜测莎天酱自身是有在等待的，毕竟对箱活动挺积极的而且早转推了（虽然没关注），下播后再次转发“夸我的时候只考虑我”推文，应该也是看到了，
+
+结合今天vox事件，粉丝管理确实是难事，不知道明天杂谈会不会细说。
+
+会限一些（不要转（跪）），
+
+关于虹pex的axia队，郡郡非常高兴第三个队友是rion（水平相当），知道axia是清楚势后有点担心，决定联动时黄梗自肃，察觉到发呆的时候都在唱丁丁之歌的时候自嘲完蛋了；
+
+liver视点的莎天酱（在出差时没怎么看直播的前提下），
+
+对爆炸数字的看法：实力是第一要素；数字多就是会吸引越来越多人看，滚雪球；观看门槛低，一小时很容易追；
+
+虽然看到有饭觉得轻松超越自推有些寂寞，郡郡普通的觉得新人很劲，
+
+毕竟自己当时作为头组，和童田久远ロア也超了很多人，只是时代在变而已，虽然liver直播的时候都聊了新人但是都规避数字，猜测应该其中也有被超越然后伤到的人，
+
+有点桐生可可降临杏的感觉，但是相对龙那种增加杏箱整体同接的做法，莎乐美是作为独立性强的个体活动，虹元素稀薄，
+
+预想莎乐美今后联动会比较少，对这种不会被外人伤到”品牌“，自己也不影响外人的做法，很赞同，
+
+但那边的活动其实就和自己没有太大关系了，所以目前只是为有强力新人出现而ワクワク，
+
+（不针对莎）虽说“数字不会撒谎”，但六十万订阅者频道的有趣程度并不是一万订阅者频道的六十倍，观众渴求的东西不能用数字量化，
+
+以上
+
+有一些不赞同，毕竟郡郡看莎的确实没我多，但既然说了ロア而不是梦月小姐那她说什么都对<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
