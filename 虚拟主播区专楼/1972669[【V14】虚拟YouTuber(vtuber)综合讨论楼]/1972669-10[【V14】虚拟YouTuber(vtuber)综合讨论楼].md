@@ -4911,3 +4911,12 @@ vox训粉高评价 虽然不知道会产生什么样的影响
 <blockquote>His fanbase(the chinese) will need to translate it later to understand what the hell he's talking about and then we'll know what they think.</blockquote>
 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 13957#       发表于 2022-5-31 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抛开别的不说 就vox这段直球训粉我觉得确实能计入V圈史册 我从来没见过说的那么直接的人 
+
