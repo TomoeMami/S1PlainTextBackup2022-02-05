@@ -1909,3 +1909,15 @@ pc上肯定直接手台了
 
 — from samsung SM-G9750, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  adw667  
+##### 185#       发表于 2022-5-31 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56070359&amp;ptid=2070699" target="_blank">Pettabuz 发表于 2022-5-31 18:03</a>
+
+用xbox手柄打了几首歌感觉腱鞘炎犯了。该收个ds4了。。。</blockquote>
+用XBOX手柄打了一把rin酱now的HARD谱感觉大拇指要抽风了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
