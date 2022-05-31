@@ -7868,3 +7868,14 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  往世雷书  
+##### 11270#       发表于 2022-5-31 12:48
+
+看了fafa的文字同传，这私教锻炼得又是大腿内侧痛又是屁股痛，不会真说中了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
