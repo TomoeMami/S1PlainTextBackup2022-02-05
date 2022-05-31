@@ -4901,3 +4901,13 @@ reimu挺惨的，眼看着订阅要在en垫底了…
 
 vox训粉高评价 虽然不知道会产生什么样的影响
 
+
+
+*****
+
+####  harry3  
+##### 13956#       发表于 2022-5-31 11:06
+
+<blockquote>His fanbase(the chinese) will need to translate it later to understand what the hell he's talking about and then we'll know what they think.</blockquote>
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
