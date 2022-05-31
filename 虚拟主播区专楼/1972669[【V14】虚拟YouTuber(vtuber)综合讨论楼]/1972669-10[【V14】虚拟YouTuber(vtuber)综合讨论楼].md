@@ -5597,3 +5597,12 @@ reimu实惨好吧，活该可还行<img src="https://static.saraba1st.com/image/
 
 底边虹女粉丝哪里敢冲一哥的粉哦，就和葛尊那事一样，受伤的只能是粉丝少的弱势的那一方
 
+
+
+*****
+
+####  winda  
+##### 14033#       发表于 2022-5-31 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在虹讨论fair就是伪命题，刀也可以刷星川刷到星川粉退坑，别人能么
+
