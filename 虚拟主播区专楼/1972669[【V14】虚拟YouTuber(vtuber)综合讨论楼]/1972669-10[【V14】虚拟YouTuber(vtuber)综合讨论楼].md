@@ -5511,3 +5511,44 @@ vox这么敬业(地捞钱)怎么可能放弃养gachi，最多少媚梦女多营�
 确实，人家是实实在在开过线下聚会的
 reimu反而是那个从来没跟同事见过的
 
+
+
+*****
+
+####  rzrbtk  
+##### 14024#       发表于 2022-5-31 18:52
+
+毕竟好像一部分炎上源头就是…
+
+[https://share.api.weibo.cn/share ... id=4775224376036828](https://share.api.weibo.cn/share/309882755,4775224376036828.html?weibo_id=4775224376036828)
+
+*****
+
+####  布莱士·西伯利  
+##### 14025#       发表于 2022-5-31 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">塑料粤语好好笑。
+
+*****
+
+####  alcoholic1000  
+##### 14026#       发表于 2022-5-31 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56070775&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2022-5-31 18:41</a>
+
+虹en是线下女同事面基能突然冒出一个男人的世界，半路加入直播更是日常操作 ...</blockquote>
+指正一下，是冒出一个gay✋
+
+en线下最高纪录是五男两女，两间airbnb混住
+
+*****
+
+####  fastary  
+##### 14027#       发表于 2022-5-31 18:58
+
+<blockquote>KiraYoshikage 发表于 2022-5-31 18:14
+所以是即兴演出（剧本？）没演好被炎？还是事后澄清的时候发言不当？</blockquote>
+不是，是过激梦女不接受这种即兴演出或者说甚至不能忍炒cp的女v在梦向直播发chat(感觉像嫂子吃醋跑来示威)所以在推上骂reimu还有发死亡威胁的。reimu道歉并取消这两天直播、其他en都在推上维护她，vox只点赞道歉推和播mc的时候稍微训了两句，所以被炎上没担当不舍得钱跟梦女做对之类。后面他又开播发推直球训粉，然后就是现在这样了。
+
+吃瓜看到reimu粉说vox其实以前也去reimu的梦向直播发过一堆chat，不过当时没人炎……
+
