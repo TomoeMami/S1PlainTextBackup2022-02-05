@@ -1845,3 +1845,15 @@ https://keylol.com/t813745-1-1
 这里面有</blockquote>
 如果只是打歌词MOD需要装那个DML吗
 
+
+
+*****
+
+####  JudgmentEye  
+##### 178#       发表于 2022-5-31 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56069755&amp;ptid=2070699" target="_blank">adw667 发表于 2022-5-31 17:20</a>
+
+如果只是打歌词MOD需要装那个DML吗</blockquote>
+不需要，所有mod直接覆盖就行，那个dml只是方便你管理mod
+

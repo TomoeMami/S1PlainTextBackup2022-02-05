@@ -5390,3 +5390,14 @@ vox死神那次是泄漏后画的，死神在此期间取关又关注又取关�
 vox死神那次是泄漏后画的，死神在此期间取关又关注又 ...</blockquote>
 谢谢 居然还是karen熟人 惊了
 
+
+
+*****
+
+####  winda  
+##### 14010#       发表于 2022-5-31 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是reimu被痛骂纯属活该，哪有会限rp  asmr演一半被人打扰的，说严重点这整个档都费了，以后也没法用了
+
+vox就是纯纯的倒霉了，这事只能护自己同事，算是无妄之灾
+
