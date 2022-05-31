@@ -17370,3 +17370,23 @@ CelticWhite
 
 2022-5-31 13:27 上传
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 8807#       发表于 2022-5-31 13:39
+
+佩顿尚未和鲤鱼百合营业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 8808#       发表于 2022-5-31 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56066486&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-31 13:27</a>
+之前绘森彩做蛋糕那推居然还有这种意思吗，发散能力真的是</blockquote>
+别人我可能觉得想太多，但如果是那个9岁就在台上忍受死宅目光的那个绘森，我觉得还挺有可能的
+
