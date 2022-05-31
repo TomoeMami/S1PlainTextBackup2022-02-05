@@ -17315,3 +17315,23 @@ jk嘛，正常。而且pay子也不擅长营业
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56060690&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-30 23:47</a></blockquote>
 7000赞送两根葱，staff上期送音乐蝌蚪用光预算了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 8804#       发表于 2022-5-31 11:40
+
+CelticWhite
+
+之前有人说海报像巨人香音追着8个人。
+
+<img src="https://img.saraba1st.com/forum/202205/31/114029j333yy8h0n389088.gif" referrerpolicy="no-referrer">
+
+<strong>3EFBDF04-A88B-4F3A-A731-90AF6E86225A.gif</strong> (358.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-31 11:40 上传
+

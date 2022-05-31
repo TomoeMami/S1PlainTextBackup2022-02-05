@@ -4950,3 +4950,27 @@ vox训粉高评价 虽然不知道会产生什么样的影响
 
 🍵恰完钱用不到了当然会说我们只是玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IDIDIDID  
+##### 13962#       发表于 2022-5-31 11:31
+
+<blockquote>Shoto
+
+35 minutes ago (edited)
+
+This was really mature of you dude and I'm so proud of you for saying this. We love you dude, thank you ❤
+
+1.8K</blockquote>
+
+训粉视频第一条评论就是EN蹭皇，属于是犬山转性了
+
+*****
+
+####  Suny08  
+##### 13963#       发表于 2022-5-31 11:38
+
+下次直播去打个sc支持一下，不过盒鬼肯定再也回不到以前了，有点可惜
+
