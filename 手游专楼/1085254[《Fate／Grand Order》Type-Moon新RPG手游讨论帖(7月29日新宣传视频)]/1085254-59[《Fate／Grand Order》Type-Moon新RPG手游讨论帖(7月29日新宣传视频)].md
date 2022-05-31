@@ -11992,3 +11992,15 @@ FGO狂大公是FA里黑色枪大公变成吸血鬼的姿态，具有史实和幻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">草，完全没注意时间，茶壶放过期了，浪费了
 
+
+
+*****
+
+####  areklose  
+##### 88034#       发表于 2022-5-31 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56066339&amp;ptid=1085254" target="_blank">阿提拉 发表于 2022-5-31 13:13</a>
+
+草，完全没注意时间，茶壶放过期了，浪费了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我也已经躺平了。最近的活动太无聊。我也都签到而已。现在也就期待一下周年和泳装出啥
+
