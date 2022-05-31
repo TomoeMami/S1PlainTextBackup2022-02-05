@@ -17620,3 +17620,14 @@ pay：在前面晕车听着后面的欢声笑语
 由手机上传
 2022-5-31 23:55 上传
 
+
+
+*****
+
+####  长日留痕  
+##### 8822#       发表于 2022-6-1 00:31
+
+心机偶像的设定，我喜欢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
