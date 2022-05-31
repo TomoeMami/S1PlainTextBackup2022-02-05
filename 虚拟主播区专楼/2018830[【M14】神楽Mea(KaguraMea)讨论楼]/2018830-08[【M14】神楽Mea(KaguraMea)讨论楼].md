@@ -7813,3 +7813,12 @@ DECO竟然发爱言叶四了，今年是哪一年.jpg
 
 说不定是之前录歌录的ng了一天
 
+
+
+*****
+
+####  Dualist彩  
+##### 11265#       发表于 2022-5-31 10:49
+
+呵呵，麻麻录歌从不ng，ng的是谁我不说，真的fw<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
