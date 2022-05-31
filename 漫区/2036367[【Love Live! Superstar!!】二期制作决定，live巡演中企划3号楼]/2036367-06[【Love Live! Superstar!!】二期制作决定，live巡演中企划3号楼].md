@@ -17335,3 +17335,21 @@ CelticWhite
 由手机上传
 2022-5-31 11:40 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 8805#       发表于 2022-5-31 11:45
+
+花田十辉：在附近的超市买牛奶，水果，还有啥来着，买东西的时候播放着熟悉的BGM，就无意识地哼唱，回想一下原来是未来预报，这种地方都放着这歌啊。
+
+<img src="https://img.saraba1st.com/forum/202205/31/114518i0z7722s62e1ydp4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8AFA6DE8-10DA-4A89-B964-95236F650D61.jpeg</strong> (171.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-5-31 11:45 上传
+
