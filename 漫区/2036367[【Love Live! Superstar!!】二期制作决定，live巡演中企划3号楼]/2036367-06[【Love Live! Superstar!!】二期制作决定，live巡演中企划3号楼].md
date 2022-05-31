@@ -17492,3 +17492,13 @@ CelticWhite
 
 2022-5-31 17:30 上传
 
+
+
+*****
+
+####  saya1892  
+##### 8818#       发表于 2022-5-31 18:37
+
+看了yhm的MTV现地报告 <blockquote>①星に願いを(英語)弦楽器の音の重なりが綺麗。ng→li→nk→pe→syの順で歌い出す形。lipeの英語の発音がぶち抜いて綺麗。</blockquote>
+怎么记得佩酱的英文发音也很yhm，是苦练过了吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
