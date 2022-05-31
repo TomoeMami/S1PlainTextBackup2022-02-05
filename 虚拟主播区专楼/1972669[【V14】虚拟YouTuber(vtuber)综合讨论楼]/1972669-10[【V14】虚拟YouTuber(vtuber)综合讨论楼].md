@@ -5369,3 +5369,24 @@ vox死神那次是泄漏后画的，死神在此期间取关又关注又取关�
 
 讲道理，这么说话挺男人的，不过后面路线要改改了。
 
+
+
+*****
+
+####  IDIDIDID  
+##### 14008#       发表于 2022-5-31 17:11
+
+小蜜蜂这是自愿离职，甚至了解过点信息的都知道其实是她炒了彩虹，毫无虚拟哭丧的要素为什么不能撞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wuzhengkai  
+##### 14009#       发表于 2022-5-31 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56068854&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-5-31 16:25</a>
+
+知名（好坏意义上都有）微博画师，隔壁死神专辑画师。
+
+vox死神那次是泄漏后画的，死神在此期间取关又关注又 ...</blockquote>
+谢谢 居然还是karen熟人 惊了
+

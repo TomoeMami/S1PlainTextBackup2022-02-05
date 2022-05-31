@@ -1831,3 +1831,17 @@ PC支持高帧率么？</blockquote>
 这出的也太晚了点吧。。。早几年出能比现在多卖好多好多。。。</blockquote>
 现在就是摁炒冷饭，pjsk赚的多多了，感觉sega已经不太看得上这边了
 
+
+
+*****
+
+####  adw667  
+##### 177#       发表于 2022-5-31 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56057909&amp;ptid=2070699" target="_blank">Limpidity 发表于 2022-5-30 19:44</a>
+
+https://keylol.com/t813745-1-1
+
+这里面有</blockquote>
+如果只是打歌词MOD需要装那个DML吗
+
