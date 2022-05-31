@@ -5552,3 +5552,21 @@ en线下最高纪录是五男两女，两间airbnb混住
 
 吃瓜看到reimu粉说vox其实以前也去reimu的梦向直播发过一堆chat，不过当时没人炎……
 
+
+
+*****
+
+####  grayinthedark  
+##### 14028#       发表于 2022-5-31 19:04
+
+差距<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 你做可以我做不可以啦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fastary  
+##### 14029#       发表于 2022-5-31 19:09
+
+还是来看远方的虹pex抽选会吧家人们，希望黑客有参加(つД`)
+
