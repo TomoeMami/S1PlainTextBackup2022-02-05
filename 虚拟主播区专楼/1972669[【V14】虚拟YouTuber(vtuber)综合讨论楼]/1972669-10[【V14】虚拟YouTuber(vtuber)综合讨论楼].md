@@ -5867,3 +5867,44 @@ kamito换了个电脑提升真明显
 
 梅丽莎的同接开始掉了 去看莎皇了罢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 14062#       发表于 2022-5-31 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56074076&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-5-31 23:06</a>
+
+在等梅丽莎毕业结束吧
+
+没事了，好像没等</blockquote>
+其实是在等的，梅丽莎这边大概说了不必等
+
+*****
+
+####  fastary  
+##### 14063#       发表于 2022-5-31 23:33
+
+梅丽莎的毕业回有这个数字的话是否说明虹人还是挺多的，莎皇数字还是以虹人为主？
+
+syl
+
+越是rp的管人毕业就越难顶，毕竟魂还在那个rp的角色也不会再有了……虽然管厕皮魂双推如理所当然一般，我每次试图拿ymen代餐都会满脑子“你笑起来就不像他了”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以宁可当生命粉也不希望他毕业
+
+*****
+
+####  布莱士·西伯利  
+##### 14064#       发表于 2022-5-31 23:33
+
+但今天百万姐应该也上不了10w了吧...看样子。
+
+*****
+
+####  poipanchao  
+##### 14065#       发表于 2022-5-31 23:37
+
+一个毕业10W一个莎皇9W，虹人要早就被抽干了吧
+
+黑黑vox不破甚至都在播
+
