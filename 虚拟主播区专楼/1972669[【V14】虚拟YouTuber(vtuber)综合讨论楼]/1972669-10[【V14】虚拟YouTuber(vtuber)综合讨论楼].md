@@ -5460,3 +5460,14 @@ vox这么敬业(地捞钱)怎么可能放弃养gachi，最多少媚梦女多营�
 ↑不是reimu打电话，是reimu在dc发私信 ...</blockquote>
 所以是即兴演出（剧本？）没演好被炎？还是事后澄清的时候发言不当？
 
+
+
+*****
+
+####  rzrbtk  
+##### 14018#       发表于 2022-5-31 18:27
+
+被楼友的异性恋思维气晕<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+省一楼，莎天酱这个日常绘确实有点美兔绘repo那感觉了，当然月之画得更好哈，是说今天发的东西怎么这么养捏
+
