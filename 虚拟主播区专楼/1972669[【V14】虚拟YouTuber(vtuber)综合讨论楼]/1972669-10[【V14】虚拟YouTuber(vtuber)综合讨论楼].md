@@ -5617,3 +5617,43 @@ reimu实惨好吧，活该可还行<img src="https://static.saraba1st.com/image/
 
 我替超天酱不值<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 14035#       发表于 2022-5-31 19:43
+
+有黛灰！！！好耶！！！！
+
+*****
+
+####  nian1538  
+##### 14036#       发表于 2022-5-31 19:44
+
+其实不嗑药不搞色情阴谋论直播也可以15天百万的
+
+*****
+
+####  bluebaby  
+##### 14037#       发表于 2022-5-31 19:45
+
+asmr还是比较特殊的不像游戏歌回，这种直播内容被打断确实不太能忍，尤其还是什么男友rpasmr，播到一半来个别的女人，这男友rp玩法太上位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然我觉得一个合格的asmr在播的时候就不应该能接收到同事的讯息，就算知道了也该无视下播了再说。
+
+*****
+
+####  Suny08  
+##### 14038#       发表于 2022-5-31 19:46
+
+看样子没来的人挺多的，新面孔要大量出现了
+
+*****
+
+####  赤星ビスコ  
+##### 14039#       发表于 2022-5-31 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54705501&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-2-16 02:00</a>
+补录播，hnn这下播前突然的偏头痛有点吓人，果然生病没完全康复不适合长时间直播，还是需要她指挥的apex训 ...</blockquote>
+8
+
