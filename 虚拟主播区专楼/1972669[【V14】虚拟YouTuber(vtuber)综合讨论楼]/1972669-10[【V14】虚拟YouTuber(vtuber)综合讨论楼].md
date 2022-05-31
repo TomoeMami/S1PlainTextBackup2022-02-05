@@ -5908,3 +5908,29 @@ syl
 
 黑黑vox不破甚至都在播
 
+
+
+*****
+
+####  rzrbtk  
+##### 14066#       发表于 2022-5-31 23:41
+
+我觉得主因还是昨天太无聊
+
+<img src="https://img.saraba1st.com/forum/202205/31/234053nobu71c6zqzcu3kx.jpg" referrerpolicy="no-referrer">
+
+<strong>bylpnvj.jpg</strong> (151.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-31 23:40 上传
+
+*****
+
+####  古战场亡魂  
+##### 14067#       发表于 2022-5-31 23:42
+
+ 本帖最后由 古战场亡魂 于 2022-5-31 23:43 编辑 
+
+等毕业结束一瞬间看同接就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">葛叶真牛啊，文明6这种游戏都能这么高同接。
+
