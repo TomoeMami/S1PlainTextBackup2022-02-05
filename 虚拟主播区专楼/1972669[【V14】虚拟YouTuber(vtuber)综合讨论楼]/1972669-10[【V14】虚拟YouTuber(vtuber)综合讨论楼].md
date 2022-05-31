@@ -5739,3 +5739,26 @@ kamito换了个电脑提升真明显
  超天酱为了一个月金盾，要搞色情直播吸粉，要游历东京逛街寻找灵感，要每隔两三天被Producer艹一次释放压力 ...</blockquote>
 个人势就是艰难啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再说超天酱甚至都不是v是真人主播
 
+
+
+*****
+
+####  Junchoon  
+##### 14048#       发表于 2022-5-31 21:55
+
+本来今天跌丝袜播放量下降很多加上今天彩虹社直播排得又满，觉得今天同接应该会跌，但一看现在有6千人在待机室里“跌丝袜、跌丝袜”，我又犹豫了......
+
+*****
+
+####  渡鸦骑士  
+##### 14049#       发表于 2022-5-31 21:55
+
+真的猛士要敢于下判断<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 14050#       发表于 2022-5-31 21:57
+
+想看奇观是人类的共性，除非跟奇观有仇<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
