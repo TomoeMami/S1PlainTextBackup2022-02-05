@@ -17418,3 +17418,36 @@ CelticWhite
 
 有的事情想想就来气，让人觉得不值得。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 8812#       发表于 2022-5-31 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56066687&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-5-31 13:48</a>
+
+说起来绘森彩几岁来着，之后大概率也不会和鲤鱼玩到一块吧，虽然估计她本人会积极营业的 ...</blockquote>
+04年生，比Pay还小一岁，虽然红蓝中之人生日没公布，但目测就是9人乃至整个企划最年轻的。
+
+*****
+
+####  ads147147  
+##### 8813#       发表于 2022-5-31 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56065090&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-31 11:40</a>
+
+CelticWhite
+
+之前有人说海报像巨人香音追着8个人。</blockquote>
+透视回不去了，满足了sayu当巨人的愿望。
+
+*****
+
+####  D麦林  
+##### 8814#       发表于 2022-5-31 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56067060&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-5-31 14:23</a>
+04年生，比Pay还小一岁，虽然红蓝中之人生日没公布，但目测就是9人乃至整个企划最年轻的。 ...</blockquote>
+那兴许以后年轻人组会玩到一起去呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
