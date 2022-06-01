@@ -14135,3 +14135,24 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 这是最生硬最难看的一次加新人了
 
+
+
+*****
+
+####  仟音一心  
+##### 58191#       发表于 2022-6-1 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56078231&amp;ptid=98922" target="_blank">Yeaha123 发表于 2022-6-1 10:42</a>
+
+第10人，按计划这是最后一个了吧</blockquote>
+是的，职位应该是写航海日志的记录员，大概
+
+*****
+
+####  Supermangunv3  
+##### 58192#       发表于 2022-6-1 10:57
+
+<blockquote>仟音一心 发表于 2022-6-1 10:52
+是的，职位应该是写航海日志的记录员，大概</blockquote>
+还不一定呢，路飞还没有喊过大和大名呢，得改口才有可能。
+
