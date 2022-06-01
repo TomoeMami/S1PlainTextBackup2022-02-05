@@ -17651,3 +17651,14 @@ pay：在前面晕车听着后面的欢声笑语
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 8825#       发表于 2022-6-1 11:46
+
+心机偶像可大可小嘛，毕竟很多人就喜欢看后辈黑化上位的爽文。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
