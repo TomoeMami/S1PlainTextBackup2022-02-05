@@ -6209,3 +6209,18 @@ syl，reimu已经全en倒数第三了还要怎么底…
 
 限制订阅者发言还有人催岂不是更那个了……
 
+
+
+*****
+
+####  wuzhengkai  
+##### 14091#       发表于 2022-6-1 10:32
+
+ 本帖最后由 wuzhengkai 于 2022-6-1 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56076355&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-6-1 08:12</a>
+
+其实昨晚意识到莎皇可能在等毕业回的时候我担心有人会过去刷快下播
+
+去瞄了一眼评论，梅丽莎那边是限定订 ...</blockquote>
+之前经常是几百同接 基本上跟niji kr/id差不多了 4chan就有人说原来reimu还有gachi粉的吗（
+
