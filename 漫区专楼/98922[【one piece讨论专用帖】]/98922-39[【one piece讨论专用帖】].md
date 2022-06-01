@@ -14109,3 +14109,29 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 这漫画可以正式弃了吧
 
+
+
+*****
+
+####  Yeaha123  
+##### 58188#       发表于 2022-6-1 10:42
+
+第10人，按计划这是最后一个了吧
+
+*****
+
+####  和真克瓦尔  
+##### 58189#       发表于 2022-6-1 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56077975&amp;ptid=98922" target="_blank">陈玉礼 发表于 2022-6-1 10:27</a>
+
+少喊两声？我就是御田！</blockquote>
+笑死了
+
+*****
+
+####  仟音一心  
+##### 58190#       发表于 2022-6-1 10:49
+
+这是最生硬最难看的一次加新人了
+
