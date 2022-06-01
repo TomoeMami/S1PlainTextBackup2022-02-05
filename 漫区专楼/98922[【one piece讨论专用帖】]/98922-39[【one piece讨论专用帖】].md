@@ -14005,3 +14005,18 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 我不同意，首先兔子怎么办。然后是广大御田ptsd受不了
 
+
+
+*****
+
+####  klzxs  
+##### 58179#       发表于 2022-6-1 08:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">兔子就算了吧
+
+连着整个毛皮族都简单被长子团灭了
+
+作用还没带着补药的山羊大
+
+大概是被抛弃了
+
