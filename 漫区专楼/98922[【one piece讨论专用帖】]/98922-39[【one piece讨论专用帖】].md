@@ -14237,3 +14237,15 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 撒花，终于完结这个破烂篇章了——让我们期待一下尾田接下来会给大家奉上什么新的破烂 ...</blockquote>
 后面的章节比和之国还烂应该不太可能
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 58200#       发表于 2022-6-1 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56078573&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-6-1 11:05</a>
+
+大和应该要改回自己的本名拿出自己的梦想才配做船员吧，</blockquote>
+大和是船员中第一个实现梦想的，就是COSPLAY御田爹
+
