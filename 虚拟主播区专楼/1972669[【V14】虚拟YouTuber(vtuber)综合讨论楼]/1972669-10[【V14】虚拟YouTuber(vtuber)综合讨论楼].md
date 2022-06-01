@@ -6161,3 +6161,17 @@ liver视点的莎天酱（在出差时没怎么看直播的前提下），
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">说起来我记忆里第一次碰到意料外的同接奇迹就是郡道的fgo抽卡直播，现在想来这事也挺奇妙的。
 
+
+
+*****
+
+####  losstoY  
+##### 14087#       发表于 2022-6-1 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56075593&amp;ptid=1972669" target="_blank">Junchoon 发表于 2022-6-1 02:03</a>
+
+抛开之前的成见，单就这条推我也觉得这人极其恶心......
+
+同一时间自己同事在播，却让观众去看别人的直播 ...</blockquote>
+前面自己同事也就算了，确实看到不少人说了。后半句也太能想了。谁能想到这么多，而且大多数人今天早上才会看到推特，有多少人会人家一发推就立刻去看同时在播的内容啊。你这个恶心罪名也太强行想象了。
+
