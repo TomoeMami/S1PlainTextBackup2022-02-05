@@ -14049,3 +14049,36 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  仟音一心  
+##### 58183#       发表于 2022-6-1 10:01
+
+<blockquote>1051话标题“和之国将军 光月桃之助”
+
+扉页：杰尔马逃脱
+
+本话大部分是接着上一话，桃之助对和之国全境发表演讲
+
+桃之助成为将军
+
+很短的小玉回忆，本话也有揭露她的能力效果只有一个月的时效  
+
+大和告诉草帽一伙她”光月御田”会上他们的船，一部分成员很开心一部分很惊讶。
+
+下周不休刊。</blockquote>
+
+*****
+
+####  zodiac137  
+##### 58184#       发表于 2022-6-1 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56076712&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-6-1 08:52</a>
+
+哎，希望大和上船后少喊两声御田吧</blockquote>
+大和名字都要改成御田了
+
+恐怕以后大家称呼她都是称呼御田，怕是要天天听御田了
+
