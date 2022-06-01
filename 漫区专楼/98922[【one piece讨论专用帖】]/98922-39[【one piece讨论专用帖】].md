@@ -14211,3 +14211,17 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 这手忒懒了
 
+
+
+*****
+
+####  仟音一心  
+##### 58198#       发表于 2022-6-1 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56078840&amp;ptid=98922" target="_blank">hamartia 发表于 2022-6-1 11:23</a>
+什么，原来罗宾一直不写日志的吗
+
+这手忒懒了</blockquote>
+罗宾翻译历史正文够忙了。
+话说现在草帽团都三个霸王色了。
+

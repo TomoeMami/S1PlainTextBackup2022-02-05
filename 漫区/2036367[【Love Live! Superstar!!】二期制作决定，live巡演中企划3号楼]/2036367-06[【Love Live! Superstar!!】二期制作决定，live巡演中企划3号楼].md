@@ -17640,3 +17640,14 @@ pay：在前面晕车听着后面的欢声笑语
 
 这种人争议都大吧，喜欢的很喜欢，讨厌的看着就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 8824#       发表于 2022-6-1 11:34
+
+争议大的话可以负责吸引火力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
