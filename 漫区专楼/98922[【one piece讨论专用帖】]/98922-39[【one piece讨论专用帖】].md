@@ -14191,3 +14191,23 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 大和应该要改回自己的本名拿出自己的梦想才配做船员吧，
 
+
+
+*****
+
+####  uponutopia  
+##### 58196#       发表于 2022-6-1 11:20
+
+很久没看了 没记错的话罗宾乔巴和甚平还没正式入籍吧？至于配不配的问题纯粹看WT心情，我以前一直觉得布鲁克不配做船员然并卵，五黄都钦点还有什么配不配的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hamartia  
+##### 58197#       发表于 2022-6-1 11:23
+
+<blockquote>仟音一心 发表于 2022-6-1 10:52
+是的，职位应该是写航海日志的记录员，大概</blockquote>
+什么，原来罗宾一直不写日志的吗
+
+这手忒懒了
+
