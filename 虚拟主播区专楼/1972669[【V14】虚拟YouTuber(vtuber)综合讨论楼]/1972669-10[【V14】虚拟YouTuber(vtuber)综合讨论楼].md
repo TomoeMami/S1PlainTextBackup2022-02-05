@@ -6224,3 +6224,19 @@ syl，reimu已经全en倒数第三了还要怎么底…
 去瞄了一眼评论，梅丽莎那边是限定订 ...</blockquote>
 之前经常是几百同接 基本上跟niji kr/id差不多了 4chan就有人说原来reimu还有gachi粉的吗（
 
+
+
+*****
+
+####  FCCHua  
+##### 14092#       发表于 2022-6-1 11:03
+
+所以说的是狠下心来啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 14093#       发表于 2022-6-1 11:08
+
+别尬黑，光简中互联网我就看见好几百个痛批vox的鬼鬼真爱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
