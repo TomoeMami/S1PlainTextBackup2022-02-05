@@ -14225,3 +14225,15 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 罗宾翻译历史正文够忙了。
 话说现在草帽团都三个霸王色了。
 
+
+
+*****
+
+####  ⊙天上天下  
+##### 58199#       发表于 2022-6-1 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56049486&amp;ptid=98922" target="_blank">触手皇帝 发表于 2022-5-30 09:02</a>
+
+撒花，终于完结这个破烂篇章了——让我们期待一下尾田接下来会给大家奉上什么新的破烂 ...</blockquote>
+后面的章节比和之国还烂应该不太可能
+
