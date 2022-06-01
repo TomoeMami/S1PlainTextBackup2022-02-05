@@ -6191,3 +6191,12 @@ liver视点的莎天酱（在出差时没怎么看直播的前提下），
 
 syl，reimu已经全en倒数第三了还要怎么底…
 
+
+
+*****
+
+####  芸芸提不起劲  
+##### 14089#       发表于 2022-6-1 09:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">摸鱼顺便看看油管，发现salome离sasaki也只差2k了
+

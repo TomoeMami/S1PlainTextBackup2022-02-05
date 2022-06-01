@@ -14029,3 +14029,12 @@ https://bbs.saraba1st.com/2b/thread-2062735-1-1.html
 
 哎，希望大和上船后少喊两声御田吧
 
+
+
+*****
+
+####  陈玉礼  
+##### 58181#       发表于 2022-6-1 09:37
+
+你不说兔子我都忘了有这号人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和之国如果有人要上船那只可能是大和，还是不要挣扎了
+
